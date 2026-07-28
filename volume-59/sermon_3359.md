@@ -2,11 +2,11 @@
 
 "And, behold, a woman in the city, who was a sinner, when she knew that Jesus sat at the table in the Pharisee's house, brought an alabaster box of ointment, and stood at His feet behind Him weeping, and she began to wash His feet with her tears, and wiped them with the hair ofher head, and kissed His feet and she anointed them with the ointment" Luke 7:37-38.
 
-THIS is a marvelously vivid Gospel incident. Every detail is plainly and forcefully set forth, so that we can picture the scene, making it live before us, without much mental effort. And yet, in some respects, there is a great reticence, a Divine delicacy, gloriously characteristic of so tender a book as the New Testament. The Evangelist&mdash;"the beloved physician," Luke&mdash;does not lay bare the minute particulars of this woman's life's sins, but delights to dwell rather upon the story of her penitence and its fair fruits, and so makes her to shine resplendently as a wonder of redeeming Grace! The symptoms of her soul's horrible malady he reveals in a single phrase&mdash;and that of general description&mdash;but upon the details of her gracious cure he delights to dwell.
+This is a marvelously vivid Gospel incident. Every detail is plainly and forcefully set forth, so that we can picture the scene, making it live before us, without much mental effort. And yet, in some respects, there is a great reticence, a Divine delicacy, gloriously characteristic of so tender a book as the New Testament. The Evangelist&mdash;"the beloved physician," Luke&mdash;does not lay bare the minute particulars of this woman's life's sins, but delights to dwell rather upon the story of her penitence and its fair fruits, and so makes her to shine resplendently as a wonder of redeeming Grace! The symptoms of her soul's horrible malady he reveals in a single phrase&mdash;and that of general description&mdash;but upon the details of her gracious cure he delights to dwell.
 
 We will consider the life of this famous penitent, as the Holy Spirit shall help us, under three heads, and notice, first, her former character Then, her deed of love which showed her new character And, thirdly, our Lord's treatment ofher. Let us very briefly look at&mdash;
 
-THE WOMAN's CHARACTER, to begin with, in order that we may see the horrible pit out of which she was
+the woman's character, to begin with, in order that we may see the horrible pit out of which she was
 
 taken.
 
@@ -34,7 +34,7 @@ Our text begins with a, "behold," and it may well be so, for a forgiven sinner i
 
 Let all know it upon earth and let Heaven know it&mdash;and let the loud harps ring in yon celestial halls because of matchless Grace! Behold, then, this woman's character, and remember&mdash;however fallen you may have been&mdash;the Grace of God can yet save you! Now, secondly, let us consider, at some length&mdash;
 
-THE DEED OF LOVE WHICH INDICATED HER CONVERSION.
+the deed of love which indicated her conversion.
 
 Her conduct as a convert was wide as the poles asunder from that of her unregenerate state&mdash;she became as evidently a penitent as she had been a sinner. One of the expositors upon this passage says that he cannot so much expound it as weep over it&mdash;and I think every Christian must feel very much in that humor. O that our eyes were as ready with tears of repentance as were hers! O that our hearts were as full of love as hers and our hands as ready to serve the forgiving Lord! If she has exceeded some of us in the publicity of her sin, yet has she not exceeded all of us in the fervency of her affection!
 
@@ -94,7 +94,7 @@ And what she did was so real, so practical, s o free from the mere froth of prof
 
 See, dear Friends, what Divine Grace made of "the woman that was a sinner." Perhaps you thought her worse than yourselves in her carnal state&mdash;what do you think of her as a penitent? What do you think of yourselves if you stand side by side with her? Do you not blush for very shame and ask for forgiveness of your Lord for the slenderness of your affection? Lastly, let us see&mdash;
 
-THE SAVIOR's BEHAVIOR TO HER.
+the Savior's behavior to her.
 
 What did He do? First, He silently accepted her service. He did not move His feet away, did not rebuke her, or bid her to leave. He knew that reflections were being cast upon His Character by His allowing her to touch Him, yet He did
 
