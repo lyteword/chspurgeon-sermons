@@ -79,7 +79,7 @@ Christian Brothers and Sisters, I dare say some of you sometimes get very dry an
 
 The Lord make us uneasy and wretched out of Him&mdash;make us hungry and thirsty apart from Him! The Lord make us covetous beyond all covetousness after Him, dissatisfied beyond all peace of mind apart from Him! And when we get to that, He will feed us with bread to the fullest and give us the wines on the lees well-refined, that we may drink and rejoice! May God give a blessing to these words for Jesus' sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 7.
+Exposition BY C. H. Spurgeon: MATTHEW 7.
 
 While we are reading, let us also be adoring at the same time, for the words of Christ have a gracious Divinity about them. They are Infinite. They are Omnipotent. There is a kind of life in them&mdash;a life which communicates itself to those who hear them. Our Savior did not preach sermons&mdash;He preached texts. All His sermons are full of golden sentences, not hammered gold leaf, like those of men, but ingots of solid gold and the gold of that land is good, the most fine gold. There is none like it. Thus He preaches in the seventh Chapter of Matthew.
 
