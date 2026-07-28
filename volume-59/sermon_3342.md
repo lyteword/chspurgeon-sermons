@@ -2,13 +2,13 @@
 
 "Jesus said unto her, Said I not unto you that if you would believe, you would see the Glory of God?" John 11:40.
 
-IT is not every man whose deed is as good as his word, but of the Son of Man, Christ Jesus, it may be said that whatever His lips have promised, His hands perform. He can, after the fact has transpired, turn to His disciples and say, "Said I not unto you, such-and-such, and is it not even as I said?" Seeking Sinner, Christ has said that you shall have peace if you believe on Him and He will not run back from that word! If you cast yourself upon Him, you shall have peace right now&mdash;you shall have happiness evermore, you shall have Heaven at the last&mdash;for there is no promise which Christ has made which He is not prepared to keep! There is no blessing which He presents to the hand of our faith which is either unreal, a sham, or a mockery! You shall find that Christ's gold is not mere tinsel, but true, and that His silver is silver tried in the furnace&mdash;good spending money, both for time and for eternity!
+It is not every man whose deed is as good as his word, but of the Son of Man, Christ Jesus, it may be said that whatever His lips have promised, His hands perform. He can, after the fact has transpired, turn to His disciples and say, "Said I not unto you, such-and-such, and is it not even as I said?" Seeking Sinner, Christ has said that you shall have peace if you believe on Him and He will not run back from that word! If you cast yourself upon Him, you shall have peace right now&mdash;you shall have happiness evermore, you shall have Heaven at the last&mdash;for there is no promise which Christ has made which He is not prepared to keep! There is no blessing which He presents to the hand of our faith which is either unreal, a sham, or a mockery! You shall find that Christ's gold is not mere tinsel, but true, and that His silver is silver tried in the furnace&mdash;good spending money, both for time and for eternity!
 
 I shall hope to use the text tonight&mdash;may God, too, use it&mdash;first, with regard to the case of our feelowmen, about whom many of us are much concerned. And then, in the second place, with regard to our own case.
 
 Dear Friends, I know that I touch a sympathetic chord in your hearts when I speak&mdash;
 
-WITH REGARD TO OUR CARE FOR OTHERS' SOULS.
+with regard to our care for others' souls.
 
 I bless God that so many of you love your fellow creatures and fellow sinners and earnestly desire to promote their highest interests by bringing them to Christ!
 
@@ -42,7 +42,7 @@ Oh, what a mercy to rise from your knees and say, "I have got it! I asked for so
 
 You Christian people, as you sit in the pews should be looking out for God to bless your friends, believing that your dear children will manifest the first signs of His gracious saving power. Then should you encourage these seedlings of promise and put the young plants in the hothouse of deep love during the winter of their conviction, so that they may not be withered or blighted, but come to be plants of God's right hand planting! Expect the blessing! It is coming! It is coming! God is blessing His Church and He intends to bless it yet more. He has opened the windows of Heaven and He is pouring out the blessing so that we have not room enough to receive it! We have not even now room enough to receive the hearers&mdash;the day is coming when we shall not have room enough to hold the Church! Only let us pray and work&mdash; and God, even our own God, will bless us and bless His other Churches, too&mdash;and the ends of the earth shall fear Him! So you see, then, the whole matter is if you can believe. Now, Mother, can you believe about your child? Now, good Woman, can you believe about your husband? Now, my Brother, can you believe about your wife? May God help you to believe Him! Depend upon it, the struggle is there. It is much harder for you to believe in God than it is for God to convert your wife, much harder for you to trust God about your child than it is for Him to save your child! It is much easier for God to save the harlot, the drunk, the thief, than it is for us to think He will do it! But when we can believe in Him and, believing, boldly pray for it and expect it, we shall get it, and he that was repulsive but yesterday shall be fragrant with Divine Grace tomorrow! He that rotted in his tomb but the other day, so far gone that men turned away from him, shall come into the midst of God's Church, be found among the living in Zion and make the Church on earth and the Church in Heaven glad in his society! But now we must have a few minutes in which to use the text for&mdash;
 
-THE COMFORT AND BLESSING OF THOSE WHO ARE NOT THEMSELVES SAVED.
+the comfort and blessing of those who are not themselves saved.
 
 I do not suppose, dear Friends&mdash;speaking to those of you who are awakened and quickened in your consciences&mdash;I do not suppose I could give a descriptive character of you which you would think to be too bad. You once thought yourselves very good and excellent, but it is quite a different tale with you now. God the Holy Spirit has met with you and
 
@@ -62,7 +62,7 @@ Now, can you believe this? Can you trust Jesus Christ, alone, to utterly save yo
 
 Oh, come, Sinner! God help you to come! Come! All black and ruined, come! All lost and defiled, come! Though you are as one dead, no, like Lazarus rotting in the tomb of your sins, "Awake, you that sleep, and rise from the dead, and Christ shall give you light." In the name of Jesus, thus I speak to you and He speaks to you through me. Come forth! Come forth! You corrupting Lazarus, come forth! 'Tis Jesus bids you come! Trust Him! He bids you trust Him and whoever trusts Him shall see the Glory of God forever! Amen.
 
-Exposition BY C. H. Spurgeon: JOHN111-26.
+Exposition by C. H. Spurgeon: JOHN111-26.
 
 Verse 1. Now a certain man was sick, named Lazarus, of Bethany, the town of Mary and her sister, Martha. In God's Book, towns are most remarkable for saints that dwell in them. "The town of Mary and her sister, Martha." A day will come when a city shall be more illustrious for a saint than for a Caesar&mdash;be more renowned for deeds of faith than for deeds of battle! It was "the town of Mary and her sister, Martha."
 
