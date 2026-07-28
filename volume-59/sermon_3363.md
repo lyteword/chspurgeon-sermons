@@ -78,7 +78,7 @@ The lesson of our text is not merely that Christ can save in our last extremity,
 
 Instantaneous salvation! Immediate salvation! This, the Spirit of God gives to those who trust in Jesus! You need not wait till tomorrow's sun has dawned. Talk not of a more convenient season. Sitting where you are, the Almighty Grace of God can come upon you and save you&mdash;and this shall be a sign unto you that Christ is born in your heart, the hope of Glory&mdash;when you believe in Him as your Pardon, Righteousness, and All-in-All, you shall have peace. If you do but trust yourself in Jesus' hands, you are a saved soul and the angels in Heaven are singing high praises to God and the Lamb on your account! Farewell.
 
-EXPOSITION BY C. H. SPURGEON: 1 CORINTHIANS 1:1-24.
+Exposition BY C. H. Spurgeon: 1 CORINTHIANS 1:1-24.
 
 Verse 1. Paul, called to be an Apostle of Jesus Christ through the will of God, and Sosthenes our brother This brother had been put to great shame. He was beaten before the judgment seat, if you remember, and now he has the great and lasting honor of being mentioned by the Apostle with himself. God will honor those who bear dishonor for His name's sake. Be not ashamed even to be beaten for Christ&mdash;the stripes are stripes of glory!
 
