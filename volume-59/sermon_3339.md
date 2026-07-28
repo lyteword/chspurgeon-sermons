@@ -12,7 +12,7 @@ Now observe, to some extent we can shed abroad the love of God in this house. Wh
 
 I shall first, then, and for a very little time, speak of the precious ointment which is here said to be shed abroad, namely, the love of God. Secondly, upon the shedding of it abroad. Thirdly, upon the blessed results of its being shed abroad in the heart and then, fourthly, upon some matters which tend to hinder our enjoyment of the shedding abroad of this love in our hearts. First, let us speak of&mdash;
 
-THE PRECIOUS OINTMENT WHICH IS HERE SPOKEN OF&mdash;"the love of God." Now, although I have to speak of this, yet it is a thing which, as to its essence, is not to be spoken of. It is to be enjoyed and to be felt, but no words can convey its unmistakable sweetness!&mdash;
+the precious ointment which is here spoken of&mdash;"the love of God." Now, although I have to speak of this, yet it is a thing which, as to its essence, is not to be spoken of. It is to be enjoyed and to be felt, but no words can convey its unmistakable sweetness!&mdash;
 
 "The love of Jesus, what it is None but His loved ones know." No words, either of the pen or the tongue will ever be able to convey it either to hearer or reader. We receive the love of God doctrinally and I think we do well to do so. We may speak of it in various theological senses. We may declare the love of God to be in some respects universal&mdash;for, "His tender mercies are over all His works" and, "the Lord is good to
 
@@ -36,7 +36,7 @@ and that when you have dived into the greatest deeps that your intellect can bea
 
 This, then, is all we will say concerning it, that the love of God is the precious ointment. But secondly, the text says&mdash;
 
-THIS LOVE OF God IS "SHED ABROAD IN OUR HEARTS."
+this love of God is "shed abroad in our hearts."
 
 What does this mean? Does it mean our merely knowing that God is Love? We must know that as a preliminary step, but oh, the shedding abroad of the love of God is vastly more than that! It does not mean merely prizing that love, the coming into a state of desiring after it. When we feel that it must be a precious thing to be beloved of God. That is a very proper state of mind, but it is not what is meant here. It is not even believing in the love of God. That is the Christian's privilege and should be his constant position&mdash;believing that God loves him, resting confident that even under affliction's cross the love of God is still the same&mdash;and that if God should hide His face, yet His heart is not changed. But the love of God shed abroad is more than that. It is not even the waiting for visits from God's face. It is a sweet thing to sit at Christ' s door and wait until He comes to us. If I may not feast at the table, I may be grateful to be allowed to hunger and thirst to do it! Next to having Christ, a real longing after Him is one of the most precious gifts of the Holy Spirit. But still, a great deal more than this is meant here. It is not even remembering former love-visits. That is often very consolatory&mdash;
 
@@ -66,7 +66,7 @@ bread of earth will never satisfy you! If you have ever eaten of the bread which
 
 But it shall not always be so. You shall soon see His face if you seek after Him and again shall the "love of God be shed abroad in your hearts by the Holy Spirit which is given unto us." And now, may God help us, while for a few minutes we go over what we have said, and ponder&mdash;
 
-THE RESULTS OF THIS LOVE BEING SHED ABROAD IN OUR HEARTS.
+the results of this love being shed abroad in our hearts.
 
 I have anticipated some of these already, but we remind ourselves more definitely that the love of God in our hearts sweetens everything. It sweetens our duties and they become privileges&mdash;
 
@@ -84,7 +84,7 @@ tramples underfoot all lusts and all corruption&mdash;and we rejoice in the Lord
 
 And where this perfume is, once more, it is quite sure to communicate itself from the man, instrumentally, to his fellows. He who has been in beds of spices will smell, thereof, and they who sit with their Lord will bear away some tokens of His companionship. All the ways of the Lord Jesus are full of perfume, because "His garments smell of myrrh, and aloes, and cassia." And when your garments smell of the same, through having been with Him, you will communicate something of the savor, instrumentally, to those whom you meet. God grant you Grace to seek this as a holy ambition, that, having the love of God in your hearts, it may be as when one has a candle lit and others bring their candles to his, and he imparts the light, for it makes him none the poorer, while they rejoice therein. And now, to conclude, I think we all who love the Lord desire to feel His love shed abroad in our hearts, but we sometimes mourn because we do not feel it. What, then, is
 
-THE REASON WHY WE DO NOT FEEL THE LOVE OF God SHED ABROAD IN OUR HEARTS? May it not be, Brothers and Sisters, because we have restrained prayer? The common sin of God's people is slackness in prayer. If there is one sin that needs to be preached about more than another just now, it is the sin of the omission of secret dealings with God. This is the secret of our spiritual leanness, the secret of many of our trials, of our lack of joy, our loss of confidence in God.
+the reason why we do not feel the love of God shed abroad in our hearts? May it not be, Brothers and Sisters, because we have restrained prayer? The common sin of God's people is slackness in prayer. If there is one sin that needs to be preached about more than another just now, it is the sin of the omission of secret dealings with God. This is the secret of our spiritual leanness, the secret of many of our trials, of our lack of joy, our loss of confidence in God.
 
 Neglect the prayer chamber? Why, the merchant might as well neglect his office and counting house! This is the place where you will be impoverished if you neglect it. I am persuaded more and more the longer I observe myself, and certainly the longer I observe others, that when we grow weak on our knees, it is a sign of weakness throughout the entire man. How can you expect to know much of the love of God if you will not go with Him? If you give no time to meditation, if you have no season for searching the Scriptures, if you have no periods for communion with God, why wonder if you should miss enjoyment with Him?
 
