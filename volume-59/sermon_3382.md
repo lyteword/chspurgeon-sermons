@@ -14,7 +14,7 @@ But the text does mean this, that throughout the whole world&mdash;north, south,
 
 with that decree and now, in His strength, that you will make Him great And then I shall close by asking whether there are not some here whose hearts, as yet unbowed to His dominion, shall tonight come and acknowledge His sway, that they also may feel and proclaim His greatness unto the ends of the earth. In the first place, what a task I have undertaken in endeavoring to show that&mdash;
 
-JESUS CHRIST DESERVES TO BE MADE GREAT!
+Jesus Christ DESERVES TO BE MADE GREAT!
 
 Oh, my Brothers and Sisters, it needs an angel to set forth the Person of the Lord Jesus, and yet an angel might fail, for an angel was never washed in the Savior's blood and never redeemed from wrath by Jesus the Substitute! What are my lips but poor, cold clay, and what are my words but air, and how shall I, then, set forth the Son of God, the Eternal One, "who, though He was rich, yet for our sakes became poor, that we, through His poverty, might be rich"?
 
@@ -46,7 +46,7 @@ The angels love Him, though for them He laid not down His life&mdash;and shall m
 
 Thus much upon a theme that defies our power to set forth fully. And now, in the second place, the text may be viewed as&mdash;
 
-a SOLEMN PURPOSE AND DECREE ON THE PART OF GOD.
+a SOLEMN PURPOSE AND DECREE ON THE PART OF God.
 
 Christ shall be made great to the ends of the earth. There are idol-gods that are worshipped by the largest proportion of our race, but the idols He shall utterly abolish! The false prophets have more followers on earth than Christ has. There are more Muslims than Christians of all kinds. But the crescent of Mohamed must wane. The Papacy has still a firm hold upon the minds of millions, but, like a millstone which is hurled into the flood to rise no more, so must the antiChrist of Rome be utterly cast away! Everything that stands in the place of Christ must be broken into a thousand shivers, for He must reign until He has put all His enemies under His feet! Brothers and Sisters, the very signs of the times, as well as the Word of God, lead us to the comfortable belief that there should be a wider enlightenment of the human mind. It may be, certainly it may be, that the Lord will speedily come, but it does not seem to me at all likely that He will. We are to live anticipating His coming, as servants who know they will have to give an account when He does come. That is the practical bearing of the Doctrine upon our life, but there are many prophecies yet to be fulfilled which seem to show that He is not coming just now. I believe that there will be a gradual enlightenment of the human race. I see but little of it at present, but, still, He must be great unto the ends of the earth! Hard hearts will melt before the preaching of
 
@@ -56,7 +56,7 @@ We would not be surprised if news should come, long before these heads of ours s
 
 I want, now, in the third place, to ask Christians here&mdash;
 
-WHETHER, AS THIS IS GOD's DECREE, IT HAS NOT OFTEN ALSO BEEN THE EXPRESSION OF OUR
+WHETHER, AS THIS IS God's DECREE, IT HAS NOT OFTEN ALSO BEEN THE EXPRESSION OF OUR
 
 HEARTS?
 
@@ -72,7 +72,7 @@ I think, then, that we are all agreed upon this point. We mean, God helping us, 
 
 And now we can spend only two or three minutes in asking the question&mdash;
 
-ARE THERE NOT SOME HERE TONIGHT IN WHOM JESUS CHRIST MAY BE MADE GREAT?
+ARE THERE NOT SOME HERE TONIGHT IN WHOM Jesus Christ MAY BE MADE GREAT?
 
 Now, you good people who have never done anything wrong and who have got a very good righteousness of your own&mdash;I do not ask you to glorify Christ&mdash;because you cannot! If I wanted to praise up some doctor and said, "Now, here he is&mdash;he can cure all diseases! Will you come and help him to get a name?" I would know that you who were not sick could not help him, but the man who was most sick would be the very one that would get the doctor the best name if he could cure him! So when Christ's name is to be lifted up and we want to preach Him so that He may be extolled, you who feel your guilt are the very men who can help us! Supposing now, Jesus Christ should take the drunk and wash out his mouth and make a sober man of him&mdash;and a Christian&mdash;would not that make Christ to be exalted? And ah, if there should be, even here, a woman of an evil and vicious life, and Christ should change her so as to make her chaste and ho-norable&mdash;oh, how great it would make Him to become! And if some black villain has crept in here and one who has said of himself that there is no hope of his being converted and no mercy possible for him&mdash;supposing he should find pardon and peace by believing in Jesus? And then suppose he become a preacher of His Gospel&mdash;would that not make Christ's name to be made great? John Newton was once the vilest of the vile and oh, it made London wonder when the African blasphemer stood up in the pulpit of the church of St. Mary, Woolnooth, to preach the Christ and the Cross which he had so blasphemed! And oh, may God make London wonder yet again by taking some of the worst of the worst, and saving them, and making them proclaimers of the Gospel of His Grace! Why should He not do it? He has often done it. Are you willing and anxious that He should do it again? Then cry to Him and He will do it!
 
@@ -90,7 +90,7 @@ The subject was, as I have said, the unpardonable sin. And Mr. Cooke showed what
 
 "Oh, Sovereign Grace, my heart subdue, I would be led in triumph, too! A willing captive to my Lord, To sing the triumph of His Word."
 
-EXPOSITION BY C. H. SPURGEON: REVELATION 12.
+Exposition BY C. H. Spurgeon: REVELATION 12.
 
 Verse 1. And there appeared a great wonder in heaven: a woman clothed with the sun, and the moon under her feet, and upon her head a crown of twelve stars. This is that woman of whom the promise runs, "The seed of the woman shall bruise the serpent's head." John saw this in a vision in the heavenly places. He saw the Church of God, enthroned, made glorious, clothed with the sun, having the brightness of Divine Light about her, with all that is variable, changeable as the moon under her feet, and upon her head the crown "that her Lord had given her"&mdash;twelve Patriarchs, twelve Prophets, twelve Apostles, a complete number of glorious lights kindled from Heaven!
 
