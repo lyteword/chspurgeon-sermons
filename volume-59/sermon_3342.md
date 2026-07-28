@@ -62,7 +62,7 @@ Now, can you believe this? Can you trust Jesus Christ, alone, to utterly save yo
 
 Oh, come, Sinner! God help you to come! Come! All black and ruined, come! All lost and defiled, come! Though you are as one dead, no, like Lazarus rotting in the tomb of your sins, "Awake, you that sleep, and rise from the dead, and Christ shall give you light." In the name of Jesus, thus I speak to you and He speaks to you through me. Come forth! Come forth! You corrupting Lazarus, come forth! 'Tis Jesus bids you come! Trust Him! He bids you trust Him and whoever trusts Him shall see the Glory of God forever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN111-26.
+Exposition BY C. H. Spurgeon: JOHN111-26.
 
 Verse 1. Now a certain man was sick, named Lazarus, of Bethany, the town of Mary and her sister, Martha. In God's Book, towns are most remarkable for saints that dwell in them. "The town of Mary and her sister, Martha." A day will come when a city shall be more illustrious for a saint than for a Caesar&mdash;be more renowned for deeds of faith than for deeds of battle! It was "the town of Mary and her sister, Martha."
 
