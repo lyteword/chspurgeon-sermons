@@ -2,7 +2,7 @@
 
 "There shall be a resurrection both for the just and the unjust." Acts 24:15.
 
-THE heathen had, somehow or other, spelled out the Truth of God that the soul of man is immortal. Almost all their religions implied this and some of their sages plainly taught it. But never had they imagined that this immortality might belong also to the body!
+The heathen had, somehow or other, spelled out the Truth of God that the soul of man is immortal. Almost all their religions implied this and some of their sages plainly taught it. But never had they imagined that this immortality might belong also to the body!
 
 The Doctrine of the Resurrection from the Dead was peculiar to Christianity. It was so novel and it seemed, at first, to be so absurd that when men heard the Apostles speak of such a resurrection they mocked and laughed them to scorn as fools. They called Paul, "a babbler," because of this. They believed he must be mad. Had they not seen the body sicken and die? Had they not marked it in various stages of decay? Did they not know that it was frequently dissolved into small dust, scattered to the manifold winds of Heaven, or that its fragments mingled with the waves of the sea, or that its various members were torn by wild beasts and could they, therefore, imagine it to be credible that any sane person could believe that the human body would rise again from the dead? Yet Paul believed this and this he preached&mdash;that there would be a resurrection of the dead, both of the just and the unjust, not that the just and the unjust would merely live as to their souls, but that their bodieswould be restored from the grave and that a resurrection, as well as an immortality, would be the future of every man of woman born, whatever his character might be!
 
@@ -10,7 +10,7 @@ Now, this is the great Doctrine of the Christian faith which we do not doubt, bu
 
 My great purpose tonight, Beloved, is to speak on the majestic fact that the just and the unjust are to live on in a resurrection state. I am not going to debate, discuss, argue as to the fact of it, but, assuming your belief in God's Inspired Word, declare a few thoughts which that sublime Truth seems to raise in one's mind. I shall treat the Truth as though it were a lantern&mdash;and shall look at some of the rays of Divine Light that stream from it on all sides. And, first of all&mdash;
 
-WHAT AN ENNOBLING EFFECT THIS TRUTH HAS UPON US!
+what an ennobling effect this truth has upon us!
 
 Observe the effect it has, first of all, given our bodies. Paul elsewhere calls the body, "this vile body," and so it is in comparison with what it is to be, by-and-by! But yet if this body has been redeemed with the precious blood of Christ, and if the Holy Spirit dwells in our bodies, as we are taught in Scripture&mdash;and if these bodies are to be partakers of a pure and sinless immortality&mdash;then what noble things these otherwise vile bodies become! So noble, my Brothers and
 
@@ -24,7 +24,7 @@ As I begin to look at him in the light of my text, which is far above all the fi
 
 Thus much on that one thought. And now a second one. If there is another state, as you know there is, for body and soul&mdash;
 
-WHAT a LIGHT THAT CASTS UPON THIS PRESENT LIFE!
+what a light that casts upon this present life!
 
 How little it makes it! How great it makes it! How little! Well, if I suffer, today. If my life should be made weary through weakness of body, or if it should be bitter through heart-toil, or if it should be severe through stern poverty, yet you know how we sing&mdash;
 
@@ -50,7 +50,7 @@ And yet in this respect, I say, how great this present life becomes! You know ho
 
 This life is the mother of the life to come. There is a resurrection for the just, and all the glory which the just shall inherit will be but the outcome of that immortal life which they received here! There is a resurrection for the unjust, and the worm undying and the fire that shall never be quenched! And all these will be just the development and open revealing of the character which they acquired here on earth. Living in sin is the germ of living forever in Hell! Believing in Jesus is the root of rejoicing forever in glorious immortality! Now, Sirs, see you not that life is not a thing to be played with, not a heap of counters that a child may toss to and fro, not the mere spray on the great sea of eternity? You must not joke and talk about it as though it were a thing to be despised&mdash;but come up and look at it with all its solemn possibilities and results&mdash;and live the life of sober men, live the life of men who have peered beyond the veil and seen some of the momentous issues of this fleeting existence! Henceforth, live while you live, earnestly, as in the sight of God, the Judge of the quick and the dead! Yes, let the light of the Resurrection stream over the whole of your present life to make its great things for the present to become little&mdash;to make those things which otherwise might be little, which have a reference to eternity&mdash;become great in your esteem. But I will not tarry on this and, therefore, pass on to the thought&mdash;
 
-WHAT ENCOURAGEMENT THIS OFFERS TO US!
+what encouragement this offers to us!
 
 To think that there is a resurrection and another life! What? Were it worth our while to toil here in the service of Christ, often unrewarded and very frequently misrepresented and persecuted for what we do, if there were not a place where the reward of Divine Grace would be given and where the mistakes of earth would all be set right? "Therefore," says the Apostle, "beloved brethren, be you steadfast, unmovable, always abounding in the work of the Lord, forasmuch
 
@@ -58,7 +58,7 @@ as you know that your labor is not in vain in the Lord." It might be in vain her
 
 The same thing is an encouragement under suffering. For this the martyrs cheerfully gave themselves up to their tormentors, not accepting deliverance because they looked for a better resurrection. This it was that made them brave to meet the lions in the amphitheater, or to lie and silently rot in the dismal dungeons of the Roman Emperors. This it was that made Smithfield glorious, as the saints in their chariots of fire clapped their hands and ascended to the skies! They were, of all men, most miserable if, in this life only, they had hope. They were, of all men, most insane to fling away their lives if this world were all! But because there is another and a better land, to die for Jesus became a glorious thing and they did it, being not amazed, not trembling, but dying with greater grandeur about them than that with which most men have learned to surround their living! And now, you that today are poor, or today are scoffed at. You who, though trying to follow Christ, find it a hard path. You who at home have little to encourage you and comfort you&mdash;remember this worldis not your rest! If you were to have 50 years of your present trouble, well, it will be as nothing compared with the eternal weight of Glory! Have patience. Ask your Master to give you His patience. Pray of the Holy Spirit to work in you holy virtue, that after you have endured awhile, you may inherit the promise. Remember that there must first be the service before there can be the reward&mdash;and even under the economy of Grace&mdash;in which we are not saved by works, but saved by the merit of Jesus, yet the Lord will have His servants, first of all, be made perfect through suffering before He admits them to their everlasting rest. Be of good courage, then! He will strengthen your heart. This is not your rest, but it remains for you, and you shall inherit it, by-and-by. Passing on again, for I only dwell for a moment upon each thought&mdash;this fact of our rising again and living forever suggests to us&mdash;
 
-WHAT OUGHT TO BE THE ONE CONCERN OF LIFE.
+what ought to be the one concern of life.
 
 What shall this be for the saint&mdash;what for the sinner? If I am to live again as a child of God. If my salvation is accomplished. If my sin is blotted out and I am really saved, then let me serve my God with all my might, seeing what a blessed immortality He has prepared for me! Slaves work when they hear the whip crack, but the children of God are not slaves&mdash;they are not under bondage&mdash;they work from a very different motive. They have no fear of Hell, no fear of losing Heaven. When their faith is constantly fixed upon the merits of their Savior, they know that their warfare is accomplished, that their iniquity is pardoned, that their salvation is secure beyond all risks through the Everlasting Covenant, the inimitable purpose and the Divine promise of the Father in Christ Jesus! Because their salvation is secure and because it leads to such a blessed immortality, they burn with fervent love and passionate gratitude towards Him who has done so much for them! Gratitude in the heart ought to be, and I believe it is, the most powerful force in human motive. Love&mdash; what shall equal it? Its wheels move until the axles grow hot with speed. Love has an impetuous force about it. Many waters cannot quench it, neither can the floods drown it. What love we owe to Him who died, that when we die we may live again, who rose that we might rise and made a pathway to the skies that we might follow Him, even to His Throne!
 
@@ -72,7 +72,7 @@ Why do you give so much attention to this world that is so soon to be left&mdash
 
 Blessed Spirit, take away this folly and make men wise that they may be saved! Let this be our one great concern&mdash; with holy care to make our calling and election sure, that when the Master comes we may not be found castaways&mdash;but may be gathered with His people! And now for the last point. I do not know whether you will set much store by this last thought, but it is this&mdash;considering that our friends whom we talk with everyday, with whom we go up and down to the market, and to the place of worship&mdash;considering that they are to live forever&mdash;
 
-SHOULD WE NOT ALTER a GREAT DEAL OF OUR PRESENT BEHAVIOR UNDER THE POWER OF THIS TRUTH?
+should we not alter a great deal of our present behavior under the power of this truth?
 
 What kind of behavior does this majestic fact inculcate towards our fellow men and women? Well, I think that Christian people ought always to act to one another as immortal beings. Now I know some who belong to one denomination who will scarcely speak to those of another section of Christ's one Church. Well, well, well&mdash;if you both ever get to Heaven, you will have to dwell together! Yet it seems as though you cannot live together on earth without bickering! Why can't you make up your minds to differ from each other, but always in a Christian spirit? I think, if I knew I had to live with a man, forever, one thing I would like to do would be to tell him perfectly honestly, with sincere love, all the Truths of God I knew&mdash;and I ought to be willing to hear from him all the Truth he thought he knew. I would not like him to say to me, "Now, you must not hold your views strongly&mdash;you must not speak of them, or try to propagate them." That would be as bad as telling me I must sin against God by restraining the light which He had given me! Neither ought I to say to him, "You shall not be free to hold and disseminate your views," for that would be to take upon myself a responsibility which does not belong to me!
 
@@ -84,7 +84,7 @@ And now may the good Lord keep our thoughts Heavenward and bless us in them, for
 
 7
 
-Exposition BY C. H. Spurgeon: PSALM 73.
+Exposition by C. H. Spurgeon: Psalm 73.
 
 Here you have the Psalmist in a fainting fit. He has allowed the flesh to conquer the spirit. The observant eye of reason has, for awhile rendered dim the clear vision of faith.
 
