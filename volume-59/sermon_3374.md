@@ -40,7 +40,7 @@ But why must it come? Why will you die? Why are you set on sin? Why do you love 
 
 [The original title of this sermon is "SIN's TRUE QUALITY."]
 
-EXPOSITION BY C. H. SPURGEON: PSALM 51; ROMANS 7:7-25.
+Exposition BY C. H. Spurgeon: PSALM 51; ROMANS 7:7-25.
 
 PSALM51.
 
