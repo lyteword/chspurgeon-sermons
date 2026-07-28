@@ -18,7 +18,7 @@ of the dust should think himself great, and that in the blaze of the infinite pu
 
 Going now into this subject with as much brevity as possible, we shall observe, in the first place, that&mdash;
 
-THE PLAN OF SALVATION, ITSELF, AIMS AT THE BOWING DOWN OF THE LOFTINESS OF MAN AND AT THE EXALTATION OF GOD.
+THE PLAN OF SALVATION, ITSELF, AIMS AT THE BOWING DOWN OF THE LOFTINESS OF MAN AND AT THE EXALTATION OF God.
 
 This is very apparent to us at once when we remember that there is no plan of salvation at all for man except as a sinner The plan of salvation necessarily considers man as needing salvation and as being lost. Its very first promise is forgiveness, which implies sin. It begins to talk with man of pardon and justification, which implies guilt and a lack of righteousness. If there is anybody here that is not a sinner, there is nothing in the Bible for him! As old Wilcox well observes, "Christ can save everybody except the self-righteous." He came into the world to save sinners, but not the righteous. He is the Physician for any form of disease, except that form of disease which consists in not being diseased. "The whole," says He, "have no need of a physician, but they that are sick." If you are a sinner, there is some relation between you and Christ. But if you proudly say in your heart, "I am better than other men. I am not as the thief, or the harlot. I need not wash in the fountain which they need so much, for I am clean." I tell you, man or woman, there is no Christ for you, no pardon for you, no justification for you, no Heaven for you! Your self-righteousness, like an iron bar across the gates of Paradise, shuts you out forever! Your good works can do for you what your sins need not do&mdash;they may ruin your soul forever by making you too proud to come to Christ. The plan of salvation appeals to men as sinners! It comes to them on no other terms but as sinners&mdash;and thus it is evidently meant to bring down man's high looks.
 
@@ -68,7 +68,7 @@ Let us look forward to the works of Grace which are yet incomplete, but which ar
 
 Then shall we be, before the Eternal Throne, without spot or wrinkle, or any such thing, covered with the robe of Christ's righteousness and decked with the jewels of our perfected salvation! Then, indeed, shall every haughty look be gone and every proud thought be banished! And in that day the Lord alone shall be exalted! Then shall our one song be, "Not unto us, not unto us, but unto Your name be the Glory. Unto Him who loved us and loosed us from our sins in His own blood, and has made us kings and priests unto God, unto Him be glory forever and ever." I shall not detain you much longer, but we ought not to leave this subject without mentioning yet another Truth of God that our text suggests.&mdash;
 
-THE EFFECT OF THE WORKS OF GRACE WHICH GOD DOES IN HIS CHURCH AT LARGE IS TO
+THE EFFECT OF THE WORKS OF GRACE WHICH God DOES IN HIS CHURCH AT LARGE IS TO
 
 BRING DOWN THE LOFTINESS OF MAN.
 
