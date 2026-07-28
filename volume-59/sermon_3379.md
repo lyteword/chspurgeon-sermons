@@ -8,7 +8,7 @@ Very like this is the manner of God's Providence. There are thousands of people 
 
 Laying it down, then, as a rule, that God's servants will be dealt roughly with by their Master, that the Brothers and Sisters of Christ must accept it, I shall now proceed to offer a few thoughts, which, perhaps, may be comfortable to those of God's people who are in trouble. From the text and its surroundings, I gather this Truth of God&mdash;
 
-WHEN THE LORD IS ABOUT TO GIVE GREAT FAVORS, HE OFTEN DEALS ROUGHLY WITH THOSE
+WHEN THE Lord IS ABOUT TO GIVE GREAT FAVORS, HE OFTEN DEALS ROUGHLY WITH THOSE
 
 WHO ARE TO RECEIVE THEM.
 
@@ -91,7 +91,7 @@ When it shall be so, when you are forever with the Lord, if you could be ashamed
 
 As for such as have never trusted Christ, it often makes my heart bleed when I talk of these things, to think that I cannot speak to them, that I cannot tell them that these comfortable things are theirs. Oh, unbeliever, you are an alien and a stranger to the privileges of heavenly citizenship! For you there is no blessedness, either now or hereafter! Why will you remain an unbeliever? Why will you continue to be careless and godless, Christless? I trust the Lord has designs of love to you. Leave your sins, for you must either leave them or be lost! Trust the Savior. Rely wholly upon His blood and righteousness, for there is no other righteousness that can ever help you. But if you cast your soul upon Him, it shall be well with you forever! God grant that we may all be found in the day of the appearing of our Lord Jesus Christ, as Brothers and Sisters who are in allegiance to Him. So may it be with you all. Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATHEW 7:13-29; 15:1-12.
+Exposition BY C. H. Spurgeon: MATHEW 7:13-29; 15:1-12.
 
 Verse 13. Enter you in at the strait gate. It is very unpopular. The great ones will recommend to you great liberality and breadth. But enter yet in at the strait gate.
 
