@@ -10,7 +10,7 @@ There was a suitableness in God's choosing the frogs to humble Egypt's king, bec
 
 The Lord has sure ways of reaching the hearts of proud men and if He does not use frogs, today, He can use other means, for He has servants everywhere prepared for each emergency. He knows how to reach the rich and make them sit by the wayside, like Belisarius, begging for food. The strong and healthy man, He can soon place among the invalids and make him cry like a sick girl, "Give me a drink, Titinius." Your children are about you today&mdash;your pride and joy&mdash;but He can make you childless in an hour. His arrows can pierce through a sevenfold harness of steel&mdash;no man is so encompassed as to be beyond the reach of the Almighty! Let me speak of Pharaoh by way of observation and I will begin by remarking that&mdash;
 
-IN SORE TROUBLE, THE SERVANTS OF THE Lord ARE GREATLY VALUED.
+in sore trouble, the servants of the Lord are greatly valued.
 
 "Then Pharaoh called for Moses and Aaron." The frogs had taught him good manners and he longs to see the ministers of the Lord. How is this? The man was somewhat brought to his senses&mdash;and when this happens, men begin to value those whom they aforetime despised. Listen to this story. There came a man of God to Bethel where king Jeroboam was
 
@@ -32,7 +32,7 @@ Savior."
 
 It is clear that in times of trouble godly men and women are at a premium! Secondly, with ungodly men&mdash;
 
-IN TIMES OF SORE TRIAL PRAYER ALSO BEGINS TO BE VALUABLE.
+in times of sore trial prayer also begins to be valuable.
 
 Then Pharaoh called for Moses and Aaron and said, "Entreat the Lord." Pharaoh begs an interest in the prayers of good men&mdash;this is a fine change since the day wherein he said, "Who is Jehovah that I should obey His voice?"
 
@@ -50,7 +50,7 @@ In many instances this desire for prayer is one of the movements of the Spirit u
 
 Take warning, you that do not pray&mdash;you will yet need to pray! There will come a time to the most of you when you will not be able to bear yourselves without crying unto God. May God, in His Infinite Mercy lead you to begin at once! For when it can be said of you, "Behold, he prays," it will be the best of news! Beginning to pray is the turning point of life! Why not at once set a high price upon that which in times of trouble you will seek for with tears? Our third observation is this&mdash;
 
-IN SORE TROUBLE THE PRAYER IS OFTEN a WRONG ONE.
+in sore trouble the prayer is often a wrong one.
 
 The petitions which men offer when they are in distress are often wrong prayers. Pharaoh said, "Entreat the Lord, that He may take away the frogs from me."
 
@@ -62,7 +62,7 @@ Pharaoh's prayer dealt only with the punishment''Take away the frogs! Take away 
 
 When ungodly men are under a sense of Divine Wrath they turn not to God aright&mdash;their prayer is devoid of spiritual requests. When Cain had murdered his brother, did he express a regret? No. He only murmured, "My punishment is greater than I can bear." Esau sold his birthright. Did he repent of the sin of having been a profane person, and seek pardon carefully? Not he! He sought carefully with tears to get back his birthright, but he found no place for repentance in his father Isaac! The blessing had gone to Jacob and on Jacob it must remain. Another telling case is that of Simon Magus. When Peter told him that he was in the gall of bitterness and in the bond of iniquity, he replied, "Pray you to the Lord for me that none of these things which you have spoken come upon me"&mdash;that was all he cared about. He expressed no desire to be delivered from his evil way, but only to be screened from the consequences of it! Every knave cries out against punishment&mdash;but he is attaining to honesty who entreats to be freed from his pilfering habits! Our last remark is that&mdash;
 
-THE SINNER IN HIS SORE TROUBLES IS VERY APT TO MAKE GREAT PROMISES.
+the sinner in his sore troubles is very apt to make great promises.
 
 Pharaoh cried, "Take away the frogs and I will let the people go, that they may do sacrifice unto the Lord." In this way one of you talked when you were down with fever, or when you were likely to lose your employment through your folly. You said, "Please God, if You let me escape this once, I will be a very different man." Such promises are generally boastful. Notice here the proud language of Pharaoh. "I will let the people go." He does not long talk in this fashion, but now he is a great king and he gives his royal word, "I will let the people go." Some folks are very big when they promise God, "Iwill do this and I will do that." But you cannot, my Friend! You reply that you are going to have a new heart and a right spirit. Are you looking to create them yourself? You talk as if you were! I think you said that you were going to "turn over a new leaf," but a new leaf in a bad book may be worse than the old leaf! But you are going to be entirely new, are you? Are you to do all this yourself? You are greatly mistaken&mdash;true conversion does not begin by talking of what "I' will do! It begins in casting ourselves upon the Lord and begging Him to work all our works in us!
 
@@ -78,7 +78,7 @@ Then the Lord began to deal with him in another way. He had a bad season and los
 
 But oh, you ungodly, if He will deal thus with His children, how will He deal with you who are not His children? If He means to bless you, He will not let you go unpunished, but He will smite you with heavy strokes. I remember one who used to bless God for a broken leg&mdash;he said that he never ran in the ways of God until he was lame. I believe that some parents never loved the heavenly Father till their dear infant child was taken away. The shepherd tried to get the mother sheep into the fold, but she would not come, so he took up her lamb and carried it away in his arms&mdash;and then the mother followed him! He has done that to some of you. You would never have come to Christ if dear little Johnny had not gone Home to Jesus. You lost one and another for that same purpose&mdash;have you not had enough strokes? You have been smitten till your "whole head is sick and your whole heart faint." Will you not turn unto your God without more ado? His blows are sent in mercy! It is far better that you should have a Hell here than Hell hereafter! It were better for you to live a lifelong agony than to be cast into Hell forever! Believe in the Lord Jesus Christ and you shall be saved! He died for sinners&mdash;died for aggravating, guilty, willful sinners! And if they look to Him, they shall at once be forgiven! I cannot give the look of faith for you, or I would gladly do so, but I beseech you to look and live! May God the Holy Spirit lead you to do so, for Jesus' sake! Amen.
 
-ExpositionS BY C. H. Spurgeon: EXODUS3:1-14; ROMANS 9:1-25.
+Exposition by C. H. Spurgeon: EXODUS3:1-14; ROmans 9:1-25.
 
 This Chapter in Exodus tells of the appearance of God to Moses in the Wilderness. Has He departed from us, Brothers and Sisters? He used to be seen by godly souls by mount and stream and sea&mdash;and even bushes were alive and blazing with the indwelt Godhead! Oh, that He would reveal Himself to us tonight! I am going to read this Chapter with this longing in my heart. I pray that the same longing may be in the heart of every child of God&mdash;"Show me Your face: show me Your face, my God, tonight!"
 
@@ -108,9 +108,9 @@ And this shall be a token unto you, that Ihave sentyou: When you have brought fo
 
 Then Moses said to God, Indeed, when Icome to the children of Israel and say to them, The God ofyour fathers has sent me to you, and they say to me, What is His name? what shall I say to them?
 
-God said unto Moses, I AM WHO I AM. That is His name&mdash;The Infinite, Eternal and Unchangeable God!
+God said unto Moses, I AM who I AM. That is His name&mdash;The Infinite, Eternal and Unchangeable God!
 
-And He said, Thus shall you say unto the children of Israel, I AM has sent me unto you. Oh, what a glorious commission&mdash;to receive it direct from the self-existent God, who is the same forever and ever, and only has immortality! Speak to us tonight, you great I AM, JAH, Jehovah, God of Abraham, of Isaac and of Jacob. Speak to this company in this House of Prayer tonight, because of Jesus, Joshua, Jehoshua, Jehovah, Jesus. I have tried to show you how that name of Jesus has the name "Jehovah" hidden away in it. Because of Him, draw near to us, O Lord!
+And He said, Thus shall you say unto the children of Israel, I AM has sent me unto you. Oh, what a glorious commission&mdash;to receive it direct from the self-existent God, who is the same forever and ever, and only has immortality! Speak to us tonight, you great I AM, Jah, Jehovah, God of Abraham, of Isaac and of Jacob. Speak to this company in this House of Prayer tonight, because of Jesus, Joshua, Jehoshua, Jehovah, Jesus. I have tried to show you how that name of Jesus has the name "Jehovah" hidden away in it. Because of Him, draw near to us, O Lord!
 
 ROMANS9:1-25. The Jews thought that God must certainly save them. They thought they had a birth claim. Were they not the children of Abraham? Surely they had some right to it. This Chapter battles the question of right. No man has any right to the Grace of God. The terms are inconsistent. There can be no right to that which is free favor. We are all condemned criminals, and if pardoned, it must be as the result of pure mercy, absolute mercy, for there is no good in any one of us!
 
