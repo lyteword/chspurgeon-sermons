@@ -2,7 +2,7 @@
 
 "The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ? For we being many are one bread, and one body: for we are all partakers of that one bread." 1 Corinthians 10:16,17.
 
-[Another Sermon by Mr. Spurgeon on verse 16 is #2572, Volume 44&mdash;FELLOWSHIP WITH CHRIST.]
+[Another Sermon by Mr. Spurgeon on verse 16 is #2572, Volume 44&mdash;FELLOWSHIP WITH Christ.]
 
 I will read you the text as it is given in the Revised Version&mdash;"The cup of blessing which we bless, is it not a communion of the blood of Christ?" That is to say, is it not one form of expressing the communion of the blood of Christ? "The bread," or as it is in the margin, "the loaf which we break, is it not a communion of the body of Christ seeing that we, who are many, are one loaf, one body: for we all partake of the one loaf." The word, "loaf," helps to bring out more clearly the idea of unity intended to be set forth by the Apostle .
 
@@ -12,7 +12,7 @@ What does this Supper mean? It means communion&mdash;communion with Christ, comm
 
 What is communion? The word breaks up easily into union, and its prefix com, which means with, "union with." We must, therefore, first enjoy union with Christ and with His Church or else we cannot enjoy communion. Union lies at the basis of communion. We must be one with Christ in heart, soul and life&mdash;baptized into His death, quickened by His life&mdash;and so brought to be members of His body, one with the whole Church of which He is the Head. We cannot have communion with Christ until we are in union with Hm. And we cannot have communion with the Church till we are in vital union with it.
 
-The teaching of the Lord's Supper is just this&mdash;that while we have many ways of COMMUNION WITH CHRIST, yet the receiving of Christ into our souls as our Savior is the best way of communion with Him.
+The teaching of the Lord's Supper is just this&mdash;that while we have many ways of COMMUNION WITH Christ, yet the receiving of Christ into our souls as our Savior is the best way of communion with Him.
 
 I said, dear Friends, that we have many ways of communion with Christ. Let me show you that it is so.
 
@@ -68,7 +68,7 @@ Beloved Friends, when you have thus received Jesus, fail not to rejoice in Him a
 
 Oh, the joy of continually entering into fellowship with Christ in such a way that you never lose His empathy! Be this yours, Beloved, every day and all the day! May His shadow fall upon you as you are in the sun, or stray in the gardens! May His voice cheer you as you lie down upon the seashore and listen to the murmuring of the waves. May His Presence glorify the main solitude as you climb the hills! May Jesus be to you an all-surrounding Presence, lighting up the night, perfuming the day, gladdening all places and sanctifying all pursuits! Our Beloved is not a Friend for Lord's-Days only, but for weekdays too! He the inseparable passion of His loving disciples. The who have had fellowship with His body and His blood at this Table may have the Lord as an habitual Guest at their own tables! Those who have met their Master in this supper room may expect Him to make their own chamber bright with His royal Presence! Let fellowship with Jesus and with the elect brotherhood be henceforth the atmosphere of our life, the joy of our existence! This will give us a Heaven below and prepare us for Heaven above!
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW26:14-35.
+Exposition by C. H. Spurgeon: Matthew26:14-35.
 
 Verses 14-16. Then one of the twelve, called Judas Iscariot, went unto the chief priests, and said unto them, What will you give me, and I will deliver Him unto you? And they covenanted with Him for thirty pieces of silver. And from that time he sought opportunity to betray Him. It was one of the twelve who went to the chief priests, to bargain for the price of his Lord's betrayal! He did not even mention Christ's name in his infamous question, "What will you give me, and I will deliver Him unto you?" The amount agreed upon, thirty pieces of silver, was the price of a slave and showed how little value the chief priests set upon Jesus&mdash;and also revealed the greed of Judas in selling his Master for so small a sum. Yet many have sold Jesus for a less price than Judas received&mdash;a smile or a sneer has been sufficient to induce them to betray their Lord! Let us who have been redeemed with Christ's precious blood, set high store by Him, think much of Him and praise Him much. As we remember with shame and sorrow these thirty pieces of silver, let us never undervalue Him, or forget the priceless preciousness of Him who was reckoned as worth no more than a slave.
 
