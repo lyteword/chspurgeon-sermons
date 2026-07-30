@@ -1,8 +1,8 @@
 # Sermon 3284 | The Sequel to Divine Sovereignty
 
-"The LORD reigns; let the people tremble." Psalm 99:1.
+"The Lord reigns; let the people tremble." Psalm 99:1.
 
-"The LORD reigns; let the earth rejoice." Psalm 97:1.
+"The Lord reigns; let the earth rejoice." Psalm 97:1.
 
 No Doctrine in the whole Word of God has more excited the hatred of mankind than the truth of the absolute Sovereignty of God. [See Sermon #77, Volume 2&mdash;DIVINE SOVEREIGNTY.] The
 
@@ -56,7 +56,7 @@ But if you refuse to obey the Gospel invitation, what must become of you? Surely
 > Wretched, ruined, helpless soul,   
 > To a Savior's blood apply&mdash; He alone can make you whole, Fly to Jesus, Sinner, fy   
 
-Thus have I spoken to sinners. Now I am briefly TO SPEAK TO THE PEOPLE OF GOD.
+Thus have I spoken to sinners. Now I am briefly TO SPEAK TO THE PEOPLE OF God.
 
 You "precious sons on Zion, comparable to fine gold," look by faith to your King as He sits upon the Throne! And first, rejoice that you are His. It is the King who has saved you! Your pardon is signed by the royal hand&mdash;it would be worthless to you if it were not so signed! It is Sovereignty that puts the crown upon every other attribute of God! It is the King who has chosen you, the King who has saved you!
 
@@ -74,7 +74,7 @@ This solemn Truth of the Sovereignty of God rests very heavily on my heart. Let 
 
 Now as we come to the Table of our Lord, let us come with deep solemnity remembering that there is Sovereignty here, also. The observance of this ordinance may be very dull and dreary to you&mdash;or God make it a time of most blessed fellowship with Him and with one another. The means of Grace are not always equally profitable to us. The pipes are always golden, but the holy oil does not always flow in our direction. There is blessing to be had at all times, but you cannot always get it. Ask the King to give you Divine Grace to recognize His right to give or to withhold the blessing&mdash; and then plead with Him, for Jesus' sake, to remember you for good! God grant that it may be so, for His dear name's sake! Amen!
 
-EXPOSITION BY C. H. SPURGEON: PSALM 72
+Exposition by C. H. Spurgeon: PSALM 72
 
 a Psalm for Solomon.
 
@@ -106,7 +106,7 @@ poor and needy, and shall save the souls of the needy. [See Sermon #1037, Volume
 
 14-16. He shall redeem their soul from deceit and violence: and precious shall their blood be in His sight. And He shall live, and to Him shall be given of the gold of Sheba: prayer also shall be made for Him continually; and daily shall
 
-He be praised. There shall be an handful of corn on the earth&mdash;[See Sermon #717, Volume 12&mdash;PRAY FOR JESUS.] Only a handful? O you birds of the air, how you long to eat it all up! O you thorns, how soon would you choke it to death! It is only a handful of corn&mdash;
+He be praised. There shall be an handful of corn on the earth&mdash;[See Sermon #717, Volume 12&mdash;PRAY FOR Jesus.] Only a handful? O you birds of the air, how you long to eat it all up! O you thorns, how soon would you choke it to death! It is only a handful of corn&mdash;
 
 Upon the top of the mountains. That is a bad place for corn&mdash;surely it will die there&mdash;the winter snows will chill it and, exposed to every stormy blast it will never fill the arms of the reaper. But is it so? Listen&mdash;
 
@@ -114,4 +114,4 @@ The fruit thereof shall shake like Lebanon. Just as there are peculiar noises he
 
 And they of the city shall flourish like grass of the earth. They shall be so many that one might as well attempt to count the blades of grass as to reckon the number of God's saints!
 
-17-20. His name shall endure forever: His name shall be continued as long as the sun: and men shall be blessed in Him: all nations shall call Him blessed. Blessed be the LORD God, the God of Israel, who only does wondrous things. And blessed be His glorious name forever: and let the whole earth be filled with His Glory. Amen, and Amen. The prayers of David, the son of Jesse are ended [See Sermons #27, Volume 1&mdash;THE ETERNAL NAME; #2187, Volume 37&mdash;JESUS&mdash;"ALL BLESSING AND ALL BLESSED"; #2451, Volume 42&mdash;"BLESSED IN HIM" and #129, Volume 3&mdash;DAVID's DYING PRAYER.] He had nothing more to pray for! He had his heart's highest and best wish and, therefore, he closes his prayer where God had given him all that he could ask.
+17-20. His name shall endure forever: His name shall be continued as long as the sun: and men shall be blessed in Him: all nations shall call Him blessed. Blessed be the Lord God, the God of Israel, who only does wondrous things. And blessed be His glorious name forever: and let the whole earth be filled with His Glory. Amen, and Amen. The prayers of David, the son of Jesse are ended [See Sermons #27, Volume 1&mdash;THE ETERNAL NAME; #2187, Volume 37&mdash;Jesus&mdash;"ALL BLESSING AND ALL BLESSED"; #2451, Volume 42&mdash;"BLESSED IN HIM" and #129, Volume 3&mdash;DAVID's DYING PRAYER.] He had nothing more to pray for! He had his heart's highest and best wish and, therefore, he closes his prayer where God had given him all that he could ask.
