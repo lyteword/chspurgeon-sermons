@@ -103,7 +103,7 @@ Only, again I say, I wish with all my heart&mdash;it is my heart's desire and pr
 
 Oh, that you just now might end your service of the devil and forthwith commence your service of the Lord Jesus! The Master grant it by the power of His Holy Spirit and His shall be the praise!
 
-EXPOSITION BY C. H. SPURGEON: REVELATION 7.
+Exposition by C. H. Spurgeon: Revelation 7.
 
 Verse 1. Andafter these things I saw four angels standing on the four corners of the earth, holding the four winds of the earth, that the wind should not blow on the earth, nor on the sea, nor on any tree. Observe that God has servants always ready for His work. There were winds to be restrained. "And I saw four angels"&mdash;mighty spiritual beings&mdash;who had power over the air. These winds were to be restrained until all God's people were safely sealed and you may depend upon it that no calamity shall happen to destroy the people of God&mdash;they must first be saved. There shall be no deluge till there is the ark&mdash;there shall be no Romans to destroy Jerusalem till there is a little city in the mountains to which the disciples may flee. God will protect His own. The dead calm, the perfect quietude which prevailed while the angels restrained the winds is set forth in these words. The wind did not appear to blow on land, or sea, or tree&mdash;not a ripple broke the surface of the waters, not a leaf stirred on the bough&mdash;everything is quiet until God's people are secured.
 
