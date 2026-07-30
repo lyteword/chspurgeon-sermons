@@ -8,7 +8,7 @@ You see the text teaches very definitely this Truth of God, for it not only spea
 
 The text, therefore, divides itself very easily and naturally into the two great declarations. We see the clothing of the enemies of the Lord Jesus Christ with shame, but then, again, the crowning of the Lord with a flourishing diadem of eternal Glory. Let us look, then, at&mdash;
 
-THE ENEMIES OF CHRIST WHOM GOD SAYS HE WILL CLOTHE WITH SHAME.
+THE ENEMIES OF Christ WHOM God SAYS HE WILL CLOTHE WITH SHAME.
 
 Who are these enemies of Christ? In the days of His flesh, you could very easily have discovered them. Some slandered Him, calling Him friend of sinners, gluttonous and a wine-bibber, having a devil and even being a blasphemer. Some took up stones to kill Him. Some cried, "Crucify Him! Crucify Him!" And others bribed the multitude that they might thus hound Him to His shameful and cruel death. Enemies He had on all sides! But there are many who think today that had they lived in that age they would have been numbered with His friends. If it is so, is it not strange that they are not among His friends now? If they would have behaved so well 1800 years ago, it is amazing they should behave so badly now. Our belief is&mdash;and the common actions of mankind justify it&mdash;that had the sinners of this present day who pretend to have so much affection for the Person of Christ, lived in that age, they, too, alas, would have helped to crucify the Lord of Life and Glory, for they do, in effect, crucify Him now!
 
@@ -86,17 +86,17 @@ I have thus tried to preach both to saint and sinner. Oh, that He would bring th
 
 with Your righteousness. Wash me in Your precious blood. Make me Your friend and allow me no longer to be among those of whom it is written, 'shame shall be the promotion of fools.'" God bless you for Jesus' sake, Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM95.
+Exposition by C. H. Spurgeon: PSALM95.
 
-Verses 1, 2. O come, let us sing unto the LORD: let us make a joyful noise to the Rock of our salvation. Let us come before His Presence with thanksgiving, and make a joyful noise unto Him with Psalms. There must be, there should be joy in our worship&mdash;it is the very juice, the wine that flows from the trodden grape. It is the cream of the soul when the heart takes delight in God and joys in Him. To worship as if it were mere duty would be but the reverence of slaves before one who is dreaded, but to worship with delight&mdash;this is the adoration of children who come to One whom they love! God grant us that joy while we adore the Lord. Let us, however, mingle great reverence with joy.
+Verses 1, 2. O come, let us sing unto the Lord: let us make a joyful noise to the Rock of our salvation. Let us come before His Presence with thanksgiving, and make a joyful noise unto Him with Psalms. There must be, there should be joy in our worship&mdash;it is the very juice, the wine that flows from the trodden grape. It is the cream of the soul when the heart takes delight in God and joys in Him. To worship as if it were mere duty would be but the reverence of slaves before one who is dreaded, but to worship with delight&mdash;this is the adoration of children who come to One whom they love! God grant us that joy while we adore the Lord. Let us, however, mingle great reverence with joy.
 
-For the LORD is a great God, anda great King above allgods. "For the Lord is a great God." Jehovah is a great God, "and a great King above all gods," above all that are ever called gods, whether they are kings or magistrates, or whatever they may be.
+For the Lord is a great God, anda great King above allgods. "For the Lord is a great God." Jehovah is a great God, "and a great King above all gods," above all that are ever called gods, whether they are kings or magistrates, or whatever they may be.
 
 In His hands are the deep places of the earth: the strength of the hills is His also. Low and high, mysterious, sublime, the dominion of God encompasses all Nature!
 
 The sea is His, for He made it: and His hands formed the dry land. Creation is the best ground for possession&mdash; what He made is His own, the great Freeholder, the Sovereign Lord of all!
 
-7. O come, let us worship and bow down: let us kneel before the LORD our Maker For He is our God. "For He is our God." Oh, that is the sweetest of it all&mdash;"He is our God." Let lords and lands have what masters they will&mdash;let us obey and worship our own God!
+7. O come, let us worship and bow down: let us kneel before the Lord our Maker For He is our God. "For He is our God." Oh, that is the sweetest of it all&mdash;"He is our God." Let lords and lands have what masters they will&mdash;let us obey and worship our own God!
 
 And we are the people of His pasture, and the sheep of His hand. He is the Shepherd leading, feeding, protecting, guarding us every day.
 
