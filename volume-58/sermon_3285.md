@@ -2,7 +2,7 @@
 
 "These things Ihave spoken unto you, that in Me you night have peace. In the world you shall have tribulation: but be of good cheer, I have overcome the world." John 16:33
 
-[Other Sermons by Mr. Spurgeon upon the same text are #1327, Volume 22&mdash;Christ THE OVERCOMER OF THE WORLD and #1994, Volume 33&mdash; SWEET PEACE FOR TRIED BELIEVERS.]
+[Other Sermons by Mr. Spurgeon upon the same text are #1327, Volume 22&mdash;Christ the overcomer of the world and #1994, Volume 33&mdash; sweet peace for tried believers.]
 
 The Believer is in two places, and he lives two lives. In the text there are two places spoken of&mdash;"in Me" and, "in the world."
 
@@ -14,7 +14,7 @@ The Savior warns His people, "In the world you shall have tribulation." That is 
 
 Now, because of this tribulation and the sorrow which is likely to come of it, our Savior gives us the words of good cheer to which our attention is directed in the text. We have first to show what sorrow the comfort is aimed at and, secondly, what is the actual comfort here bestowed.
 
-WHAT IS THIS TRIBULATION IN THE WORLD AT WHICH THE SAVIOR's WORDS OF COMFORT ARE AIMED?
+what is this tribulation in the world at which the Savior's words of comfort are aimed?
 
 It includes the afflictions which come upon us because we are men living among men and not yet at Home among angels and glorified saints. We dwell among beings who are born to trouble as the sparks fly upward. Between other men and us there are many points of difference, but we share with them in the common infirmities, labors, sicknesses, bereavements and necessities of our fallen race. We are outside of Eden's gate with the rest of Adam's family. We may be
 
@@ -63,7 +63,7 @@ This calls for constant watchfulness, since our very love to men might become, u
 
 Is not this enough upon the darker side of the picture?
 
-Let us now consider WHAT THE COMFORT IS WHICH Jesus GRACIOUSLY OFFERS US. "Be of good
+Let us now consider what the comfort is which Jesus graciously offers us. "Be of good
 
 cheer," He says, "I have overcome the world." This is a glorious sentence spoken by the greatest Conqueror that ever lived&mdash;in whom all His people shall yet be "more than conquerors."
 
@@ -93,7 +93,7 @@ Let us now observe that the main point of the comfort lies in the fact that not 
 
 In closing, let us remember that here we have not merely representation, but also union. "I have overcome the world," means more than, "I overcame in your name." All Believers have virtually overcome the world, for they are one with Christ! Did my hands win the victory? Then my feet triumph! Did my head achieve the conquest? Then my heart shares the honor! The soles of my feet are victorious when my head is crowned. When Jesus Christ, the Head of the Church, was victorious over the foe, every member of His Mystical Body, even the most uncomely, was, virtually, a conqueror in the conquering Head! So let us shout the victory and wave the palm branch, for we are more than conquerors through Him that has loved us! Said He not well when He bade us be of good cheer, for He had overcome the world? Therefore, struggling Brothers and Sisters, obey His word, and&mdash;
 
-BE OF GOOD CHEER!
+be of good cheer!
 
 Exposition by C. H. Spurgeon: John12:20-50.
 
@@ -105,9 +105,9 @@ And Jesus answered them, saying, The hour has come that the Son of Man should be
 
 Verily, verily, I say unto you, Except a corn of wheat falls into the ground and dies, it abides alone; but if it dies,
 
-it brings forth much fruit. [See Sermon #3024 Volume 53&mdash;Christ's DEATH AND OURS.] He knew that He must die, for His living, preaching and miracle-working would never produce such results as His death would accomplish! He must go down into the ground, out of sight, and there must lie like a buried grain of wheat, that out of Him there might spring a great harvest to the Glory of God! And these Greeks were like a first handful, a wave-sheaf unto God, a promise of the great harvest that would be the result of His death&mdash;"If it dies, it brings forth much fruit."
+it brings forth much fruit. [See Sermon #3024 Volume 53&mdash;Christ's death and ours.] He knew that He must die, for His living, preaching and miracle-working would never produce such results as His death would accomplish! He must go down into the ground, out of sight, and there must lie like a buried grain of wheat, that out of Him there might spring a great harvest to the Glory of God! And these Greeks were like a first handful, a wave-sheaf unto God, a promise of the great harvest that would be the result of His death&mdash;"If it dies, it brings forth much fruit."
 
-26. He that loves his life shall lose it and he that hates his life in this world shall keep it unto life eternal. If any man serves Me, let him follow Me; and where I am, there shall also My servant be: if any man serves Me, him will My Father honor [See Sermons #463, Volume 8&mdash;Christ's SERVANT&mdash;HIS DUTY AND REWARD; #2449, Volume 42&mdash;THE RULE AND REWARD OF SERVING Christ; #2651, Volume 45&mdash;THE ChristIAN's SERVICE AND HONOR and #2874, Volume 50&mdash;PRECEPTS AND PROMISES.] It is an honor to be allowed to serve Christ, but God will bestow still further honor upon those who faithfully serve Him!
+26. He that loves his life shall lose it and he that hates his life in this world shall keep it unto life eternal. If any man serves Me, let him follow Me; and where I am, there shall also My servant be: if any man serves Me, him will My Father honor [See Sermons #463, Volume 8&mdash;Christ's servant&mdash;his duty and reward; #2449, Volume 42&mdash;the rule and reward of serving Christ; #2651, Volume 45&mdash;the ChristIAN's service and honor and #2874, Volume 50&mdash;precepts and promises.] It is an honor to be allowed to serve Christ, but God will bestow still further honor upon those who faithfully serve Him!
 
 27-29. Now is My soul troubled; and what shall I say? Father, save Me from this hour? But for this cause came I unto this hour. Father, glorify Your name. Then came there a Voice from Heaven, saying, Ihave both glorified it and will
 
@@ -117,7 +117,7 @@ glorify it again. The people, therefore, that stood by and heard it, said that i
 
 32, 33. And I, if I am lifted up from the earth, will draw all men unto Me. This He said, signifying what death He
 
-should die. [See Sermons #139, Volume 3&mdash;Christ LIFTED UP; #775, Volume 13&mdash;THE GREAT ATTRACTION and #1717, Volume 29&mdash;THE MARVELOUS MAGNET.] There is no magnet like the death of Christ! He is still able
+should die. [See Sermons #139, Volume 3&mdash;Christ lifted up; #775, Volume 13&mdash;the great attraction and #1717, Volume 29&mdash;THE marvelous magnet.] There is no magnet like the death of Christ! He is still able
 
 to draw men unto Him because of the attractive force of His atoning Sacrifice.
 
@@ -129,7 +129,7 @@ While you have light, believe in the light, that you may be the children of ligh
 
 37-41. But though He had done so many miracles before them, yet they believed not on Him: that the sayings of Isaiah the Prophet might be fulfilled, which he spoke, Lord, who has believed our report? And to whom has the arm of the Lord been revealed? Therefore they could not believe, because that Isaiah said again, He has blinded their eyes, and hardened their heart; that they should not see with their eyes, nor understand with their heart, and be converted, and I should heal them. These things said Isaiah, when He saw His Glory, and spoke of Him. [See Sermon #1844, Volume 31&mdash;israel and
 
-BRITAIN&mdash;a NOTE OF WARNING.] Isaiah was sent upon a painful errand to tell the people that they would hear, but they would not understand&mdash;that they would see, but they would not perceive. And so it happened to Israel as a nation, and to this day Israel rejects the true Messiah. Oh, that none of us may imitate their evil example by negligence and contempt of the Revelation of God, lest after playing with Scripture and trifling with the Christ of God, the Lord should at last in anger declare that we should see, but should not perceive, that we should hear, but should not understand!
+Britain&mdash;a note of warning.] Isaiah was sent upon a painful errand to tell the people that they would hear, but they would not understand&mdash;that they would see, but they would not perceive. And so it happened to Israel as a nation, and to this day Israel rejects the true Messiah. Oh, that none of us may imitate their evil example by negligence and contempt of the Revelation of God, lest after playing with Scripture and trifling with the Christ of God, the Lord should at last in anger declare that we should see, but should not perceive, that we should hear, but should not understand!
 
 42, 43. Nevertheless among the chief rulers also many believed on Him; but because of the Pharisees they did not confess Him, lest they should be put out of the synagogue: for they loved the praise of men more than the praise of God. Are there any here who believe in Christ, but who have never confessed Him, lest they should be put out of the synagogue and lose the praise of men? Are you afraid of your family, your father, or your husband? Or is there some friend who would be angry with you if you confessed Christ? If so, be no longer such a coward, I pray you, but come out boldly and confess Him who will not be ashamed to confess you before His Father and the holy angels!
 
