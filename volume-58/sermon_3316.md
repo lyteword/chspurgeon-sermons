@@ -96,7 +96,7 @@ Now, you who want to cry to God but do not know how, I recommend to you the publ
 
 "Forever with the Lord."
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:81-96.
+Exposition by C. H. Spurgeon: PSALM119:81-96.
 
 Verse 81. My soul faints for Your salvation: but I hope in Your Word. The ship rocks, but the anchor holds. The singer is ready to faint, but he is not ready to despair. He knows where his restoring will come.
 
@@ -112,7 +112,7 @@ All Your commandments are faithful: they persecute me wrongfully&mdash;help me. 
 
 They had almost consumed me upon earth; but I forsook not Your precepts. "They had almost consumed me upon earth." They seemed as if they would swallow me up entirely, "but I forsook not Your precepts" and, therefore, they could not consume me. I was invulnerable and invincible because I stuck to rectitude and kept to Your precepts.
 
-89. Quicken me after Your loving kindness; so shall I keep the testimony of Your mouth Forever, O LORD, Your Word is settled in Heaven. There is not a new Divine Word, or a new Gospel, or a new Law&mdash;but it is a settled Gospel, a settled Law, a settled Revelation&mdash;"settled in Heaven," stereotyped, fixed, made permanent! If perfect, then unalterable&mdash;if alterable, then would it be imperfect.
+89. Quicken me after Your loving kindness; so shall I keep the testimony of Your mouth Forever, O Lord, Your Word is settled in Heaven. There is not a new Divine Word, or a new Gospel, or a new Law&mdash;but it is a settled Gospel, a settled Law, a settled Revelation&mdash;"settled in Heaven," stereotyped, fixed, made permanent! If perfect, then unalterable&mdash;if alterable, then would it be imperfect.
 
 Your faithfulness is unto all generations: You have established the earth, and it abides. "Your faithfulness is unto all generations." You who were true to Abraham will be true to David. You who were true to David will be true to me. You are always faithful to Your own Nature and Godhead. "You have established the earth, and it abides." It would rot out of its place. It would rush into space like a truant planet if You did not hold it where it is. You, therefore, will hold Your Gospel where it is and Your servants where they are.
 
