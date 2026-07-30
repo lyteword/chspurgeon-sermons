@@ -96,13 +96,13 @@ Some of you young men are perhaps going to Oxford or Cambridge. Well, study hard
 
 My time has gone and your time for repentance and faith is almost gone. May the realities of eternity be deeply impressed upon us all&mdash;and may we be prepared&mdash;when death shall summon us to stand before God, to prove that the Gospel was not hidden from us, so that we may not be among "those who are lost." May God save us, by His Grace, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 2 CORINTHIANS 4; 5:1-9.
+Exposition by C. H. Spurgeon: 2 Corinthians 4; 5:1-9.
 
 2 Corinthians 4:1-2. Therefore, seeing we have this ministry, as we have received mercy, we faint not; but have renounced the hidden things of dishonesty, not walking in craftiness, nor handling the Word of God deceitfully; but by manifestation of the Truth commending ourselves to every man's conscience in the sight of God. Paul's description of his own ministry and also that of Timothy should be true of every servant of Jesus Christ! There must be no dishonesty, or craftiness, or deceit about the minister of the Word of God&mdash;and it is by the manifestation of the Truth of God that he must commend himself to every man's conscience in the sight of God! He may not win every man's approval, yet even those who differ from him must perceive his loyalty to his Lord.
 
 3, 4. But if our Gospel is hidden, it is hidden to those who are lost: in whom the god of this world has blinded the minds of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine
 
-unto them. [See Sermons #1663, Volume 28&mdash;THE TRUE GOSPEL IS NO HIDDEN GOSPEL and #2304, Volume 39&mdash;BLINDED BY SATAN.] The light of the Gospel is so glorious and bright that it is only hidden from those who have been blinded by Satan, "the god of this world." The only hope for them is to believe in Jesus who can give sight to the spiritually blind as easily as He gave sight to the physically blind when He was here in the flesh.
+unto them. [See Sermons #1663, Volume 28&mdash;THE TRUE GOSPEL IS NO HIDDEN GOSPEL and #2304, Volume 39&mdash;BLINDED by SATAN.] The light of the Gospel is so glorious and bright that it is only hidden from those who have been blinded by Satan, "the god of this world." The only hope for them is to believe in Jesus who can give sight to the spiritually blind as easily as He gave sight to the physically blind when He was here in the flesh.
 
 For we preach not ourselves, but Christ Jesus the Lord; and ourselves your servants for Jesus 'sake. "Christ Jesus the Lord" is to be the great theme of our preaching! And when it is so, we naturally take our right position with regard to our hearers, as Paul and Timothy did&mdash;"and ourselves your servants for Jesus' sake."
 
