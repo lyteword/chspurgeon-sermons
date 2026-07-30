@@ -58,7 +58,7 @@ To conclude, our Lord can do all this IMMEDIATELY. As in the twinkling of an eye
 
 Friends, we must now go our ways. A voice says, "Arise, let us go hence." O Lord of our hearts, go with us! Some will not be home without You. Life will not be life without You. Heaven itself would not be Heaven if You were absent. Abide with us! The world grows dark, the glooming of time draws on. Abide with us, for it is toward evening. Our years increase and we near the night when dews fall cold and chill. A great future is all about us! The splendors of the last age are coming down and while we wait in solemn, awe-struck expectation, our heart continually cries within herself, "Until the day breaks and the shadows flee away, turn, my Beloved!"
 
-EXPOSITION BY C. H. SPURGEON: JOHN 14.
+Exposition by C. H. Spurgeon: John 14.
 
 Let us read that well-known and most blessed Chapter, John 14, which so clearly shows our Savior's tender consideration for the comfort of His people, lest the great grief excited in them by His impending death should altogether break their hearts.
 
@@ -80,7 +80,7 @@ Thomas said unto Him, Lord, we know not where You go and how can we know the way
 
 Jesus said unto him, Iam the way the truth, and the life: no man comes unto the Father, but byMe. [See Sermons #245,
 
-Volume 5&mdash;THE WAY TO GOD; #942, Volume 16&mdash;THE WAY and #2938, Volume 51&mdash;JESUS THE WAY.] "I am going to the Father&mdash;that is where I am going, Thomas, and you can only come to the Father by Me&mdash;don't you know that?"
+Volume 5&mdash;THE WAY TO God; #942, Volume 16&mdash;THE WAY and #2938, Volume 51&mdash;Jesus THE WAY.] "I am going to the Father&mdash;that is where I am going, Thomas, and you can only come to the Father by Me&mdash;don't you know that?"
 
 If you had known Me, you would have known My Father also. For Christ is the express Image of His Father, so that you always see the Father when you see the Son!
 
@@ -104,7 +104,7 @@ Latin, and that, too, is the correct word. "He shall give you another Advocate"&
 
 16, 17. That He may abide with you forever; even the Spirit of Truth whom the world cannot receive because it sees
 
-Him not, neither knows Him, but you know Him; for He dwells with you, andshall be in you [See Sermons #4, Volume 1&mdash;the PERSONALITY OF THE HOLY SPIRIT; #754, Volume 13&mdash;THE SAINT AND THE SPIRIT and #2074, Volume 35&mdash;INTIMATE KNOWLEDGE OF THE HOLY SPIRIT&mdash;.] Worldly men are not cognizant of the existence of the Holy Spirit. They do not believe in Him&mdash;they say that there may or may not be such a Divine Being in the world as the Holy Spi-
+Him not, neither knows Him, but you know Him; for He dwells with you, andshall be in you [See Sermons #4, Volume 1&mdash;the PERSONALITY OF THE Holy Spirit; #754, Volume 13&mdash;THE SAINT AND THE SPIRIT and #2074, Volume 35&mdash;INTIMATE KNOWLEDGE OF THE Holy Spirit&mdash;.] Worldly men are not cognizant of the existence of the Holy Spirit. They do not believe in Him&mdash;they say that there may or may not be such a Divine Being in the world as the Holy Spi-
 
 rit, but they have never come across His path. This, then, is one of the tests of true Believers, the twice-born&mdash;they have received a new nature which enables them to recognize the existence of the Spirit of God and to feel the influence of His work&mdash;"You know Him; for He dwells with you, and shall be in you."
 
@@ -116,7 +116,7 @@ see Me. [See Sermon #2990, Volume 52&mdash;THE BELIEVER NOT AN ORPHAN.]
 
 19, 20. Because Ilive, you shalllive also. At that day you shall know that Iam in My father, and you in Me, and Iin
 
-you [See Sermon 968, Volume 17&mdash;LIFE IN CHRIST.] This is something more
+you [See Sermon 968, Volume 17&mdash;LIFE IN Christ.] This is something more
 
 for us to know. To know that Christ is in the Father is one thing, but it is still more for us to understand the next mystic unity, "you in Me, and I in you." Oh, wondrous combination of the Father and the Son, and of Immanuel, God with us, and ourselves!
 
@@ -144,4 +144,4 @@ Not as the world gives, give I unto you."With an expectation of getting a reward
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
