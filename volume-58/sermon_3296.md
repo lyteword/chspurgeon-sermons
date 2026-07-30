@@ -2,11 +2,11 @@
 
 "Judah, you are he whom your brothers shall praise." Genesis 49:8.
 
-THESE words were spoken by the Patriarch Jacob when he blessed his sons as he lay a-dying. But before he finished Judah's blessing, the good old man seemed to forget his son and to turn his thoughts to Jesus, our Lord, of whom Judah was a very significant type. Jacob compared Judah to a lion and a lion's whelp&mdash;and in the Revelation we read that one of the elders said to John, "The Lion of the tribe of Judah, the Root of David, has prevailed to open the book, and to loosen the seven seals thereof." In the tenth verse of this Chapter we have Jacob's notable prophecy concerning the coming of Christ, "The scepter shall not depart from Judah, nor a lawgiver from between his feet, until Shiloh comes and unto Him shall the gathering of the people be."
+These words were spoken by the Patriarch Jacob when he blessed his sons as he lay a-dying. But before he finished Judah's blessing, the good old man seemed to forget his son and to turn his thoughts to Jesus, our Lord, of whom Judah was a very significant type. Jacob compared Judah to a lion and a lion's whelp&mdash;and in the Revelation we read that one of the elders said to John, "The Lion of the tribe of Judah, the Root of David, has prevailed to open the book, and to loosen the seven seals thereof." In the tenth verse of this Chapter we have Jacob's notable prophecy concerning the coming of Christ, "The scepter shall not depart from Judah, nor a lawgiver from between his feet, until Shiloh comes and unto Him shall the gathering of the people be."
 
 I intend only to speak about Judah so far as he is a type of Christ, and I trust that I shall, by the Holy Spirit's gracious guidance, move all the brethren of the Lord Jesus Christ to praise Him, so that I shall be able to reverently say to Him, "Jesus, You are He whom Your brothers shall praise." So I shall speak, first, concerning the praise of Judah and the praise of Jesus. And then, secondly, concerning the glories of Judah as setting forth the glories of Jesus.
 
-First, then, let us think about THE PRAISE OF JUDAH AND THE PRAISE OF Jesus.
+First, then, let us think about the praise of Judah and the praise of Jesus.
 
 Jacob said to Judah, "You are he who your brothers shall praise." Judah was preeminent above his brethren in several things for which he deserved to be praised. The first was the eloquence and prevalence of his intercession. Judah seems to have been the gifted one out of the 12 sons of Jacob, and his pleading prevailed with his father when all others were powerless. When "the lord of the land" of Egypt, whom his brothers failed to recognize although he knew them, said to them, "You shall not see my face, except your brother be with you," they went back home with heavy hearts and their father stoutly refused to allow Benjamin to go down into Egypt. But when all their corn was eaten up, and they were obliged to go again to buy more, it was Judah who persuaded Jacob to let Benjamin go with them. Reuben and Levi were obliged to be silent in that critical period, for they had lost their rightful position in the family by their transgressions, and Simeon was a hostage in the hands of Joseph&mdash;but Judah was able to step into the breach and his intercession prevailed.
 
@@ -36,7 +36,7 @@ And blessings more than we can give
 
 Be, Lord, forever Thine." (The congregation joined in singing, and then the preacher continued his sermon).
 
-The second part of our subject was to be THE GLORIES OF JUDAH AS SETTING FORTH THE GLORIES OF Jesus. They are illustrated in the sentence concerning Judah that follow our text.
+The second part of our subject was to be the glories of Judah as setting forth the glories of Jesus. They are illustrated in the sentence concerning Judah that follow our text.
 
 The first of them mentions the victories of Judah&mdash;"Your hand shall be on the neck of your enemies." You know what it means when a man seizes his enemy by the throat, or when a lion gets its prey by the neck and shakes the very life out of it. Thus has Jesus Christ done with all the enemies of His people. Shall I tell you again the grand old story? 'Twas one dark night when the Great Shepherd was watching His flock that He heard the roaring which told Him that the old lion of the pit was about to leap into the fold to tear the sheep in pieces. Then the Shepherd whispered to Himself, "This is the dreadful hour and the power of darkness." Taking His place in the midst of His blood-bought flock, He waited for the next terrific roar. And as the lion sprang into the fold, He received him upon His bare bosom, and began at once to grapple with Him. He was wounded in His hands, in His feet, and in His side&mdash;and in the desperate struggle "His sweat was, as it were, great drops of blood falling down to the ground." It was a dreadful fight which had been foreseen before
 
@@ -112,7 +112,7 @@ Is a fruitful bough, even a fruitful bough by a well; whose branches run over th
 
 23, 24. The archers have surely grieved him, and shot at him, and hated him: but his bow abode in strength, and the arms of his hand were made strong by the hands of the mighty God of Jacob; (from there is the Shepherd, the Stone of
 
-Israel). [See Sermon #17, Volume 1&mdash;JOSEPH ATTACKED by THE ARCHERS.]
+Israel). [See Sermon #17, Volume 1&mdash;Joseph attacked by the archers.]
 
 Joseph is a type of Him who is both the Shepherd and the Stone to us&mdash;the Shepherd who defends us, provides for us, and dies for us. And the Foundation on which we build for time and eternity.
 
