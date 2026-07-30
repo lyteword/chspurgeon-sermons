@@ -1,8 +1,8 @@
 # Sermon 3314 | God in Nature and in Revelation
 
-"The Law of the LORD is perfect, converting the soul. The testimony of the LORD is sure, making wise the simple. The statutes of the LORD are right, rejoicing the heart: the commandment of the Lord is pure, enlightening the eyes. The fear of the LORD is clean, enduring forever: the judgments of the LORD are true and righteous altogether." Psalm 19:7-9.
+"The Law of the Lord is perfect, converting the soul. The testimony of the Lord is sure, making wise the simple. The statutes of the Lord are right, rejoicing the heart: the commandment of the Lord is pure, enlightening the eyes. The fear of the Lord is clean, enduring forever: the judgments of the Lord are true and righteous altogether." Psalm 19:7-9.
 
-[Another Sermon by C. H. Spurgeon upon the first clause of verse 7 is #2870, Volume 50&mdash;REVELATION AND CONVERSION.]
+[Another Sermon by C. H. Spurgeon upon the first clause of verse 7 is #2870, Volume 50&mdash;Revelation AND CONVERSION.]
 
 WHAT I have to say this evening will really be an exposition of the whole Psalm. I have only selected these three verses for the convenience of having a short text. The Psalm begins upon a high note&mdash;"The heavens declare the Glory of God; and the firmament shows His handiwork." Only let the film of unbelief be taken from our eyes and we shall see that everything in the great temple of Nature proclaims the greatness and the Glory of God. Only let the naturally deaf ear be unstopped and there will be heard voices&mdash;mysterious yet clearly intelligible&mdash;revealing that God is still here working in Providence, as of old He worked in Creation. It seems to me that those persons who think that Christians are not to be delighted with the wonders and beauties of the natural world, differ very widely from the Psalmist whose words we are considering. One truly excellent man, whom we all very highly esteem, declared that when travelling up the Rhine, he did not look at the landscape because he desired to have his thoughts completely taken up with spiritual things. I cannot condemn the good man, yet I think that as I am dwelling in my Father's House, I ought to take delight in my Father's works&mdash;and I must be a strange sort of child if I think it is a token of my affection for my Father not to care to look at the garden which He has laid out or the House which He has built! While earnestly exhorting you to be spiritually minded, I would remind you that it is just as easy to be spiritually minded with your eyes open as with your eyes shut to all the beauties of Nature by which you are surrounded!
 
@@ -78,7 +78,7 @@ Then, lastly, David says, " The judgments of the Lord are true and righteous alt
 
 The sun has gone down and in an hour or two the world will appear in a more somber dress than it now wears. If you come out at midnight, you will see nothing but the twinkling stars and a few glimmering lamps. Yet the sun is not put out&mdash;his light is not quenched. Wait till the appointed time and the great light of day shall again be "as a bridegroom coming out of his chamber, and rejoices as a strong man to run a race." Darkness may be covering your mind tonight. Darkness may cover your circumstances. Darkness may, for a while, cover even the Church of God on earth&mdash;but that old promise is still true&mdash;"Unto you that fear My name shall the Sun of Righteous arise with healing in His wings." Only be sure that you are on the Lord's side! Put your trust in the precious blood of Jesus and wait for Him more than they that watch for the morning. And then, when He comes, it will be to you a day of light and not of darkness, and the days of your mourning will have ended forever! So may the Lord comfort your hearts, sustain you under every trial, keep you in His love and enable you patiently to wait for His coming, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 119:9-32.
+Exposition by C. H. Spurgeon: PSALM 119:9-32.
 
 Verse 9. How shall a young man cleanse his way? By taking heed thereto according to Your Word. "How shall a young man cleanse his way?" A vital and solemn question. His way is full of temptations and he, himself, has strong passions. How shall he make his way clean and keep it so? "By taking heed thereto according to Your Word." Without heed he will soon be in the mire, but carefully walking with God's Word as his rule, by the blessing of God's Grace it will keep him out of sin.
 
@@ -86,7 +86,7 @@ With my whole heart have I sought You: O let me not wander from Your commandment
 
 Your word have I hid in my heart, that I might not sin against You. The best thing put into the best place for the best of all purposes! There is no antidote against sin like the possession of the Word of God in the soul.
 
-Blessed are You, O LORD: teach me Your statutes. You are blessed, make me blessed. You are the happy God, instruct me in the way of happiness.
+Blessed are You, O Lord: teach me Your statutes. You are blessed, make me blessed. You are the happy God, instruct me in the way of happiness.
 
 With my lips have I declared all the judgments of Your mouth. I am a learner, but I have tried to be a teacher, too. I have not kept the Word of God to myself as though it were only a personal treasure for me, but what I have heard in the secret chamber of fellowship, that have I spoken on the housetops. Have you published abroad what you know? Then you are the person to learn more. When men drop their money into a money box, they have to break it to get it out again, and if they have not need of it they will not do so. God does not care to drop His treasure into a heart that never uses it and imparts it. Let your lips speak what your heart learns!
 
@@ -120,6 +120,6 @@ My soul melts for heaviness. Strengthen You me according unto Your Word. Will no
 
 30. Remove from me the way oflying: and graciously grant me Your Law. Ihave chosen the way of truth: Your judgments have I laid before me. As a captain lays out his chart so as to keep his course correctly and safely, so I try to sail by it. I have chosen Your Law and precepts and commands as my course, and I would gladly keep to them.
 
-I have stuck unto Your testimonies: O LORD, put me not to shame. I am glued to them&mdash;there is no separating me, no tearing me apart from them! "O Lord, put me not to shame."
+I have stuck unto Your testimonies: O Lord, put me not to shame. I am glued to them&mdash;there is no separating me, no tearing me apart from them! "O Lord, put me not to shame."
 
 I will run the way of Your commandments when You shall enlarge my heart. I will go quicker and faster, I will have more energy, more flaming zeal in Your service&mdash;"When You shall enlarge my heart." O Lord, it is very narrow and very contracted. I cannot think great thoughts, nor do great things, nor believe great promises unless You shall enlarge my heart! Lord, give me a larger heart, stronger to obey, more tender to love for Your name's sake!
