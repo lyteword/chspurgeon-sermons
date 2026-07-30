@@ -26,7 +26,7 @@ spears and chariots remain as a spoil to the armies of the Lord! Let us never, t
 
 We will leave that part of the subject and handle the text in another way. Here is, first, a word to Christian workers. And when we have so expounded it, we shall turn to struggling Believers panting for victory&mdash;for with both these classes there are seasons when their hands are sealed. Thirdly, we shall speak to such as are toiling after self-salvation for it is a happy thing when such an hour comes to them, also, and they cease from their own work and know the work of the Lord!
 
-First, then, I speak to YOU WHO ARE GOD's PEOPLE and have grown into strong men in Christ Jesus.
+First, then, I speak to YOU WHO ARE God's PEOPLE and have grown into strong men in Christ Jesus.
 
 Do not be surprised if sometimes your Master seals up your hand by a consciousness of unfitness. You may have preached for years and yet just now you feel as if you could never preach again. Your cry is, "I am shut up and cannot come forth." The brain is weary, the heart is faint and you are on the brink of saying, "I will speak no more in the name of the Lord." Your seed basket is empty and your plow is rusty&mdash;when you get to the granary, it seems to be locked against you. What are you to do? No message from God drops sweetly into your soul and how can your speech among the people distil as the dew? Perhaps some of you who have lately begun to serve the Lord wonder that it should ever be so with us older workers. You will not wonder long, for it will also happen to you! When a farmer sows his field with a seeder, the drill has no aches and pains, for it has no nerves and nothing to prevent the seed shaking out of it with precise regularity. But our great Lord never sows His fields with iron seeders. He uses men and women like ourselves, who are liable to headaches, heartaches and all sorts of miseries and, therefore, cannot sow as they could wish. Comrades in the Lord's work, it is essential that we learn our own inability! It is profitable to feel that without our Lord we can do noth-ing&mdash;but that the Lord can do very well without us! If we cannot break the clods, His frost is doing it. If we cannot water the soil, His snow is saturating it. When man is paralyzed, God is not even hindered. When we feel our own weakness, it is that we may know the Lord's work and comprehend that whatever understanding we have, He gave us. Whatever thought or utterance we have, He worked it in us and if we have any power among men to deliver the precious Gospel of Christ, He has anointed us to that end. Therefore, if we have received, we may not boast as if we had not received! It is a great blessing for us to be emptied of self that God may be All-in-All, for then our infirmities cease to be drawbacks and rise into qualifications through Divine Grace! This has a world of comfort in it.
 
@@ -91,23 +91,23 @@ Yes, I have known God seal up some men's hands by a sense of spiritual inability
 
 A young Sister who I saw just now, told me how a friend helped her to see the way of salvation. She could not believe in Jesus Christ because she did not feel herself to be all that she wanted to be. But the friend said to her, "Suppose I were to give you this Bible for a present." "Yes." "Would it not be yours as soon as you took it? It would not depend upon whether you were good or not, would it?" "No." "Well, then," the friend replied, "the Lord God has given Jesus Christ to you as a free gift&mdash;and if you take him by faith, He is immediately yours, whoever you may be." The case stands just so. Accept Jesus as the free gift of God to you and you are saved! And being saved, you will work with all your might to show your gratitude to God your Savior!
 
-EXPOSITION BY C. H. SPURGEON: PSALM94.
+Exposition by C. H. Spurgeon: PSALM94.
 
 This is the prayer of a man of God in great trouble, standing out for God in an evil day, when the Lord's people were greatly oppressed, and the honor of God was being trampled in the mire. The prayer wells up from an oppressed heart struggling against great difficulty.
 
-Verse 1. LORD God&mdash;"O Jehovah, El." Men of God in trouble delight to call upon the name of the Lord. His very name is a stronghold to them! The Infinite Jehovah, the strong God. EL. "O Lord God"&mdash;
+Verse 1. Lord God&mdash;"O Jehovah, El." Men of God in trouble delight to call upon the name of the Lord. His very name is a stronghold to them! The Infinite Jehovah, the strong God. EL. "O Lord God"&mdash;
 
 To whom vengeance belongs; O God, to whom vengeance belongs, show Yourself'Vengeance does not belong to us! It is not right for any private individual to attempt to avenge himself. But vengeance does belong to the just Judge
 
 who will mete out to all the due reward of evil or of good. Hence, my appeal is to the Court of King's Bench, or higher still, to the King, Himself! "O God, to whom vengeance belongs, show Yourself." When false Doctrine abounds, only God can put it down. All the efforts of the faithful will be futile apart from Him.
 
-2-4. Lift up Yourself You judge of the earth: render a reward to the proud. LORD, how long shall the wicked, how long shall the wicked triumph? How long shall they utter and speak hard things? And all the workers of iniquity boast themselves? That expression, "How long?" repeated three times, is very sorrowful. It seems to get into a kind of howling or wailing. But a child of God, when he sees things going wrong with his Lord's Kingdom, must grow somewhat impatient and he cries out to His God, "How long? How long? How long will You bear it?" The very triumphs of the wicked and the hard things they say, with which they seem to bubble over like fountains, (for that is the force of the term "utter and speak" used here), stir the heart of the man of God to its very depths! He gets alone and grieves before God. And out of a full heart he thus cries to Him, "How long shall they utter and speak hard things? And all the workers of iniquity boast themselves?"
+2-4. Lift up Yourself You judge of the earth: render a reward to the proud. Lord, how long shall the wicked, how long shall the wicked triumph? How long shall they utter and speak hard things? And all the workers of iniquity boast themselves? That expression, "How long?" repeated three times, is very sorrowful. It seems to get into a kind of howling or wailing. But a child of God, when he sees things going wrong with his Lord's Kingdom, must grow somewhat impatient and he cries out to His God, "How long? How long? How long will You bear it?" The very triumphs of the wicked and the hard things they say, with which they seem to bubble over like fountains, (for that is the force of the term "utter and speak" used here), stir the heart of the man of God to its very depths! He gets alone and grieves before God. And out of a full heart he thus cries to Him, "How long shall they utter and speak hard things? And all the workers of iniquity boast themselves?"
 
-They break in pieces Your people, O LORD There is a strong plea in that declaration, for the Lord of Hosts says to His people, He that touches you, touches the apple of My eye." In days of persecution the saints can pray in this fashion, "They break in pieces Your people, Jehovah."
+They break in pieces Your people, O Lord There is a strong plea in that declaration, for the Lord of Hosts says to His people, He that touches you, touches the apple of My eye." In days of persecution the saints can pray in this fashion, "They break in pieces Your people, Jehovah."
 
 5, 6. And afflict Your heritage. They slay the widow and the stranger, and murder the fatherless. This made the appeal still stronger, for God is "a Father of the fatherless, and a Judge of the widows."
 
-Yet they say, The LORD shall not see, neither shall the God of Jacob regard it Yet this very God of Jacob came to the troubled Patriarch at Jabbok and blessed him there. And He said to heathen kings, "Touch not My Anointed, and do my Prophets no harm"&mdash;so can it be true that He does not see and regard what the wicked do to His people? They dare to say so, and render themselves the more brazen in their sin because of this, their infidelity!
+Yet they say, The Lord shall not see, neither shall the God of Jacob regard it Yet this very God of Jacob came to the troubled Patriarch at Jabbok and blessed him there. And He said to heathen kings, "Touch not My Anointed, and do my Prophets no harm"&mdash;so can it be true that He does not see and regard what the wicked do to His people? They dare to say so, and render themselves the more brazen in their sin because of this, their infidelity!
 
 Understand, you brutish among the people. Here the pleader turn into a Prophet and, after having spoken to God, he now speaks to men. Understand, you boors," for so the word may be rendered, "You swine among the people."
 
@@ -128,11 +128,11 @@ He that chastises the heathen, shall not He correct? He judges the nations&mdash
 
 He that teaches man knowledge&mdash;If you look at your Bibles, you will see that the translators have put in here the words, "shall not He know." They are printed in italics because they are not in the original. The original is very abrupt&mdash;it is as if the Psalmist had said, "There, I am tired of arguing with you. You can draw your own inference. I will leave you to do that for yourselves. Fools as You are, I need not draw the inference for you." "He that teaches man knowledge." Does man really know anything unless God teaches him? Adam was taught of God at the first&mdash;and every particle of true science that man knows has been imparted by God! I do not say that God is the Author of the science of today&mdash;much of that evidently comes from man&mdash;but all true knowledge is imparted to us by God. "He that teaches man knowledge"&mdash;do you think&mdash;do you dream that He does not Himself know everything?
 
-10, 11. Shall not He know? The LORD knows the thoughts of man, that they are vanity He knows that men are vanity, that they are, according to one translation, a vapor! The men themselves are but a vapor, but as for their thoughts, their intellect, their power to think, that of which many men are most proud&mdash;what does God think of these? What a wonderful thing "modern thought" seems to be! But listen to this, "The Lord knows the thoughts of man, that they are
+10, 11. Shall not He know? The Lord knows the thoughts of man, that they are vanity He knows that men are vanity, that they are, according to one translation, a vapor! The men themselves are but a vapor, but as for their thoughts, their intellect, their power to think, that of which many men are most proud&mdash;what does God think of these? What a wonderful thing "modern thought" seems to be! But listen to this, "The Lord knows the thoughts of man, that they are
 
 nothing." Vanity is a negation, it is a bubble&mdash;a thing puffed up that has no substance in it&mdash;"The Lord knows the thoughts of man, that they are vanity."
 
-Blessed is the man whom You chasten, O LORD, and teach him out of Your Law [See Sermon #2374, Volume 40&mdash;BLESSED
+Blessed is the man whom You chasten, O Lord, and teach him out of Your Law [See Sermon #2374, Volume 40&mdash;BLESSED
 
 DISCIPLINE.] These are two things that go well together-a rod
 
@@ -140,7 +140,7 @@ and a book. No man ever learns much without both rod and book. "Blessed is the m
 
 That You may give him a rest from the days of activity, until the pit is dug for the wicked. In these days, the quiet virtues are not prized as much as they ought to be. Men are always busy&mdash;they must be ever on the trot&mdash;but blessed is the man who is so taught by the Book and by the rod that he comes to a holy quietism and learns to rest! The man or woman most rested is the best worker. He who knows how to sit at Jesus' feet, knows how to work for Jesus better than if he were continually running about and getting cumbered with much service. We never learn the secret of this rest by the Book, alone, or by the rod, alone&mdash;the rod and the book togetherteach us to rest from the days of adversity. They teach us not to lay the present too much to heart, not to fret because of things as they are today, but to think of what is to be in that Day when the righteous shall be rewarded, and when the Mighty Hunter shall have trapped His adversary and ours&mdash;when the pit shall be dug for the wicked and Satan's power shall be forever destroyed!
 
-For the LORD will not cast off His people. He may cast them down, but He will never cast them off!
+For the Lord will not cast off His people. He may cast them down, but He will never cast them off!
 
 Neither will He forsake His inheritance. Even men will not give up their inheritance. This is especially the case among the Jews! You remember how Naboth would not sell his inheritance&mdash;he would sooner die. And the Lord will not forsake His inheritance&mdash;there is a sacred condition upon His people that never can be broken&mdash;and He will never give them up.
 
@@ -148,7 +148,7 @@ But judgment shall return unto righteousness: and all the upright in heart shall
 
 Who will rise up for me against the evildoer or who will stand up for me against the workers of iniquity? The Psalmist appeals for helpers, but he gets no response from man. And sometimes the man of God will have to stand alone&mdash; and that can be quite an education for him. Blessed is he who has learned to hang on the bare arm of God&mdash;he is better off without his earthly friends than he was with them! Here is the answer to the Psalmist's question&mdash;
 
-Unless the LORD had been my help, my soul had almost dwelt in silence. You may be one of the best of God's servants and yet that may be your experience. Here is another piece of testimony in which many of us can join&mdash;
+Unless the Lord had been my help, my soul had almost dwelt in silence. You may be one of the best of God's servants and yet that may be your experience. Here is another piece of testimony in which many of us can join&mdash;
 
 When I said, My foot slips, Your mercy, O Lord, held me up. "My foot had slipped from under me. I was down. But then, even then, You did put underneath me Your everlasting arms. 'Your mercy, O Lord, held me up.'"
 
@@ -160,6 +160,6 @@ this verse&mdash;"seem intertwisted and interlaced like the many branches of a t
 
 Shiall thee throne of iniquity have fellowship with You, which frames mischief by a Law? Lord, are You on their side? Oh, no, and as You are not on their side, I care not who is! So long as You will not aid iniquity or help wrongdoing, I will, by Your Grace, fight the battle through.
 
-21, 22. They gather themselves together against the soul of the righteous and condemn the innocent blood. But the LORD is my defense; and my God is the rock of my refuge. He gets away unto his God as he had been accustomed to hide in the cave of Adullam out of reach of his foes! And then he sits down in peace to sing&mdash;
+21, 22. They gather themselves together against the soul of the righteous and condemn the innocent blood. But the Lord is my defense; and my God is the rock of my refuge. He gets away unto his God as he had been accustomed to hide in the cave of Adullam out of reach of his foes! And then he sits down in peace to sing&mdash;
 
-And He shall bring upon them their own iniquity, and shall cut them off in their own wickedness; yes the LORD our God shall cut them off.
+And He shall bring upon them their own iniquity, and shall cut them off in their own wickedness; yes the Lord our God shall cut them off.
