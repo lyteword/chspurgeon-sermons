@@ -2,7 +2,7 @@
 
 "Jesus sai unto them, Believe you that I am able to do this?" Matthew 9:28.
 
-[Other Sermons by Mr. Spurgeon upon verses 27 to 30, are #1355, Volumen 23&mdash;OUR LORD's QUESTION TO THE BLIND MEN and #1560, Volume 26&mdash; THE PLAIN MAN's PATHWAY TO PEACE.]
+[Other Sermons by Mr. Spurgeon upon verses 27 to 30, are #1355, Volumen 23&mdash;OUR Lord's QUESTION TO THE BLIND MEN and #1560, Volume 26&mdash; THE PLAIN MAN's PATHWAY TO PEACE.]
 
 I WANT to lay special emphasis on the word, "this," in the text&mdash;"Believe you that I am able to do this?" The question of Jesus referred to one particular thing&mdash;it was not intended to apply to the general power of Christ to heal the sick or to raise the dead&mdash;it concerned the specific malady from which these two men were suffering. The question meant did they believe that Christ was able to cure their blindness? Among professing Christians, there is much so-called faith that is not really faith. Many of us profess much more in our creeds than we believe in our hearts and we hold a great deal more in theory than we do in reality. For instance, I suppose there is no professor of religion here who would dispute the power of the Lord Jesus Christ to do anything and everything&mdash;we believe that He has all power in Heaven and in earth. And yet, if it came to be a matter of personal detail and He said to us, "Believe you that I am able to do this?" we might not all be able to answer as promptly and as confidently as the blind men did, "Yes, Lord."
 
@@ -46,7 +46,7 @@ There was another question which Christ did not put to the blind men. He did not
 
 I close with this fourth observation, that THIS QUESTION IS ONE WHICH WE MIGHT NATURALLY
 
-HAVE CONCLUDED THAT JESUS WOULD ASK.
+HAVE CONCLUDED THAT Jesus WOULD ASK.
 
 It was a vitally important question, and it was by no means an unreasonable one. If the blind men had not believed that Jesus was "able to do this," they would not have asked Him to have mercy upon them. It would have been an imper-
 
@@ -62,7 +62,7 @@ My dear Hearer, I can most confidently assure you that He is "able to do this." 
 
 quicken me and make me live forever&mdash;thus in Christ all my soul's needs were fully met&mdash;and desperate as my case had appeared to myself, I had proved as so many before me and since have also proved that, "with God all things are possible." May you come to the same conclusion, dear Friend, and cast yourself now upon the naked promise of God made in Covenant with Christ and ratified by His most precious blood! If He does not save you when you trust Him, this Bible is not true. If any soul can truly trust Him and then be a castaway, I have no Gospel to preach to guilty sinners! But that can never be the case, for He has Himself declared&mdash;oh that I could pronounce the words as He uttered them!&mdash;"Him that comes to Me I will in no wise cast out." Come then, everyone of you, and prove the truth of His blessed promise and so you shall be saved&mdash;and He shall have the Glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW9:18-38.
+Exposition by C. H. Spurgeon: Matthew9:18-38.
 
 Verse 18. While He spoke these things unto them, behold, there came a certain ruler and worshipped Him, saying, My daughter is even now dead: but come and lay Your hand upon her, and she shall live. This was grand faith on the ruler's part, believing that the touch of Christ's hand would raise his dead daughter to life! We do not wonder that the Savior honored such faith as that at once!
 
