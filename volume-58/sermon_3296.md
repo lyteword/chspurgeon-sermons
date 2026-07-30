@@ -6,7 +6,7 @@ THESE words were spoken by the Patriarch Jacob when he blessed his sons as he la
 
 I intend only to speak about Judah so far as he is a type of Christ, and I trust that I shall, by the Holy Spirit's gracious guidance, move all the brethren of the Lord Jesus Christ to praise Him, so that I shall be able to reverently say to Him, "Jesus, You are He whom Your brothers shall praise." So I shall speak, first, concerning the praise of Judah and the praise of Jesus. And then, secondly, concerning the glories of Judah as setting forth the glories of Jesus.
 
-First, then, let us think about THE PRAISE OF JUDAH AND THE PRAISE OF JESUS.
+First, then, let us think about THE PRAISE OF JUDAH AND THE PRAISE OF Jesus.
 
 Jacob said to Judah, "You are he who your brothers shall praise." Judah was preeminent above his brethren in several things for which he deserved to be praised. The first was the eloquence and prevalence of his intercession. Judah seems to have been the gifted one out of the 12 sons of Jacob, and his pleading prevailed with his father when all others were powerless. When "the lord of the land" of Egypt, whom his brothers failed to recognize although he knew them, said to them, "You shall not see my face, except your brother be with you," they went back home with heavy hearts and their father stoutly refused to allow Benjamin to go down into Egypt. But when all their corn was eaten up, and they were obliged to go again to buy more, it was Judah who persuaded Jacob to let Benjamin go with them. Reuben and Levi were obliged to be silent in that critical period, for they had lost their rightful position in the family by their transgressions, and Simeon was a hostage in the hands of Joseph&mdash;but Judah was able to step into the breach and his intercession prevailed.
 
@@ -36,7 +36,7 @@ And blessings more than we can give
 
 Be, Lord, forever Thine." (The congregation joined in singing, and then the preacher continued his sermon).
 
-The second part of our subject was to be THE GLORIES OF JUDAH AS SETTING FORTH THE GLORIES OF JESUS. They are illustrated in the sentence concerning Judah that follow our text.
+The second part of our subject was to be THE GLORIES OF JUDAH AS SETTING FORTH THE GLORIES OF Jesus. They are illustrated in the sentence concerning Judah that follow our text.
 
 The first of them mentions the victories of Judah&mdash;"Your hand shall be on the neck of your enemies." You know what it means when a man seizes his enemy by the throat, or when a lion gets its prey by the neck and shakes the very life out of it. Thus has Jesus Christ done with all the enemies of His people. Shall I tell you again the grand old story? 'Twas one dark night when the Great Shepherd was watching His flock that He heard the roaring which told Him that the old lion of the pit was about to leap into the fold to tear the sheep in pieces. Then the Shepherd whispered to Himself, "This is the dreadful hour and the power of darkness." Taking His place in the midst of His blood-bought flock, He waited for the next terrific roar. And as the lion sprang into the fold, He received him upon His bare bosom, and began at once to grapple with Him. He was wounded in His hands, in His feet, and in His side&mdash;and in the desperate struggle "His sweat was, as it were, great drops of blood falling down to the ground." It was a dreadful fight which had been foreseen before
 
@@ -64,7 +64,7 @@ to serve Him and to praise Him all your days&mdash;and to glorify Him forever. L
 
 "Let Him be crowned with majesty Who bowed His head to death; And be His honors sounded high By all things that have breath! Jesus, our Lord, how wondrous great Is your exalted name! The glories of Your heavenly state Let the whole earth proclaim!"
 
-EXPOSITION BY C. H. SPURGEON: GENESIS49:1-28.
+Exposition by C. H. Spurgeon: Genesis49:1-28.
 
 Verses l, 2. And Jacob called unto his sons, and said, Gather yourselves together, that I may tell you that which shall befall you in the last days. Gather yourselves together, and hear, you sons of Jacob; and hearken unto Israel your father. It must have been a great comfort to the old man to have all his 12 sons with him. What a quiet answer this was to his former unbelief! They were all there, yet he could remember the time when he had said, "Me have you bereaved of my children: Joseph is not, and Simeon is not, and you will take Benjamin away." Ah, we also shall have in our later days to chide ourselves for our foolish unbelief! "Jacob called unto his sons." So he was not bereaved after all! They are all here, Jacob! It falls to the lot of few fathers to have 12 sons&mdash;but still fewer to have all 12 of them gathered about his dying bed! "Gather yourselves together." They were to keep together as a family&mdash;and shall not the people of God keep together? Come away from the world, Beloved, but come close to one another! Be one household. Be it your delight to assemble around your elder Brother, the Lord Jesus Christ! "Gather yourselves together, that I may tell you that which shall befall you in the last days." We are not told, nowadays, everything about the future, but much of the future is unfolded to us in the great principles of the Law and the Gospel. And we may learn very much of holy foresight by coming to the oracles of God.
 
@@ -98,7 +98,7 @@ Zebulun shall dwell at the haven of the sea; and he shall be for an haven of shi
 
 path that bites the horse heels, so that his rider shall fall backward. This tribe would show more cunning than courage. It would excel rather in the strategy of war than in the force of arms. Here the old man paused and refreshed himself by saying&mdash;
 
-I have waited for Your salvation, O LORD. What a happy breathing space is this! When you and I, also, are near our journey's end, may we be able to say, as Jacob did, "I have waited for Your salvation, O Lord." He could not have said that once. This is the very Jacob who had, in his earlier days, been full of crafty policy and tricks and schemes! But he has done with all that now, and he is able to truthfully say, "I have waited for Your salvation, O Lord."
+I have waited for Your salvation, O Lord. What a happy breathing space is this! When you and I, also, are near our journey's end, may we be able to say, as Jacob did, "I have waited for Your salvation, O Lord." He could not have said that once. This is the very Jacob who had, in his earlier days, been full of crafty policy and tricks and schemes! But he has done with all that now, and he is able to truthfully say, "I have waited for Your salvation, O Lord."
 
 Gad, a troop shall overcome him: but he shall overcome at the last. This has been the blessing of many a child of God&mdash;to fight and apparently to lose the battle, yet to win it at the end. O you who are striving against sin, or seeking to win souls for Christ, after many disappointments may you be able to clutch this sweet assurance, "He shall overcome at the last."
 
@@ -112,7 +112,7 @@ Is a fruitful bough, even a fruitful bough by a well; whose branches run over th
 
 23, 24. The archers have surely grieved him, and shot at him, and hated him: but his bow abode in strength, and the arms of his hand were made strong by the hands of the mighty God of Jacob; (from there is the Shepherd, the Stone of
 
-Israel). [See Sermon #17, Volume 1&mdash;JOSEPH ATTACKED BY THE ARCHERS.]
+Israel). [See Sermon #17, Volume 1&mdash;JOSEPH ATTACKED by THE ARCHERS.]
 
 Joseph is a type of Him who is both the Shepherd and the Stone to us&mdash;the Shepherd who defends us, provides for us, and dies for us. And the Foundation on which we build for time and eternity.
 
