@@ -2,7 +2,7 @@
 
 "These things Ihave spoken unto you, that in Me you night have peace. In the world you shall have tribulation: but be of good cheer, I have overcome the world." John 16:33
 
-[Other Sermons by Mr. Spurgeon upon the same text are #1327, Volume 22&mdash;CHRIST THE OVERCOMER OF THE WORLD and #1994, Volume 33&mdash; SWEET PEACE FOR TRIED BELIEVERS.]
+[Other Sermons by Mr. Spurgeon upon the same text are #1327, Volume 22&mdash;Christ THE OVERCOMER OF THE WORLD and #1994, Volume 33&mdash; SWEET PEACE FOR TRIED BELIEVERS.]
 
 The Believer is in two places, and he lives two lives. In the text there are two places spoken of&mdash;"in Me" and, "in the world."
 
@@ -63,7 +63,7 @@ This calls for constant watchfulness, since our very love to men might become, u
 
 Is not this enough upon the darker side of the picture?
 
-Let us now consider WHAT THE COMFORT IS WHICH JESUS GRACIOUSLY OFFERS US. "Be of good
+Let us now consider WHAT THE COMFORT IS WHICH Jesus GRACIOUSLY OFFERS US. "Be of good
 
 cheer," He says, "I have overcome the world." This is a glorious sentence spoken by the greatest Conqueror that ever lived&mdash;in whom all His people shall yet be "more than conquerors."
 
@@ -95,7 +95,7 @@ In closing, let us remember that here we have not merely representation, but als
 
 BE OF GOOD CHEER!
 
-EXPOSITION BY C. H. SPURGEON: JOHN12:20-50.
+Exposition by C. H. Spurgeon: John12:20-50.
 
 Our Lord had gained a sudden popularity through raising Lazarus from the dead. And the people had attended Him with great enthusiasm as He rode through the streets of Jerusalem. For the time, things looked very bright with Him, but He knew that He was soon to suffer and to die. And the overshadowing of that great eclipse was already upon His heart. Note how He looked forward to it and how He spoke concerning it.
 
@@ -105,9 +105,9 @@ And Jesus answered them, saying, The hour has come that the Son of Man should be
 
 Verily, verily, I say unto you, Except a corn of wheat falls into the ground and dies, it abides alone; but if it dies,
 
-it brings forth much fruit. [See Sermon #3024 Volume 53&mdash;CHRIST's DEATH AND OURS.] He knew that He must die, for His living, preaching and miracle-working would never produce such results as His death would accomplish! He must go down into the ground, out of sight, and there must lie like a buried grain of wheat, that out of Him there might spring a great harvest to the Glory of God! And these Greeks were like a first handful, a wave-sheaf unto God, a promise of the great harvest that would be the result of His death&mdash;"If it dies, it brings forth much fruit."
+it brings forth much fruit. [See Sermon #3024 Volume 53&mdash;Christ's DEATH AND OURS.] He knew that He must die, for His living, preaching and miracle-working would never produce such results as His death would accomplish! He must go down into the ground, out of sight, and there must lie like a buried grain of wheat, that out of Him there might spring a great harvest to the Glory of God! And these Greeks were like a first handful, a wave-sheaf unto God, a promise of the great harvest that would be the result of His death&mdash;"If it dies, it brings forth much fruit."
 
-26. He that loves his life shall lose it and he that hates his life in this world shall keep it unto life eternal. If any man serves Me, let him follow Me; and where I am, there shall also My servant be: if any man serves Me, him will My Father honor [See Sermons #463, Volume 8&mdash;CHRIST's SERVANT&mdash;HIS DUTY AND REWARD; #2449, Volume 42&mdash;THE RULE AND REWARD OF SERVING CHRIST; #2651, Volume 45&mdash;THE CHRISTIAN's SERVICE AND HONOR and #2874, Volume 50&mdash;PRECEPTS AND PROMISES.] It is an honor to be allowed to serve Christ, but God will bestow still further honor upon those who faithfully serve Him!
+26. He that loves his life shall lose it and he that hates his life in this world shall keep it unto life eternal. If any man serves Me, let him follow Me; and where I am, there shall also My servant be: if any man serves Me, him will My Father honor [See Sermons #463, Volume 8&mdash;Christ's SERVANT&mdash;HIS DUTY AND REWARD; #2449, Volume 42&mdash;THE RULE AND REWARD OF SERVING Christ; #2651, Volume 45&mdash;THE ChristIAN's SERVICE AND HONOR and #2874, Volume 50&mdash;PRECEPTS AND PROMISES.] It is an honor to be allowed to serve Christ, but God will bestow still further honor upon those who faithfully serve Him!
 
 27-29. Now is My soul troubled; and what shall I say? Father, save Me from this hour? But for this cause came I unto this hour. Father, glorify Your name. Then came there a Voice from Heaven, saying, Ihave both glorified it and will
 
@@ -117,7 +117,7 @@ glorify it again. The people, therefore, that stood by and heard it, said that i
 
 32, 33. And I, if I am lifted up from the earth, will draw all men unto Me. This He said, signifying what death He
 
-should die. [See Sermons #139, Volume 3&mdash;CHRIST LIFTED UP; #775, Volume 13&mdash;THE GREAT ATTRACTION and #1717, Volume 29&mdash;THE MARVELOUS MAGNET.] There is no magnet like the death of Christ! He is still able
+should die. [See Sermons #139, Volume 3&mdash;Christ LIFTED UP; #775, Volume 13&mdash;THE GREAT ATTRACTION and #1717, Volume 29&mdash;THE MARVELOUS MAGNET.] There is no magnet like the death of Christ! He is still able
 
 to draw men unto Him because of the attractive force of His atoning Sacrifice.
 
