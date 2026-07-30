@@ -2,7 +2,7 @@
 
 "And Jesus, when He was baptized, went up immediately out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit God descending like a dove, and lighting upon Him: and lo, a Voice from Heaven, saying, This is My Beloved Son, in whom I am well-pleased." Matthew 3:16,17.
 
-[Another Sermon by Mr. Spurgeon upon verse 17 is #2409, Volume 41&mdash;a GREAT SERMON BY THE GREATEST PREACHER.]
+[Another Sermon by Mr. Spurgeon upon verse 17 is #2409, Volume 41&mdash;a GREAT SERMON by THE GREATEST PREACHER.]
 
 I WANT to teach two lessons tonight. The first will be a most necessary one for the unconverted. The second will be more suitable to believers in the Lord Jesus Christ.
 
@@ -112,7 +112,7 @@ And stand and bow among them there,
 
 And view Your face, and sing, and love?" May the Lord bless everyone of you, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 6.
+Exposition by C. H. Spurgeon: Romans 6.
 
 Verse 1. What shall we say then? Shall we continue in sin, that Grace may abound?\f the sinfulness of man has really given an opportunity for the display of Divine Mercy, then the devil's logic would be, "Let us commit more sin, that there may be more room for Grace to work!" But Christians have learned their reasoning in another school&mdash;and to such diabolical arguments they answer in the words of the Apostle &mdash;
 
@@ -120,7 +120,7 @@ God forbid. How shall we, that are dead to sin, live any longer therein? The two
 
 3, 4. Know you not that so many of us as were baptized into Jesus Christ were baptized into His death? Therefore we are buried with Him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father,
 
-even so we also should walk in newness of life. [See Sermons #1627, Volume 27&mdash;BAPTISM&mdash;a BURIAL and #2197, Volume 37&mdash;CHRIST's RESURRECTION AND OUR NEWNESS OF LIFE.] You remember, My Brothers and
+even so we also should walk in newness of life. [See Sermons #1627, Volume 27&mdash;BAPTISM&mdash;a BURIAL and #2197, Volume 37&mdash;Christ's RESURRECTION AND OUR NEWNESS OF LIFE.] You remember, My Brothers and
 
 Sisters in Christ, that hallowed hour when you went down into the liquid tomb, when, in the name of the Father, the Son and the Holy Spirit, you were immersed upon profession of your faith in Jesus Christ? By that solemn act you set forth your death to sin and when you were raised again out of the opening element, you thereby made a profession of your faith in Christ's Resurrection. And moreover, you did then and there, seeing that you had received the Grace of God in truth, profess to rise unto newness of life! How could you, then, go back to sin? That would be to make your Baptism a lie! Indeed, you are, all of you, unbaptized unless you have been baptized into Christ's death.
 
@@ -132,7 +132,7 @@ For he that is dead is freed from sin. He can no longer live in it, for he is de
 
 8-11. Nowifwe are dead with Christ, we believe that we shallalso live with Him: knowing that Christ, being raised from the dead, dies no more; death has no more dominion over Him. For in that He died, He died unto sin once: but in that He lives, He lives unto God. Likewise reckon you also yourselves to be dead indeed unto sin, but alive unto God
 
-through Jesus Christ our Lord [See Sermons #503, Volume 9&mdash;DEATH AND LIFE IN CHRIST and #2933, Volume 51&mdash;DEAD, YET ALIVE.] If Christ could die again, then Believers might lose their spiritual life and there might be such a thing as falling from Grace! But while Jesus lives, no member of His Mystical Body can die. His own promise is, "Because I live, you shall live also." He died unto sin once&mdash;we do the same. He lives no more to die&mdash; we also do the same. Highly privileged are they who are dead with Christ! And blessed is that ordinance in which we set forth our death and burial with Him.
+through Jesus Christ our Lord [See Sermons #503, Volume 9&mdash;DEATH AND LIFE IN Christ and #2933, Volume 51&mdash;DEAD, YET ALIVE.] If Christ could die again, then Believers might lose their spiritual life and there might be such a thing as falling from Grace! But while Jesus lives, no member of His Mystical Body can die. His own promise is, "Because I live, you shall live also." He died unto sin once&mdash;we do the same. He lives no more to die&mdash; we also do the same. Highly privileged are they who are dead with Christ! And blessed is that ordinance in which we set forth our death and burial with Him.
 
 12, 13. Let not sin therefore reign in your mortal body, that you should obey it in the lusts thereof Neither yield you your members as instruments of unrighteousness unto sin: but yield yourselves unto God, as those that are alive from the dead, and your members as instruments of righteousness unto God. Your legs used to carry you to the theater&mdash; compel them now to carry you to the House of God even though you are weary. Your eyes could look long enough upon wickedness&mdash;let not their lids fall when you are sitting to hear a sermon! Let all the members of your body which once served Satan now serve God! Consider that your whole body is a consecrated temple and be not satisfied unless the whole of it is reserved for the great God Himself!
 
