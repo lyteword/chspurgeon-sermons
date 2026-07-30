@@ -2,11 +2,11 @@
 
 "Now the hand of the Lord was upon me in the evening." Ezekiel 33:22.
 
-PERHAPS in the special senses in which Ezekiel uses this expression, we shall not expect to feel "the hand of the Lord" upon us. God may not call us to prophesy as Ezekiel did, although in the Scriptural use of the word, "prophesy," the preacher of the Word is still called to deliver the message which he has received from his Lord's lips. The days of special visions and voices and prophesying have passed away, but we can still say with Peter, "We have a more sure word of prophecy, whereunto you do well that you take heed, as unto a light that shines in a dark place, until the day dawns and the day star arise in your hearts."
+perhaps in the special senses in which Ezekiel uses this expression, we shall not expect to feel "the hand of the Lord" upon us. God may not call us to prophesy as Ezekiel did, although in the Scriptural use of the word, "prophesy," the preacher of the Word is still called to deliver the message which he has received from his Lord's lips. The days of special visions and voices and prophesying have passed away, but we can still say with Peter, "We have a more sure word of prophecy, whereunto you do well that you take heed, as unto a light that shines in a dark place, until the day dawns and the day star arise in your hearts."
 
 I think, however, that we may use our text with some profit in other senses&mdash;"The hand of the Lord was upon me in the evening." So we will enquire, first, what hand was this? Secondly, what time was this? And then, thirdly, what teaching is there for us in this incident?
 
-So first, let us ask, WHAT HAND WAS THIS? The answer is very clearly stated in the text, "the hand of the Lord." We will examine this expression, first, in its connection with the Lord's people, and then in its relation to sinners in whom a gracious work is beginning.
+So first, let us ask, what hand was this? The answer is very clearly stated in the text, "the hand of the Lord." We will examine this expression, first, in its connection with the Lord's people, and then in its relation to sinners in whom a gracious work is beginning.
 
 First, then, looking at this expression in its connection with the Lord's people, I remark that sometimes, "the hand of the Lord" is laid very heavily upon them in chastisement. It is no unusual thing for a child of God to say, "The hand of the Lord was upon me"&mdash;and often he has not merely to add, "in the evening"&mdash;but he can truthfully say, "All day long His hand has been heavily laid upon me." There are some of God's children who are very frequently the subjects of His chastening, and if any of you have come here smarting under the blows of His rod, you must not murmur, for this is the treatment that is meted out to all the rest of the Lord's family. It is through much tribulation that they enter the Kingdom, so let not any one of us take up the lamentation of Jeremiah, "I am the man that has seen affliction by the rod of His wrath"&mdash;but let us all expect to follow in the footsteps of the flock, well knowing that&mdash;
 
@@ -41,7 +41,7 @@ Yet let me tell you that wherever "the hand of the Lord" comes, it always comes 
 
 Further, to sum up briefly, "the hand the Lord" is a receiving hand. And if you go to Him, Sinner, He will receive you graciously and love you freely! It is also an upholding hand, and it will hold you up so that your feet shall not slip. It is an enriching hand, with which the Lord will give generously to you both in Providence and in Grace. It is a guiding hand with which the Lord shall direct your steps. And at last it shall be an opening hand, with which the Lord shall open the gates of Glory, that you may enter them to go no more out forever!
 
-Our second question was to be WHAT TIME WAS THIS? "The hand of the Lord was upon me in the evening." There is a congruity in meditating upon this text in the evening, so let us think upon it for a while in connection with our own inward experience.
+Our second question was to be what time was this? "The hand of the Lord was upon me in the evening." There is a congruity in meditating upon this text in the evening, so let us think upon it for a while in connection with our own inward experience.
 
 And first, Beloved, when you and I have felt "the hand of the Lord" upon us in the evening, I think it has come very seasonably to remind us of the day's sin. Evening is a good time for casting up the sum of the day&mdash;there ought to be set seasons for balancing our accounts. I am afraid that most us are so busy that we neglect this important duty. But it is well to devote a few minutes at night to review the day that has gone by. Recall your actions, your words, your thoughts. Look at your sins that you may repent of them. Look at your follies that you may avoid them in the future. Look at your mistakes that you may not fall into them again. As you turn over all these things in your evening mediation, what a
 
@@ -57,7 +57,7 @@ and to a Christian, dying is very much like going to bed. Being buried is just h
 
 I like, too, the thought of this manifestation of God in the evening because the evening is usually the quiet time that is specially suited to meditation. The morning is the time for action. The day is the time for work. But the evening is the time for mediation. It is well if we then have the inclination as well as the opportunity for communing with God, though I am afraid that our hearts are not always ready for this high privilege even when the season is peculiarly favorable for it. May you, dear Friends, feel "the hand of the Lord" upon you every evening&mdash;and may you feel it very specially this evening! We are in the midst of a most gracious work in this congregation. We began with earnest prayer and we are now receiving the blessing that we have asked at the Lord's hands. During the past week we have had a most blessed fulfillment of that promise, "While they are yet speaking, I will hear." While we have been asking the Lord to bless, He has been blessing! And tonight we want again to feel "the hand of the Lord" upon us. When the preacher feels the Lord's hand on him, there is no lack of power or energy in his sermons! When the Deacons and Elders feel it, there is no lack of attention to the duties of their important offices! When the members feel it, there are no dull, lifeless Prayer Meetings! And when any individual Christians feels it, his heart is made to burn within him while his Master talks with him by the way. May it be so with everyone of us!
 
-Our third question was to be, WHAT TEACHING IS THERE FOR US IN THIS INCIDENT?
+Our third question was to be, what teaching is there for us in this incident?
 
 The text seems to me to teach us, first, to look above man. Ezekiel says, "The hand of the Lord was upon me"&mdash;not the hand of the king, nor the hand of the priest&mdash;but the hand of the Lord! The first question with many persons, when the service is over, very often is, "Well, how did you like the minister." But really, dear Friends, that is a very unimportant question&mdash;the vital matter is&mdash;Did you see Jesus as the preacher sought to lift Him up before you? Was "the hand of the Lord" upon you, pressing you down to the ground under the weight your many sins and then setting you glorious-
 
@@ -79,7 +79,7 @@ Verse 1. It is a good thing to give thanks to the Lord, and to sing praises to Y
 
 To show forth Your loving kindness in the morning, and Your faithfulness every night [See Sermon #1138, Volume 19&mdash;
 
-MORNING AND EVENING SONGS.] Begin the day by setting forth the
+morning and evening songs.] Begin the day by setting forth the
 
 Lord's loving kindness. It was His loving kindness that watched over you when you lay unconscious and defenseless and could not, therefore, protect yourself. It was His loving kindness that drew wide the curtain of the night, that touched your eyelids and awakened you out of that sleep which was the image of death and bade you look out upon the rising sun. Therefore take the key of the morning to open the day, and let it be the golden key of praise! Show forth the Lord's loving kindness in the morning.
 
@@ -101,7 +101,7 @@ But You, Lord, are Most High forevermore. The Psalmist began by calling the Lord
 
 10. For, lo, Your enemies, O Lord, for, lo, Your enemies shall perish as the workers of iniquity shall be scattered. But my horn have You exalted like the horn of an unicorn: I shall be anointed with fresh oil [See Sermon #1649, Volume
 
-28&mdash;FRESHNESS.] The Believer, though he is very weak in his own
+28&mdash;freshness.] The Believer, though he is very weak in his own
 
 consciousness, and utterly insignificant in his own esteem, shall receive fresh power from God! And when the wicked melt away, he shall grow stronger and stronger.
 
