@@ -2,11 +2,11 @@
 
 "Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child and her that travails with child together; a great company shall return there. They shall come with weeping, and with supplications I will lead them: I will cause them to walk by the rivers of waters in a straight way, wherein they shall not stumble: for I am a Father to Israel, and Ephraim is My first-born." Jeremiah 31:8,9.
 
-THERE IS a wonderful variety in the acts of God and yet there is a most singular uniformity. So complete is this uniformity that any one deliverance which God works for His people will be found to be, in its main features, just like any other of His deliverances.
+There is a wonderful variety in the acts of God and yet there is a most singular uniformity. So complete is this uniformity that any one deliverance which God works for His people will be found to be, in its main features, just like any other of His deliverances.
 
 Starting&mdash;for it is a convenient starting-point&mdash;with the deliverance of God's people out of Egypt, there are many points of similarity between that marvel of mercy and the bringing back of the banished tribes from Babylon to their own land. There was a manifestation of the same gracious consideration, of the same Omnipotent power, of the some efficient purpose worked out in all points according to God's Eternal Covenant. Then, taking another great leap, that return from Babylon is, no doubt, a very fair picture and a very excellent type of the gathering together in their own land of the Jews in the days that are yet to come when they shall say to one another, "Let us go up to the house of our God." Everybody will admit that it will be as great a wonder to see the Jews, who are now a nation scattered abroad throughout the whole world, once more dwelling together in Palestine, as it was for them to have been brought out of Egypt or delivered out of Babylon in days long past! But taking a still greater leap, this again is a type of the greatest of all deliverances&mdash;the deliverance neither of the Jews alone nor of the Gentiles alone, but of the whole chosen company who shall be brought out from all the lands of sin and error into which they have been driven by their first parents' fall and their own actual transgressions! They shall be brought out by the same almighty power, only on a far greater scale, and they shall meet, as in a common focus, in that Jerusalem above which is the home of all the chosen! I want to turn your thoughts toward that glorious future when the vast assembly of the redeemed will "sing the Song of Moses, the servant of God, and the Song of the Lamb, saying, Great and marvelous are Your works, Lord God Almighty! Just and true are Your ways, You King of saints."
 
-And, first, I am going to show you that we have, in the text, DEITY MANIFESTED.
+And, first, I am going to show you that we have, in the text, deity manifested.
 
 There is a Divine ring about the text as there was in that ancient fiat which startled the darkness and caused it to flee away. "Let there be light, and there was light." So here the Lord says, "I will bring them and gather them.. .and they shall come.. .I will lead them. I will cause them to walk; they shall not stumble." It is, "I will," and, "they shall" all the way through! There is no admission of doubt or of the possibility of failure. Jehovah speaks in the Sovereignty of His power and says, "I will do this, and I will do that," and there is not an, "if," or a, "perhaps," or a "maybe" to mar the certainty of the Divine Declarations&mdash;"I will" and "they shall."
 
@@ -26,7 +26,7 @@ What shall His work withstand?" When He puts forth the fullness of His strength 
 
 "Strong in the Lord of Hosts, And in His mighty power"&mdash;
 
-for His Kingdom cannot be overthrown, it must spread until it fills the whole earth! And God, even our own God, must be exalted and the praises of His holy name and of His glorious work must go on ringing down the ages forever and ever! II. Now turning to the second point, we see in the text DIFFICULTIES REMOVED.
+for His Kingdom cannot be overthrown, it must spread until it fills the whole earth! And God, even our own God, must be exalted and the praises of His holy name and of His glorious work must go on ringing down the ages forever and ever! Now turning to the second point, we see in the text difficulties removed.
 
 Difficulties would naturally be suggested by unbelieving minds. It would be said, in the first place, that the people had gone too far away ever to be gathered. Yet the Lord says, "I will bring them from the north country, and gather
 
@@ -42,7 +42,7 @@ Then there were some others of whom it was said that they could not possibly joi
 
 Now in the third place, we have in the text not only Deity manifested, and difficulties removed, but we also have
 
-DESCRIPTIONS GIVEN.
+descriptions given.
 
 How shall this great company be brought to the Jerusalem which is above? Listen! There is a mighty host on the march, but I hear no sound of trumpet, no voice of mirth, no song of joy! What do I hear? Weeping, mourning, lamentation&mdash;"They shall come with weeping." That is the music to which sinners usually set out for the heavenly Canaan&mdash; seldom if ever is that start made without tears! It is not the shriek of despair. It is not the groan of disappointment. It is not the yell of rage, and hate. It is the plaintive wail of a soul that says to God, "I have sinned against Heaven and before You, and are no more worthy to be called Your son." From those who compose that throng you may, every now and then, catch such sorrowful sentences as these, "I acknowledge my transgressions, and my sin is ever before me." "My sorrow is continually before me. For I will declare my iniquity. I will be sorry for my sins." This is the kind of music that we hear from those who are setting out for Heaven! Have you, my Friend, ever practiced it? You will never sing in Glory if you have never wept over your sin! I do not merely mean such tears as men and women shed, though these will probably not be absent, but I mean that you will experience that spiritual sorrow which is often too deep for tears. May God the Holy Spirit teach us to weep at the remembrance of our sin, to weep at the foot of the Cross as we look upon Him whom our sins have pierced, and mourn for Him as one mourns for his only son and be in bitterness for Him as one that is in bitterness for his first-born!
 
@@ -73,7 +73,7 @@ where we ourselves expect, by-and-by, to be! Angels and the redeemed from among 
 > One band of happy spirits,   
 > One family above.   
 
-Now I must close when I have spoken but for a minute upon the last point, which is DIGNITY BESTOWED. "For I am a Father to Israel, and Ephraim is My first-born."
+Now I must close when I have spoken but for a minute upon the last point, which is dignity bestowed. "For I am a Father to Israel, and Ephraim is My first-born."
 
 Those who are brought out of the bondage of sin, as Israel was brought out of Egypt and Babylon, by the almighty power and Grace of God, are acknowledged by Him as His children. John writes concerning Jesus, "He came unto His own, and His own received Him not. But as many as received Him, to them gave Him power (the right, or privilege) to become the sons of God, even to them that believe on His name." This relationship cannot be disputed and cannot be disturbed&mdash;and this is the relationship which exists between God and every pardoned sinner! Happy soul! Though once in the family of Satan and an heir of wrath, you are now a child and an heir of God and a joint-heir with Jesus Christ!
 
@@ -83,7 +83,7 @@ be the Lord's, that is a sign and token that the Lord also desires to have you a
 
 "No sinner can be beforehand with You."
 
-If you really desire to have God as your God, and Christ as your Savior, God desires it, too, and Christ desires it. If you are willing to be saved, do not imagine that Christ is unwilling to save you! If you are coming to Christ, Christ is coming to you. No, He HAS come to you, or you would never want to come to Him! "Only believe." These are Christ's words to you now&mdash;believe that He is able to save you through the merit of His atoning Sacrifice and through the prevalence of His intercession before His Father's Throne above. Trust Him! Trust Him to save you now, and then you also shall be among the redeemed of the Lord who shall return and come with singing unto Zion! Everlasting joy shall be upon your head! You shall obtain gladness and joy&mdash;and sorrow and mourning shall flee away from you forever!
+If you really desire to have God as your God, and Christ as your Savior, God desires it, too, and Christ desires it. If you are willing to be saved, do not imagine that Christ is unwilling to save you! If you are coming to Christ, Christ is coming to you. No, He has come to you, or you would never want to come to Him! "Only believe." These are Christ's words to you now&mdash;believe that He is able to save you through the merit of His atoning Sacrifice and through the prevalence of His intercession before His Father's Throne above. Trust Him! Trust Him to save you now, and then you also shall be among the redeemed of the Lord who shall return and come with singing unto Zion! Everlasting joy shall be upon your head! You shall obtain gladness and joy&mdash;and sorrow and mourning shall flee away from you forever!
 
 Exposition by C. H. Spurgeon: Jeremiah31:1-28.
 
@@ -93,7 +93,7 @@ Thus says the Lord, The people which were left of the sword found Grace in the w
 
 The Lord has appeared of old unto me, saying, Yes, I have loved you with an everlasting love: therefore with
 
-loving kindness have I drawn you. [See Sermons #1914, Volume 32&mdash;SECRET DRAWINGS GRACIOUSLY EXPLAINED; #2149, Volume 36&mdash; EVERLASTING LOVE REVEALED and #2880, Volume 50&mdash;NEW TOKENS OF ANCIENT LOVE.] There is the source of everything that is good and gracious&mdash; "everlasting love." When God has once set that love upon His people, anything and everything that is for their good may come out of it! All temporal good and all eternal blessings will come out of everlasting love. Oh, that we might, each one of us, have Grace to appropriate these blessed words to himself&mdash;"I have loved you with an everlasting love: therefore with loving kindness have I drawn you." They were given to Israel of old, but the spiritual Israel possess all the privileges of the natural Israel, and much more.
+loving kindness have I drawn you. [See Sermons #1914, Volume 32&mdash;secret drawings graciously explained; #2149, Volume 36&mdash; everlasting love revealed and #2880, Volume 50&mdash;new tokens of ancient love.] There is the source of everything that is good and gracious&mdash; "everlasting love." When God has once set that love upon His people, anything and everything that is for their good may come out of it! All temporal good and all eternal blessings will come out of everlasting love. Oh, that we might, each one of us, have Grace to appropriate these blessed words to himself&mdash;"I have loved you with an everlasting love: therefore with loving kindness have I drawn you." They were given to Israel of old, but the spiritual Israel possess all the privileges of the natural Israel, and much more.
 
 Again I will build you, and you shall be built Whatever God does is done effectually&mdash;there is never any failure in His work.
 
@@ -121,7 +121,7 @@ Wherein they shall not stumble: for I am a Father to Israel and Ephraim is My fi
 
 I have surely heard Ephraim bemoaning himself thus. [See Sermons #743, Volume 13&mdash;ephraim bemoaning himself and #2104,
 
-Volume 35&mdash;THE INNER SIDE OF CONVERSION.] What a wonderfully expressive word that word, "bemoaning," is!
+Volume 35&mdash;the inner side of conversion.] What a wonderfully expressive word that word, "bemoaning," is!
 
 18, 19. You have chastised me and I was chastised as a bullock unaccustomed to the yoke: turn You me, and I shall be turned; for You are the Lord my God. Surely after that I was turned I repented; and after that I was instructed, I smote upon my thigh: I was ashamed, yes, even confounded because I did bear the reproach of my youth. Hear what the Lord says about these bemoaning ones, these sin-loathing ones&mdash;
 
