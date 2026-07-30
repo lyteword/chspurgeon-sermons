@@ -4,7 +4,7 @@
 
 "The Lord reigns; let the earth rejoice." Psalm 97:1.
 
-No Doctrine in the whole Word of God has more excited the hatred of mankind than the truth of the absolute Sovereignty of God. [See Sermon #77, Volume 2&mdash;DIVINE SOVEREIGNTY.] The
+No Doctrine in the whole Word of God has more excited the hatred of mankind than the truth of the absolute Sovereignty of God. [See Sermon #77, Volume 2&mdash;divine sovereignty.] The
 
 fact that "the Lord reigns" is indisputable&mdash;and it is this fact that arises the utmost opposition in the unrenewed human heart. "The kings of the earth set themselves, and the rulers take counsel together against the Lord and against His Anointed, saying, Let us break their bands asunder, and cast away their cords from us." We know what the Lord thinks of their rebellion against Him&mdash;"He that sits in the heavens shall laugh: the Lord shall have them in derision. Then shall He speak unto them in His wrath and vex them in His sore displeasure." Let us, Beloved, not be among those who refuse to believe this great Truth of God, but may we humbly bow before that dread Sovereign who does as He wills among the armies of Heaven and among the inhabitants of this lower world&mdash;
 
@@ -31,7 +31,7 @@ Moreover, the Sovereignty of God is also displayed in His distribution of gifts 
 
 I have thus reminded you of the Truth of God which is not only stated in our two texts, but is revealed in many other Scriptures&mdash;the Truth that "the Lord reigns." As He reigns in Creation and Providence, so does He reign in the realm of His Grace. Taking the two texts together, I want, earnestly and affectionately, first to address the unsaved sinner And
 
-then to speak to the saved Believer, endeavoring to invoke in each soul the twin emotions of rejoicing and trembling&mdash; "The Lord reigns, let the people tremble." "The Lord reigns, let the earth rejoice." I. So, first, LET ME SPEAK TO THE UNSAVED SINNER.
+then to speak to the saved Believer, endeavoring to invoke in each soul the twin emotions of rejoicing and trembling&mdash; "The Lord reigns, let the people tremble." "The Lord reigns, let the earth rejoice." So, first, let me speak to the unsaved sinner.
 
 Sinner, it is an unspeakable mercy for you that the Lord reigns, for it is because He reigns that you are yet alive. If God were not King, the sentence of Justice must be executed swiftly, surely, mercilessly! And every sinner, the moment that he sinned, must die. But, Sinner, He who is King is very gracious and He says to the officer of Justice, "Spare that man. Let him live." He has spared some of you thirty, forty, fifty, sixty&mdash;it may be even 70 years! You would not have spared any of your fellow creatures who had offended you as long as that. If a man provoked you to your face, your anger would wax hot against him long before 20 years! Some of you would not bear with him even for 20 minutes&mdash;yet you have provoked the Lord year after year&mdash;but the long-suffering patience in the heart of God has borne with you even until now! He has said concerning you, again and again, "Spare him! Spare her!" When fever shot its hot darts at you, God turned them aside! And when the poison of disease was actually in your blood, He removed it with His healing hand. The Lord who reigns has spared you&mdash;therefore rejoice!
 
@@ -56,7 +56,7 @@ But if you refuse to obey the Gospel invitation, what must become of you? Surely
 > Wretched, ruined, helpless soul,   
 > To a Savior's blood apply&mdash; He alone can make you whole, Fly to Jesus, Sinner, fy   
 
-Thus have I spoken to sinners. Now I am briefly TO SPEAK TO THE PEOPLE OF God.
+Thus have I spoken to sinners. Now I am briefly to speak to the people of God.
 
 You "precious sons on Zion, comparable to fine gold," look by faith to your King as He sits upon the Throne! And first, rejoice that you are His. It is the King who has saved you! Your pardon is signed by the royal hand&mdash;it would be worthless to you if it were not so signed! It is Sovereignty that puts the crown upon every other attribute of God! It is the King who has chosen you, the King who has saved you!
 
@@ -74,7 +74,7 @@ This solemn Truth of the Sovereignty of God rests very heavily on my heart. Let 
 
 Now as we come to the Table of our Lord, let us come with deep solemnity remembering that there is Sovereignty here, also. The observance of this ordinance may be very dull and dreary to you&mdash;or God make it a time of most blessed fellowship with Him and with one another. The means of Grace are not always equally profitable to us. The pipes are always golden, but the holy oil does not always flow in our direction. There is blessing to be had at all times, but you cannot always get it. Ask the King to give you Divine Grace to recognize His right to give or to withhold the blessing&mdash; and then plead with Him, for Jesus' sake, to remember you for good! God grant that it may be so, for His dear name's sake! Amen!
 
-Exposition by C. H. Spurgeon: PSALM 72
+Exposition by C. H. Spurgeon: Psalm 72
 
 a Psalm for Solomon.
 
@@ -102,11 +102,11 @@ Yes, all kings shall fall down before Him: all nations shall serve Him. There is
 
 13. For He shall deliver the needy when he cries, the poor also, and him that has no helper He shall spare the
 
-poor and needy, and shall save the souls of the needy. [See Sermon #1037, Volume 18&mdash;THE POOR MAN's FRIEND.] Now, needy one, here is a promise for you! Is there one here that has no helper? Then let that one know that Christ is the Friend of the friendless and the Helper of the helpless!
+poor and needy, and shall save the souls of the needy. [See Sermon #1037, Volume 18&mdash;the poor man's friend.] Now, needy one, here is a promise for you! Is there one here that has no helper? Then let that one know that Christ is the Friend of the friendless and the Helper of the helpless!
 
 14-16. He shall redeem their soul from deceit and violence: and precious shall their blood be in His sight. And He shall live, and to Him shall be given of the gold of Sheba: prayer also shall be made for Him continually; and daily shall
 
-He be praised. There shall be an handful of corn on the earth&mdash;[See Sermon #717, Volume 12&mdash;PRAY FOR Jesus.] Only a handful? O you birds of the air, how you long to eat it all up! O you thorns, how soon would you choke it to death! It is only a handful of corn&mdash;
+He be praised. There shall be an handful of corn on the earth&mdash;[See Sermon #717, Volume 12&mdash;pray for Jesus.] Only a handful? O you birds of the air, how you long to eat it all up! O you thorns, how soon would you choke it to death! It is only a handful of corn&mdash;
 
 Upon the top of the mountains. That is a bad place for corn&mdash;surely it will die there&mdash;the winter snows will chill it and, exposed to every stormy blast it will never fill the arms of the reaper. But is it so? Listen&mdash;
 
@@ -114,4 +114,4 @@ The fruit thereof shall shake like Lebanon. Just as there are peculiar noises he
 
 And they of the city shall flourish like grass of the earth. They shall be so many that one might as well attempt to count the blades of grass as to reckon the number of God's saints!
 
-17-20. His name shall endure forever: His name shall be continued as long as the sun: and men shall be blessed in Him: all nations shall call Him blessed. Blessed be the Lord God, the God of Israel, who only does wondrous things. And blessed be His glorious name forever: and let the whole earth be filled with His Glory. Amen, and Amen. The prayers of David, the son of Jesse are ended [See Sermons #27, Volume 1&mdash;THE ETERNAL NAME; #2187, Volume 37&mdash;Jesus&mdash;"ALL BLESSING AND ALL BLESSED"; #2451, Volume 42&mdash;"BLESSED IN HIM" and #129, Volume 3&mdash;DAVID's DYING PRAYER.] He had nothing more to pray for! He had his heart's highest and best wish and, therefore, he closes his prayer where God had given him all that he could ask.
+17-20. His name shall endure forever: His name shall be continued as long as the sun: and men shall be blessed in Him: all nations shall call Him blessed. Blessed be the Lord God, the God of Israel, who only does wondrous things. And blessed be His glorious name forever: and let the whole earth be filled with His Glory. Amen, and Amen. The prayers of David, the son of Jesse are ended [See Sermons #27, Volume 1&mdash;the eternal name; #2187, Volume 37&mdash;Jesus&mdash;"all blessing and all blessed"; #2451, Volume 42&mdash;"blessed in Him" and #129, Volume 3&mdash;David's dying prayer.] He had nothing more to pray for! He had his heart's highest and best wish and, therefore, he closes his prayer where God had given him all that he could ask.
