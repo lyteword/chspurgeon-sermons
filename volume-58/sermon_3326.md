@@ -51,7 +51,7 @@ The king looked for his people even if they were in rebellion against him! He ha
 
 People have their treasures, their pearls, their jewels, their rubies, their diamonds&mdash;and these are their peculiar stones. Now, all in the Covenant of Grace are the peculiar stones of God. He values them above all things else! In fact, He keeps the world spinning for them! The world is but a scaffold for the Church. He will send Creation packing when once it has done with His saints. Yes, sun, moon and stars shall pass away like worn-out rags when once He has gathered together His own elect and enfolded them forever within the safety of the walls of Heaven! For them time moves! For them the world exists! He measures the nation according to their number and He makes the very stars of Heaven to fight against their enemies and to defend them against their foes! "They shall be to Me a people." The favor which is contained in such love it is not for tongue to express. Perhaps on some of those quiet resting places prepared for the saints in Heaven, it shall be a part of our eternal enjoyment to contemplate the heights and depths of these golden lines!
 
-And now, Brothers and Sisters, I wish I had time to go over the other parts contained in the eleventh and twelfth verses of the Chapter, but I have not, for I have a practical business to do, and it is to enquire&mdash;FOR WHOM HAS GOD MADE
+And now, Brothers and Sisters, I wish I had time to go over the other parts contained in the eleventh and twelfth verses of the Chapter, but I have not, for I have a practical business to do, and it is to enquire&mdash;FOR WHOM HAS God MADE
 
 THIS COVENANT?
 
@@ -71,7 +71,7 @@ These blessings I have spoken of seem to me to be a great consolation and inspir
 
 Gethsemane a defeat? Impossible! The Mighty Man who went up to the Cross to bleed and die for us, being also the Son of God, did not there achieve a defeat but a victory! He shall see His seed, He shall prolong His day, and the pleasure in the Lord shall prosper in His hands! If some will not be saved, others shall. If, being invited, some count themselves not worthy to come to the feast, others will be brought in, even the blind, the crippled and the lame&mdash;and the supper shall be furnished with guests! If they come not from England, they shall come from the east, and from the west, from the north and from the south. If it should come to pass that Israel is not gathered, lo, the heathen shall be gathered unto Christ! Ethiopia shall stretch out her arms! Sinim shall yield herself to the Redeemer! The desert ranger shall bow the knee and the far-off stranger enquire for Christ! Oh, no, Beloved, the purposes of God are not frustrated! The eternal Will of God is not defeated! Christ has died a glorious death and He shall have a full reward for all His pain. "Therefore, be you steadfast, immovable, always abounding in the work of the Lord, forasmuch as you know that your labor is not in vain in the Lord."
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 5:1-11; PSALM 81:1-14.
+Exposition by C. H. Spurgeon: Romans 5:1-11; PSALM 81:1-14.
 
 Romans 5:1. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ The Gospel is full of "therefores," it is above reason, but it is never against reason&mdash;it is the most reasonable thing under Heaven! "Therefore"&mdash;it is a matter of argument. You will have to read the previous Chapters to see how this conclusion flows naturally from what he had before taught by the Holy Spirit.
 
@@ -97,7 +97,7 @@ And not only so, but we also joy in God through our Lord Jesus Christ, by whom w
 
 Now we shall read together the seventy-first Psalm, just in order that we may see how good men in all ages have been assisted by their experience and their hope&mdash;and how their hope has grown out of their tribulation, their patience and their experience. The Old Man's Psalm. You can remember it, dear Friends, who are aged, by its being 71&mdash;it is just past the threescore years and ten!
 
-Psalm 71:1. In You, OLORD, do Iput my trust: let me never beput to confusion. There is his trust and there is his fear. His trust he dares to avow, his fear he turns into a prayer.
+Psalm 71:1. In You, OLord, do Iput my trust: let me never beput to confusion. There is his trust and there is his fear. His trust he dares to avow, his fear he turns into a prayer.
 
 2, 3. Deliver me in Your righteousness, and cause me to escape: incline Your ear unto me, and save me. Be You my strong habitation, whereunto I may continually resort: You have given commandment to save me; for You are my rock and my fortress. "Be you my strong habitation whereunto I may continually resort." Not merely now and then a hiding place in emergencies, but my constant abode, my home&mdash;so that from morning to night I may come to You and feel myself secure. "You have given commandment to save me; for You are my rock and my fortress." You see he knows that God has commanded Nature, Providence and His Grace to protect him! He has commanded His angels&mdash;indeed, He has commanded all His forces to protect David for this reason&mdash;that David feels an inward rest and peace in God. That calm, that Divine repose expressed in the words "You are my rock and my refuge," are the tokens that God has given commandment to save us.
 
