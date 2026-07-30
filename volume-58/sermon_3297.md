@@ -92,7 +92,7 @@ The cords of His love, who was given for you,
 
 To His altar binding you fast." Examine yourselves. Prove your own hearts. Consider what manner of men you ought to be. Let the precepts of the Word admonish you. Let the esprit de corps stimulate you. Never let disciples of Christ fall behind followers of David in warmth of attachment, or in order of service. The nearer you get to the Person of your Lord, the more you will catch of His Spirit! I think, Beloved, you need direction more than exhortation. The more you live under His eyes and the more often you listen to His voice, the better, truer, nobler men and women you will prove to be and the happier recognition you will find in the day of His appearing!
 
-EXPOSITION BY C. H. SPURGEON: PSALM56.
+Exposition by C. H. Spurgeon: PSALM56.
 
 To the chief Musician upon Jonath-elem-rechokim, Michtam (a golden Psalm) of David, when the Philistines took him in Gath.
 
@@ -110,7 +110,7 @@ You number my wanderings: put my tears into Your bottle: are they not in Your bo
 
 When I cry unto You, then shall my enemies turn back: this I know; for God is for me. David's confidence in God was not misplaced! He who can truthfully say, "God is for me," need not fear however many may be against him!
 
-11. In God will Ipraise His word: in the LORD will Ipraise His word. In God have Iput my trust: I will not be afraid what man can do unto me. He repeats the declarations he made in verse four&mdash;such holy confidence may rightly be published again and again! It is most pleasing and honoring to the Lord and it is most likely to lead other tried Believers to follow such a worthy example! The praising and trusting man fears not what man can do to him.
+11. In God will Ipraise His word: in the Lord will Ipraise His word. In God have Iput my trust: I will not be afraid what man can do unto me. He repeats the declarations he made in verse four&mdash;such holy confidence may rightly be published again and again! It is most pleasing and honoring to the Lord and it is most likely to lead other tried Believers to follow such a worthy example! The praising and trusting man fears not what man can do to him.
 
 Your vows are upon me, O God I will render praises unto You. David had not forgotten the vows that he had made unto the Lord. Vows should not be lightly made, but once made, they should be sacredly remembered, and faithfully performed.
 
