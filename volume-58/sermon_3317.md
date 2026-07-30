@@ -6,7 +6,7 @@ Sons of men, rejoice that such a God has revealed Himself to you! This should ca
 
 Now, surely it would suffice were I to sound this trumpet again and again with its celestial monotone. If you heard nothing but the same unvarying notes and did but remember them, believe them and come to God in consequence of them&mdash;there would be enough of a sermon in the text without further exposition or comment. "He delights in mercy." Nevertheless, as you are willing to listen, it will not be grievous to me to speak on such a lovely theme. Let me, therefore, mention some facts which prove it, answer some objections that are raised against it and warn you against some perversions of it and then endeavor to push home the great lessons which spring from it.
 
-FACTS WHICH PROVE THAT GOD DELIGHTS IN MERCY.
+FActs WHICH PROVE THAT God DELIGHTS IN MERCY.
 
 This is clear from the first dawn of promise. When our first parents sinned, He might, if He had pleased, without straining the words which He had spoken, have destroyed them both and so at once have put an end to the race of rebels. He had said, "In the day that you eat thereof you shall surely die." If He had chosen to give to that a literal as well as a spiritual meaning, He might surely have put on the black cap and condemned our parents to perish on the spot! But why did He permit them to live and to become the parents of an innumerable race? Why, from that single pair, has He allowed the millions of the race to spring? Because every man that is born becomes a sinner and in everyone of these millions there is space for God's mercy&mdash;these all furnish so many platforms, I might say, on which God might display His mercy&mdash;so many millions of black foils against which God shall put the sparkling sapphire of His mercy that its brightness may be more clearly seen! Surely, it is only because He delights in mercy that He spares this earth to swarm with sinners and to be covered over with multitudes of transgressors!
 
@@ -34,7 +34,7 @@ Should anyone say, with blank surprise, "If God delights in mercy, why is there 
 
 Should another say, "How is God merciful, when I feel in my own self that He cannot have mercy upon me?" I should reply, Your feelings are not to be trusted! Whatever despair may whisper, or doubts may suggest, one text of Scripture is worth 50 fears and doubts, or fifty thousand of either. You may be a black sinner, but He delights to wash you. You may have offended Him, year after year, and done despite to His Grace, but His arm is still not shortened that He cannot save. I care not how far you may have gone, I am sure He can come after you. Lost sheep, bleating on the mountains, the Shepherd can hear you and the Shepherd can reach you! You may fall into a pit but it shall not be so deep that He cannot bring you out! While life remains there is hope! Sin as you may have sinned, there is abundance of pardon with a gracious God. Oh, put not your thought so in opposition to the declaration of Heaven, but believe tonight that God is able and willing to forgive you&mdash;and come with a penitent prayer and find forgiveness now! All objections to the delight of God in mercy are but illusions of your brain&mdash;or delusions of your heart.
 
-THERE IS PERIL OF MISUSING THIS MERCY OF GOD, lest instead of leading us to repentance, it should
+THERE IS PERIL OF MISUSING THIS MERCY OF God, lest instead of leading us to repentance, it should
 
 plunge us deeper into sin. Though God delights in mercy, sin is no trifle in His estimation. Sin is an enormous evil, an evil so great that it never could have been prevented from destroying us all except by God, Himself, coming into this world, taking upon Himself our Nature and suffering to the very death in our place! Calvary tells us that sin is not a thing to be laughed at. It cost our Savior unutterable groans and griefs that can never be measured to deliver us from our guilt! And if the sinner comes not to Christ, it shall cost him endless tears! It shall cost him everlasting misery! His sins shall sink him to Hell forever! Oh, trifle not with sin because God is merciful! This is a cruel, brutal thing to do&mdash;to sin because Grace abounds. If you do so, you shall find that there is no Grace for you!
 
@@ -68,7 +68,7 @@ Oh, come to Him, come now! 'Tis all mercy today. You are not bidden to come to a
 > But mercy has my heart subdued,   
 > A bleeding Savior I have viewed, And now I hate my sin.   
 
-EXPOSITION BY C. H. SPURGEON: PSALM 136; EPHESIANS1
+Exposition by C. H. Spurgeon: PSALM 136; Ephesians1
 
 Let us make this occasion a time of praise and thanksgiving! Let our hearts dance at the name of our God! Let our lips give expression thereto in joyful music!
 
