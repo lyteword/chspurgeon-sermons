@@ -2,7 +2,7 @@
 
 "Ho, everyone who thirsts, come to the waters." Isaiah 55:1.
 
-THERE is a thirst which is peculiar to the Believer. He can say with David, "As the hart pants after the water brooks, so pants my soul after You, O God." Delightful thirst! Would God we had more of it! May we be longing and panting after our God in that sense until we shall be filled with His Spirit and shall dwell in His Presence to go no more out forever!
+There is a thirst which is peculiar to the Believer. He can say with David, "As the hart pants after the water brooks, so pants my soul after You, O God." Delightful thirst! Would God we had more of it! May we be longing and panting after our God in that sense until we shall be filled with His Spirit and shall dwell in His Presence to go no more out forever!
 
 But I wish now to speak of another kind of thirst to another class of thirsting ones, who thirst they scarcely know for what. They have a sense of unrest, of longing, of yearning&mdash;yet they have a very indistinct idea of what it is their souls are pining for. It may be that they will find out presently what it is their thirst requires. Better still, if perhaps, by God's blessing, that thirst shall be quenched by their drinking that Living Water of which they are bidden freely to take.
 
@@ -10,7 +10,7 @@ I shall not detain you with a long preface, nor, indeed, with a long discourse. 
 
 Learn from my text that God has made plenteous soul-provision and that to every thirsty soul this provision is perfectly free and gratuitous.
 
-In the first place, God HAS MADE AN ABUNDANT SOUL-PROVISION.
+In the first place, God has made an abundant soul-provision.
 
 We read here of "water." Water has been pronounced the simplest, purest, fittest drink for all persons of all ages and temperaments. Now, there is a thirst in man's body which makes him require drink. He drinks and that thirst is removed. There is a similar thirst in man's spiritual'nature. He needs something and he feels uneasy until he gets it. The Grace of God, which is proclaimed to us in Christ Jesus, is that which meets the longing of man. That is the spiritual water for man's spiritual thirst. In the text, the word is put in the plural, "Come you to the waters," I suppose to show the abundance thereof, as though there were many rivers of it, so that none might fear that they should require more than was provided&mdash;
 
@@ -61,7 +61,7 @@ But time would fail me if I were to try to mention all the different forms of so
 
 lished their goings! I wish I had an angel's tongue, or could sound a trumpet that would be heard right round this world! How loudly, then, would I proclaim the glad tidings that God has in store for needy ones&mdash;everything they need! No sinner need die of famine, for there is no famine in this land of Grace. No traveler through this world needs to die of thirst, for the well is deep, and it eternally springs up. No sinner needs to starve, for the oxen and fatlings are killed and the Gospel message is, "Come, for all things are ready." God grant that knowing how bountifully all these things are provided, we may, none of us, keep back, turn a deaf ear to the general call, refuse the special invitation, slight the Grace, or scorn the Gospel!
 
-Observe, secondly, that THE GOSPEL PROVISIONS ARE FREE TO ALL THIRSTY SOULS.
+Observe, secondly, that the Gospel provisions are free to all thirsty souls.
 
 Do you notice the first word of the text? "Ho!" That is like the cry of the salesman at a fair. He calls out to passersby, "Ho! Look! listen! Turn here! Here is a bargain&mdash;something worth your attention!" So God condescends, as it were, to cry out to those who are busy with this world's cares, its business and its barter, its buying and selling, "Ho! Ho! Ho! Here is something worth your minding, you that would be rich at little cost, you that are in want, you that are in need, you that would find something that shall exactly meet your case." Ho!&mdash;this is the Gospel note! A short, significant appeal, urging you to be wise enough to attend to your own interests. Oh, the condescension of God&mdash;that He should, as it were, become a beggar to His own creature and stoop from the magnificence of His Glory to cry, "Ho!" to foolish and ungrateful men!
 
@@ -89,7 +89,7 @@ Isaiah55.
 
 Verse 1. Ho, everyone that thirsts, come you to the waters, and he that has no money; come you, buy, and eat; yes, come, buy wine and milk without money and without price. [See Sermons #1161, Volume 20&mdash;without money and without price and
 
-#1726, Volume 29&mdash;BUYING WITHOUT MONEY.] The description of Gospel
+#1726, Volume 29&mdash;buying without money.] The description of Gospel
 
 blessings grows sweeter as it advances. "Waters'' first, "wine and milk" next, and still all "without money and without price." We preach no narrow salvation&mdash;we rejoice in the Covenant of Grace&mdash;it is the backbone of our theology, but the Gospel has wide arms, a loud voice and persuasive tones! "Ho, everyone that thirsts, come you to the waters." In Christ there is a full supply for all our necessities&mdash;bread and water and yes, there are luxuries sufficient for our largest desires&mdash;wine and milk and He wants us to bring nothing in payment for them! "Without money and without price." That is, indeed, Free Grace! Some people object to that expression and say that it is tautology, for Grace must be free&mdash;but we mean to keep on using it that all may know that Grace is free, gratis, all for nothing!
 
@@ -97,9 +97,9 @@ Why do you spend money for that which is not bread? And your labor for that whic
 
 Hearken diligently unto Me, and eat you that which is good, and let your soul delight itself in fatness. [See Sermons
 
-#2278, Volume 38&mdash;FEEDING ON THE WORD and #2786, Volume 48&mdash;THE SOUL's BEST FOOD.] All that your largest desires can long for, you will find in Christ. You shall have not only necessities, but delicacies, delights that shall satisfy you to the fullest! You shall not be able to conceive of anything that shall be more rich and full than the Grace of God. The Gospel is "that which is good." Yes, it is the best food our souls can ever eat! It gratifies, it satisfies and fills our spirits with holy joy and exhilaration!
+#2278, Volume 38&mdash;feeding on the word and #2786, Volume 48&mdash;the soul's best food.] All that your largest desires can long for, you will find in Christ. You shall have not only necessities, but delicacies, delights that shall satisfy you to the fullest! You shall not be able to conceive of anything that shall be more rich and full than the Grace of God. The Gospel is "that which is good." Yes, it is the best food our souls can ever eat! It gratifies, it satisfies and fills our spirits with holy joy and exhilaration!
 
-Incline your ear, and come unto Me-[See Sermons #2092, Volume 35&mdash;God's OWN GOSPEL CALL and #2316, Volume 39&mdash;TWELVE COVENANT MERCIES.] This is the gate by which salvation enters into
+Incline your ear, and come unto Me-[See Sermons #2092, Volume 35&mdash;God's own gospel call and #2316, Volume 39&mdash;twelve covenant mercies.] This is the gate by which salvation enters into
 
 man&mdash;Ear-Gate&mdash;by hearing and believing. "Incline your ear," bend it forward as if you would catch every word&mdash; "and come unto Me"&mdash;
 
@@ -107,7 +107,7 @@ Hear, and your soul shall live; and I will make an everlasting covenant with you
 
 Behold, I have given Him for a witness to the people, a Leader and Commander to the people. [See Sermons #2534, Volume
 
-43&mdash;THE GREATEST GIFT IN TIME OR ETERNITY and #2787, Volume 48&mdash;Christ's TRIPLE CHARACTER.] He who is our greater David comes to us to bear witness to the Immutable Love of God and to be to us our Captain and our King! Happy are the souls that accept this David to be their Leader. You remember how David, in the Cave Adullam, gathered to himself "everyone that was in distress, and everyone that was in debt, and everyone that was discontented, and he became a captain over them." Even so, the great Antitype, David's Son and David's Lord, is willing now to gather to Himself those who are spiritually bankrupt, discontented and weary with the world, and God says, "I have given Him for a witness to the people, a Leader and Commander to the people."
+43&mdash;the greatest gift in time or eternity and #2787, Volume 48&mdash;Christ's triple character.] He who is our greater David comes to us to bear witness to the Immutable Love of God and to be to us our Captain and our King! Happy are the souls that accept this David to be their Leader. You remember how David, in the Cave Adullam, gathered to himself "everyone that was in distress, and everyone that was in debt, and everyone that was discontented, and he became a captain over them." Even so, the great Antitype, David's Son and David's Lord, is willing now to gather to Himself those who are spiritually bankrupt, discontented and weary with the world, and God says, "I have given Him for a witness to the people, a Leader and Commander to the people."
 
 Behold, You shall calla nation that You knownot, andnations that know You notshallrun unto You because of the Lord Your God and for the Holy One oflsrael; for He has glorified You. What joy this gives to you who love Him! Jehovah has glorified His Son, and given to Him the power to call to Himself a people that He knew not in a saving sense, and He shall so call nations that knew Him not that they shall run unto Him! We do not preach the Gospel at hapha-zard&mdash;we are sure of results. If we speak in faith, in the name of Christ, men must be saved, they must run to Christ. It is not left to their option&mdash;there is a Divine hand that secretly touches the springs of the will of men so that, when Christ calls them, they run to Him! Oh, that He would just now call them, even those that are furthest off, that they may run to Him and that He may be glorified! A Savior without souls saved by Him would be only a Savior in name. A head without a body would be a very ghastly thing. A shepherd without sheep would be a man without occupation. A Christ anointed to save the lost, and yet no lost ones coming to Him&mdash;where would His Glory be? But sinners, drawn by His Almighty Grace, run to Him, and so God glorifies Him!
 
@@ -121,7 +121,7 @@ And let him return&mdash;he is like one who has wandered from his father's house
 
 Unto the Lord, and He will have mercy upon him; and to our God, for He will abundantly pardon. [See Sermons
 
-#1195, Volume 20&mdash;ABUNDANT PARDON and #2797, Volume 48&mdash;THE NEED AND NATURE OF CONVERSION.] What a blessed word, "abundantly," is here! Abundant pardon to cover abundant sin, abundant provocation, abundant rejection of His Word!
+#1195, Volume 20&mdash;abundant pardon and #2797, Volume 48&mdash;the need and nature of conversion.] What a blessed word, "abundantly," is here! Abundant pardon to cover abundant sin, abundant provocation, abundant rejection of His Word!
 
 For My thoughts are not your thoughts, neither are your ways My way, says the Lord. "Says the Lord," as if He would not leave the Prophet to speak any longer on His behalf! He Himself appears upon the scene and speaks&mdash;"For My thoughts are not your thoughts." No doubt He refers here to the pardon of sin. Our thoughts are narrow! We find it hard to forgive great offenses, to forgive many offenses, to forgive many offenders, to continue completely to forgive&mdash; all this is very difficult to man.
 
@@ -135,7 +135,7 @@ Instead of the thorn shall come up the fir tree. The thorn is everywhere, today,
 
 And instead of the brier shall come up the myrtle tree: and it shall be to Jehovah for a name, for an everlasting
 
-sign that shall not be cut off [See Sermons #833, Volume 14&mdash;THE Lord's NAME AND MEMORIAL; #2410, Volume 41&mdash;SPRINGTIME IN NATURE AND GRACE and #3044, Volume 53&mdash;SPIRITUAL TRANSFORMATIONS.] It shall make
+sign that shall not be cut off [See Sermons #833, Volume 14&mdash;the Lord's name and memorial; #2410, Volume 41&mdash;springtime in nature and grace and #3044, Volume 53&mdash;spiritual transformations.] It shall make
 
 men know what He is like, what gracious power He has, what goodness dwells in Him! "It shall be to Jehovah for a
 
