@@ -66,7 +66,7 @@ So surely you that love His name
 
 Shall triumph in Him too"&mdash; even though your foes are named Legion, for they are many. God bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK5.
+Exposition by C. H. Spurgeon: Mark5.
 
 Verses 1-6. And they came over unto the other side of the sea, into the country of the Gadarenes. And when He was come out of the boat, immediately there met Him out of the tombs a man with an unclean spirit, who had his dwelling among the tombs; and no man could bind him, no, not with chains: because that he had been often bound with fetters and chains, and the chains had been plucked asunder by him, and the fetters broken in pieces: neither could any man tame him. And always, night and day, he was in the mountains, and in the tombs, crying, and cutting himself with stones. What a pitiful object this poor creature must have been&mdash;a terror to the whole region! So far as man was concerned, he was in an utterly hopeless condition, yet there was hope for him, for Jesus had crossed the sea apparently with the special purpose of healing him! Our Savior had proved His power over the winds and waves and He was about to show that demons were equally subject to His control.
 
@@ -88,7 +88,7 @@ was that was done. And they come to Jesus, and saw him that was possessed with t
 
 18, 19. And when He was come into the boat, he that had been possessed with the devil prayed Him that he might be with Him. Howbeit Jesus allowed him not, but said to him, go home to your friends, and tell them how great things the
 
-Lord has done for you, and has had compassion on you [See Sermon #2262, Volume 38&mdash;CHRIST's CURATE IN DECAPOLIS.] This is the third prayer in this chapter. Not like the two previous ones&mdash;the petition of many who were not Christ's followers. It was the earnest supplication of one who was so grateful for what Jesus had done for him that he longed to be always with Him. Yet it was not granted, because Jesus saw that the man could serve Him better by bearing testimony among those who knew him to the great things the Lord had done for him.
+Lord has done for you, and has had compassion on you [See Sermon #2262, Volume 38&mdash;Christ's CURATE IN DECAPOLIS.] This is the third prayer in this chapter. Not like the two previous ones&mdash;the petition of many who were not Christ's followers. It was the earnest supplication of one who was so grateful for what Jesus had done for him that he longed to be always with Him. Yet it was not granted, because Jesus saw that the man could serve Him better by bearing testimony among those who knew him to the great things the Lord had done for him.
 
 And he departed, and began to publish in Decapolis how great things Jesus had done for him: and all men did marvel. His testimony not only made men marvel, but it helped to prepare the people to welcome the Savior when He returned to that region.
 
