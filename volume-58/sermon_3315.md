@@ -76,7 +76,7 @@ Do you remember my saying one Sabbath, "The Lord deal so with you as you deal wi
 
 God bring in the unconverted and lead them to a simple trust in Jesus&mdash;then shall they,also, know the joy in harvest! We ask it for His name's sake. Amen!
 
-EXPOSITION BY C. H. SPURGEON: ISAIAH9:1-7.
+Exposition by C. H. Spurgeon: Isaiah9:1-7.
 
 The last verses of the eighth Chapter picture a horrible state of wretchedness and despair&mdash;"And they shall pass through it, hard-pressed and hungry: and it shall come to pass that when they shall be hungry, they shall fret themselves and curse their king and their God, and look upward. And they shall look unto the earth and behold trouble and darkness, gloom of anguish, and they shall be driven to darkness." But see what a change awaits them!
 
@@ -94,7 +94,7 @@ For every warrior's sandal from the noisy battle, and garments rolled in blood w
 
 For unto us a Child is born, unto us a Son is given: and the government shall be upon His shoulder: and His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace. Now is it that the Lord Jesus becomes glorious in our eyes! And He whose name is Immanuel is now crowned in our heart with many crowns and honored with many titles. What a list of glories we have here! What a burst of song it makes when we sing of the Messiah&mdash;"His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace!" Each work sounds like a salvo of artillery. It is all very well to hear players on instruments and sweet singers rehearse these words&mdash;but to believethem and realize them in your own soul is far better! When every fear, every hope and every power and every passion of our nature fills the orchestra of our heart&mdash;and all unite in one inward song unto the glorious Immanuel&mdash;what music it is!
 
-Ofthe increase of His government andpeace there shall be no end, upon the throne ofDavid, and upon His Kingdom, to order it, and to establish it with judgment and with justice from henceforth even forever. The zeal ofthe LORD of Hosts will perform this. If Christ is your Savior He must be your King&mdash;
+Ofthe increase of His government andpeace there shall be no end, upon the throne ofDavid, and upon His Kingdom, to order it, and to establish it with judgment and with justice from henceforth even forever. The zeal ofthe Lord of Hosts will perform this. If Christ is your Savior He must be your King&mdash;
 
 "But know, nor ofthe terms complain,
 
