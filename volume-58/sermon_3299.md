@@ -10,7 +10,7 @@ I shall not detain you with a long preface, nor, indeed, with a long discourse. 
 
 Learn from my text that God has made plenteous soul-provision and that to every thirsty soul this provision is perfectly free and gratuitous.
 
-In the first place, GOD HAS MADE AN ABUNDANT SOUL-PROVISION.
+In the first place, God HAS MADE AN ABUNDANT SOUL-PROVISION.
 
 We read here of "water." Water has been pronounced the simplest, purest, fittest drink for all persons of all ages and temperaments. Now, there is a thirst in man's body which makes him require drink. He drinks and that thirst is removed. There is a similar thirst in man's spiritual'nature. He needs something and he feels uneasy until he gets it. The Grace of God, which is proclaimed to us in Christ Jesus, is that which meets the longing of man. That is the spiritual water for man's spiritual thirst. In the text, the word is put in the plural, "Come you to the waters," I suppose to show the abundance thereof, as though there were many rivers of it, so that none might fear that they should require more than was provided&mdash;
 
@@ -85,7 +85,7 @@ The provisions of Grace must be free to thirsty ones, why else were they provide
 
 Come, then, fellow Sinners, come! May the eternal Spirit draw you now! Even now, "come you to the waters." Though you have no money and no price and no goodness, come and rest in Jesus and find everlasting life! Ho, everyone that thirsts, come you to the waters." That is my message. There is your welcome. Come! Do come! So my errand will speed. So your souls will be blessed. So God's name will be glorified! Amen.
 
-ISAIAH55.
+Isaiah55.
 
 Verse 1. Ho, everyone that thirsts, come you to the waters, and he that has no money; come you, buy, and eat; yes, come, buy wine and milk without money and without price. [See Sermons #1161, Volume 20&mdash;without money and without price and
 
@@ -99,7 +99,7 @@ Hearken diligently unto Me, and eat you that which is good, and let your soul de
 
 #2278, Volume 38&mdash;FEEDING ON THE WORD and #2786, Volume 48&mdash;THE SOUL's BEST FOOD.] All that your largest desires can long for, you will find in Christ. You shall have not only necessities, but delicacies, delights that shall satisfy you to the fullest! You shall not be able to conceive of anything that shall be more rich and full than the Grace of God. The Gospel is "that which is good." Yes, it is the best food our souls can ever eat! It gratifies, it satisfies and fills our spirits with holy joy and exhilaration!
 
-Incline your ear, and come unto Me-[See Sermons #2092, Volume 35&mdash;GOD's OWN GOSPEL CALL and #2316, Volume 39&mdash;TWELVE COVENANT MERCIES.] This is the gate by which salvation enters into
+Incline your ear, and come unto Me-[See Sermons #2092, Volume 35&mdash;God's OWN GOSPEL CALL and #2316, Volume 39&mdash;TWELVE COVENANT MERCIES.] This is the gate by which salvation enters into
 
 man&mdash;Ear-Gate&mdash;by hearing and believing. "Incline your ear," bend it forward as if you would catch every word&mdash; "and come unto Me"&mdash;
 
@@ -107,11 +107,11 @@ Hear, and your soul shall live; and I will make an everlasting covenant with you
 
 Behold, I have given Him for a witness to the people, a Leader and Commander to the people. [See Sermons #2534, Volume
 
-43&mdash;THE GREATEST GIFT IN TIME OR ETERNITY and #2787, Volume 48&mdash;CHRIST's TRIPLE CHARACTER.] He who is our greater David comes to us to bear witness to the Immutable Love of God and to be to us our Captain and our King! Happy are the souls that accept this David to be their Leader. You remember how David, in the Cave Adullam, gathered to himself "everyone that was in distress, and everyone that was in debt, and everyone that was discontented, and he became a captain over them." Even so, the great Antitype, David's Son and David's Lord, is willing now to gather to Himself those who are spiritually bankrupt, discontented and weary with the world, and God says, "I have given Him for a witness to the people, a Leader and Commander to the people."
+43&mdash;THE GREATEST GIFT IN TIME OR ETERNITY and #2787, Volume 48&mdash;Christ's TRIPLE CHARACTER.] He who is our greater David comes to us to bear witness to the Immutable Love of God and to be to us our Captain and our King! Happy are the souls that accept this David to be their Leader. You remember how David, in the Cave Adullam, gathered to himself "everyone that was in distress, and everyone that was in debt, and everyone that was discontented, and he became a captain over them." Even so, the great Antitype, David's Son and David's Lord, is willing now to gather to Himself those who are spiritually bankrupt, discontented and weary with the world, and God says, "I have given Him for a witness to the people, a Leader and Commander to the people."
 
-Behold, You shall calla nation that You knownot, andnations that know You notshallrun unto You because of the LORD Your God and for the Holy One oflsrael; for He has glorified You. What joy this gives to you who love Him! Jehovah has glorified His Son, and given to Him the power to call to Himself a people that He knew not in a saving sense, and He shall so call nations that knew Him not that they shall run unto Him! We do not preach the Gospel at hapha-zard&mdash;we are sure of results. If we speak in faith, in the name of Christ, men must be saved, they must run to Christ. It is not left to their option&mdash;there is a Divine hand that secretly touches the springs of the will of men so that, when Christ calls them, they run to Him! Oh, that He would just now call them, even those that are furthest off, that they may run to Him and that He may be glorified! A Savior without souls saved by Him would be only a Savior in name. A head without a body would be a very ghastly thing. A shepherd without sheep would be a man without occupation. A Christ anointed to save the lost, and yet no lost ones coming to Him&mdash;where would His Glory be? But sinners, drawn by His Almighty Grace, run to Him, and so God glorifies Him!
+Behold, You shall calla nation that You knownot, andnations that know You notshallrun unto You because of the Lord Your God and for the Holy One oflsrael; for He has glorified You. What joy this gives to you who love Him! Jehovah has glorified His Son, and given to Him the power to call to Himself a people that He knew not in a saving sense, and He shall so call nations that knew Him not that they shall run unto Him! We do not preach the Gospel at hapha-zard&mdash;we are sure of results. If we speak in faith, in the name of Christ, men must be saved, they must run to Christ. It is not left to their option&mdash;there is a Divine hand that secretly touches the springs of the will of men so that, when Christ calls them, they run to Him! Oh, that He would just now call them, even those that are furthest off, that they may run to Him and that He may be glorified! A Savior without souls saved by Him would be only a Savior in name. A head without a body would be a very ghastly thing. A shepherd without sheep would be a man without occupation. A Christ anointed to save the lost, and yet no lost ones coming to Him&mdash;where would His Glory be? But sinners, drawn by His Almighty Grace, run to Him, and so God glorifies Him!
 
-Seek you the LORD while He may be found, call you upon Him while He is near. In those happy Gospel times when Christ is set forth on purpose that "He may be found," seek Him, call upon Him! He is very near when the Gospel is preached with holy unction, when Christians are praying, when hearts are breaking for the conversion of sinners, and when His Spirit is working in their hearts that they may repent of sin.
+Seek you the Lord while He may be found, call you upon Him while He is near. In those happy Gospel times when Christ is set forth on purpose that "He may be found," seek Him, call upon Him! He is very near when the Gospel is preached with holy unction, when Christians are praying, when hearts are breaking for the conversion of sinners, and when His Spirit is working in their hearts that they may repent of sin.
 
 Let the wicked forsake his way&mdash;It is a bad way, it is a downward way, it is a way that will end in destruction! Do not follow it any longer. "Let the wicked forsake his way."&mdash;
 
@@ -119,11 +119,11 @@ And the unrighteous man his thoughts. "Thoughts!" says one, "We shall not be han
 
 And let him return&mdash;he is like one who has wandered from his father's house&mdash;"let him return." He is like the dove that flew away from Noah's ark and was ready to faint. "Let him return"&mdash;
 
-Unto the LORD, and He will have mercy upon him; and to our God, for He will abundantly pardon. [See Sermons
+Unto the Lord, and He will have mercy upon him; and to our God, for He will abundantly pardon. [See Sermons
 
 #1195, Volume 20&mdash;ABUNDANT PARDON and #2797, Volume 48&mdash;THE NEED AND NATURE OF CONVERSION.] What a blessed word, "abundantly," is here! Abundant pardon to cover abundant sin, abundant provocation, abundant rejection of His Word!
 
-For My thoughts are not your thoughts, neither are your ways My way, says the LORD. "Says the Lord," as if He would not leave the Prophet to speak any longer on His behalf! He Himself appears upon the scene and speaks&mdash;"For My thoughts are not your thoughts." No doubt He refers here to the pardon of sin. Our thoughts are narrow! We find it hard to forgive great offenses, to forgive many offenses, to forgive many offenders, to continue completely to forgive&mdash; all this is very difficult to man.
+For My thoughts are not your thoughts, neither are your ways My way, says the Lord. "Says the Lord," as if He would not leave the Prophet to speak any longer on His behalf! He Himself appears upon the scene and speaks&mdash;"For My thoughts are not your thoughts." No doubt He refers here to the pardon of sin. Our thoughts are narrow! We find it hard to forgive great offenses, to forgive many offenses, to forgive many offenders, to continue completely to forgive&mdash; all this is very difficult to man.
 
 For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts. Think of the biggest thought you ever had concerning God's forgiveness of sins. Try again. Let your thoughts rise still higher&mdash;you cannot have reached the utmost height yet, "for as the heavens are higher than the earth," so are His thoughts and ways higher than yours!
 
@@ -135,7 +135,7 @@ Instead of the thorn shall come up the fir tree. The thorn is everywhere, today,
 
 And instead of the brier shall come up the myrtle tree: and it shall be to Jehovah for a name, for an everlasting
 
-sign that shall not be cut off [See Sermons #833, Volume 14&mdash;THE LORD's NAME AND MEMORIAL; #2410, Volume 41&mdash;SPRINGTIME IN NATURE AND GRACE and #3044, Volume 53&mdash;SPIRITUAL TRANSFORMATIONS.] It shall make
+sign that shall not be cut off [See Sermons #833, Volume 14&mdash;THE Lord's NAME AND MEMORIAL; #2410, Volume 41&mdash;SPRINGTIME IN NATURE AND GRACE and #3044, Volume 53&mdash;SPIRITUAL TRANSFORMATIONS.] It shall make
 
 men know what He is like, what gracious power He has, what goodness dwells in Him! "It shall be to Jehovah for a
 
