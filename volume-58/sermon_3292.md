@@ -38,7 +38,7 @@ Then, the next wheel of the chariot, or the second of the noble steeds drawing i
 
 The next wheel or steed of the chariot is Meekness. Jesus said, "Learn of Me; for I am meek and lowly in heart." It is no proud Savior who invites you to come to Him! Let me remind you working men that Jesus Christ belonged to your rank in life and probably toiled at the carpenter's bench with Joseph, the husband of His mother, Mary. He was no domineering aristocrat, looking down with contempt upon men and women in a lower stratum of society. The Lord says concerning Him, "I have exalted One chosen out of the people." He is the people's Christ. [See Sermon #11, Volume 1&mdash;the
 
-PEOPLE's CHRIST.] He is a condescending Savior who took little
+PEOPLE's Christ.] He is a condescending Savior who took little
 
 children up in His arms and blessed them, and said, "Allow the little children to come unto Me, and forbid them not: for of such is the Kingdom of God." Notwithstanding all His Glory and Majesty, He disdains not the poor and needy, and His ears are always open to the cry of the humble and contrite! He takes pity upon the prisoner, He hearkens to the wail of the sorrowful, He has respect unto the broken in heart and is always tender and compassionate to any who seek His aid. Surely this meekness of the Savior must commend the Gospel to you!
 
@@ -72,15 +72,15 @@ If you yield to Christ, you will find that He will no longer be angry with you. 
 
 Finally, Sinner, trust the Savior. He died for sinners, bearing their sins in His own body on the tree. He died for all who trust Him&mdash;and they who trust Him shall find Him faithful and true! And He shall bring them Home to His Father's House to dwell with Him forever! Oh, that all of us might be in that blessed company! God grant it for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM103.
+Exposition by C. H. Spurgeon: PSALM103.
 
-Verse 1. Bless the LORD, O my soul&mdash;Come, my Soul, wake up, bestir yourself, for you have a great work to do! Such work as angels do forever before the Throne of God on high!
+Verse 1. Bless the Lord, O my soul&mdash;Come, my Soul, wake up, bestir yourself, for you have a great work to do! Such work as angels do forever before the Throne of God on high!
 
-Andall that is within in me, bless His holy name. [See Sermons #1078, Volume 18&mdash;THE SAINTS BLESSING THE LORD and #2121, Volume 36&mdash;THE KEYNOTE OF THE YEAR.] Let no power or faculty exempt itself
+Andall that is within in me, bless His holy name. [See Sermons #1078, Volume 18&mdash;THE SAINTS BLESSING THE Lord and #2121, Volume 36&mdash;THE KEYNOTE OF THE YEAR.] Let no power or faculty exempt itself
 
 from this blessed service! Come, my memory, my will, my judgment, my intellect, my heart&mdash;all that is in me is to be stirred up by His holy name to magnify and bless. "Bless the Lord, O my soul," for the music must begin deep down in the center of my being&mdash;it must be myself, my inmost self that praises God!
 
-Bless the LORD, O my soul, and forget not all His benefits. This shall be the first note of our grateful song, "We love Him because He first loved us." We have not to go abroad for materials for praise&mdash;they are all around us at home. "Forget not all His benefits" to you, my Soul! His overwhelming, His innumerable benefits, which have to be summed up in the gross as "all His benefits," forget them not!
+Bless the Lord, O my soul, and forget not all His benefits. This shall be the first note of our grateful song, "We love Him because He first loved us." We have not to go abroad for materials for praise&mdash;they are all around us at home. "Forget not all His benefits" to you, my Soul! His overwhelming, His innumerable benefits, which have to be summed up in the gross as "all His benefits," forget them not!
 
 Who forgives all your iniquities. Come, my Soul, can you not praise God for forgiven sin? This is the sweetest note in our song of praise&mdash;"Who forgives all your iniquities," not merely some of them! The blessed Scapegoat has carried the whole mass into that "No man's land" where they shall never be found!
 
@@ -92,13 +92,13 @@ Who crowns you with loving kindness and tender mercies. What? Can you wear such 
 
 Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. This is heavenly feasting on heavenly fare! There is Divine satisfaction to be derived from the finished work of the Lord Jesus Christ! O my Soul, pray to God to give you this satisfying food so that your youth may be renewed, so that your wing feathers may grow again, that you may mount as eagles do! Surely, dear Friends, this little list of mercies, though such a short one, comprises an immensity of mercy far beyond utmost comprehension! Let us bless the Lord for it all.
 
-The LORD executes righteousness and judgment for all that are oppressed. Let the poor and the down-trodden praise the Lord who so graciously takes care of them! He is the Executor of the needy, and He is the Executioner of those that oppress them!
+The Lord executes righteousness and judgment for all that are oppressed. Let the poor and the down-trodden praise the Lord who so graciously takes care of them! He is the Executor of the needy, and He is the Executioner of those that oppress them!
 
 He made known His ways unto Moses, His acts unto the children of Israel Therefore let us bless the God of Revelation who does not hide Himself from His creatures, but who makes known both His ways and His acts unto His chosen
 
 people. An unknown God is not a praised God, but when He reveals Himself to His people, they cannot refrain from blessing His holy name!
 
-The LORD is merciful and gracious, slow to anger, and plenteous in mercy. Praise Him for all this! At every mention of any one of His Divine attributes let your hearts beat to the music of praise.
+The Lord is merciful and gracious, slow to anger, and plenteous in mercy. Praise Him for all this! At every mention of any one of His Divine attributes let your hearts beat to the music of praise.
 
 He will not always chide: neither will He keep His anger forever Therefore let the afflicted praise Him, let the downcast and the despondent sing praises unto His holy name! If they cannot sing because of anything else, let them bless the name of the Lord that He will not keep His anger forever!
 
@@ -108,9 +108,9 @@ For as the Heaven is high above the earth, so great is His mercy toward them tha
 
 As far as the east is from the west, so far has He removed our transgressions from us. Let us therefore praise Him for such boundless loving kindness and tender mercy!
 
-Like as a fatherpities his children, so the LORDpities them that fear Him. [See Sermons #941, Volume 16&mdash;the tender
+Like as a fatherpities his children, so the Lordpities them that fear Him. [See Sermons #941, Volume 16&mdash;the tender
 
-PITY OF THE LORD; #1650, Volume 28&mdash;GOD's FATHERLY PITY and #2639, Volume 45&mdash;OUR HEAVENLY FATHER's PITY.] He has an infinitely tender he; t. He never strikes without regret, but His love always flows most freely. No earthly father or mother is half as full of pity as God is to His children.
+PITY OF THE Lord; #1650, Volume 28&mdash;God's FATHERLY PITY and #2639, Volume 45&mdash;OUR HEAVENLY FATHER's PITY.] He has an infinitely tender he; t. He never strikes without regret, but His love always flows most freely. No earthly father or mother is half as full of pity as God is to His children.
 
 For He knows our frame; He remembers that we are dust Our bodies are just animated dust and our souls are so weak and feeble that even they might be compared to dust in His sight&mdash;not iron or granite, but simply dust. What men call "the laws of Nature" are so stern that it is a wonder that men live as long as they do, for earthquakes and tornadoes and volcanoes are found that no man can bind! And when so many men are constantly crossing the sea it is a wonder that so many of them ever come to land again.
 
@@ -120,16 +120,16 @@ For the windpasses over it, and it is gone; and theplace thereof shall know it n
 
 But&mdash;This is a blessed, "but"&mdash;
 
-The mercy of the LORD&mdash;That is not a fading flower, that is not a withering wind! "But the mercy of the
+The mercy of the Lord&mdash;That is not a fading flower, that is not a withering wind! "But the mercy of the
 
 Lord"&mdash;
 
 Is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children&mdash; Here are innumerable mercies all enclosed in the one mercy of the Lord! Everlasting mercy, Covenant mercy. If we do not praise God whenever we think of the Covenant of Grace, what are we doing? We must be possessed by a dumb devil if we do not praise Him whose mercy "is from everlasting to everlasting upon them that fear Him."
 
-18, 19. To such as keep His Covenant, and to those that remember His commandment, to do them. The LORD has preparedHis throne in the heavens; andHis kingdom rules over all Now, children of the King, will you go mourning all your days? You who dwell in the light of His Throne, will you not be glad? Rejoice, O Believer, for your King lives and reigns forever!
+18, 19. To such as keep His Covenant, and to those that remember His commandment, to do them. The Lord has preparedHis throne in the heavens; andHis kingdom rules over all Now, children of the King, will you go mourning all your days? You who dwell in the light of His Throne, will you not be glad? Rejoice, O Believer, for your King lives and reigns forever!
 
-Bless the LORD, you His angels, that excel in strength, that do His commandments, hearkening unto the voice of His word. "Bless the Lord, you His angels." We cannot do it well enough, yet, so help us, you angels, "that excel in strength, that do His commandments, hearkening unto the voice of His word." Your actions are our praises, O you mighty angels of God! Oh, that we had learned to do His commandments as you do them! We are praying for this, "Your will be done in earth, as it is in Heaven."
+Bless the Lord, you His angels, that excel in strength, that do His commandments, hearkening unto the voice of His word. "Bless the Lord, you His angels." We cannot do it well enough, yet, so help us, you angels, "that excel in strength, that do His commandments, hearkening unto the voice of His word." Your actions are our praises, O you mighty angels of God! Oh, that we had learned to do His commandments as you do them! We are praying for this, "Your will be done in earth, as it is in Heaven."
 
-Bless you the LORD, all you His hosts; you ministers of His, that do His pleasure. All living things and all the forces and powers of Nature are calling upon men to praise the Lord! And we cry to all the hosts of God, the ministers of His, that do His pleasure, "Bless you the Lord."
+Bless you the Lord, all you His hosts; you ministers of His, that do His pleasure. All living things and all the forces and powers of Nature are calling upon men to praise the Lord! And we cry to all the hosts of God, the ministers of His, that do His pleasure, "Bless you the Lord."
 
-Bless the LORD, all His works in all place of dominion: bless the LORD, O my soul While all these glorious anthems are ascending to Heaven, I must not be silent! But I, too, must praise the Lord with my whole heart&mdash;"Bless the Lord, O my Soul."
+Bless the Lord, all His works in all place of dominion: bless the Lord, O my soul While all these glorious anthems are ascending to Heaven, I must not be silent! But I, too, must praise the Lord with my whole heart&mdash;"Bless the Lord, O my Soul."
