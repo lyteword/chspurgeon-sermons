@@ -2,9 +2,9 @@
 
 "And He asked him, What is your name? And he answered, saying, My name is Legion: for we are many." Mark 5:9.
 
-I THINK the text suggests to us something about Satan, something about self and also something about sin and the Savior
+I think the text suggests to us something about Satan, something about self and also something about sin and the Savior
 
-Without any preface, let us at once seek to find in the text SOMETHING ABOUT SATAN.
+Without any preface, let us at once seek to find in the text something about Satan.
 
 Although an unclean spirit, Legion, like his master, Satan, is very apt to lie. There is no doubt that here, in the Presence of Christ, he spoke the truth when he said, "My name is Legion: for we are many." So the first thought suggested by the name, "Legion," is that there are many demons against whom we have to be on the watch in this world. There is one great master power of evil who is called, "your adversary the devil," but there are also multitudes of demons under his control who are all, like himself, full of hatred to God and to goodness and bent upon doing as much harm as they can to the Kingdom of Christ among men. We do not know how numerous these evil spirits are, but there is reason to believe that there are very many of them, so that it will be no easy task to overcome them&mdash;and it is no wonder that there is so much evil in the world when there are so many evil spirits constantly seeking to lead men astray.
 
@@ -20,7 +20,7 @@ Further, the name, "Legion," is of historical interest. I have not time to relat
 
 So, Christian, I bid you again to look at your great adversary, that you may realize how stern is the conflict in which you are engaged. You are often afraid of Satan, but he is never afraid of you. If you turn your back in the day of battle, it is not likely that he will turn his. If you are to come off more than conqueror in this lifelong fight, you must be no mere feather-bed soldier. If you have only the name of a Christian, and not the nature of a Christian, defeat must certainly await you. Count the cost of this campaign before you commence it&mdash;see whether your force of one thousand is likely to prevail against your adversary's hundred thousand&mdash;and then, as you realize your own insufficiency, cry to the Strong for strength! Rely upon your Almighty Ally, and in His might go forth to this holy war rejoicing in the assurance that "the God of Peace shall bruise Satan under your feet shortly."
 
-Now, turning from that part of the subject, let us next find here SOMETHING ABOUT SELF. I believe there are some persons in this congregation who are, in a measure, desirous of salvation, yet they despair of ever being able to attain to it. We generally have some in these seats who are anxious about their eternal safety, but who fear that they never can be saved&mdash;their sins are too many, their infirmities too great, their temptations too strong and the circumstances in which they are placed too unfavorable. They conclude that while other sinners may be saved, there is no hope for them. Let us see how the case of this poor demoniac resembles theirs! Someone has said that his answer to Christ's question was, first, the proud opposition of a heart that wanted an argument for resistance to Christ and, se-
+Now, turning from that part of the subject, let us next find here something about self. I believe there are some persons in this congregation who are, in a measure, desirous of salvation, yet they despair of ever being able to attain to it. We generally have some in these seats who are anxious about their eternal safety, but who fear that they never can be saved&mdash;their sins are too many, their infirmities too great, their temptations too strong and the circumstances in which they are placed too unfavorable. They conclude that while other sinners may be saved, there is no hope for them. Let us see how the case of this poor demoniac resembles theirs! Someone has said that his answer to Christ's question was, first, the proud opposition of a heart that wanted an argument for resistance to Christ and, se-
 
 condly, the mournful complaint of a being conscious of its miserable condition! In each case it may be instructive to some here.
 
@@ -28,7 +28,7 @@ First, there was much pride in the answer, "Legion, for we are many." And there 
 
 This name, "Legion," also suggests to us the mournful utterance of self-consciousness sorrowing over its sin. Surely in this congregation there are some who are saying, "Alas, our sins are many and they have brought us into a most pitiful plight! We have not only withered hands, but we have lame feet, we have blind eyes, we have deaf ears and, worst of all, a heart that is dead as the stones of the street! From the soles of our feet to the crown of our head there is no soundness in us&mdash;just wounds, and bruises, and putrefying sores." My dear Friends, if you truthfully utter that sorrowful lament, I am glad to hear it! And whether you know it or not, that state of things is really a reason why God is likely to save you! Let me remind you of some of the arguments that we find in the Word of God. There is one in the eighteenth Psalm to which I referred you just now. David says of the Lord, "He delivered me from my strong enemy, and from them which hated me: for they were too strong for me." He was unable to cope with his adversaries, so he trusted the Lord to deliver him&mdash;and He did! There is a similar argument concerning the stone that covered the Savior's sepulcher. The women said, "Who shall roll us away the stone from the door of the sepulcher? And when they looked, they saw that the stone was rolled away, "for"&mdash;for what?&mdash;"for it was very great." If it had not been very great, they might have rolled it away themselves! But as it was too heavy for them to move, the angel rolled it away for them. David is a great master of this kind of argument. In Psalm 25:11, he prays, "For Your name's sake, O Lord, pardon my iniquity; for it is great." That seems a strange plea to urge, yet it is one that prevails with God. If I plead to be pardoned because I am not a great sinner, I am legal and carnal. But if I plead to be pardoned because I am such a great sinner, I am moved by an evangelical motive and there is room for the display of Divine Grace to one who confesses his need of it! This is like the poor sufferer who cries out to the doctor, "O Sir, do attend to me, for mine is a desperate case!" Or like the beggar in the street who pleads, "Give me help, for I am starving." You must use your need and the greatness of your need as an argument with the Lord! There are some whom I know here who would almost give their eyes if they could only feel their sin as much as you do. They want to be troubled more about it, they want to despair more over it. Well, they are foolish, and so are you! They are foolish in desiring to despair more, and you are foolish in wishing that you did not despair as much. You should, all of you, give up looking to yourselves, and go to Jesus just as you are and trust to Him to save you!
 
-Now I come to the last point, SOMETHING ABOUT OUR SINS AND OUR SAVIOR. Our sins are very much
+Now I come to the last point, something about our sins and our Savior. Our sins are very much
 
 like Satan&mdash;they are his children and they are very much like their father.
 
@@ -72,7 +72,7 @@ Verses 1-6. And they came over unto the other side of the sea, into the country 
 
 6, 7. But when he saw Jesus afar off he ran and worshipped him, and cried with a loud voice and said, What have I to do with You, Jesus, You Son of the Most High God? I adjure You by God, that You torment me not [See Sermon #2966,
 
-Volume 51&mdash;RESISTANCE TO SALVATION.] The voice was the voice of the
+Volume 51&mdash;resistance to salvation.] The voice was the voice of the
 
 man, but the devil so completely dominated the whole of his being that he could only speak as the unclean spirit directed him.
 
@@ -88,7 +88,7 @@ was that was done. And they come to Jesus, and saw him that was possessed with t
 
 18, 19. And when He was come into the boat, he that had been possessed with the devil prayed Him that he might be with Him. Howbeit Jesus allowed him not, but said to him, go home to your friends, and tell them how great things the
 
-Lord has done for you, and has had compassion on you [See Sermon #2262, Volume 38&mdash;Christ's CURATE IN DECAPOLIS.] This is the third prayer in this chapter. Not like the two previous ones&mdash;the petition of many who were not Christ's followers. It was the earnest supplication of one who was so grateful for what Jesus had done for him that he longed to be always with Him. Yet it was not granted, because Jesus saw that the man could serve Him better by bearing testimony among those who knew him to the great things the Lord had done for him.
+Lord has done for you, and has had compassion on you [See Sermon #2262, Volume 38&mdash;Christ's curate in Decapolis.] This is the third prayer in this chapter. Not like the two previous ones&mdash;the petition of many who were not Christ's followers. It was the earnest supplication of one who was so grateful for what Jesus had done for him that he longed to be always with Him. Yet it was not granted, because Jesus saw that the man could serve Him better by bearing testimony among those who knew him to the great things the Lord had done for him.
 
 And he departed, and began to publish in Decapolis how great things Jesus had done for him: and all men did marvel. His testimony not only made men marvel, but it helped to prepare the people to welcome the Savior when He returned to that region.
 
@@ -106,7 +106,7 @@ And Jesus went with him. He will always regard true prayer! If we can believe, J
 
 that she had, and was nothing bettered, but rather grew worse. When she had heard of Jesus, came in the pres behind,
 
-and touched His garment. For she said, If I may touch but His clothes, I shall be whole. [See Sermons #827, Volume 14&mdash;the faculTY BAFFLED&mdash;THE GREAT PHYSICIAN SUCCESSFUL and #1382, Volume 23&mdash;THE TOUCH.] Was this woman sent, do you think, to encourage the faith of Jarius? It has been well said that the
+and touched His garment. For she said, If I may touch but His clothes, I shall be whole. [See Sermons #827, Volume 14&mdash;the faculTY baffled&mdash;the great physician successful and #1382, Volume 23&mdash;the touch.] Was this woman sent, do you think, to encourage the faith of Jarius? It has been well said that the
 
 child of Jairus had been twelve years living, but this woman had been twelve years dying, so, if Christ could heal the
 
@@ -120,7 +120,7 @@ he was not really so. He put the best side of his faith forward, while this woma
 
 32, 33. And He looked round about to see her that had done this thing. But the woman fearing and trembling, knowing what was done in her, came and fell down before Him, and told Him all the truthi. [See Sermon #514, Volume 9&mdash;tell it
 
-ALL.] The miracle had been worked in her, yet she was fearing
+all.] The miracle had been worked in her, yet she was fearing
 
 and trembling because she perceived the imperfection of her way of approaching the Savior! Probably, after we are saved, we see more of our mistakes than we did before. And when the blessing really comes to us, we begin to be anxious lest we should lose Christ because of some misapprehension in our way of finding Him. The woman "fell down before Him, and told Him all the truth."
 
