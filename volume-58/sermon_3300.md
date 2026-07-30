@@ -69,13 +69,13 @@ Some of you have come here tonight from the workshop where you have been laughed
 
 Lord"!
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 8:1-14.
+Exposition by C. H. Spurgeon: Romans 8:1-14.
 
 This wonderful Chapter is the very cream of the cream of Holy Scripture! What a grand keynote the Apostle strikes in the first verse!
 
 Verse 1. There is therefore nowno condemnation to those who are in Christ Jesus, who walk not after the flesh, but
 
-after the Spirit [See Sermon #1917, Volume 32&mdash;IN CHRIST NO CONDEMNATION.] "No condemnation"&mdash;that is the first note of the Chapter. In the last verse it is "no separation." What glorious music there is here&mdash;no condemnation to those who are in Christ, no separation of them from Christ! Happy are the people who have a share in this double blessing&mdash;but unhappy are the men and women who know nothing of it! We will read it again&mdash;"There is therefore now no condemnation." There is a great deal of accusation, and a great deal more of tribulation, but there is no condemnation&mdash;not the least hint of it! Some condemnation we might have expected, but "there is therefore now no condemnation to those who are in Christ Jesus, who walk not after the flesh, but after the Spirit."
+after the Spirit [See Sermon #1917, Volume 32&mdash;IN Christ NO CONDEMNATION.] "No condemnation"&mdash;that is the first note of the Chapter. In the last verse it is "no separation." What glorious music there is here&mdash;no condemnation to those who are in Christ, no separation of them from Christ! Happy are the people who have a share in this double blessing&mdash;but unhappy are the men and women who know nothing of it! We will read it again&mdash;"There is therefore now no condemnation." There is a great deal of accusation, and a great deal more of tribulation, but there is no condemnation&mdash;not the least hint of it! Some condemnation we might have expected, but "there is therefore now no condemnation to those who are in Christ Jesus, who walk not after the flesh, but after the Spirit."
 
 For the Law of the Spirit of life in Christ Jesus has made me free from the Law of sin and death. I have broken away from its thralldom! The new Law, the Law of the Spirit of life in Christ Jesus, the Law of Grace has set me free from the domination of the Law of sin and death! Happy is the free man who is thus liberated by the Grace of God.
 
@@ -89,7 +89,7 @@ But they that are after the Spirit, the things of the Spirit Those in whom there
 
 6, 7. For to be carnally minded is death; but to be spiritually minded is life and peace. Because the carnal mind is
 
-enmity against God: for it is not subject to the Law of God, neither indeed can be. [See Sermons #20, Volume 1&mdash;the carnal mind ENMITY AGAINST GOD and #1878, Volume 32&mdash;a TRAITOR SUSPECTED AND CONVICTED.] The old nature never will obey the Law of God&mdash;it can never do so. What, then, is to be done with
+enmity against God: for it is not subject to the Law of God, neither indeed can be. [See Sermons #20, Volume 1&mdash;the carnal mind ENMITY AGAINST God and #1878, Volume 32&mdash;a TRAITOR SUSPECTED AND CONVICTED.] The old nature never will obey the Law of God&mdash;it can never do so. What, then, is to be done with
 
 it? Improve it? No, my Hearers, the only thing to be done with it is to let it die and then to bury it. In Baptism you have a
 
