@@ -2,13 +2,13 @@
 
 "This is My rest forever: here will I dwell; for I have desired it" Psalm 132:14.
 
-THESE are the words of Jehovah Himself concerning the hill of Zion, but it is clear that He did not intend us to understand them merely in their literal reference to Zion, because Zion could not be a fitting place for His eternal rest. Nor has He made it literally His rest forever, for Zion has been trodden down of the Gentiles for all these centuries. I have no doubt that the Lord had in His mind the greater Zion, "the city of the living God, the heavenly Jerusalem...the general assembly and church of the first-born, which are written in Heaven." The eternal God, looking down from His Throne of Glory upon all the creatures He has made, selects His Church&mdash;elect, blood-bought, called, preserved and sanctified, and He says concerning this Church&mdash;"This is my rest forever: here will I dwell; for I have desired it."
+These are the words of Jehovah Himself concerning the hill of Zion, but it is clear that He did not intend us to understand them merely in their literal reference to Zion, because Zion could not be a fitting place for His eternal rest. Nor has He made it literally His rest forever, for Zion has been trodden down of the Gentiles for all these centuries. I have no doubt that the Lord had in His mind the greater Zion, "the city of the living God, the heavenly Jerusalem...the general assembly and church of the first-born, which are written in Heaven." The eternal God, looking down from His Throne of Glory upon all the creatures He has made, selects His Church&mdash;elect, blood-bought, called, preserved and sanctified, and He says concerning this Church&mdash;"This is my rest forever: here will I dwell; for I have desired it."
 
 We would never have ventured to conceive of God as finding rest in such puny creatures as we are. However beloved, and however filled with His Spirit, it would seem too great a thing for the Creator ever to rest in His creature! Yet it is true that this is where He finds His rest. It is concerning the redeemed souls who make up the Church of Christ that He says, "This is my rest forever: here will I dwell; for I have desired it."
 
 I must, at the outset, confess my inability to dive into the depths of this subject. I can only, as it were, flit across its surface as the swallow with swift wings skims over the brook. I am going to ask, first, about God finding rest in His Church Then about the duration of that rest And in closing, I want to say a few practical words concerning our finding rest where God finds rest.
 
-First, then, let us think of God FINDING REST IN HIS CHURCH.
+First, then, let us think of God finding rest in his church.
 
 He does this, in the first place, because in His Church all the three Divine Persons of the Trinity are honored. A man does not find rest in anything which gratifies only one part of his nature. Therefore it can truly be said to Christians concerning this world, "This is not your rest," for whatever gratification it may yield to the body, it can never satisfy our soul. If there were in the Church of God honor only for God the Father, but none for God the Son and God the Holy Spirit, it could never be the Lord's eternal rest. But, Beloved, when the Father looks upon the Church, He views with delight His own chosen children and sees His eternal purposes accomplished in them! He thinks of the Covenant into which He entered with His dear Son on their behalf, and of the Atonement which He gave for them when He gave His only begotten Son to die as their Substitute and Surety. As for God the Son&mdash;when He looks upon the Church, He beholds those for whom He paid the ransom price on Calvary&mdash;every member of that Church He has purchased with His own blood and, therefore, He looks upon them with peculiar complacency. As for God the Holy Spirit, He&mdash;
 
@@ -48,7 +48,7 @@ Best of all, however, is the next reason why God rests in His Church! That is be
 
 Then do you not think that God finds rest in His Church because of the relationships there developed? Where do you find rest, dear Friends? You not only rest in the garden which you have planted, and in the house which you have with a great effort, bought&mdash;but your choicest rest is found with the children whom you so fondly love. There is no stranger in the family circle! The door is closed, the fire is burning brightly and now is mother's time for rest, and father's time for joy, for there are only loved ones around the hearth. The merchant comes home from the counting-house where he has been on the watch all day lest he should be deceived and over-reached. But he can come down from his watchtower, now, for he has no fear of being deceived in the family circle. The judge has been sternly administering the law while he has been upon the bench, but He lays aside all his sternness when he takes off his robes of office and gathers his children around him. The toiling laborer wipes the sweat from his brow and gladly rests at home among those whom he loves. "Perfect love casts out fear," and fear is like a thorn in our nest&mdash;it prevents us from resting. But when "perfect love" comes, then we are perfectly at our ease. When you are at home, you may say what you will, and do what you please&mdash; there are none to slander and align you there. You do not say all you feel in the presence of your servants&mdash;they are faithful and true, but you do not tell them all that is in your heart. It is when you are among your children that you feel free and unrestrained. So it is with God! Not even among the angels does God find His rest&mdash;bright and perfect beings though they are, they are but ministering spirits waiting in the great Temple of God to render service to the saints! But here, where He sees His own likeness in every blood-bought soul. Here where He sees those whom He has begotten again unto a lively hope by the resurrection of Jesus Christ from the dead&mdash;here it is that He feels at home and finds His rest! Do not think that I am speaking too boldly when I use the family metaphor to illustrate this great Truth of God, for I am but following the example of our Lord Jesus, Himself, when He said, "If you then, being evil, know how to give good gifts unto your children, how much more shall your Father which is in Heaven give good things to them that ask Him?" He rejoices over the son who was dead, and is alive again&mdash;who was lost, and is found&mdash;and because He is our Father, and we are His children, He says of us and of the whole company of His redeemed, "This is My rest forever: here will I dwell; for I have desired it."
 
-Now I am to speak briefly concerning THE DURATION OF God's REST IN HIS CHURCH. "This is My rest
+Now I am to speak briefly concerning the duration of God's rest in his church. "This is My rest
 
 forever."
 
@@ -84,7 +84,7 @@ He'll never, no never, no never forsake!" There may be many in any part of the v
 
 I also infer from the text that the whole Church will be eternally glorified, otherwise God could not say of it, "This is My rest forever." The living stones that are to form the "habitation of God through the Spirit," are being quarried, fashioned and polished here below&mdash;and one by one they are being transported to the holy hill above. And so, "all the building fitly framed together grows unto a holy temple in the Lord." And when it is complete, He will say, "Here will I dwell forever." The eternal duration of the Church's blessedness ought to be a theme of greater consideration and rejoicing than it is. Think of it, Beloved, that the great God will forever find His rest in you and in others like you who have been redeemed by the precious blood of His dear Son! Does not this make time seem a mere trifle, and earth but a tiny speck scarcely worthy of our notice? Then, as you are forever and ever to be the object of Divine delight, cannot you see that you must alwayshave been so? Oh, revel in this thought, that every blood-bought soul shall eternally be the temple and abode of God, Himself, and that all of them united in one shall be His rest forever!
 
-Now we are to close with a few practical words concerning OUR FINDING REST WHERE God FINDS REST.
+Now we are to close with a few practical words concerning our finding rest where God finds rest.
 
 God finds His rest in His Church. Is that where we find our rest? I wonder how many here could truly repeat the language of Dr. Watts&mdash;
 
@@ -105,7 +105,7 @@ Do you not think that Abel must have felt very strange when he went to Heaven? H
 
 I wonder if there are any here who will never find rest in the Church of the First-Born which are written in Heaven? If you want to get into the Church of God, do you know the way to get in? You say, "I must come before the Elders." No, no&mdash;that is the way to get into our Church, here, but not into the invisible Church above! "Well, then, I must be baptized." No, that is the ordinance for you afteryou have entered the Church of God. "Well, then, how am I to get in?" He whose hand was pierced says, I am the door: by Me if any man enter in, he shall be saved, and shall go in and out, and find pasture." The only door to the Church of God is Jesus Christ! Trust to His precious blood sprinkled upon the altar to give you access to and acceptance with God&mdash;and having that blood sprinkled upon yourself, you may venture to draw near even to the Eternal, for you shall be "accepted in the Beloved." God grant that it may be so, for Jesus sake! Amen.
 
-[See Sermon #3287, Volume 58&mdash;THE ONLY DOOR.]
+[See Sermon #3287, Volume 58&mdash;the only door.]
 
 Exposition by C. H. Spurgeon: PSALM132.
 
@@ -119,7 +119,7 @@ cient Covenant was made with David and the far more ancient Covenant of Grace wa
 
 Lo, we heard of it at Ephratah: we found it in the fields of the woods. [See Sermon #2590, Volume 44&mdash;hearing, seeking,
 
-FINDING.] God is willing to dwell in the woods. Many a time He
+finding.] God is willing to dwell in the woods. Many a time He
 
 does so. In many a cottage far removed from the haunts of men, God is found&mdash;and to many a backwoodsman God is as near as He is to those who worship Him in temples or cathedrals. "We found it in the fields of the woods."
 
