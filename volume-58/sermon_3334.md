@@ -78,7 +78,7 @@ But there is another question that I think is vastly more important&mdash;and to
 
 God give His blessing for Jesus' sake.
 
-EXPOSITION BY C. H. SPURGEON: MARK9:2-21.
+Exposition by C. H. Spurgeon: Mark9:2-21.
 
 Verses 2-7. And after six days Jesus took with Him, Peter, and James, and John, and led them up into a high mountain apart by themselves. And He was transfigured before them and His raiment became shining, exceedingly white as snow; so as no fuller on earth can whiten them. And there appeared unto them Elijah with Moses: and they were talking with Jesus. AndPeter answered and said to Jesus, Master, it is good for us to be here andlet us make three tabernacles, one for You, and one for Moses, and one for Elijah. For he knew not what to say; for they were sorely afraid. And there was a cloud that overshadowed them: anda Voice came out of the cloud, saying, This is My belovedSon: hear Him. You and I have sometimes wished that we could see Christ in His earthly Glory. We need not, however, wish it, for if such a sight were permitted to us, in all probability we would be more full of fear than of joy. These three men, the elect out of the elect, the very choicest of the Apostles&mdash;had little delight in what they saw at the time, for the Glory was too bright for their overwhelmed natures&mdash;
 
