@@ -93,7 +93,7 @@ Since Jesus is mine, I'll not fear undressing, But gladly put off this garment o
 
 May we all have like precious faith, for Jesus sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 CORINTHIANS 15:1-32.
+Exposition by C. H. Spurgeon: 1 Corinthians 15:1-32.
 
 Verses 1, 2. Moreover, brethren, Ideclare unto you the Gospel which Ipreached unto you, which also you have received and wherein you stand. By which also you are saved, if you keep in memory what Ipreached unto you, unless you have believed in vain. By which the Apostle means, unless they had a false faith, a merely notional faith or, he may also mean, "Unless what I have preached unto you should have been a fable and, therefore, you will have exercised your faith upon nothing real, and so it would have been in vain."
 
