@@ -8,7 +8,7 @@ The Word of God tells us that in the midst of the great mass of men there are to
 
 Now, the all-important question is how can we obtain admission into this Church? Where is this community to be found? Who are the members of it? What is the way to become a partaker of the privileges which belong to it? Jesus Christ here tells us two things&mdash;First, How to enter the Church The way is through Himself as the door. Secondly, What are the benefits we shall receive through being members of Christ's Church&mdash;we shall be saved and shall go in and out and find pasture.
 
-HOW a MAN CAN BECOME a MEMBER OF THAT CHURCH WHICH IS ELECTED, REDEEMED AND WILL BE SAVED, IS SIMPLY AND BRIEFLY SOLVED BY OUR LORD's FIRST ASSERTION.
+HOW a MAN CAN BECOME a MEMBER OF THAT CHURCH WHICH IS ELECTED, REDEEMED AND WILL BE SAVED, IS SIMPLY AND BRIEFLY SOLVED by OUR Lord's FIRST ASSERTION.
 
 Christ tells us that the only way to enter the Church is through Himself He is the door, the only door. There is no other mode of admission into His Church but through Himself. Let it be understood, then, once and for all, that we cannot get into the Church of Christ through Baptism. There are tens of thousands, yes, there have been millions who have been baptized after a fashion, that is to say, they have been sprinkled&mdash;and thousands have been immersed&mdash;who never were admitted into the Church of Christ! In consideration of the ordinance as it was administered to them, with, or more commonly, without their consent, they were recognized by some persons as being Christians. But let me tell you that unless they came to Christ by true faith, they are nothing better than baptized Pagans! They are still just sprinkled heathen! Why, you might hold a man in an everlasting shower, but you could not, thereby, make him "a member of Christ." Or you might drag him through the Atlantic Ocean and if he survived the immersion, yet he still would not be one jot the better! The door is not baptism, but Christ! If you believe in Christ, you are a member of His Church. If your trust is stayed upon Christ, who is God's great way of salvation, you have evidence that you were chosen of Him from before the foundation of the world&mdash;and that faith of yours entitles you to all the privileges which Christ has promised in His Word to Believers!
 
@@ -68,7 +68,7 @@ I think the text may mean that he who rests in Christ shall have all his needs s
 
 I would to God that some who have never yet entered into the fold might now be drawn to Jesus. Oh, that you would come through the Door into these four choice privileges! You may never have such another opportunity. You may never feel any of the motions of the Spirit of God again. Oh that, without delay, you would just cast your helpless souls into the Savior's gracious arms, who is able and willing to save, that you might be saved now!
 
-EXPOSITION BY C. H. SPURGEON: JOHN10:1-18.
+Exposition by C. H. Spurgeon: John10:1-18.
 
 Verses 1, 2. Verily, verily, I say unto you, He that enters not by the door into the sheepfold, but climbs up some other way, the same is a thief and a robber But he that enters in by the door is the shepherd of the sheep. The true Shepherd cares for the flock. The false ones are thieves and robbers who only care for the flesh or the fleece.
 
