@@ -1,8 +1,8 @@
 # Sermon 3322 | Hiding Among the Stuff
 
-"Therefore they enquired of the LORRD further, if the man should yet come there. And the LORRD answered, Behold, he has hid himself among the stuff. And they ran and fetched him from there." 1 Samuel 10:22-23.
+"Therefore they enquired of the Lorrd further, if the man should yet come there. And the Lorrd answered, Behold, he has hid himself among the stuff. And they ran and fetched him from there." 1 Samuel 10:22-23.
 
-SAUL seems to have known that he was the elect person, having already been secretly anointed by Samuel and, therefore, while the voting was going on and while the lots were being cast, he hid himself. The Lord answered, "Behold, he has hid himself among the stuff. And they ran and fetched him from there."
+Saul seems to have known that he was the elect person, having already been secretly anointed by Samuel and, therefore, while the voting was going on and while the lots were being cast, he hid himself. The Lord answered, "Behold, he has hid himself among the stuff. And they ran and fetched him from there."
 
 We hardly know why Saul did this. It would be wrong to impute to him an ill motive, otherwise one would be inclined to say that he did it out of mock modesty, so that he might appear to have forced on him an honor which he did not really covet. But this would not fit with the first part of Saul's life, for in his early days and when he was first chosen king, he did seem to be one of the most hopeful persons who could possibly have been called to the office. At the end of the chapter from which our text is taken, you see an instance of his great wisdom. The men of Belial, we are told, "despised him and brought him no presents. But he held his peace," a piece of wisdom which it were well if some ministers and others, too, among us knew well how to imitate&mdash;if they, too, would sometimes be silent when the men of Belial speak concerning them. It, indeed, were well for all Christians to often imitate the example of their Lord who, when He was reviled, gave no answer but that of patient, enduring silence.
 
@@ -16,7 +16,7 @@ I thought that this little incident of Saul's hiding himself among the stuff whe
 
 First, then, let us have&mdash;
 
-a FEW WORDS WITH THE SINNER WHO IS HIDING HIMSELF AWAY AMONG THE STUFF. I dare say he thinks tonight that if he had been Saul, he would not have been hiding himself. If it were to have his head taken off, a man might very wisely hide himself, but to have a crown put upon his head does not seem to be a reason
+a few words with the sinner who is hiding himself away among the stuff. I dare say he thinks tonight that if he had been Saul, he would not have been hiding himself. If it were to have his head taken off, a man might very wisely hide himself, but to have a crown put upon his head does not seem to be a reason
 
 for hiding oneself, but a reason for coming out into the open and saying, "Here I am! Do unto me as seems good to you!" But this conduct, which seems so strange in Saul, is an exact image of the behavior of many of you who are here tonight. There may be some of you here present who may be doing precisely what Saul did, only you are doing it more foolishly than he did. He did but hide away from an earthly crown, but you hide from a heavenly one! He did but shun a crown that fades&mdash;you seem as though you would avoid a crown that is undefiled and that fades not away! The crown which Saul sought to hide from no doubt brought many cares with it, for it is only too often true that&mdash;
 
@@ -54,7 +54,7 @@ Now before I leave this point I should like to say to Brothers and Sisters in Ch
 
 I shall now leave that point and for a short time only&mdash;
 
-SPEAK TO THE CHILDREN OF God WHO HIDE AMONG THE STUFF.
+speak to the children of God who hide among the stuff.
 
 Dear Brothers and Sisters, we can make a great many excuses for the unconverted arising from their ignorance and their lack of taste for Divine things. We can understand all that. According to their nature, their carnal minds will act. But we can make no excuses for ourselves. I think an apology is the last thing which a Christian should wish to make for
 
