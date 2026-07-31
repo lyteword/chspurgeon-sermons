@@ -2,9 +2,9 @@
 
 "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of BBether." Solomon's Song 2:17.
 
-WITHOUT a sentence of introduction, I invite you, Beloved, to see herein,
+without a sentence of introduction, I invite you, Beloved, to see herein,
 
-a BLESSED SEASON HERE ANTICIPATED!&mdash;a time when the day shall break and the shadows shall flee away.
+a blessed season here anticipated!&mdash;a time when the day shall break and the shadows shall flee away.
 
 It is not every man who can count upon such a time as that, for to some there is no prospect of the day breaking. They are now in the shade and that shade will grow darker and darker with them till, in the hour of death, their sun will go down forever in a tenfold night&mdash;a night not gladdened by a solitary star&mdash;a night that shall never have an ending&mdash;a night of glooms more terrible than imagination itself could picture! I fear there are some in this place for whom we might utter such forebodings! The world is dark enough to them, now, but they have no hope of the Lord as though it would be brightness to them. Conscience tells them&mdash;and if conscience is not enlightened enough to do so&mdash;the Word of God tells them that the day of the Lord shall be darkness and not light to them. But, to every soul in this house that believes in Jesus, there is the delightful anticipation of the hour spoken of in the text&mdash;when the day shall break and the shadows shall flee away!
 
@@ -71,7 +71,7 @@ We will not tarry longer on these two causes, "Until the day breaks"&mdash;we ex
 
 But while the season of joyful release is anticipated, there is also,
 
-a PRAYER PRESENTED. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
+a prayer presented. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
 
 Till Heaven shall come to us and we to Heaven, sweet Lord Jesus be with us! Let us have Your company. But a difficulty arises. There is so much between us and Christ to keep Him away. Hence the prayer, "Come, Lord, be like some hart or roe&mdash;like the chamois of the Alps that leaps from crag to crag&mdash;come over all these mountains of Bether and come to us when we cannot come to You."
 
@@ -117,7 +117,7 @@ After this I beheld, and lo, a great multitude, which no man could number, of al
 
 And cried with a loud voice, saying, Salvation to our God which sits upon the Throne, and unto the Lamb. In Jerusalem they cried Hosanna, which was, "Save, Lord," but now they have risen a little higher, and they sing, "Salvation to our God." It is the same melody but it is pitched to a loftier key and there are more to sing it. And they are not now conducting a prince to his throne but they are looking up to the King upon His throne, reigning there!
 
-And all the angels stood round about the Throne, and about the elders and the four beasts, and fell before the Throne on their faces, and worshipped God. Not some of the angels, nor many angels, nor even an innumerable company of angels, but ALL the angels&mdash;they shall all gather on that august occasion around the Throne of God and the Lamb!
+And all the angels stood round about the Throne, and about the elders and the four beasts, and fell before the Throne on their faces, and worshipped God. Not some of the angels, nor many angels, nor even an innumerable company of angels, but all the angels&mdash;they shall all gather on that august occasion around the Throne of God and the Lamb!
 
 Saying, Amen: Blessing, and glory, and wisdom, and thanksgiving, and honor, and power, and might be unto our God forever and ever. Amen. What a deep, sonorous, Amen, that will be! What a mighty volume of sound! How full and rich, how hearty! Oh, that our ears may be there to hear it and our tongues to swell it!
 
