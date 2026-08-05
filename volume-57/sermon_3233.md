@@ -2,7 +2,7 @@
 
 "Is not this a brand plucked out of the fire?" Zechariah 3:2.
 
-[Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11&mdash;ZECHARIAH's VISION OF JOSHUA THE HIGH PRIEST.]
+[Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11&mdash;Zechariah's VISION OF Joshua THE HIGH PRIEST.]
 
 IT may be well to explain these words, for simple as they are, a few words of exposition may be useful to open up the metaphor and enforce the thrilling Truth of God that underlies it.
 
@@ -54,7 +54,7 @@ Now, if ever such people as these are saved from this terrible disease of self-r
 > Stand the soul-quickening words&mdash;   
 > 'BELIEVE AND LIVE.'   
 
-With more brevity than the preacher likes, though with perhaps as much amplitude as will be pleasant to yourselves, we shall now take the text BY WAY OF ENQUIRY OR HOPE. Our time has so far gone that I can only hint at what I meant to say.
+With more brevity than the preacher likes, though with perhaps as much amplitude as will be pleasant to yourselves, we shall now take the text by WAY OF ENQUIRY OR HOPE. Our time has so far gone that I can only hint at what I meant to say.
 
 When a sinner's eyes are suffused with tears and the sorrowful cry breaks forth, "Alas! Woe is me!" you may then say, "Is not this a brand plucked out of the fire?" for the tear of sorrow for sin is a blessed omen of Mercy's dawning! May Mercy reach her noontide soon! And when, alone, the knee is bent and the whispered prayer goes up, "Jesus, Master, pity me! Save me, or I die," the angels recognize the penitent's prayer. They say, "Behold, he prays!" And then they feel that this is "a brand plucked out of the fire." The tear of penitence and the prayer of the seeking soul are evidences of the working of Almighty Grace!
 
@@ -80,7 +80,7 @@ Now, Beloved Brothers and Sisters in Christ, realize in yourselves this precious
 
 The whole end to which we drive is this&mdash;May God enable us all to see that our salvation is in Him! Jonah had to go into the whale's belly to learn that grand axiom of theology&mdash;and the most of us had to be sorely beaten before we found out that "salvation is of the Lord." If you know this, look to the Lord for it! Repose yourself on Him right now and you shall be His forever&mdash;you shall dwell on high, your place of defense shall be the munitions of rocks&mdash;and your eyes shall see the King in His beauty&mdash;they shall behold the land that is very far off!
 
-EXPOSITION BY C. H. SPURGEON: JOB 1
+Exposition by C. H. Spurgeon: Job 1
 
 Verse 1. There was a man in the land of Uz. Job was a man, indeed&mdash;a true man&mdash;a man of the highest type, for he was a man of God.
 
@@ -98,17 +98,17 @@ And his sons went and feasted in their houses, each on his appointed day; and se
 
 And rose up early in the morning, and offered burnt offerings according to the number of them all: for Job said, It may be that my sons have sinned, and cursed God in their heart. Thus did Job continually. He thought, "Perhaps, in their rejoicing, unholy thoughts may have intruded. They may have been unguarded and lax in their conduct. They may not have fallen into any gross sin, but in their feasting they may have sinned against God. Therefore I will offer sacrifices for them." "Thus did Job continually." Not only occasionally, but every day he sacrificed upon his altar unto God, and so sought to keep his household right before Jehovah.
 
-Now there was a day when the sons of God came to present themselves before the LORD, and Satan came also among them. Into Heaven? Oh, no! The Presence of God is very widespread and there was no need to admit the evil spirit into Heaven in order that he might be present before God!
+Now there was a day when the sons of God came to present themselves before the Lord, and Satan came also among them. Into Heaven? Oh, no! The Presence of God is very widespread and there was no need to admit the evil spirit into Heaven in order that he might be present before God!
 
-And the LORD said unto Satan, From where do you come? God is Satan's Master, so He asks him where he has been. I wonder whether if the Lord were to put that question to everybody here, "From where do you come?" if each of us could give a satisfactory answer to it.
+And the Lord said unto Satan, From where do you come? God is Satan's Master, so He asks him where he has been. I wonder whether if the Lord were to put that question to everybody here, "From where do you come?" if each of us could give a satisfactory answer to it.
 
-Then Satan answered the LORD, and said, From going to and fro in the earth, and from walking up and down in it Uneasy, restless, ever active, like a roaring lion "seeking whom he may devour." Ah, we little know how near Satan is to us now! And even in our hours of prayer, when we are nearest to God, he may come and assail us.
+Then Satan answered the Lord, and said, From going to and fro in the earth, and from walking up and down in it Uneasy, restless, ever active, like a roaring lion "seeking whom he may devour." Ah, we little know how near Satan is to us now! And even in our hours of prayer, when we are nearest to God, he may come and assail us.
 
-And the LORD said unto Satan, Have you considered My servant Job. He is an example to you. He may well chide you, he
+And the Lord said unto Satan, Have you considered My servant Job. He is an example to you. He may well chide you, he
 
 is so obedient, and you are so rebellious: 'Have you considered My servant Job'&mdash;
 
-8, 9. That there is none like him in the earth, a perfect and an upright man, one that fears God, and eschews evil? Then Satan answered the LORD, and said&mdash; We may be certain that if there had been anything bad in Job, Satan would have found it out and brought it against him. However excellent a man is, though there are none like him on earth, you can find fault with him if you want to do so. Satan found fault with Job because he had prospered. And his friends afterwards found fault with him because he did not prosper! So you can make anything into a blot on the character of men if you have a mind to do so. "Satan answered the Lord, and said"&mdash;
+8, 9. That there is none like him in the earth, a perfect and an upright man, one that fears God, and eschews evil? Then Satan answered the Lord, and said&mdash; We may be certain that if there had been anything bad in Job, Satan would have found it out and brought it against him. However excellent a man is, though there are none like him on earth, you can find fault with him if you want to do so. Satan found fault with Job because he had prospered. And his friends afterwards found fault with him because he did not prosper! So you can make anything into a blot on the character of men if you have a mind to do so. "Satan answered the Lord, and said"&mdash;
 
 9, 10. Does Job fear God for nothing? Have not You made an hedge about him, and about his house, and about all that he has on every side? The black dog of Hell had been prowling around to see where he could get in, so he knew that there was a hedge around Job and round his house and all that he had. Notice how the devil insinuates that Job feared God for what he could get out of Him. "His love is cupboard love," says Satan, "he is well paid by Providence for his reverence to God."
 
@@ -116,7 +116,7 @@ is so obedient, and you are so rebellious: 'Have you considered My servant Job'&
 
 10, 11. And his substance is increased in the land. But put forth Your hand, now, and touch all that he has, and he will curse You to Your face. Oh, what mischief Satan can imagine against the righteous! The mercy is that although he is mighty, he is not almighty&mdash;he is very malicious, but there is One who is far wiser and stronger than he is who can always circumvent and overpower him!
 
-12-15. And the LORD said unto Satan, Behold, all that he has is in your power; only upon himself put not forth your hand. So Satan went forth from the Presence of the LORD. And there was a day when Job's sons and his daughters were eating and drinking wine in their eldest brother's house: and there came a messenger unto Job, and said, The oxen wereplowing, and the asses feeding beside them: and the Sabeans fell upon them and took them away; yes, they have slain the servants with the edge of the sword; and I, only, am escaped alone to tell you. Job had not wronged these Sabeans&mdash; they were plunderers on the lookout for spoil. And when Satan moved them, they came and stole the Patriarch's oxen and asses&mdash;and slew his servants.
+12-15. And the Lord said unto Satan, Behold, all that he has is in your power; only upon himself put not forth your hand. So Satan went forth from the Presence of the Lord. And there was a day when Job's sons and his daughters were eating and drinking wine in their eldest brother's house: and there came a messenger unto Job, and said, The oxen wereplowing, and the asses feeding beside them: and the Sabeans fell upon them and took them away; yes, they have slain the servants with the edge of the sword; and I, only, am escaped alone to tell you. Job had not wronged these Sabeans&mdash; they were plunderers on the lookout for spoil. And when Satan moved them, they came and stole the Patriarch's oxen and asses&mdash;and slew his servants.
 
 While he was yet speaking As if to give Job no time to rally his faith and encourage his heart&mdash;
 
@@ -134,7 +134,7 @@ And fell down upon the ground and worshipped Grand old man! How bravely does he 
 
 And said, Naked came I out of my mother's womb, and naked shall I return there. That is, to the womb of Mother Earth.
 
-The LORD gave and the LORD has taken away; blessed be the name of the LORD [See Sermons #2457, Volume 42&mdash;jobs
+The Lord gave and the Lord has taken away; blessed be the name of the Lord [See Sermons #2457, Volume 42&mdash;jobs
 
 RESIGNATION and #3025, Volume 53&mdash;FIFTEEN YEARS LATE.] I think these are
 
