@@ -1,6 +1,6 @@
 # Sermon 3239 | Woe and Weal
 
-"I will bear the indignation of the LORD, because I have sinned against Him, until He pleads my cause, and executes judgment for me, He will bring me forth to the light and I shall behold His righteousness." Micah 7:9.
+"I will bear the indignation of the Lord, because I have sinned against Him, until He pleads my cause, and executes judgment for me, He will bring me forth to the light and I shall behold His righteousness." Micah 7:9.
 
 Those who expect to find the road to Heaven smooth and unobstructed will discover little in the experience of the ancient saints to support the expectation. The Lord's people have, in all ages, been tried people. Cowper well says&mdash;
 
@@ -68,7 +68,7 @@ Alas I know that there are some here who have their troubles and they have no Go
 
 my dear Friends, what it must be for your soul to have no home at the last&mdash;when the storm of wrath shall fall, to have nothing to comfort you&mdash;to be driven from God's Presence! To have no Father in Heaven. To find no warmth of love in the Divine heart. To see the happiness of angels and the joy of glorified spirits&mdash;perhaps to see your own children in Heaven and to be, yourselves, shut out! Dear ones whom you loved on earth, divided from you by a great gulf forever! Happily, the Day of Grace is not yet over! The Day of Mercy is not yet past! The long eternal night has not yet set in! Hurry, Sinner! There is a home for you if you have Grace to knock at this door! The door is Mercy! To knock is Prayer! To step across the threshold is Faith! Trust the Lord Jesus and you need not fear, though all your life you should be tried. You need not fear the accumulated terrors of the latter days, whatever they may be, nor fear the dread trumpet of Judgment, nor the last tremendous day! Fly to Jesus! Fly to Jesus! Fly to Jesus now! May His Spirit draw you this night! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MICAH 7.
+Exposition by C. H. Spurgeon: Micah 7.
 
 The Prophet begins in a sorrowful strain and there is much that is sad in the chapter, yet there is also much of holy confidence in God.
 
@@ -88,20 +88,20 @@ For the son dishonors the father, the daughter rises up against her mother, the 
 
 godly. In that respect, a gracious man cannot trust her that lies in his bosom, if she is not a true child of God. Now mark the grandeur of faith. Set this white spot right in the middle of the black darkness of which we have been reading&mdash;
 
-Therefore I will look unto the LORD&mdash;There was nowhere else for the Prophet to look! According to what he tells us, all men had become false! "Therefore," he says, "I will look unto Jehovah."
+Therefore I will look unto the Lord&mdash;There was nowhere else for the Prophet to look! According to what he tells us, all men had become false! "Therefore," he says, "I will look unto Jehovah."
 
 7, 8. I will wait for the God of my salvation: my God will hear me. [See Sermon #2069, Volume 35&mdash;my own personal holdFAST.] Rejoice not against me, O my enemy: when I fall, I shall
 
-arise; when I sit in darkness, the LORD shall be a light unto me. And this is all the light that God's people need! Even if it is the darkness of a black Egyptian night into which our spirit has fallen, yet if God shall but appear to us, there shall soon be light for us! Dr. Watts truly sang&mdash;
+arise; when I sit in darkness, the Lord shall be a light unto me. And this is all the light that God's people need! Even if it is the darkness of a black Egyptian night into which our spirit has fallen, yet if God shall but appear to us, there shall soon be light for us! Dr. Watts truly sang&mdash;
 
 > In darkest shades, if He appears,   
 > My dawning is begun!   
 > He is my soul's sweet morning star,   
 > And He my rising sun.   
 
-I will bear the indignation of the LORD, because I have sinned against Him, until He pleads my cause, and executes judgment for me: He will bring me forth to the light andI shall beholdHis righteousness. Listen to this testimony of the Prophet, tried child of God! Even when in your own household you find enemies, put your trust in God, for He will yet appear to deliver you. Let this be your joy! Sit still in humble patience and "bear the indignation of the Lord," for even though trouble is laid upon you, it is not so heavy as it might have been&mdash;and it is not so severe as it would have been if the Lord had dealt with you in strict justice! Therefore in patience possess your soul and wait quietly before your God. Be not without hope. Expect that He will plead your cause and that He will execute judgment for you. Watch for His light, which will most surely come, and in which you shall behold not your own righteousness, but His!
+I will bear the indignation of the Lord, because I have sinned against Him, until He pleads my cause, and executes judgment for me: He will bring me forth to the light andI shall beholdHis righteousness. Listen to this testimony of the Prophet, tried child of God! Even when in your own household you find enemies, put your trust in God, for He will yet appear to deliver you. Let this be your joy! Sit still in humble patience and "bear the indignation of the Lord," for even though trouble is laid upon you, it is not so heavy as it might have been&mdash;and it is not so severe as it would have been if the Lord had dealt with you in strict justice! Therefore in patience possess your soul and wait quietly before your God. Be not without hope. Expect that He will plead your cause and that He will execute judgment for you. Watch for His light, which will most surely come, and in which you shall behold not your own righteousness, but His!
 
-Then she that is my enemy shallsee it, andshame shall cover her which said unto me, Where is the LORD your God? My eyes shall behold her: now shall she be trodden down as the mire of the streets. This verse relates to the nation which, at that time, was oppressing Israel. She would have her turn of suffering, for she would be crushed beneath Jehovah's foot as the mire is trodden in the streets!
+Then she that is my enemy shallsee it, andshame shall cover her which said unto me, Where is the Lord your God? My eyes shall behold her: now shall she be trodden down as the mire of the streets. This verse relates to the nation which, at that time, was oppressing Israel. She would have her turn of suffering, for she would be crushed beneath Jehovah's foot as the mire is trodden in the streets!
 
 12. In the day that your walls are to be built, in that day shall the decree be far removed. In that day, also, He shall come even to you from Assyria, and from the fortified cities, and from the fortress even to the river, and from sea to sea, and from mountain to mountain. This is what was to befall those who had sinned against God and oppressed His people&mdash;He would let loose the oppressors upon them and they would find foes in every quarter.
 
@@ -111,7 +111,7 @@ Feed Your people with Your rod, the flock of Your heritage, which dwell solitari
 
 15-17. According to the days of your coming out of the land of Egypt will issue unto him marvelous things. The nations shallsee and be confounded at all their might: they shall lay their hand upon their mouth, their ears shall be deaf
 
-They shall lick the dust like a serpent, they shall move out of their holes like worms of the earth: they shall be afraid of the LORD our God, and shall fear because of you. The day will come when there shall be such a fear of the people of God upon those who formerly persecuted them that they shall tremble before the Lord and be afraid of the very people whom once they derided and oppressed!
+They shall lick the dust like a serpent, they shall move out of their holes like worms of the earth: they shall be afraid of the Lord our God, and shall fear because of you. The day will come when there shall be such a fear of the people of God upon those who formerly persecuted them that they shall tremble before the Lord and be afraid of the very people whom once they derided and oppressed!
 
 Who is a God like unto You, that pardons iniquity, and passes by the transgression of the remnant of His heritage? He retains not His anger forever, because He delights in mercy. He never delights in anger, especially in anger against His own people. That is but temporary anger and is, after all, only another form of love&mdash;for the parental anger which hates sin in a dear child is but love on fire! May God never permit us to sin without being thus angry with us! We might almost beseech Him never to tolerate sin in us, but to smite us with the rod rather than allow us to be happy in the midst of evil. Perhaps the worst of horrors is peace in the midst of iniquity&mdash;happiness while sin is yet all round about us.
 
