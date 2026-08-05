@@ -16,7 +16,7 @@ Learn a simple lesson from this man, I pray you. He made use of what sense he ha
 
 I wish to drive at one point only&mdash;which will stand out clearly when I have finished. But I must go a little roundabout, to compass my design. May the Holy Spirit dictate every word!
 
-My first remark is that this man is a pattern for all seekers BECAUSE HE SOUGHT THE LORD UNDER GREAT DISCOURAGEMENTS.
+My first remark is that this man is a pattern for all seekers BECAUSE HE SOUGHT THE Lord UNDER GREAT DISCOURAGEMENTS.
 
 He cried to the Lord Jesus so loudly, so unceremoniously and at so unseasonable a time, as others thought, that they checked him and bade him hold his peace! But this was like pouring spirits upon a fire and it only made him the more intense in his pleading.
 
@@ -59,7 +59,7 @@ Yet there is another call which overtops these three, for the universal call and
 
 Dear Friend, when you feel within yourself a secret drawing to Christ which you do not understand, but yet cannot resist&mdash;when you experience a tenderness of spirit, a softness of heart towards the Lord&mdash;when your soul kindles with a hope to which it was previously a stranger, and your heart begins to sigh and almost to sing at the same time for love of God&mdash;when the Spirit of God brings Jesus near you, and brings you near to Jesus&mdash;then we may apply to you this message, "Be of good comfort, rise. He calls you."
 
-Thus have I tried to set this man before you as receiving comfort. But we shall see that HE LEAPED OVER BOTH DISCOURAGEMENT AND ENCOURAGEMENT AND CAME TO JESUS HIMSELF!
+Thus have I tried to set this man before you as receiving comfort. But we shall see that HE LEAPED OVER BOTH DISCOURAGEMENT AND ENCOURAGEMENT AND CAME TO Jesus HIMSELF!
 
 Bartimaeus did not care one whit more for the comfort than he did for the rebuffs of those around him. This is a point to be well observed. You who are seeking Jesus must not rest in our encouragements, but press on to Jesus. We would cheer you, but we hope you will not be satisfied with our cheering. Do what this blind man did! Let us read the text again&mdash;"Jesus stood still, and commanded him to be called. And they called the blind man, saying unto him, Be of good comfort, rise. He calls you." "And (it should be, "but," not, "and") he, casting away his garment, rose and came to Jesus." He did not give them a "thank you" for their comfort. He did not stop half a minute to accept or to reject it. He did not need to&mdash;he wanted Christ, and nothing else!
 
@@ -89,7 +89,7 @@ been a Bartimaeus who was not the son of Timaeus. Mark, however, writes as if Ti
 
 If, my Friend, you have been long in seeking salvation, and have become discouraged, may the Lord give you resolution to come to Jesus Christ this very day! Bring that firm, steadfast mind of yours, and bow it to Jesus, and He will accept you and end your darkness! Under His teaching you may yet become a marked man in the Church, of whom in later years Believers will say, "You know that man&mdash;that grievous sinner while he was unsaved, that eager seeker when he was craving mercy, that earnest worker after he became a Believer&mdash;he will not be outworked by anybody! He is a true man and gives his whole heart to our Lord." I shall be delighted beyond measure if you should be such a convert&mdash;a man or woman who will not need looking after, but a determined man resolute to do right, cost what it may! Such persons are a great gain to the good cause. Gently would I whisper to each one of you&mdash; Will not you be one of them?
 
-EXPOSITION BY C. H. SPURGEON: LUKE10:25-37.
+Exposition by C. H. Spurgeon: Luke10:25-37.
 
 Verses 25, 26. And, behold a certain lawyer stood up and tempted Him, saying, Master, what shall I do to inherit eternal life? He said unto him, What is written in the Law? How do you readit? That was a most appropriate answer to a lawyer. "You ask me what you should do&mdash;well, you profess to be a teacher of the Law, you ought, therefore, to know what is written in the Law."
 
