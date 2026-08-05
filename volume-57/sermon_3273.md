@@ -50,7 +50,7 @@ But the reason of reasons is that contained in our text, "He cares for you. " Af
 
 There, dear Brothers, there is my word from the Master for you. I should like to have hammered out that little grain of gold so that you might have gilded your lives with it, but please do it for yourselves. Now will you carry your cares away, or will you bow your heads in silent prayer and throw them all off? Holy Spirit, the Comforter, lighten our darkness, we beseech You!
 
-EXPOSITION BY C. H. SPURGEON: 2 TIMOTHY 1; 2:1-13.
+Exposition by C. H. Spurgeon: 2 Timothy 1; 2:1-13.
 
 Verses 1, 2. Paul, an Apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus, to Timothy, my dearly beloved son: Grace, mercy, and peace, from God the Father and Christ Jesus our Lord. I would again remind you, as I have often done before, that the Apostle Paul, when he is writing to a minister, invariably begins his Epistle with the triple greeting, "Grace, mercy, and peace," but when he is writing to a Church, he commences with the double benediction, "Grace and peace." You will find that this is his wish for the Romans, Corinthians, Gala-tians, Ephesians, Philippians, Colossians and Thessalonians, "Grace be unto you and peace, from God our Father, and the Lord Jesus Christ." This is also his form of greeting to Philemon, who was a private Christian, not a minister. But when the Apostle is writing to Timothy and Titus, his own sons in the faith, and his fellow ministers of the Gospel, he says, "Grace, mercy, and peace, from God our Father and Jesus Christ our Lord." It seems as though, guided by the Holy Spirit, he thought that the office of the Christian ministry is of so weighty and responsible a character that the man who rightly fills that honorable position not only needs the Grace and peace that are necessary for all Believers, but that he must in addition have a special supply of mercy. And truly, no one needs mercy more than the preacher of mercy! Note, too, that the "Grace, mercy, and peace" are to come "from God the Father and Christ Jesus our Lord." Father and Son are united in the gracious act of bestowing "Grace, mercy, and peace." The Father is the great eternal Fountain of all these blessings, but the Son is the Divinely appointed Channel through whom they flow down to us!
 
@@ -74,7 +74,7 @@ Be not you, therefore, ashamed of the testimony of our Lord&mdash;There is need 
 
 Not according to our work, but according to His own purpose and Grace, which was given us in Christ Jesus before the world began. What a blessed Doctrine this is! Some people cannot endure even to hear or read of it, but it is full of comfort and joy for the Spirit-taught people of God! God's Grace was "given us in Christ Jesus before the world began
 
-[See Sermon #703, Volume 12&mdash;SALVATION ALTOGETHER BY GRACE.]
+[See Sermon #703, Volume 12&mdash;SALVATION ALTOGETHER by GRACE.]
 
 10, 11. But is now made manifest by the appearing of our Savior, Jesus Christ, who has abolished death, and has brought life and immortality to light through the Gospel: whereunto I am appointed a preacher, and an Apostle, and a teacher of the Gentiles. How Paul gloried in this triple Divine appointment! He commenced this Epistle by writing, "Paul, an Apostle of Jesus Christ by the will of God," and here he says of the Gospel, "whereunto I am appointed a preacher." I see that some tradesmen put up a notice over their shops stating that they are so-and-so "by appointment to Her Majesty," but Paul had the highest honor under Heaven in being "appointed a preacher, and an Apostle, and a teacher of the Gentiles."
 
@@ -94,11 +94,11 @@ Verses 1, 2. You, therefore, my son, be strong in the Grace that is in Christ Je
 
 5-8. And if a man also strives for masteries, yet is hie not cro wned, except hie strive la wfully. The husbandman that labors must be first partaker of the fruits. Consider what I say, and the Lord give you understanding in all things. Re-
 
-THE RESURRECTION OF OUR LORD JESUS&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.org .1 The Resurrection of Christ is
+THE RESURRECTION OF OUR Lord Jesus&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.org .1 The Resurrection of Christ is
 
 the cornerstone of the glorious Temple of Truth, the keystone of the arch of Revelation. Paul tells us, in that great chapter, 1 Corinthians 15, how hopeless our case would be if Christ was not "raised from the dead." But he also proves most conclusively that he was raised "the third day, according to the Scriptures."
 
-33&mdash;NOT BOUND YET and #1453, Volume 25&mdash;ETERNAL FAITHFULNESS UNAFFECTED BY HUMAN UNBELIEF.] Thank God that it is not yet bound though many have tried to fetter it! When they think that they have manacled it, it breaks loose again and so it always will. However low this heavenly fire may burn, it soon blazes up again and so it shall to the world's end. Immortal as the Christ who is the sum and substance of it is the everlasting Gospel of the blessed God!
+33&mdash;NOT BOUND YET and #1453, Volume 25&mdash;ETERNAL FAITHFULNESS UNAFFECTED by HUMAN UNBELIEF.] Thank God that it is not yet bound though many have tried to fetter it! When they think that they have manacled it, it breaks loose again and so it always will. However low this heavenly fire may burn, it soon blazes up again and so it shall to the world's end. Immortal as the Christ who is the sum and substance of it is the everlasting Gospel of the blessed God!
 
 10-13. Therefore I endure all things for the elect's sake, that they may also obtain the salvation which is in Christ Jesus with eternal Glory. It is a faithful saying: For if we are dead with Him, we shall also live with Him: if we suffer, we shall also reign with Him: if we deny Him, He will deny us: if we believe not, yet He abides faithful: He cannot deny Himself. Blessed truth, God grant us the Grace to mediate upon it until we also shall become faithful to Him and to His
 
