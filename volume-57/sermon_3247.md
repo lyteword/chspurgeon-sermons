@@ -6,7 +6,7 @@ OUR Savior did not ask Peter that question for His own information. He could hav
 
 I am afraid that most of us have, some time or other in our lives, been like sinking Peter and have cried, "Lord, save me," not in tones of faith, but in the language of unbelief. And if so, it will be as good a thing for us as for Peter to hear the Master say to us, tonight, "Why did you doubt? Why did you doubt? Was there any good reason for it? Was there any excuse for it? Did any good come of it? Why did you doubt?"And I hope, too, that after I have spoken to Believers in that way, I may have a word for sinners&mdash;only for them I shall have to take liberties with the text and alter it into the present tense, saying to anyone who is desirous of peace in Christ, but who trembles and is afraid, "Why do you doubt? Why do you doubt? Why do you continue in this state of hesitancy and unbelief?"
 
-First, then, I have to say TO THE CHILD OF GOD, "Why did you doubt?"
+First, then, I have to say TO THE CHILD OF God, "Why did you doubt?"
 
 Some Christians appear to go from one form of doubt to another. Fears are with them perennial. They are plants that affect the shade&mdash;they seldom open their golden cups to drink in the blessed Light of the Divine sun! Even the strongest Believers are, I fear, at times overcome with this disease. As King David, that matchless warrior, once waxed faint&mdash;the bravest servants of God sometimes faint even in the day of battle&mdash;I will ask them, each one, to look back upon any seasons of doubts or faintings, whether they are numerous or few, and I will then say to each one, "Why did
 
@@ -66,7 +66,7 @@ Oh, how Christ's heart must be pierced when those He died for doubt Him! When th
 
 Our doubts and fears have often prevented Him showing us more of Himself. He has said, "I have told you of these earthly things that are in My Kingdom and you believe Me not. How shall you believe Me if I tell you of heavenly things?" Our dear Lord has many things to say to us, but we cannot bear them yet because we are so unbelieving. But if we had more faith and rested like little children upon Him, He would tell us more and show us more! We might have been a long way further on the road if we had not been hindered by unbelief. Of how many places might it not be said, "He could not do many mighty works there because of their unbelief?" Unbelief seems to hamper Omnipotence, to tie the hands of the Almighty! We do not know what losers we have been by our unbelief. God grant, then, that as we turn this question over, it may breed repentance in our spirits! And as we find how impossible it is to answer it, we may go and say, "Lord, we have no excuse to make. Only give us more of Your Spirit. We believe; help You our unbelief."
 
-Now a few minutes may be spent in speaking, secondly, TO THOSE WHO DESIRE TO BELIEVE IN JESUS,
+Now a few minutes may be spent in speaking, secondly, TO THOSE WHO DESIRE TO BELIEVE IN Jesus,
 
 BUT FEEL THAT THEY CANNOT. To such, as I have already said, the question must be slightly altered. I will ask each one of them, "Why do you doubt?"
 
