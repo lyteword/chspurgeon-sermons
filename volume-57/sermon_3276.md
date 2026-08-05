@@ -18,7 +18,7 @@ They even laughed contemptuously at His deeds of love. "The chief priests mockin
 
 Perhaps it was worst of all when these wicked men scoffed at Christ's pangs and prayers. If you have hurt yourself and someone laughs at the accident, you feel indignant. If you are tossing to and fro upon a bed of sickness and someone sneers at your pains, you know how such unkindness cuts you to the quick. If you were dying and in your agony you cried aloud to God&mdash;and somebody ridiculed your prayer&mdash;it would be a terrible trial to you. So must it have been to Christ when He was dying upon the Cross, forsaken by His friends, forsaken even by His Father because He was then occupying the place that we ought to have occupied. Then, when He uttered that heart-melting cry, "Eloi, Eloi, lama Sabachtha-ni?"&mdash;"My God, My God, why have You forsaken Me?"&mdash;the heartless spectators made a sort of pun upon His words and mockingly said that He was calling Elijah, though many of them must have recognized the quotation from the beginning of the twenty-second Psalm! To mock a man's prayers when he is dying seems to me the very lowest depth of cruel contempt! I do not remember ever reading of any other mob but this one that was so brutal as to turn into mockery the last cries of One who was in his death agony! Yet, at Calvary, the last expiring groans of our blessed Savior were the subject of the mocking mirth of the rabble around the Cross. How all this must have pained His sensitive spirit and made Him cry out with David, "O you sons of men, how long will you turn My Glory into shame?"
 
-NOW, secondly, THE GLORY WHICH CHRIST OUGHT TO HAVE RECEIVED AMONG MEN WAS RENDERED TO HIM ONLY IN SHAME.
+NOW, secondly, THE GLORY WHICH Christ OUGHT TO HAVE RECEIVED AMONG MEN WAS RENDERED TO HIM ONLY IN SHAME.
 
 A German writer has given us an outline of the way in which worldlings mockingly honored Christ. First of all, he says, they gave Him a procession of honor. When a victorious general returns from the wars, he rides through the streets amidst the plaudits of the crowds that gather to welcome him. And when Jesus Christ, the Son of God, was to be honored by the world, He also had a procession, and what a procession it was! "He bearing His Cross went forth"..."and there followed Him a great company of people, and of women, which also bewailed and lamented Him." That weeping and wailing company of the daughters of Jerusalem was the only element of real honor in the whole procession&mdash;all the rest was mockery and shame&mdash;and what a shameful thing it was! O men of the world, if you had known that He was the King
 
@@ -76,7 +76,7 @@ Oh, may my soul be found in Him,
 
 And of His righteousness partake." Is there anyone here who has despised and rejected the Lord Jesus Christ? Alas, I fear that many, even in this assembly, have done so. Have you set Him at nothing? Have you thought nothing of Him? Have you mocked Him? Have you put a crown of thorns upon His head? Oh, if you have hitherto been numbered among His enemies, quit their ranks this very hour, bend your knees before Him in true homage and submission, give Him your hearts to be His royal throne, give Him yourselves to be His loyal subjects and servants forever! Look unto Him as He was upon the Cross and as He is upon the Throne of God! Trust Him with your whole heart, for whoever believes in Him has everlasting life! God bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 4; 5.
+Exposition by C. H. Spurgeon: PsalmS 4; 5.
 
 Verse 1. Hear me when I call, O God of my righteousness: You have enlarged me when I was in distress; have mercy upon me, and hear my prayer. Good men want to be heard when they pray. They are not satisfied with merely praying&mdash; they must have God's answers to their supplications. See how David pleads the past mercy received from God&mdash;"You have enlarged me when I was in distress." Cannot my own heart look back to God's loving kindness to me in days gone by? Oh, yes! Then, as He is the same God, what He has done in the past is an argument for what He will do in the future! There are some of us here who can adopt the Psalmist's language and say, "You have enlarged me when I was in distress; have mercy upon me, and hear my prayer."
 
@@ -84,11 +84,11 @@ O you sons of men, how long will you turn my glory into shame? How long will you
 
 How long will you love vanity, and seek leasing? That is, after falsehood, after lying. Why do men seek after falsehood? What attraction can it have for them? Why, only this attraction&mdash;that it suits a fool's heart to feed on falsehood.
 
-But know that the LORD has set apart him that is godly for Himself [See Sermon #2530, Volume 43&mdash;"a peculiar people"&mdash;.] You cannot hurt him, for God has hedged him about. You may
+But know that the Lord has set apart him that is godly for Himself [See Sermon #2530, Volume 43&mdash;"a peculiar people"&mdash;.] You cannot hurt him, for God has hedged him about. You may
 
 say what you please against him, but God loves him and will take care of him.
 
-The LORD will hear when I call unto Him. What a sweet assurance! O Brothers and Sisters, the Mercy Seat is always open to us! It will be a blessed thing if everyone of us can say with David, "The Lord will hear when I call unto
+The Lord will hear when I call unto Him. What a sweet assurance! O Brothers and Sisters, the Mercy Seat is always open to us! It will be a blessed thing if everyone of us can say with David, "The Lord will hear when I call unto
 
 Him."
 
@@ -96,23 +96,23 @@ Stand in awe, and sin not This is good advice to ungodly men! Let them feel arig
 
 Commune with your own heart upon your bed, and be still Hold private communion with yourself, in a private place, at a private hour. "Be still." We are far too noisy&mdash;most of us talk too much. It would often make men wiser if they were more still. If a still tongue does not make a wise head, yet it tends that way.
 
-Offer the sacrifices of righteousness, and put your trust in the LORD. This is a capital rule for the whole of life. Serve God and trust in Him&mdash;do what is right, and rest in the God of Right.
+Offer the sacrifices of righteousness, and put your trust in the Lord. This is a capital rule for the whole of life. Serve God and trust in Him&mdash;do what is right, and rest in the God of Right.
 
 There are many that say, who will show us any good? We all need to see anything that is really good, we do not care who shows it to us, even if it is the devil himself. "Who will show us any good?" That question may have another meaning, for there are some who have no desire for spiritual good&mdash;for such good as God calls good.
 
-LORD, lift up the light of Your Countenance upon us. David began the Psalm with a personal petition, "Hear me when I call," but now he begins to glow in spirit and, as his prayer burns more vehemently, he prays for others, also&mdash; "Lord, lift up the light of Your Countenance upon us." This is our highest joy, this is our greatest good&mdash;to walk in the light or God's Countenance! If we have the favor of God, and know that we have it, we need ask for nothing else, for every other blessing is assured to those who have the favor of God!
+Lord, lift up the light of Your Countenance upon us. David began the Psalm with a personal petition, "Hear me when I call," but now he begins to glow in spirit and, as his prayer burns more vehemently, he prays for others, also&mdash; "Lord, lift up the light of Your Countenance upon us." This is our highest joy, this is our greatest good&mdash;to walk in the light or God's Countenance! If we have the favor of God, and know that we have it, we need ask for nothing else, for every other blessing is assured to those who have the favor of God!
 
 You have put gladness in my heart, more than in the time that their corn and their wine increased. The harvest and the vintage were the two seasons of greatest joy in the East. They shouted, "Harvest Home," with gladness that the fruits of the earth had again been ingathered, and they drank the new wine and danced for joy. But David says to the Lord, "You have put gladness in my heart, more than in the time that their corn and their wine increased." When God puts gladness in the heart, it is real gladness, for God is not the Giver of a sham joy! It is lasting gladness, for God does not give temporary gifts.
 
 David says, "You have put gladness in my heart," and then he compares it with the gladness of the sons of men, and he says that his joy was greater than theirs when their earthly stores were increased. Boaz went to sleep on the threshing-floor, but he that sleeps upon the bosom of God has a far softer bed than that!
 
-I will lay me down both in peace, and sleep: for You, LORD, only make me dwell in safety. [See Sermon #2033, Volume
+I will lay me down both in peace, and sleep: for You, Lord, only make me dwell in safety. [See Sermon #2033, Volume
 
 34&mdash;PLAIN DIRECTIONS TO THOSE WHO WOULD BE SAVED FROM SIN.] He
 
 who has Jehovah as his God is at home even when he is abroad! He is well guarded even when he has none upon earth to protect him! And he can go to sleep in calm confidence when others would be disturbed in mind and too timid to close their eyes!
 
-Psalm 5. Verse 1. Give ear to my words, O LORD, consider my meditation. Sometimes we pray right off, as David did when he cried to the Lord, "Hear me when I call." At other times, we sit down to meditate, and think over what we
+Psalm 5. Verse 1. Give ear to my words, O Lord, consider my meditation. Sometimes we pray right off, as David did when he cried to the Lord, "Hear me when I call." At other times, we sit down to meditate, and think over what we
 
 want to say to the Lord in prayer, as David did when he said, "'O Lord, consider my meditation.' What I have considered do You consider." A well-considered prayer is very likely to succeed with God.
 
@@ -122,19 +122,19 @@ My King, and my God. What? Will a king hearken to a cry? Men generally prepare e
 
 For unto You will I pray. I trust that we all pray. I am sure that all Believers do, but let us pray more, let us pray much more than we have done and let us, each one truly say to the Lord, "Unto You will I pray." He is a King, so serve Him with your prayers! He is God, so adore Him with your prayers! And if you can put both your hands on Him and say, as David did, "My King, and my God," what abundant motives you have for abounding in prayer to Him!
 
-My voice shall You hear in the morning, O LORD. "When the dew is on all Nature, and on my spirit, too, then shall You hear my voice in prayer. Before I go out into the world, my first thoughts shall be of You." Never see the face of man, Beloved, until you have seen the face of God.
+My voice shall You hear in the morning, O Lord. "When the dew is on all Nature, and on my spirit, too, then shall You hear my voice in prayer. Before I go out into the world, my first thoughts shall be of You." Never see the face of man, Beloved, until you have seen the face of God.
 
 In the morning will I direct my prayer unto You, and will look up. Adjust your prayer as the archer fits his arrow on the bow. Look up as you shoot it and keep on looking up and looking out for an answer to your supplication. You cannot expect God to open the windows of Heaven to pour you out a blessing if you do not open the windows of your expectation to look for it! If you look up in asking, God will look down in answering. It is always well to take good aim in prayer. Some prayers are like random shots, they cannot be expected to hit the target. But David's prayer was well aimed and he expected it to prevail with God&mdash;"In the morning will I direct my prayer unto You, and will look up."
 
 For you are not a God that has pleasure in wickedness: neither shall evil dwell with You. In both of these Psalms there is a clear line drawn between the righteous and the wicked, this is a line which still needs to be kept very clear, and we must all seek to know on which side of that line we are.
 
-6. The foolish shall not stand in Your sight: You hate all workers ofiniquity. You shall destroy them that speak lies: the LORD will abhor the bloody and deceitful man. These are strong words, but not too strong&mdash;God is not tolerant of evil and those who are most like He in other respects will be like He in this matter, also.
+6. The foolish shall not stand in Your sight: You hate all workers ofiniquity. You shall destroy them that speak lies: the Lord will abhor the bloody and deceitful man. These are strong words, but not too strong&mdash;God is not tolerant of evil and those who are most like He in other respects will be like He in this matter, also.
 
 But as for me, I will come into Your House in the multitude of Your mercy. "I will be like a child who goes in and out of his father's door as often as he pleases because he is at home. I will not go there on my own merits, but 'in the multitude of Your mercy.'"
 
 And in Your fear will I worship toward Your holy Temple. There was no temple on earth when David wrote this Psalm, but God was his Temple, and so the pious Jew opened his window and looked towards Jerusalem. So do we look towards God upon the Throne of Grace in Heaven and seek to worship Him in the beauty of holiness.
 
-Lead me, O LORD, in Your righteousness because of my enemies, make Your way straight before my face. David does not say, "Make my way straight." He does not want to have his own way, but he wants to walk in God's way. Thus sweet submission blends with a desire for perfect obedience. "Make Your way straight before my face."
+Lead me, O Lord, in Your righteousness because of my enemies, make Your way straight before my face. David does not say, "Make my way straight." He does not want to have his own way, but he wants to walk in God's way. Thus sweet submission blends with a desire for perfect obedience. "Make Your way straight before my face."
 
 For there is no faithfulness in their mouth. You cannot expect ungodly men to speak that which is right. "There is no faithfulness in their mouth."
 
@@ -144,4 +144,4 @@ They flatter with their tongue. Always beware of people who flatter you, and esp
 
 Destroy You them, O God; let them fall by their own counsels; cast them out in the multitude of their transgressions; for they have rebelled against You."It does not matter what they do against me, but O Lord, 'they have rebelled against You.'" David speaks here like a judge pronouncing sentence upon the guilty&mdash;not out of malice, but out of loyalty and devotion to God!
 
-11, 12. But let all those that put their trust in You rejoice: let them always shout for joy because You defend them: let them also that love Your name be joyful in You. For You, LORD, will bless the righteous; with favor will You compass him as with a shield.
+11, 12. But let all those that put their trust in You rejoice: let them always shout for joy because You defend them: let them also that love Your name be joyful in You. For You, Lord, will bless the righteous; with favor will You compass him as with a shield.
