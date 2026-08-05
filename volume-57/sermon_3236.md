@@ -62,7 +62,7 @@ Are you still afraid to come to Jesus? Then let me remind you of that poor woman
 
 There is the Divine Cordial which we are commanded to place within your reach. Drink it and forget your poverty and remember your misery no more. God bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN11:1-44.
+Exposition by C. H. Spurgeon: John11:1-44.
 
 Verse 1. Now a certain man was sick, named Lazarus, of Bethany, the town of Mary and her sister Martha. To many people it may have seemed an event of no particular importance that "a certain man was sick, named Lazarus, of Bethany," but great consequences often depend upon what appear to us to be very minor matters&mdash;and we must not despise the least of the Lord's people, nor think little of anything that concerns them. When a king or an emperor is ill, the news is published in all the papers, but when a friend of the Lord Jesus, a man "named Lazarus of Bethany" was sick, that event was recorded in the Bible because of something very remarkable which was to follow that sickness! Lazarus was a son of God&mdash;and Divine Grace makes greater distinctions than earthly rank and worldly honors ever can make!
 
@@ -114,7 +114,7 @@ As soon as she heard that, she arose quickly and came unto Him. The coming of Ch
 
 32, 33. Then when Mary was come where Jesus was, and saw Him, she fell down at His knees, saying unto Him, Lord, if You had been here, my brother had not died. When Jesus therefore saw her weeping, and the Jews also weeping which came with her, He groaned in the spirit and was troubled. His heart was full of sympathy. He felt the grief of these mourners and sorrowed with them.
 
-34, 35. Andsaid, Where have you laid him? They said unto Him, Lord, come and see. Jesus wept [See Sermon #2091, Volume 35&mdash;"JESUS WEPT".] In the original, a very blessed and expressive word is used here concerning Christ's weeping&mdash;quite a different word from that used to describe the weeping of Mary and the Jews. It should be a constant comfort to the sorrowing Church of God that "Jesus wept."
+34, 35. Andsaid, Where have you laid him? They said unto Him, Lord, come and see. Jesus wept [See Sermon #2091, Volume 35&mdash;"Jesus WEPT".] In the original, a very blessed and expressive word is used here concerning Christ's weeping&mdash;quite a different word from that used to describe the weeping of Mary and the Jews. It should be a constant comfort to the sorrowing Church of God that "Jesus wept."
 
 36-39. Then said the Jews, Behold how He loved him! [See Sermon #3228, Volume 56&mdash;"OH, HOW HE LOVES."] And some of them said, Could not this Man, who opened the eyes of the blind, have caused that even this man should not have died? Jesus therefore, again groaning in Himself, came to the grave. It was a cave and a stone lay upon it. Jesus said, Take away the stone. Martha, the sister of him that was dead, said unto Him, Lord, by this time he stinks: for he has been dead four days. "Will you expose that corrupt corpse to the air?
 
