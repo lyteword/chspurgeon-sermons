@@ -13,7 +13,7 @@ Waiting upon God this evening in the same spirit, and desiring to honor and magn
 
 It is to the children of God, the Believers, the saved ones, that such a pedigree belongs and such a destiny opens up. Their privilege of birth claims our first notice. And then the practical consequences flowing from that privilege must engage our attention.
 
-THE PRIVILEGE MENTIONED IS THAT WE HAVE BEEN REGENERATED, THAT WE ARE NEW CREATURES THROUGH THE WORD OF GOD.
+THE PRIVILEGE MENTIONED IS THAT WE HAVE BEEN REGENERATED, THAT WE ARE NEW CREATURES THROUGH THE WORD OF God.
 
 "Of his own will He brought us forth."Regeneration and all consequent blessings come to us entirely through the absolute but gracious will of God. He is not bound to give. He may, if He wills, withhold. We have no claim upon God, except the claim ofjustice&mdash;and what would that involve but that He should punish us for our sin? We are felons against the Majesty of Heaven. We have forfeited all the rights we ever had under the Divine Government. The right to punishment is the only right we can now claim upon the footing ofjustice. Henceforth we are simply in the hands of God awaiting His sentence. He may, if He wills, save the entire human race. If it pleases Him, He may save none. If so He wills, He may make this man a monument of mercy and leave his neighbor to reap the due reward of his works. This is what God has a right to do and He claims His sovereign prerogative! Are not His own words heard through Scripture like peals of thunder, "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion; so then it is not of him that wills, nor of him that runs, but of God that shows mercy?" There are some who, in their blindness, grow wrathful at this Doctrine, as if it were ungracious to mention a fact which it is impossible to disguise&mdash;they will almost froth at the mouth when the subject is broached. Well, let them do so&mdash;it still stands firm as a rock and fast
 
@@ -82,7 +82,7 @@ All this while I have been speaking to the children of God&mdash;but to others o
 
 The Lord command His blessing for Jesus' sake! Amen!
 
-EXPOSITION BY C. H. SPURGEON: PSALM43.
+Exposition by C. H. Spurgeon: Psalm43.
 
 Verses 1, 2. Judge me, O God, and plead my cause against an ungodly nation: O deliver me from the deceitful and unjust man. For You are the God of my strength. In the previous Psalm, David had called the Lord the God of his life. Now he calls Him the God of his strength. We generally sing ourselves up. We may begin in a very low key, as David did, but if we can praise God in the dark, we shall soon praise God in the light!
 
