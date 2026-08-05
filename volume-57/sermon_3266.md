@@ -62,7 +62,7 @@ But to conclude once more, the Christian's consecration is to be constant This r
 
 But what am I talking about? There are some, here, that have never yet been priests to God. What have they been doing today? Why even on God's holy day they do not serve Him but themselves! Why, Sir, God has never reaped a solitary ear of grain from your field. Take care lest having lived to yourself, you die to yourself&mdash;having lived without God, you die without God and find it a tremendous thing to stand and be judged without a Savior to be your helper, or interceding priest! I say nothing to you about being a priest to God. You need a priest for yourself, first. Do not go to any man. No man has power to help your soul except to pray and plead for you. The saving, pardoning power lies only with Jesus Christ. Look away to Him! He died&mdash;trust in His Sacrifice! He rose, He ascended&mdash;He is standing at God's right hand. There is life for a look at Him. Look! Trust! And you shall then be cleansed, clothed, anointed, consecrated and so serve God. But your first business is to go to Christ. Oh, may Christ come to you and save you now&mdash;and He shall have Glory out of us, world without end! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 2.
+Exposition by C. H. Spurgeon: 1 John 2.
 
 Verse 1. My little children, these things write I unto you, that you sin not For this we ought to watch and strive, that we sin not.
 
@@ -110,7 +110,7 @@ But he that does the will of God abides forever Not, "he that does some great th
 
 Little children, it is the last time: and as you have heard that antichrist shall come, even now are there many antichrists; whereby we know that it is the last time. And now, I think, even more than when John wrote, is this the fact, for antichrists are multiplying on all sides and there are even worse evils to come than we have seen as yet! And it, therefore, behooves Christians to be upon the watch and to let this Truth comfort them, that, "it is the last time." Once get through this dispensation, and the battle is ended even though the dispensation should be protracted beyond our hope
 
-and [See Sermons #811, Volume 14&mdash;UNTO YOU YOUNG MEN and #1715, Volume 29&mdash;a DESCRIPTION OF YOUNG MEN IN CHRIST.] desire, yet, still, once get through it and it is over! This is to be the last charge of our great adversary and all his hosts. Stand fast, therefore, you soldiers of the Cross, stand like rocks amidst the onslaught of the waves, and the victory shall yet be yours!
+and [See Sermons #811, Volume 14&mdash;UNTO YOU YOUNG MEN and #1715, Volume 29&mdash;a DESCRIPTION OF YOUNG MEN IN Christ.] desire, yet, still, once get through it and it is over! This is to be the last charge of our great adversary and all his hosts. Stand fast, therefore, you soldiers of the Cross, stand like rocks amidst the onslaught of the waves, and the victory shall yet be yours!
 
 They went out from us, but they were not of us: for if they had been of us, they would no doubt have continued with us: but they went out, that they might be made manifest that they were not all of us. The worst of men go out from among the best of men. The antichrists go out from the Church of Christ. The raw material for a devil was an angel. To make a Judas, you must make him out of an Apostle! May God purify His professing Church since even in her own loins she breeds adversaries of the faith.
 
