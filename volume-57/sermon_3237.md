@@ -2,11 +2,11 @@
 
 "The Lord has anointed Me to preach good tidings unto the meek; He has sent Me to bind up the brokenhearted." Isaiah 61:1.
 
-[Two more Sermons by C. H. Spurgeon on the latter part of the text are #1604 and #1605, Volume 27&mdash;HEART DISEASE CURABLE and JESUS KNEW WHAT HE WOULD DOg.] As this Sermon is so short, there is included with it an Address given by Mr. Spurgeon at a Prayer Meeting for Sabbath schools, which is just as timely and as much needed, now, as when it was delivered in 1877.]
+[Two more Sermons by C. H. Spurgeon on the latter part of the text are #1604 and #1605, Volume 27&mdash;HEART DISEASE CURABLE and Jesus KNEW WHAT HE WOULD DOg.] As this Sermon is so short, there is included with it an Address given by Mr. Spurgeon at a Prayer Meeting for Sabbath schools, which is just as timely and as much needed, now, as when it was delivered in 1877.]
 
 OUR Lord's anointing was with a special view to His preaching. Such honor does the Lord of Heaven and Earth put upon the ministry of the Word that, as one of the old Puritans said, "God had only one Son, and He made a Preacher of Him." It should greatly encourage the weakest among us, who are preachers of righteousness, to think that the Son of God, the blessed and eternal Word, came into this world that He might preach the same glad tidings which we are called to proclaim!
 
-We may profitably note, first, HOW EARNESTLY OUR LORD KEPT TO HIS WORD.
+We may profitably note, first, HOW EARNESTLY OUR Lord KEPT TO HIS WORD.
 
 It was His business to preach and He did preach. He was always preaching! "What?" you say, "did He not work miracles?" Yes, but His miracles were sermons&mdash;they were acted discourses, full of instruction. He preached when He was on the mountain. He equally preached when He sat at the table in the Pharisee's house. All His actions were significant&mdash; He preached by every movement. He preached when He did not speak&mdash;His silence was as eloquent as His words! He preached when He gave and He preached when He received. He was preaching a sermon when He lent His feet to the women that she might wash them with her tears and wipe them with the hairs of her head, quite as much as when He was dividing the loaves and the fishes and feeding the multitude. He preached by His patience before Pilate, for there He witnessed a good confession. He preached from the bloody tree&mdash;with hands and feet fastened there, He delivered the most wonderful discourse of Justice and of Love, of Vengeance and of Grace, of Death and of Life that was ever preached in this poor world! Oh, yes, He preached wondrously! He was always preaching&mdash;with all His heart and soul He preached! He prayed that He might obtain strength to preach. He wept in secret that He might the more compassionately speak the words which wipe men's tears away. Always a Preacher, He was always ready, in season and out of season, with a good word. As He walked the streets He preached! As He went along and if He sought retirement, and the people thronged Him, He sent them not away without a gracious word.
 
@@ -30,7 +30,7 @@ proud and lifted up, but low in their own esteem. A people who are often much tr
 
 Now, the Lord has anointed the Lord Jesus on purpose to preach the Gospel to such as these. If any of you are good and deserving, the Gospel is not for you! If any of you fancy that you are keeping God's Laws perfectly and hope to be saved by your works, I have to tell you that the whole have no need of a physician and that the Lord Jesus did not come upon so needless an errand as that of healing men who have no wounds or diseases! But the sick need a doctor and Jesus has come in great compassion to remove their sickness. The more diseased you are, the more sure you may be that the Savior came to heal such as you are! The more poor you are, the more certain you may be that Christ came to enrich you! The more sad and sorrowful you are, the more sure you may be that Christ came to comfort you! You nobodies, you who have been turned upside down and emptied right out, you who are bankrupts and beggars, you who feel yourselves to be clothed with rags and covered with wounds and bruises and putrefying sores&mdash;you who are utterly bad through and through and know it, and mourn it and are humbled about it&mdash;you may know that God has poured the holy oil without measure upon Christ on purpose that He might deal out mercy to such poor creatures as you are! What a blessing this is! How we ought to rejoice in the anointing of Jesus, since it benefits such despicable objects! We who feel that we are such objects ought to cry, "Hosannah! Blessed is He that comes in the name of the Lord!"
 
-We must now CONSIDER OUR LORD's DESIGN AND OBJECTIVE IN THUS PREACHING THE GOSPEL TO THE POOR AND THE MEEK.
+We must now CONSIDER OUR Lord's DESIGN AND OBJECTIVE IN THUS PREACHING THE GOSPEL TO THE POOR AND THE MEEK.
 
 It was, you observe, that he might bind up the brokenhearted. "He has sent Me to bind up the brokenhearted."
 
@@ -40,7 +40,7 @@ It is a beautiful figure, this binding up&mdash;as though the Crucified One took
 
 "DO NOT SIN AGAINST THE CHILD"
 
-AN ADDRESS DELIVERED BY C. H. SPURGEON,
+AN ADDRESS DELIVERED by C. H. Spurgeon,
 
 AT THE METROPOLITAN TABERNACLE, NEWINGTON, AT a PRAYER MEETING FOR SABBATH SCHOOLS IN THE YEAR 1877.
 
