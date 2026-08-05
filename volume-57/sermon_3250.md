@@ -8,7 +8,7 @@ BEWARE of imagining that you have reached finality in religion. Just as some pol
 
 I am going to speak to you, first, upon how Christians grow in faith Secondly, upon the signs of that growth And then, thirdly, I hope to give you some reasons why we should not be satisfied without this growth in faith
 
-First, then, let us consider HOW CHRISTIANS GROW IN FAITH.
+First, then, let us consider HOW ChristIANS GROW IN FAITH.
 
 There are many ways in which the Lord causes faith to grow. One is from the force of life, itself It is natural for life to grow until it has reached its maturity. Here is a living seed. If it is put into the earth under proper circumstances, nothing can prevent it from bursting its shell. In due time the green bade must be seen. You may command that green blade to remain at the same length as at present, but if you pass that way in another month, you will find that it has disobeyed your command&mdash;because it lives, it must grow! And if you should continue to visit it until it bends its head in the ripeness of autumn, you would see that it, must, by the very law of its nature, still keep on growing. It is the same with us&mdash;the anatomist will tell you that every part of the infant's body is so prepared that it can grow&mdash;there is provision for the growth of every organ and every limb so that, slowly and without difficulty, the whole shall be developed into a full grown man. It is life that grows. Put a bar of iron into the best soil that you can find&mdash;water it, and fertilize it, and let the genial sun shine upon it&mdash;but never a leaf or a rootlet will you find upon it, for it is dead! It is not so with the Christian. Because of the life that is in him, he must grow. You who are the living branches in the living Vine prove it by your growth. You who are the children of God should increase in wisdom and stature, and go on from strength to strength until you appear in Zion before God. If your faith is as feeble, now, as it was 20 years ago. If you have not made
 
@@ -26,7 +26,7 @@ I will only further say, upon this point, that a Christian may expect to grow in
 
 and you, as Christians, must have your stormy times and your rainy days if you are to bring forth the flowers of Grace and the fruit of the Spirit! You will probably grow more in the cloudy and dark day of adversity than you will while the sun of prosperity is shining brightly upon you. So be of good courage, Beloved, under the most adverse circumstances, for they are working for your lasting good!
 
-I will not say more about how Christians grow in faith. But, in the second place, I will try to point out SOME OF THE MARKS AND EVIDENCES OF THAT GROWTH.
+I will not say more about how Christians grow in faith. But, in the second place, I will try to point out SOME OF THE MarkS AND EVIDENCES OF THAT GROWTH.
 
 First, however, let me say that swelling is not necessarily growing. We know some people who seem to fancy that they have grown in Grace because they have such big notions as to their own attainments. They evidently imagine that they are the people and that wisdom will die with them. We never like to see a child with too big a head, for we fear it is only an indication of disease, and not a sign of health. And we fear that many professors of religion are suffering in a similar fashion. They know too much, for they are wise above what is written and are not content to be teachable and sit as little children at the feet of Jesus, the Great Teacher.
 
@@ -74,7 +74,7 @@ I have only time for just a word or two with you who have no faith at all. Sad m
 
 It is just so with you, Sinner! You are powerless to save yourself, but all power in Heaven and in earth has been committed to Christ&mdash;He is mighty to save! Therefore trust Him to save you! Rest wholly upon what He is as the Christ of God, the anointed and appointed Savior&mdash;and upon what He has done upon Calvary's Cross to save all who believe in Him&mdash;and you shall be saved this very hour! Trust Jesus here and now and you shall be saved here and now&mdash;and to God shall be all the Glory forever and ever! Amen.
 
-GENESIS 22:1-19.
+Genesis 22:1-19.
 
 Verse 1. And it came to pass after these things, that God did tempt&mdash;[See Sermon #2223, Volume 37&mdash;abraham's trial&mdash;a lesson FOR BELIEVERS.] That is, "God did test or try"-
 
@@ -104,7 +104,7 @@ And they came to the place which God had told him of; and Abraham built an altar
 
 9, 10. And laid the woodin order, andboundlsaac his son, andlaidhim on the altar upon the wood. And Abraham stretched forth his hand, and took the knife to slay his son. So that, in intent and purpose, he had consummated the sacrifice and, therefore, we read in Hebrew 11:17, "By faith Abraham, when he was tried, offered up Isaac: and he that had received the promises offered up his only begotten son." He had virtually done so in the esteem of God though no trace of a wound could be found upon Isaac! How often God takes the will for the deed with His people! When He finds them willing to make the sacrifice that He demands, He often does not require it at their hands. If you are willing to suffer for Christ's sake, it may be that you shall not be caused to suffer&mdash;and if you are willing to be a martyr for the Truth of God, you may be permitted to wear the martyr's crown even though you are never called to stand at the stake, the scaffold or the block!
 
-And the Angel of the LORD called unto him out of Heaven, and said Abraham, Abraham: andhe said, Here am I. Abraham always gives the same answer to the Lord's call, "Here am I."
+And the Angel of the Lord called unto him out of Heaven, and said Abraham, Abraham: andhe said, Here am I. Abraham always gives the same answer to the Lord's call, "Here am I."
 
 And He said, Lay not your hand upon the lad, neither do you anything unto him: for now I know that you fear God seeing you have not withheld your son, your only son from Me. The necessary test had been applied and Abraham's faith had endured the trial! God knows all things by His Divine Omniscience, but now He knew by this severe test and trial which He had applied, that Abraham really loved Him best of all.
 
@@ -112,13 +112,13 @@ Notice that the Angel says, "Now I know that you fear God." I do not think that 
 
 And Abraham lifted up his eyes and looked, and behold, behind him a ram caught in a thicket by his horns: and Abraham went and took the ram, and offered him up for a burnt offering in the place of his son. Here is another type of our Savior 's great Sacrifice on Calvary&mdash;the ram offered in the place of Jesus. How often do you and I have our great Substitute very near to us, yet we do not see Him because we do not lift up our eyes and look. "Abraham lifted up his eyes and looked, and behold, behind him a ram caught in a thicket by his horns." So, if you lift up your eyes, and look the right way, you will see the great Sacrifice close by you, held fast for you, even as this ram was caught to die instead of Isaac. Oh, that you may have Grace to turn your head in the right direction and look to Christ and live!
 
-And Abraham called the name of that place Jehovah-Jireh: as it is said to this day, In the mount of the LORD it
+And Abraham called the name of that place Jehovah-Jireh: as it is said to this day, In the mount of the Lord it
 
 shall be seen. [See Sermon #1803, Volume 30&mdash;JEHOVAH-JIREH.] God will
 
 foresee. "God will&mdash;as we usually say&mdash;"provide," which is being interpreted, "foresee." He will have everything ready against the time when it will be needed. He who provided the ram for a burnt offering in the place of Isaac will provide everything else that is required! And you may depend upon it that He who, in the greatest emergency that could ever happen, provided His only begotten and well-beloved Son to die as the Substitute for sinners, will have foreseen every other emergency that can occur and will have fore-provided all that is necessary to meet it. Blessed be the name of Jehovah-Jireh!
 
-16. And the Angel of the LORD called unto Abraham out of Heaven the second time, and said, By Myself have I sworn, says the LORD. "Because He could swear by no greater, He swore by Himself."
+16. And the Angel of the Lord called unto Abraham out of Heaven the second time, and said, By Myself have I sworn, says the Lord. "Because He could swear by no greater, He swore by Himself."
 
 16-18. Because you have done this thing, and have not withheld your son, your only son: that in blessing I will bless you, and in multiplying I will multiply your seed as the stars of the Heaven, and as the sand which is upon the seashore;
 
