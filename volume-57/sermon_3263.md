@@ -1,6 +1,6 @@
 # Sermon 3263 | Intelligent Obedience
 
-"Keep and seek for all the commandments of the LORD your God." 1 Chronicles 28:8.
+"Keep and seek for all the commandments of the Lord your God." 1 Chronicles 28:8.
 
 Is the Lord your God? I must put this question very pointedly to you at the onset, otherwise I shall not be speaking to you in expounding the words of my text. Were I to address the ungodly and the unconverted, and say to them, "Keep God's commandments," they would, perhaps, misunderstand such an exhortation and consider that I intend to set before them as the way of life a strict observance of the commandments. It is no such thing. "By the deeds of the Law there shall no flesh be justified." So far as the sinner is concerned, by the Law comes the knowledge of sin! The Law can do nothing more for him than convince him that he needs a Savior and drive him out of himself to find in Christ what he cannot find in himself.
 
@@ -77,7 +77,7 @@ I have thus tried to address the children of God. I have done it very, very feeb
 
 The Lord give you Grace to believe, and to follow in His ways, and to Him be the Glory! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS8:23-39.
+Exposition by C. H. Spurgeon: Romans8:23-39.
 
 [Concluded from Sermon #3255, Volume 57&mdash;THE PEARL OF PATIENCE.]
 
@@ -109,7 +109,7 @@ Moreover whom He did predestinate, them He also called: and whom He called, them
 
 31, 32. What shall we then say to these things? If God is for us who can be against us? He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also give us all things?'After having given us His own Son, what is there that He can withhold from us if it is for our real good? No, He has already virtually given us all
 
-things in giving Him to us! [See Sermons #159, Volume 3&mdash;THE TRUE CHRISTIAN's BLESSEDNESS; #355, Volume 7&mdash;PORTRAITS OF CHRIST; #1043, Volume 18&mdash;GLORIOUS PREDESTINATION; #241, Volume 5&mdash;PREDESTINATION AND CALLING and #627, Volume 11&mdash;JUSTIFICATION AND GLORY]
+things in giving Him to us! [See Sermons #159, Volume 3&mdash;THE TRUE ChristIAN's BLESSEDNESS; #355, Volume 7&mdash;PORTRAITS OF Christ; #1043, Volume 18&mdash;GLORIOUS PREDESTINATION; #241, Volume 5&mdash;PREDESTINATION AND CALLING and #627, Volume 11&mdash;JUSTIFICATION AND GLORY]
 
 33, 34. Who shall lay anything to the charge of God's elect? It is God that justifies. Who is it that condemns? It is
 
