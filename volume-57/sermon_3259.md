@@ -44,7 +44,7 @@ The religion of Jesus Christ is not a religion of performances. It has its ordin
 
 The text suggests two things, then, as to faith's way of approach. If I want to get faith I must hear, but I must mind whatI hear. And I must mind howI hear.
 
-LET US REMEMBER, THEN, THAT FAITH COMES THROUGH THE WORD OF GOD.
+LET US REMEMBER, THEN, THAT FAITH COMES THROUGH THE WORD OF God.
 
 Soul, would you have faith? Then mind what it is you hear, for the hearing must be "by the Word of God." Faith comes by hearing, but not by hearing anything and everything! The hearing is "by the Word of God" and only as the preaching is according to the Word of God will God bless it. God never blessed a lie to the creation of a newborn spirit. The Truth of God has vitality in it&mdash;only the Word of God is the living Seed in the soul!
 
@@ -68,7 +68,7 @@ To you, Sinner, I would also say hear the preacher who speaks pointedly. Do not 
 
 Take heed what you hear, for if you hear the Word of God preached in the power of the Spirit of God, then faith comes by such hearing!
 
-LET US BE ASSURED THAT FAITH WILL COME BY HEARING.
+LET US BE ASSURED THAT FAITH WILL COME by HEARING.
 
 If we would get faith, we must take care how we hear, as well as what we hear. The hearing is, itself, almost as important as the preaching. Faith does not come by every sort of hearing. There have been persons who have heard the Gospel for many years, but they have really heard nothing, for it has gone in one ear and out the other. Faith does not come by such hearing!
 
@@ -96,7 +96,7 @@ Now we are going our several ways&mdash;what report am I to carry back to my Mas
 
 Young Man yonder, is it nothing to you that Jesus should die? I ask your heart, young Woman, for my dear Lord and Master. And you, old Friend, your life is drawing to its close&mdash;it would have been better if you had given Christ the morning of your days&mdash;yet He will accept you even now if you will come to Him! May He give you the Divine Grace to rest upon Him, now, to trust Him this very hour! Then, where He is, there shall you be, also, through the efficacy of His great atoning Sacrifice! God grant it, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 11.
+Exposition by C. H. Spurgeon: Hebrews 11.
 
 In this Chapter we read of the wonders of faith. But I have never read a Chapter setting forth the wonders of unbelief. Unbelief is barren, impotent, a mere negation, a dead and accursed thing! But faith bears fruit! Faith produces good works! Faith achieves marvels!
 
@@ -124,7 +124,7 @@ Accounting that God was able to raise him up, even from the dead from which he a
 
 can raise the dead," says Faith, and that is a most comforting Truth of God! O you bereaved ones, wear that ring! [See
 
-Sermons #107, Volume 3&mdash;FAITH; #2100, Volume 35&mdash;FAITH ESSENTIAL TO PLEASING GOD; #2513, Volume 43&mdash;HOW TO PLEASE GOD; #2740, Volume 47&mdash; WHAT IS ESSENTIAL IN COMING TO GOD? and #2147, Volume 46&mdash;NOAH's FAITH, FEAR, OBEDIENCE AND SALVATION.] O you who fear to die, wear that priceless jewel! It will be better than any amulet or talisman that the ancients ever wore!
+Sermons #107, Volume 3&mdash;FAITH; #2100, Volume 35&mdash;FAITH ESSENTIAL TO PLEASING God; #2513, Volume 43&mdash;HOW TO PLEASE God; #2740, Volume 47&mdash; WHAT IS ESSENTIAL IN COMING TO God? and #2147, Volume 46&mdash;NOAH's FAITH, FEAR, OBEDIENCE AND SALVATION.] O you who fear to die, wear that priceless jewel! It will be better than any amulet or talisman that the ancients ever wore!
 
 20, 21. By faith Isaac blessed Jacob and Esau concerning things to come. By faith Jacob, when he was dying, blessed both the sons of Joseph and worshipped, leaning upon the top of his staff Faith can bless other people as well as the Believer, himself! It not only brings good cheer into a man's own heart, but it enables him to speak words of love and consolation to his children. Dying Jacob pronounces living blessings upon his sons and upon their sons generation after generation!
 
@@ -140,7 +140,7 @@ By faith the walls of Jericho fell down after they were compassed about seven da
 
 31-33. By faith the harlot Rahab perished not with them that believed not, when she had received the spies with
 
-peace. And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and [See Sermons #1401, Volume 24&mdash;JACOB WORSHIPPING ON HIS STAFF; #966, Volume 16&mdash;JOSEPH's BONES; #1421, Volume 24&mdash;THE HIDING OF MOSES BY FAITH; #163, Volume 18&mdash;MOSES' DECISION and #2030, Volume 34&mdash;MOSES&mdash;HIS FAITH AND DECISION.]
+peace. And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and [See Sermons #1401, Volume 24&mdash;JACOB WORSHIPPING ON HIS STAFF; #966, Volume 16&mdash;JOSEPH's BONES; #1421, Volume 24&mdash;THE HIDING OF MOSES by FAITH; #163, Volume 18&mdash;MOSES' DECISION and #2030, Volume 34&mdash;MOSES&mdash;HIS FAITH AND DECISION.]
 
 of Jephthae, of David also, and Samuel, and of the Prophets who through faith subdued kingdoms, worked righteousness, obtained promises, stopped the mouths of lions&mdash;Remember Daniel in the lions' den and then ask yourself, "What is there that faith cannot do?"
 
