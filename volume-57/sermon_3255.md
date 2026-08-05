@@ -2,7 +2,7 @@
 
 "You have heard of the patience of Job, and have seen the end of the Lord, that the Lord is full of pity and of tender mercy." James 5:11.
 
-[Another Sermon by Mr. Spurgeon upon the whole verse is #1845, Volume 31&mdash;THE PITY OF THE LORD&mdash;THE COMFORT OF THE AFFLICTED.]
+[Another Sermon by Mr. Spurgeon upon the whole verse is #1845, Volume 31&mdash;THE PITY OF THE Lord&mdash;THE COMFORT OF THE AFFLICTED.]
 
 WE need to be reminded of what we have heard, for we are far too ready to forget. We are also so slow to consider and meditate upon what we have heard that is profitable to have our memories refreshed. At this time we are called upon to recollect that we have heard of the patience of Job. We have, however, I trust, gone beyond mere hearing, for we have also seen i n the story of Job that which it was intended to set vividly before our mind's eye. "You have heard of the patience of Job, and have seen the end of the Lord." The Romish priest professes to make men hear the voice of the Gospel by seeing, but the Scriptural way is to make men see the Truth of God by hearing. Faith, which is the soul's sight, comes by hearing. The design of the preaching of the Gospel to the ear is "to make all men see what is the fellowship of the mystery which from the beginning of the world has been hid in God, who created all things by Jesus Christ." Inward sight is the result of all fruitful hearing!
 
@@ -64,7 +64,7 @@ Job by his trials and patience received not only double Grace, and double wealth
 
 Once more, Job by his trials and the Grace of God was lifted up into the highest position of usefulness. He was useful before his trial as few men of wealth and influence have been, but now his life possesses an enduring fruitfulness which blesses multitudes every day! Even we who are here this afternoon "have heard of the patience of Job." All the ages have this man for their teacher. Brothers and Sisters, we do not know who will be blessed by our pains, by our bereavements, by our crosses if we have patience under them! Specially is this the case with God's ministers, if He means to make much of them, their path to usefulness is up the craggy mountain's side. If we are to comfort God's afflicted people, we must, first, be afflicted ourselves. Tribulation will make our wheat fit to be bread for saints. Adversity is the choicest book in our library, printed in black letters, but grandly illuminated! Job makes a glorious comforter and preacher of patience, but no one turns either to Bildad, Zophar, or Eliphaz, who were "miserable comforters" because they had never been miserable. You, dear Sisters, whom God will make daughters of consolation to your families, must in your measure pass through a scholarship of suffering&mdash;a sword must pass through your own hearts if you are to be highly favored and blessed among women. Yet, let us all remember that affliction will not bless us if it is impatiently borne. If we kick at the goad, it will hurt us, but it will not act as a fitting stimulus. If we rebel against God's dispensations, we may turn His medicines into poisons and increase our grief by refusing to endure them. Be patient, be patient, be patient and the dark cloud shall drop a sparkling shower! "You have heard of the patience of Job." Imitate it. "You have seen the end of the Lord." Rejoice in it. "He is full of pity and of tender mercy." Yield yourselves to Him. Divine Spirit, plant in us the sweet flower of patience, for our patient Savior 's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 8:1-22.
+Exposition by C. H. Spurgeon: Romans 8:1-22.
 
 This precious Chapter reminds us of the description of the land of Havilah, "where there is gold, and the gold of that land is good."
 
@@ -80,7 +80,7 @@ For the Law of the Spirit of life in Christ Jesus has made me free from the Law 
 
 4. For what the Law could not do, in that it was weak through the flesh, God sending His own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh: that the righteousness of the Law might be fulfilled in us who walk
 
-not after the flesh, but after the Spirit [See Sermons #699, Volume 12&mdash;SIN CONDEMNED AND EXECUTED BY CHRIST JESUS and #2228, Volume 37&mdash; THE LAW's FAILURE AND FULFILLMENT.] If there are any men in the
+not after the flesh, but after the Spirit [See Sermons #699, Volume 12&mdash;SIN CONDEMNED AND EXECUTED by Christ Jesus and #2228, Volume 37&mdash; THE LAW's FAILURE AND FULFILLMENT.] If there are any men in the
 
 world who keep the Law of God, they are the very persons who do not hope to be saved by the keeping of it, for they have by faith found righteousness in Christ! And now by love and gratitude they are put under the power of the Law of the spiritual life in Christ and they so live, by God's Grace, that they do manifest the holiness of the Law in their lives.
 
@@ -116,7 +116,7 @@ But if you, through the Spirit&mdash;That living, immortal power.
 
 13, 14. Do mortify the deeds of the body, you shall live. For as many as are led by the Spirit of God, they are the
 
-Sons of God [See Sermon #1220, Volume 21-THE LEADING OF THE SPIRIT, THE SECRET TOKENS OF THE SON OF GOD.] Oh, high dignity and blessed priv lege! As soon as we get away from the dominion of the flesh and come to be led by the Spirit of God, and so become spiritual men, we have the evidence that we are the sons of God, for "God is a Spirit," so His sons must be spiritual.
+Sons of God [See Sermon #1220, Volume 21-THE LEADING OF THE SPIRIT, THE SECRET TOKENS OF THE SON OF God.] Oh, high dignity and blessed priv lege! As soon as we get away from the dominion of the flesh and come to be led by the Spirit of God, and so become spiritual men, we have the evidence that we are the sons of God, for "God is a Spirit," so His sons must be spiritual.
 
 For you have not received the spirit of bondage again to fear. We did have it once, and it worked some good effect upon us for the time being. When we were under the Law, we felt ourselves to be in slavery, and that made us go to Christ for liberty.
 
@@ -124,7 +124,7 @@ But you have received the Spirit of adoption, whereby we cry, Abba, Father. Oh, 
 
 The Spirit itself bears witness with our spirit, that we are the children of God. [See Sermons #339, Volume 6&mdash;the
 
-SONS OF GOD; #402, Volume 7&mdash;THE JOINT-HEIRS AND THEIR DIVINE PORTION and #2961, Volume 51-"HEIRS OF GOD."] What better testimony can we have than that of these two witnesses, first of our own spirit and then of the Holy Spirit, Himself, "that we are the children of God?" Note that this is not spoken concerning everybody. The doctrine of the universal Fatherhood of God is a doctrine of the flesh&mdash;not of the Spirit&mdash;it is not taught anywhere in God's Word. This is a Fatherhood which relates only to those who are spiritua-we are born into it by the new birth and brought into it by an act of Divine Grace in adoption. "Beloved, now are we the sons of God," this is a special privilege that belongs only to those who are spiritual!
+SONS OF God; #402, Volume 7&mdash;THE JOINT-HEIRS AND THEIR DIVINE PORTION and #2961, Volume 51-"HEIRS OF God."] What better testimony can we have than that of these two witnesses, first of our own spirit and then of the Holy Spirit, Himself, "that we are the children of God?" Note that this is not spoken concerning everybody. The doctrine of the universal Fatherhood of God is a doctrine of the flesh&mdash;not of the Spirit&mdash;it is not taught anywhere in God's Word. This is a Fatherhood which relates only to those who are spiritua-we are born into it by the new birth and brought into it by an act of Divine Grace in adoption. "Beloved, now are we the sons of God," this is a special privilege that belongs only to those who are spiritual!
 
 17, 18. And if children, then heirs; heirs of God, and joint-heirs with Christ, if we suffer with Him, that we may be also glorified together. For I reckon that the sufferings of this present time are not worthy to be compared with the Glory which shall be revealed in us. Do we suffer now? Then let us wait for something better that is yet to come! Yes, we do suffer, and in this we are in accord with the whole creation of God, for the whole creation is just now, as it were, enduring birth pangs. There is something better coming, but meanwhile it is troubled and perplexed, moaning and groaning.
 
