@@ -50,7 +50,7 @@ It was not, however, the prayer, but her faith that captured the heart and comma
 
 If God enables you to do this, depend upon it, your eternal life is sure! God help you thus to pray and believe, and before long you shall go your way and, "according to your faith, so shall it be done unto you." The Lord dismiss you with His blessing for Jesus Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 15; PSALM 42.
+Exposition by C. H. Spurgeon: Matthew 15; Psalm 42.
 
 Verse 1. Then the scribes and Pharisees who were of Jerusalem came to Jesus, saying&mdash; Our Lord had been busily engaged in healing the sick, and now these pettifoggers came round about Him to try and worry Him. They were a kind of mosquito swarm to Christ&mdash;had He not been a perfect Man they might have worried Him.
 
@@ -118,7 +118,7 @@ Therefore will I remember You from the land of Jordan, and from the heights of H
 
 Deep calls unto deep at the noise of Your waterfalls; all Your waves and Your biilows are gone over me. They are God's waves and God's billows, so he will not mind them. Our Father rules the stormiest deeps and the noisiest depths of the soul only speak as He permits them. Be of good cheer!
 
-9. Yet the LORD will command His loving kindness in the daytime, and in the night His song shall be with me, and my prayer unto the God of my life. I will say unto God my Rock, Why have You forgotten me? Why go I mourning because of the oppression of the enemy? He had tried his "whys" on himself. Now he comes with his "whys" to his God, and God will answer him. Our Father permits His children to plead with Him. You are permitted to say, "O God, show me why You contend with me." And He will be pleased to let you see the reason, or, if not, to give you faith enough to be satisfied without a reason.
+9. Yet the Lord will command His loving kindness in the daytime, and in the night His song shall be with me, and my prayer unto the God of my life. I will say unto God my Rock, Why have You forgotten me? Why go I mourning because of the oppression of the enemy? He had tried his "whys" on himself. Now he comes with his "whys" to his God, and God will answer him. Our Father permits His children to plead with Him. You are permitted to say, "O God, show me why You contend with me." And He will be pleased to let you see the reason, or, if not, to give you faith enough to be satisfied without a reason.
 
 As with a sword in my bones, my enemies reproach me; while they say daily unto me, Where is your God? Rather monotonous this. "Where is your God?" is all they can say. They are rather short of wit when they must always hang on to the same old taunt. If ever you hear of a new heresy, it is only an old heresy with a new soul put to it!
 
