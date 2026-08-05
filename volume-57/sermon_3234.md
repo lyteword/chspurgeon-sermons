@@ -38,7 +38,7 @@ And, to close this part of the subject, the Christian is a stranger as to the sh
 
 Death, and bidding him depart from us, we might rather beckon him to come for us! Come quickly, blessed messenger, to summon us to the Presence of the King! Come, chariot of fire and horses of fire, and take the servant of the Lord to be forever with his gracious Master and Savior! Of course, I am saying all this in complete subservience to the will of God. He knows the best time and way to end our earthly service and, after all, it matters not when and how we go Home to Heaven! And if we "are alive and remain unto the coming of the Lord," we "shall not prevent (or have any preference over) them which are asleep. For the Lord, Himself, shall descend from Heaven with a shout, with the voice of the archangel, and with the trumpet of God: and the dead in Christ shall rise first; then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air, and so shall we always be with the Lord. Therefore comfort one another with these words."
 
-Now, secondly, notice that DAVID WAS a STRANGER WITH GOD&mdash;and so is the true Christian. The
+Now, secondly, notice that DAVID WAS a STRANGER WITH God&mdash;and so is the true Christian. The
 
 worldling is a stranger to God, but the true Believer in Jesus is a stranger with God&mdash;and there is an eternal difference between the two!
 
@@ -102,7 +102,7 @@ And dying is but going Home" And going Home is not hard work. Going Home is not 
 
 Yet, alas, there are some here who may well dread their Home-going, for they are strangers to God, "aliens from the commonwealth of Israel, and strangers from the covenants of promise, having no hope, and without God in the world." O Soul, if that is your condition, do not remain a stranger to God a moment longer! Repent of your sin and trust God to forgive it for Jesus sake! "Believe on the Lord Jesus Christ and you shall be saved." And then, though you will be a stranger, here, you will not be stranger up there where He is! God bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM39.
+Exposition by C. H. Spurgeon: Psalm39.
 
 This Psalm gives a description of David's experience and conduct when stretched upon a sickbed. He appears to have felt impatience working within him, which I am sorry to say is a very common disease with most of us when God's hand is heavy upon us. Yet David struggled against his impatience. Though he felt it, he would not know it, lest he should thereby open the mouths of his enemies and cause them to speak evil of his God. Let us imitate his restraint if we resemble him in the temptation to impatience.
 
@@ -114,7 +114,7 @@ I was dumb with silence, I held my peace, even from good; and my sorrow was stir
 
 My heart was hot within me, while I was musing, the fire burned: then spoke I with my tongue. He could not hold his peace any longer&mdash;it would have been well if he had done so, for he uttered an unwise prayer when he spoke with his tongue&mdash;
 
-LORD, make me to know my end. That is what you and I are apt to say when we get into a little trouble&mdash;we want to die and get away from it all! We say that we long to be with Christ, but I am afraid that it is often only a lazy wish to share the spoils of victory without fighting the battle&mdash;to receive the saints' wages without doing the saints' work and to enter into Heaven without the toils and dangers of the pilgrims' way! Perhaps this has been the case with us, sometimes, when we have thought that our aspirations were of the best and holiest kind. When David prayed, "Lord, make me to know my end," his prayer was not a very wise one, but the next sentences were not quite as foolish&mdash;
+Lord, make me to know my end. That is what you and I are apt to say when we get into a little trouble&mdash;we want to die and get away from it all! We say that we long to be with Christ, but I am afraid that it is often only a lazy wish to share the spoils of victory without fighting the battle&mdash;to receive the saints' wages without doing the saints' work and to enter into Heaven without the toils and dangers of the pilgrims' way! Perhaps this has been the case with us, sometimes, when we have thought that our aspirations were of the best and holiest kind. When David prayed, "Lord, make me to know my end," his prayer was not a very wise one, but the next sentences were not quite as foolish&mdash;
 
 And the measure of my days, what it is; that I may know how frail I am. Oh, that we could all know how frail we are! But we reckon upon living for years when we have scarcely any more minutes left! We think our life's hour-glass is full when the sands have almost run out. And although the hand of God's great clock may be upon the striking-point, we think our brief hour has but just begun!
 
