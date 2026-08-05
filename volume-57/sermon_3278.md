@@ -69,7 +69,7 @@ Perhaps some of you think you would be content with crumbs or bones from God's t
 
 So, Sinner, go to the great God with your great sin, and ask for great Grace that you may be washed in the great fountain filled with the blood of the great Sacrifice&mdash;and you shall have the great salvation which Christ has procured! And for it you shall ascribe great praise forever and ever to Father, Son and Holy Spirit. God grant that it may be so, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM51.
+Exposition by C. H. Spurgeon: Psalm51.
 
 It is a Psalm and, therefore, it is to be sung. It is dedicated to the Chief Musician and there is music in it, but it needs a trained ear to catch the harmony. The sinner with a broken heart will understand the language and also perceive the sweetness of it&mdash;but as for the proud and the self-righteous, they will say, "It is a melancholy dirge," and turn away from it in disgust. There are times, to one under a sense of sin, when there is no music in the world like that of the fifty-first Psalm! But it is music for the chief Musician, for "there is joy in the presence of the angels of God over one sinner that repents." And this is the Psalm of penitence&mdash;there is joy in it&mdash;and it makes joy even to the Chief Musician, himself!
 
@@ -109,7 +109,7 @@ Deliver me from bloodguiltiness, O God, You God of my salvation: and my tongue s
 
 "But surely," says someone, "there is nobody here who needs to pray thatprayer!" Well, there is one in the pulpit, at least, who often feels that he has need to pray it, for what will happen if I preach not the Gospel or if I preach it not with all my heart? It may be that the blood of souls shall be required at my hands! And, my Brothers and Sisters, if anything in your example should lead others into sin, or if the neglect of any opportunities that are presented to you should lead others to continue in their sin till they perish, will not the sin of bloodguiltiness be possible to you? I think you had better, each one, pray David's prayer, "Deliver me from bloodguiltiness, O God, You God of my salvation." "And then, O Lord, if I once get clear of that, 'my tongue shall sing aloud of Your righteousness.'"
 
-O Lord, open You my lips. He is afraid to open them himself lest he should say something amiss. Pardoned sinners are always afraid lest they should err again. [See Sermons #1130, Volume19&mdash;THE CHRISTIAN's GREAT BUSINESS and #713, Volume 12&mdash; SOUL-MURDER&mdash;WHO IS GUILTY?]
+O Lord, open You my lips. He is afraid to open them himself lest he should say something amiss. Pardoned sinners are always afraid lest they should err again. [See Sermons #1130, Volume19&mdash;THE ChristIAN's GREAT BUSINESS and #713, Volume 12&mdash; SOUL-MURDER&mdash;WHO IS GUILTY?]
 
 15, 16. And my mouth shall show forth Your praise. For You desire no sacrifice; else would I give it "Whatever there is in the whole world that You desire, I would gladly give it to You, my God."
 
