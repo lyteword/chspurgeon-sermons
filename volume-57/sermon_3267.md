@@ -16,7 +16,7 @@ ten upon our conscience, was removed by the removal of the sin, itself, which we
 
 The shadow of a rock is remarkably cooling, and so was the Lord Jesus eminently comforting to us. The shadow of a
 
-rock is more [See Sermons #1243, Volume 21&mdash;RIVERS OF WATER IN a DRY PLACE; #2856, Volume 49&mdash;OUR HIDING PLACE and #3031, Volume 53&mdash; LANDLORD AND TENANT.] dense, more complete and more cool than
+rock is more [See Sermons #1243, Volume 21&mdash;RIVERS OF WATER IN a DRY PLACE; #2856, Volume 49&mdash;OUR HIDING PLACE and #3031, Volume 53&mdash; LANDLord AND TENANT.] dense, more complete and more cool than
 
 any other shade&mdash;and so the peace which Jesus gives passes all understanding&mdash;there is none like it! No chance beam darts through the rock shade, nor can the heat penetrate as it will do in a measure through the foliage of a forest. Jesus is a complete shelter&mdash;and blessed are they who are "under His shadow." Let them take care that they abide there and never venture forth to answer for themselves, or to brave the accusations of Satan.
 
@@ -79,7 +79,7 @@ Alas, there is a way of always showing self in what we do, and we are all too re
 
 These are mere surface thoughts. The subject deserves a series of discourses. Your best course, my beloved Friends, will be to enlarge upon these hints by a long personal experience of abiding under His shadow. May God the Holy Spirit lead you into it and keep you there, for Jesus' sake.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 91; 63.
+Exposition by C. H. Spurgeon: PsalmS 91; 63.
 
 A Psalm written for comfort, but it is not addressed to all mankind, neither, I venture to say, to all Believers, but only those who are described in the first verse.
 
@@ -101,7 +101,7 @@ You shall not be afraid of the terror by night; nor of the arrow that flies by d
 
 And if there is a covert allusion here to spiritual dangers&mdash;to the darts of the Wicked One and to the alarms which fill the soul when the Presence of God is withdrawn&mdash;if you dwell near to God you shall know no fear of these things, for neither death nor Hell can injure the man that lives in God!
 
-6-10. Nor for the pestilence that walks in darkness, nor for the destruction that waits at noonday. A thousand shall fall at your side, and ten thousand at your right hand; but it shall not come near you. Only with your eyes shallyou behold and see the reward of the wicked. Because you have made the LORD, which is my refuge, even the Most High, your habitation; there shall no evil befall you, neither shall any plague come near your dwelling. And it is very wonderful when men have lived near to God and have received special faith to grasp such a promise as this! How they have outlived
+6-10. Nor for the pestilence that walks in darkness, nor for the destruction that waits at noonday. A thousand shall fall at your side, and ten thousand at your right hand; but it shall not come near you. Only with your eyes shallyou behold and see the reward of the wicked. Because you have made the Lord, which is my refuge, even the Most High, your habitation; there shall no evil befall you, neither shall any plague come near your dwelling. And it is very wonderful when men have lived near to God and have received special faith to grasp such a promise as this! How they have outlived
 
 the most deadly pestilences! I collected, some time ago, a little list of names of devout men who in the times of pestilence remained in the field to visit the sick and to attend to those who were dying&mdash;and it is marvelous that they outlived all&mdash;and their names stand now upon the catalog of fame as benefactors of the race. They had special faith given and they used that faith in trusting in God! I have already said that I do not believe that this applies to all Believers, for good men die as well as bad men in days of pestilence, but there are some who dwell near to God to whom the promise comes with special power&mdash;and they have been able to do and dare for God without fear&mdash;and their faith has been abundantly rewarded.
 
