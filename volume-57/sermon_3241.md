@@ -6,7 +6,7 @@ This question may be very properly put to those who have no faith at all&mdash;a
 
 I shall address this question, then, first of all, to God's people. And in the next place, to the unconverted.
 
-First, LET US SPEAK TO GOD's PEOPLE.
+First, LET US SPEAK TO God's PEOPLE.
 
 Let me say to begin with, that this is a question which must have been peculiarly painful to Him who asked it. The faith in which they were lacking was faith in Him&mdash;their Master, their Lord who had loved them from before the foundation of the world and who intended to shed His precious blood for them&mdash;and to make them His companions in Glory, world without end! Yet they had no faith in Him! Let the Lord Jesus come to you, my Brothers and Sisters, and I think you will detect much sorrow in the tone of His voice when He asks, "How is it that you have no faith, or so little faith in Me? I have loved you. I have loved you to the death&mdash;remember Gethsemane and Golgotha&mdash;remember all that I did and am still doing for you. How is it that you doubt Me?" Beloved, if we doubt our fellow men, it is not strange, for Judas is one of a large family. But to doubt the Savior, the faithful and true Friend that sticks closer than a brother&mdash;this is a cut as unkind as any of the lashes which fell upon His shoulders when He was chastised in Pilate's Hall!
 
@@ -53,7 +53,7 @@ I suppose, however, that the real reason of our lack of faith lies in this&mdash
 
 So here I leave this point with you Christians, only I shall beg to come round in spirit and say to all doubting Christians here, "How is it that you have no faith?" I will set you the question of my text for you to answer between now and next Sunday. Give an account of your unbelief&mdash;and if you can give a good account of it, pray let us hear it! I never heard any good excuse made for that wicked sinner, Mr. No-Belief. He cannot be put to death, I fear, but I often wish that he could be blown to pieces from the muzzles of the guns of the promises! Oh, that the last rag of him and the last remnant of him were clean destroyed! John Bunyan, in his Holy War, pictures the citizens of Mansoul going round to pick up the bones of the traitors and burying them all, "till," he says, "there was not the least bone, or piece of a bone of a traitor left." I wish we could get to that state&mdash;that there might not be the least bone, or piece of a bone of a doubter left, so that we might sing confidently concerning our God.
 
-Now, solemnly and most affectionately, I WOULD SPEAK TO THOSE WHO HAVE NEVER BELIEVED IN CHRIST.
+Now, solemnly and most affectionately, I WOULD SPEAK TO THOSE WHO HAVE NEVER BELIEVED IN Christ.
 
 To some of you, that head that once was crowned with thorns is no object of reverence. You have never looked up to "the Man of Sorrows," and felt that "surely He has borne our griefs, and carried our sorrows." It is nothing to you that Jesus should die. Up to this moment you have been a stranger to Him, so I beg to ask you the question, "How is it that you have no faith?" The question is not an impertinent one, but a very natural one&mdash;allow one who would do you good to press it upon your minds.
 
@@ -79,7 +79,7 @@ But mark you, if this question does not haunt you, now, the day will come when s
 
 Oh, may you never need to be asked that question again, but may you now believe on the Lord Jesus Christ and be saved! Amen.
 
-MARK4:35-41.
+Mark4:35-41.
 
 Verses 30, 36 And the same day, when the evening was come, He said unto them, Let us pass over unto the other side. And when they had sent away the multitude Telling them that Christ would give them no more instruction that day, and that they had better go back to their homes. There are some preachers who have great gifts of dispersion, it does not take them long to scatter a congregation&mdash;but I expect that Christ's disciples found it to be no easy task to send away the crowds that had been listening to their Master's wondrous words. But, "when they had sent away the multitude"&mdash;
 
@@ -89,7 +89,7 @@ And there arose a great windstorm&mdash;Our friend, John Macgregor, "Rob Roy," t
 
 And the waves beat into the ship, so that it was now full of water. No doubt they baled out the boat with all their might, and did their best to prevent it from sinking, yet, "it was now full of water." But where was their Lord and Master, and what was He doing while the storm was raging?
 
-And He was in the stern, asleep on a pillow. [See Sermon #1121, Volume 19&mdash;CHRIST ASLEEP IN THE VESSEL&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.orgj He was quite at home upon the wild waves-
+And He was in the stern, asleep on a pillow. [See Sermon #1121, Volume 19&mdash;Christ ASLEEP IN THE VESSEL&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.orgj He was quite at home upon the wild waves-
 
 "Rocked in the cradle of the deep"&mdash;
 
