@@ -70,7 +70,7 @@ Brothers and Sisters, we are, ourselves, saved, are we not? Come, before you go 
 
 There was a young man here, one Thursday night, when I closed with some such words as these, who derived lasting benefit from them. He was a gentleman doing a large business, to whom it had never occurred that he might preach Christ. It did occur to him that night&mdash;and he straightway went to the town in which he lived and began to preach in the streets! He is now the pastor of a large Church, though he still continues his business&mdash;and his is an example to be imitated by many! I would to God that some young man might be quickened to feel that he must do something, for Israel perhaps, for Christ, certainly! And you, Sisters, may you feel a Divine impulse upon you while you pray God to visit the vine which He has planted! May He also visit you and make you fruitful vines unto His praise! The Lord bless everyone of you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM46.
+Exposition by C. H. Spurgeon: Psalm46.
 
 To the ChiefMusician for the sons of Korah, a Song upon Alamoth.
 
@@ -94,7 +94,7 @@ God is in the midst of her; she shall not be moved: God shall help her, and that
 
 The heathen raged, the kingdoms were moved: He uttered His voice, the earth melted. God has but to speak and His stoutest foe shall dissolve like snow when the sun shines on it.
 
-7-9. The LORD ofHosts is with us; the God of Jacob is our refuge. Selah. Come, behold the work of the Lord, what desolation He has made in the earth. He makes wars to cease unto the ends of the earth; He breaks the bow, and cuts the spear in sunder; He burns the chariot in the fire. [See Sermon #190, Volume 4&mdash;the desolation of the lord, the consolation of his
+7-9. The Lord ofHosts is with us; the God of Jacob is our refuge. Selah. Come, behold the work of the Lord, what desolation He has made in the earth. He makes wars to cease unto the ends of the earth; He breaks the bow, and cuts the spear in sunder; He burns the chariot in the fire. [See Sermon #190, Volume 4&mdash;the desolation of the lord, the consolation of his
 
 SAINTS.] Here the Psalmist invites us to behold what God has
 
@@ -104,4 +104,4 @@ Be still, and know that I am God&mdash;-Here is the command and here is the reas
 
 I will be exalted among thee heathen, I will be exalted in the earth. If God is willing to wait, you need not be impatient. His time is the best time and He will be exalted in due time.
 
-The LORD of Hosts is with us; the God of Jacob is our refuge. Selah.
+The Lord of Hosts is with us; the God of Jacob is our refuge. Selah.
