@@ -10,7 +10,7 @@ The two ordinances of our holy religion were intended, I take it, to sum up the 
 
 It is very important that we should always carry in our minds the remembrance of these two Truths of God&mdash;first, that Jesus Christ "came by water, "that is, it was His Divine purpose to purify His people and make them holy. And, secondly, that Jesus Christ "came by blood," that is, it was His grand aim and objective to deliver His people from the guilt of sin. These are the two topics upon which I am going to speak to you as the Holy Spirit shall graciously guide me.
 
-So, first, JESUS CHRIST "CAME BY WATER"&mdash;it was His Divine purpose to purify His people.
+So, first, Jesus Christ "CAME by WATER"&mdash;it was His Divine purpose to purify His people.
 
 It is manifest that there was an urgent necessity for this purification, for all of us had become as an unclean thing in the sight of God. Even our righteousnesses were as filthy rags. We could not cleanse ourselves, neither could we obtain cleansing through the works of the Law. Yet it was imperatively necessary that we should be made holy&mdash;otherwise, where God is and where His holy angels dwell, we could never be&mdash;and, therefore, what we ourselves could not do, and what the Law could not do, "God sending His own Son in the likeness of sinful flesh" has perfectly accomplished!
 
@@ -48,7 +48,7 @@ Yes, that awful trinity of evil&mdash;the world, the flesh and the devil&mdash;s
 
 How many of us have already proved the purifying power of this "water" by which Christ came? Of course, I need hardly point out to you that there is no support here for the unscriptural doctrine of baptismal regeneration! The water that flowed from Christ's side is typical of the cleansing work of the Truth that He has revealed, even as He said to His disciples, "You are clean through the Word which I have spoken unto you." Have you, Beloved, felt the cleansing power of the Truth as it is in Jesus? If not, God grant that you may realize it now&mdash;and to Him shall be the praise forever!
 
-Now, secondly, I have to remind you that JESUS CHRIST CAME BY BLOOD AS WELL AS BY WATER. Not by water only, but by water and blood&mdash;that is to say, it was His grand aim and objective, by His atoning Sacrifice, to deliver His people from the guilt of sin!
+Now, secondly, I have to remind you that Jesus Christ CAME by BLOOD AS WELL AS by WATER. Not by water only, but by water and blood&mdash;that is to say, it was His grand aim and objective, by His atoning Sacrifice, to deliver His people from the guilt of sin!
 
 There are some who are continually trying to get the Doctrine of the Atonement out of the Bible. Certain philosophical divines, who have just a smattering of theological knowledge, and who seem to forget the couplet&mdash;
 
@@ -88,7 +88,7 @@ heart for all that Christ has done for you will constrain you to walk before Him
 
 Now, many of us are coming to the Table of our Lord to commune with Him and with one another&mdash;and there we must especially think of how He came to us, "not by water only, but by water and blood." The broken bread will remind us of His body broken for us, and the wine in the cup will bring to our remembrance His precious blood of the New Covenant shed for us for the remission of our sins. Oh, what a wonder it is that we, who once were as the prodigal son in the far country, wasting our substance in riotous living, or perhaps even herding among the swine&mdash;are now welcomed at our Father's board among His happy forgiven children! A few years ago, no, even a few months ago, some of us would not have been spending the Sabbath evening among the Lord's people in a House of Prayer&mdash;and it would never have entered into our thoughts that we should be found sitting as honored guests at His Table! Our ideas of enjoyment, then, were very different from what they are now. The laughter of fools was then in our mouth and perhaps the song of the drunkard issued from our lips. But now, by God's Grace, a blessed change has been worked in us, for we are washed, we are sanctified, we are justified in the name of the Lord Jesus and by the Spirit of our God! So, as we come to this Table of Communion, let us come humbly remembering what we once were, thankfully recollecting what Christ has done for us and earnestly entreating Him to continue and complete His good work in us by purifying us with water even as He has already put away our guilt by His blood! And to Him shall be the Glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: IJOHN5.
+Exposition by C. H. Spurgeon: IJohn5.
 
 Verse 1. Whoever believes that Jesus is the Christ is born of God. [See Sermon #979, Volume 17&mdash;faith and regeneration.] Take comfort, Believer, from that declaration! You have accepted Jesus as the Christ, the anointed of God, so the Apostle affirms that you are "born of God." It may be only lately that you have been born-again. You may be only a babe in Grace, but if you have a true faith in Christ as God's Anointed, you are "born of God."
 
