@@ -92,7 +92,7 @@ Beloved, have this same faith. May God work it in you and then your fear shall o
 
 May the Lord bless every one of you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN6:1-21.
+Exposition by C. H. Spurgeon: John6:1-21.
 
 Verses 1, 2. After these things Jesus went over the Sea ofGalilee, which is the Sea ofTiberias. Anda great multitude followed Him, because they saw His miracles which He did on them that were diseased. Many of them curiosity-mongers wanting to see more wonders worked. Others of them sick, themselves, and anxious to be healed. Wherever Jesus went, a throng went with Him.
 
@@ -110,7 +110,7 @@ And Jesus said, Make the men sit down. Now there was much grass in the place. So
 
 10, 11. In number about five thousand. And Jesus took the loaves; and when He had given thanks&mdash;[See Sermon #2216,
 
-Volume 37&mdash;THE LAD's LOAVES IN THE LORD's HANDS.] Among the Jews, it
+Volume 37&mdash;THE LAD's LOAVES IN THE Lord's HANDS.] Among the Jews, it
 
 is always the master of the house who gives thanks. They do not call upon a child to say Grace, but the father of the family, like a priest in his own house, stands up and pronounces a blessing upon the food. It is a beautiful thought that Christ
 
@@ -124,7 +124,7 @@ Then those men, when they had seen the miracle that Jesus did, said, This is of 
 
 15-17. When Jesus, therefore perceived that they would come and take Him by force, to make Him a king, He de-partedagain into a mountain alone. And when evening was now come, His disciples went down to the sea, and entereda boat, and went over the sea toward Capernaum. And it was now dark, and Jesus had not come to them. [See Sermon #2945,
 
-Volume 51 &mdash;NIGHT&mdash;AND JESUS NOT THERE.] Then it was very dark. Ah,
+Volume 51 &mdash;NIGHT&mdash;AND Jesus NOT THERE.] Then it was very dark. Ah,
 
 my dear Friends, perhaps you know what it is to be in trouble and to mourn an absent Lord! This is a direful description of an especially dark night for the disciples&mdash;"It was now dark, and Jesus had not come to them."
 
