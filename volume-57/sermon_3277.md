@@ -2,7 +2,7 @@
 
 "And they came to Jericho: and as Jesus went out of Jericho with His disciples and a great number of people, blind Bartimaeus, the son of Timaeus, sat by the highway side begging. And when he heard that it was Jesus of Nazareth, he began to cry out, and say, Jesus, You Son of David, have mercy on me! And many charged him that he should hold his peace: but he cried the more a great deal, You Son of David, have mercy on me! And Jesus stoodstill, and commanded him to be called. And they called the blind man, saying unto him, Be of good comfort, rise, He calls you. And he, casting away his garment, rose, and came to Jesus. And Jesus answered and said unto him, What will you that I should do unto you? The blind man said unto Him, Lord, that I might receive my sight. And Jesus said unto him, Go your way; your faith has made you whole. And immediately he received his sight, and followed Jesus in the way." Mark 10:46-52.
 
-[Another Sermon by Mr. Spurgeon upon the same text is #266, Volume 5&mdash;THE BLIND BEGGAR.]
+[Another Sermon by Mr. Spurgeon upon the same text is #266, Volume 5&mdash;the blind beggar.]
 
 The blind man described in this narrative is a picture of what I earnestly desire that every hearer and reader of my sermons may become. In his first condition, Bartimaeus was a type of what the sinner is by nature&mdash;blind, hopelessly blind, unless the healing Savior shall interfere and pour in upon him the light of day. It is not, however, to this point that we shall now turn our thoughts, but to his conduct while seeking sight. This man, by God's great mercy, so acted that he may be held up as an example to all who feel their spiritual blindness, and earnestly desire to see the Light of Grace!
 
@@ -16,7 +16,7 @@ Learn a simple lesson from this man, I pray you. He made use of what sense he ha
 
 I wish to drive at one point only&mdash;which will stand out clearly when I have finished. But I must go a little roundabout, to compass my design. May the Holy Spirit dictate every word!
 
-My first remark is that this man is a pattern for all seekers BECAUSE HE SOUGHT THE Lord UNDER GREAT DISCOURAGEMENTS.
+My first remark is that this man is a pattern for all seekers because he sought the Lord under great discouragements.
 
 He cried to the Lord Jesus so loudly, so unceremoniously and at so unseasonable a time, as others thought, that they checked him and bade him hold his peace! But this was like pouring spirits upon a fire and it only made him the more intense in his pleading.
 
@@ -36,7 +36,7 @@ Are you, my Friend, one who has cried for mercy long and found it not? Have you 
 
 Note, then, that this blind man is an example to us because he did not take much notice of discouragements, whatever they were. He had within himself a spring of action which none could dry up! He was resolved to draw near to the Great Physician and put his case into His hands. O my dear Friend, let this be your firm determination and you, too, shall yet be saved!
 
-Observe, in the second place that there came a change over the scene. "Jesus stood still and commanded him to be called." Here we see him under a warmer and brighter light for a moment, and we remark that AFTER a WHILE HE RECEIVED ENCOURAGEMENT.
+Observe, in the second place that there came a change over the scene. "Jesus stood still and commanded him to be called." Here we see him under a warmer and brighter light for a moment, and we remark that after a while he received encouragement.
 
 The encouragement was not given to him by our Lord, but by the same persons who had formerly rebuked him. Christ did not say to him, "Be of good comfort," because the man was not in need of such a word. He was by no means backward, or disconsolate, or staggered by the opposition he had met with. Jesus Christ said, "Be of good cheer" in the case of the poor paralytic man who was let down by cords from the roof because he was sad at heart. But this man was already of good courage and, therefore, the Savior gave him no superfluous consolation. The onlookers were pleased with the hope of seeing a miracle and so offered their encouragements which were not of any great worth or weight since they came from lips which a few minutes before had been singing quite another tune!
 
@@ -59,7 +59,7 @@ Yet there is another call which overtops these three, for the universal call and
 
 Dear Friend, when you feel within yourself a secret drawing to Christ which you do not understand, but yet cannot resist&mdash;when you experience a tenderness of spirit, a softness of heart towards the Lord&mdash;when your soul kindles with a hope to which it was previously a stranger, and your heart begins to sigh and almost to sing at the same time for love of God&mdash;when the Spirit of God brings Jesus near you, and brings you near to Jesus&mdash;then we may apply to you this message, "Be of good comfort, rise. He calls you."
 
-Thus have I tried to set this man before you as receiving comfort. But we shall see that HE LEAPED OVER BOTH DISCOURAGEMENT AND ENCOURAGEMENT AND CAME TO Jesus HIMSELF!
+Thus have I tried to set this man before you as receiving comfort. But we shall see that he leaped over both discouragement and encouragement and came to Jesus himself!
 
 Bartimaeus did not care one whit more for the comfort than he did for the rebuffs of those around him. This is a point to be well observed. You who are seeking Jesus must not rest in our encouragements, but press on to Jesus. We would cheer you, but we hope you will not be satisfied with our cheering. Do what this blind man did! Let us read the text again&mdash;"Jesus stood still, and commanded him to be called. And they called the blind man, saying unto him, Be of good comfort, rise. He calls you." "And (it should be, "but," not, "and") he, casting away his garment, rose and came to Jesus." He did not give them a "thank you" for their comfort. He did not stop half a minute to accept or to reject it. He did not need to&mdash;he wanted Christ, and nothing else!
 
@@ -95,7 +95,7 @@ Verses 25, 26. And, behold a certain lawyer stood up and tempted Him, saying, Ma
 
 27, 28. And he answering said, You shall love the Lord your God with allyour heart, and with allyour soul, and with allyour strength, and with allyour mind; and your neighbor as yourself And He said unto him, You have answered right this do and you shall live. This lawyer was one of those people who know the Law, yet do it not. No doubt Jesus struck the nail on the head when he gave him that very pertinent answer, "This do, and you shall live." This lawyer was trying to live by teaching the Law, by his knowledge of it, but Christ insists that nothing will do but a practical carrying
 
-out of its precepts. [There is a Sermon by Mr. Spurgeon upon the whole of this passage #1360, Volume 23&mdash;THE GOOD SAMARITAN.]
+out of its precepts. [There is a Sermon by Mr. Spurgeon upon the whole of this passage #1360, Volume 23&mdash;the good samaritan.]
 
 But he, willing to justify himself said unto Jesus, And who is my neighbor? He probably meant to say, "I have not any neighbors. I have no near relations. My father and mother are dead and gone, I have no brothers and sisters, and therefore I may be excused from the duty of loving anyone else as I love myself." Jesus did not answer the lawyer's question, "Who is my neighbor?" He did not turn the eyes of the man to the poor mendicants who needed charity, but he made him look at himself.
 
