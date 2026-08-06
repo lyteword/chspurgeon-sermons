@@ -2,13 +2,13 @@
 
 "Your eyes shall see the King in His beauty: they shall behold the land that is very far off." Isaiah 33:17.
 
-This morning [See Sermon #533, Volume 9&mdash;THE QUEEN OF THE SOUTH, OR, THE EARNEST ENQUIRER.] I spoke to you concerning the visit of the Queen of Sheba to King Solomon and tried to use it as illustration of the spirit in which sinners should come to Him who is far wiser and greater than Solomon. This evening I am going to continue in much the same strain while I try to speak to you, under the guidance of the Holy Spirit, from the well-known words which I have just read in your hearing. This passage is a rather difficult one to explain&mdash;at least certain expositors have done their best to make it appear to be so! They imagine that we have here a threat that the Jews should be carried away to Nineveh as captives and that in that far-off land they should see the Assyrian "king in his beauty." But I venture to say that if you read our text in its context, you will see that a threat would be altogether out of place here in the midst of so many precious promises to the people of God! There is nothing but love and kindness for them&mdash; where there are threats, they are for their enemies!
+This morning [See Sermon #533, Volume 9&mdash;the queen of the south, or, the earnest enquirer.] I spoke to you concerning the visit of the Queen of Sheba to King Solomon and tried to use it as illustration of the spirit in which sinners should come to Him who is far wiser and greater than Solomon. This evening I am going to continue in much the same strain while I try to speak to you, under the guidance of the Holy Spirit, from the well-known words which I have just read in your hearing. This passage is a rather difficult one to explain&mdash;at least certain expositors have done their best to make it appear to be so! They imagine that we have here a threat that the Jews should be carried away to Nineveh as captives and that in that far-off land they should see the Assyrian "king in his beauty." But I venture to say that if you read our text in its context, you will see that a threat would be altogether out of place here in the midst of so many precious promises to the people of God! There is nothing but love and kindness for them&mdash; where there are threats, they are for their enemies!
 
 It is possible that the historical setting of the text is this&mdash;that the Jews who had seen their king, Hezekiah, in his "day of trouble, and of rebuke, and blasphemy"&mdash;when Sennacherib's vile letter had been brought to him, should live to see that same "king in his beauty" when the angel of the Lord had so mysteriously smitten the great host in the camp of the Assyrians and Hezekiah had gone up to the House of the Lord to return public thanks for the miraculous deliverance which had been worked in answer to prayer and in accordance with Isaiah's prophecy. But all students of Scripture must agree that "the King" here mentioned is a type of the Lord Jesus Christ&mdash;and that the promise of the text relates partly to the latter-day Glory, and more fully and more gloriously to the saint's experience in Heaven&mdash;"Your eyes shall see the King in His beauty: they shall behold the land that is very far off."
 
 Without any further preface, I will try to direct your thoughts to these four things. First, a King pre-eminent Secondly, a vision predicted. Thirdly, a peculiar beauty. And, fourthly, a land possessed.
 
-First, dear Friends, we have plainly enough in the text, a KING PRE-EMINENT&mdash;"Your eyes shall see the King." No name is given and no name is needed. It is here as it was when the spouse began the Canticles by singing, "Let Him kiss me with the kisses of His mouth." There was no need to say to whom she was referring, for the chaste bride wanted no kisses from anyone but her Beloved!
+First, dear Friends, we have plainly enough in the text, a king pre-eminent&mdash;"Your eyes shall see the King." No name is given and no name is needed. It is here as it was when the spouse began the Canticles by singing, "Let Him kiss me with the kisses of His mouth." There was no need to say to whom she was referring, for the chaste bride wanted no kisses from anyone but her Beloved!
 
 I am speaking to those who know the Lord and, therefore, I say to them&mdash;You know, Beloved, that our Lord Jesus is King by Divine right. He is the brightness of His Father's Glory and the express Image of His Person. God has appointed Him heir of all things, and by Him God made the worlds. "For by Him were all things created that are in Heaven, and that are in earth, visible and invisible, whether they be thrones, or dominions, or principalities or powers: all things were created by Him, and for Him: and He is before all things, and by Him all things consist." He "is the blessed and only Potentate, the King of kings, and Lord of lords." Well did the inspired Prophet write concerning Him, "The government shall be upon His shoulder: and His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace. Of the increase of His government and peace there shall be no end." It is by His permission that other kings reign! And when He pleases, He can in a moment remove the mightiest monarchs from their throne! He is the only Sovereign who is King by Divine right&mdash;the absolute Disposer of all events, to whom all power in
 
@@ -31,7 +31,7 @@ I must not forget to remind you that our Lord Jesus Christ is still King in His 
 
 "Bring forth the royal diadem, And crown Him Lord of all!"
 
-Now, secondly, we have a VISION PREDICTED&mdash;"Your eyes shall see the King."
+Now, secondly, we have a vision predicted&mdash;"Your eyes shall see the King."
 
 Mark well that this is not a vision to be seen by you who have never looked to Christ by faith and who have never trusted to His precious blood to cleanse you from your sin! The sight of the glorified Savior is only for those who have looked upon the dishonored Savior hanging on the Cross of Calvary&mdash;it is their eyes that "shall see the King in His beauty."
 
@@ -68,7 +68,7 @@ I will add only one more characteristic of this vision of Christ&mdash;it will b
 
 Ah, well, that everlasting Sabbatismos&mdash;that eternal keeping of Sabbath may be nearer than you think! And when once you enter into that blessed state, you will remain in it forever. "Your eyes," my poor Brother or Sister, "shall see the King in His beauty," and you shall never lose that rapturous vision!
 
-Time fails me, so I must go on to the third point, a PECULIAR BEAUTY&mdash;"Your eyes shall see the King in His beauty."
+Time fails me, so I must go on to the third point, a peculiar beauty&mdash;"Your eyes shall see the King in His beauty."
 
 Now, the "beauty" of a king consists, first, in his person, so you shall see the beauty of Christ's Person. It is delightful to think of the priestly, prophetic and royal offices of our Lord Jesus Christ, but our choicest meditations must ever cluster around His blessed Person. All His garments smell of myrrh, aloes and cassia. His name is as ointment poured forth, but He, Himself, is "altogether lovely." It is no phantom, no shadow at which we are to look, but we are to see the King, Himself&mdash;that King who once was the Babe in Bethlehem, the Carpenter at Nazareth&mdash;who went about doing good, preaching the Gospel, healing the sick, raising the dead, feeding the fainting multitudes&mdash;that same Jesus who agonized in Gethsemane and died on Calvary&mdash;this is the King whom we are to see in all the Glory of His combined Deity and Humanity, very God of very God, yet just as truly Man!
 
@@ -92,7 +92,7 @@ Further, the "beauty" of a king sometimes consists in the splendor of his court 
 
 "With them numbered may we be,
 
-Now and through eternity!" IV. Now I close with but a brief mention of a LAND POSSESSED.
+Now and through eternity!" iv. Now I close with but a brief mention of a land possessed.
 
 Read the text thus, "the land that is very far off' from sinners. They look upon this world as something that is present to their senses, but they regard the world to come as so "very far off " that it hardly seems to concern them at all! They take no more interest in the "Land that is very far off" than a poor farmer in a country village takes in some Republic in South America of which he has only heard the name. They know no more about Heaven than swine know about the stars in the firmament, perhaps not as much, for the swine can see the stars, but Heaven is "very far of" from sinners so long as they remain in their sins! Yet if they will but leave their sins and look to Jesus in all the beauty of His substitutionary Sacrifice for the guilty, that far-off land shall be brought very near to them and, in God's good time, they shall enter it and abide there forever and ever!
 
@@ -129,11 +129,11 @@ And cried with a loud voice, saying, Salvation to our God which sits upon the Th
 
 13-17. And one of the elders answered saying unto me, Who are these which are arrayedin white robes? And whence came they? And I said unto him, Sir you know. And he said to me, These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb [See Sermon #1316, Volume 22&mdash;why the heavenly
 
-ROBES ARE WHITE.] Therefore are they before the Throne of God,
+robes are white.] Therefore are they before the Throne of God,
 
 and serve Him day and night in His Temple&mdash;and He that sits on the Throne shall dwell among them. They shall hunger no more, neither thirst anymore, neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the Throne shall feed them, and shall lead them unto living fountain of waters: and God shall wipe away all tears from
 
-their eyes. [See Sermons #643, Volume 11&mdash;NO TEARS IN HEAVEN; #1800, Volume 30&mdash;HEAVEN BELOW and #2128, Volume 36&mdash;HEAVEN ABOVE AND HEAVEN BELOW.] This is a vision of the heavenly life above. I want you
+their eyes. [See Sermons #643, Volume 11&mdash;no tears in heaven; #1800, Volume 30&mdash;heaven below and #2128, Volume 36&mdash;heaven above and heaven below.] This is a vision of the heavenly life above. I want you
 
 to keep the last two verses in your minds, for we shall presently meet with very similar expressions in a place where, perhaps, you would scarcely have expected to find them&mdash;and there you will see that those expressions are used concerning
 
@@ -149,7 +149,7 @@ Then I said, Ihave labored in vain, Ihave spent My strength for nothing, and in 
 
 8, 9. And I willpreserve You, and give You for a Covenant of the people, [See Sermon #103, Volume 2&mdash;christ in the coveNANT.] to establish the earth, to cause to inherit the desolate
 
-heritages, that You may say to the prisoners, Go forth; to them that are in darkness, Show yourselves. [See Sermon #2397, Volume 41&mdash;"OUT OF DARKNESS INTO LIGHT."] This is Christ's work today,
+heritages, that You may say to the prisoners, Go forth; to them that are in darkness, Show yourselves. [See Sermon #2397, Volume 41&mdash;"out of darkness into light."] This is Christ's work today,
 
 to call out the forgotten ones who are hidden away in the dungeons of the Bastille of Despair. He comes and calls them, "Go forth...show yourselves." And at His bidding they appear, even as Lazarus came forth from the grave at His command. Now listen&mdash;this is what becomes of those who come out of sin's prison at Christ's call! They become His sheep&mdash;
 
@@ -159,18 +159,18 @@ to call out the forgotten ones who are hidden away in the dungeons of the Bastil
 
 11-13. And I will make all My mountain a way, and My highways shall be exalted. Behold, these shall come from far: and, lo, these from the north and from the west; and these from the land of Sinim. Sing, O heavens, and be joyful, O earth; and break forth into singing, O mountains: for the Lord has comforted His people. [See Sermon #3012, Volume 52&mdash;god
 
-COMFORTING HIS PEOPLE.] Well may Heaven and Earth and mountains sing when they have such a theme for their songs as this!
+comforting his people.] Well may Heaven and Earth and mountains sing when they have such a theme for their songs as this!
 
 13, 14. And will have mercy upon His afflicted. But Zion said, The Lord has forsaken me, and my Lord has forgotten me. Zion said so, but it was not true! Hear what the Lord says&mdash;
 
 15, 16. Can a woman forget her sucking child, that she should not have compassion on the son of her womb? Yes, they may forget, yet will 1not forget you. Behold, I have engraved you upon the palms of My hands. [See Sermons #512, Volume
 
-9&mdash;a PRECIOUS DROP OF HONEY and #2672, Volume 46&mdash;NEITHER FORSAKEN NOR FORGOTTEN.] However unnatural an earthly mother may prove to be, God will never forsake or forget one of His children&mdash;
+9&mdash;a precious drop of honey and #2672, Volume 46&mdash;neither forsaken nor forgotten.] However unnatural an earthly mother may prove to be, God will never forsake or forget one of His children&mdash;
 
 "'Yet,'says the Lord, 'should Nature change And mothers, monsters prove, Sion still dwells upon the heart Of everlasting love.
 
 16-21. Your walls are continually before Me. Your children shall make haste, your destroyer and they that make you waste shall go forth from you. Lift up your eyes round about, and behold: all that gather themselves together, and come to you. As I live, says the Lord, you shall surely clothe yourselves with them all, as with an ornament, and bind them on you, as a bride does. For your waste andyour desolate places, and the land ofyour destruction, shall even now be too narrow by reason of the inhabitants, and they that swallowed you up shall be far away. The children which you shall have, after you have lost the other, shall say again in your ears, The place is too strait for me, give place to me that I may dwell. Then shall you say in your heart, Who has begotten me these, seeing I have lost my children, and am desolate, a captive and moving to and fro? And who has brought up these? Behold, I was left alone; these, where had they been? [See
 
-Sermons #2692, Volume 46&mdash;CHURCH INCREASE and #2776, Volume 48&mdash;THE CHURCH a MOTHER.] Oh, that we might often have such a glad surprise as this and be made to marvel at the Lord's gracious dealings with us!
+Sermons #2692, Volume 46&mdash;church increase and #2776, Volume 48&mdash;the church a mother.] Oh, that we might often have such a glad surprise as this and be made to marvel at the Lord's gracious dealings with us!
 
 22-26. Thus says the Lord God, Behold, I will lift up My hand to the Gentiles, and set up My standard to the people: and they shall bring your sons in their arms, andyour daughters shall be carried upon their shoulders. And kings shall be your nursing fathers, and their queens your nursing mothers: they shall bow down to you with their face toward the earth, and lick up the dust ofyour feet, andyou shallknow that I am the Lord: for they shall not be ashamed that wait for Me. Shall the prey be taken from the mighty, or the lawful captive delivered? But thus says the Lord, Even the captives of the mighty shall be taken away, and theprey of the terrible shall be delivered: for I will contend with him that contends with you, and I will save your children. And I will feed them that oppress you with their own flesh; and they shall be drunk with their own blood, as with sweet wine: and all flesh shall know that I the Lord am your Savior and your Redeemer, the Mighty One of Jacob. The enemies of the Lord's people are His enemies, too, and He will overthrow them in His own good time&mdash;and make the whole world know that He is their Savior and Redeemer, the Mighty One of Jacob!
