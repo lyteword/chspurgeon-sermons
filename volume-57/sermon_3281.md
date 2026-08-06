@@ -2,11 +2,11 @@
 
 "The broad wall." Nehemiah 3:8.
 
-IT seems that around Jerusalem of old, in the time of her splendor, there was a broad wall which was her defense and her glory. Jerusalem is a type of the Church of God. It is always well when we can see clearly, distinctly and plainly that around the Church to which we belong there runs a broad wall.
+It seems that around Jerusalem of old, in the time of her splendor, there was a broad wall which was her defense and her glory. Jerusalem is a type of the Church of God. It is always well when we can see clearly, distinctly and plainly that around the Church to which we belong there runs a broad wall.
 
 This idea of a broad wall around the Church suggests three things, separation, security and enjoyment. Let us examine each of these in its turn.
 
-First, the SEPARATION of the people of God from the world is like that broad wall surrounding the holy city of Jerusalem.
+First, the separation of the people of God from the world is like that broad wall surrounding the holy city of Jerusalem.
 
 When a man becomes a Christian, he is still in the world, but he is no longer to be of it. He was an heir of wrath, but he has now become a child of Grace. Being of a distinct nature, he is required to separate himself from the rest of mankind, as the Lord Jesus Christ did, who was "holy, harmless, undefiled, and separate from sinners." The Lord's Church was separated in His eternal purpose. It was separated in His Covenant and decree. It was separated in the Atonement, for even there we find that our Lord is called "the Savior of all men, specially of those that believe." An actual separation is made by Divine Grace, is carried on in the work of sanctification and will be completed in that day when the heavens shall be on fire and the saints shall be caught up together with the Lord in the air&mdash;and in that last tremendous day He shall divide the nations as a shepherd divides the sheep from the goats! And then there shall be a great gulf fixed, across which the ungodly cannot go to the righteous, neither shall the righteous approach the wicked.
 
@@ -45,7 +45,7 @@ Would you tempt God? Would you challenge the desolating flood? Whenever the Chur
 
 "A garden walled around, Chosen and made peculiar ground"&mdash; you shall have your Master's company, your graces shall grow, you shall be happy in your own souls and Christ shall be honored in your lives!
 
-Secondly, the broad wall round about Jerusalem INDICATED SAFETY.
+Secondly, the broad wall round about Jerusalem indicated safety.
 
 In the same way, a broad wall round Christ's Church indicates her safety, too. Consider who they are that belong to the Church of God. A person does not become a member of Christ's Church by Baptism, nor by birthright, nor by profession, nor by morality. Christ is the Door into the sheepfold! Everyone who believes in Jesus Christ is a member of the true Church. Being a member of Christ, he is a member, consequently, of the body of Christ which is the Church. Now, around the Church of God&mdash;the election of Grace, the redeemed by blood, the peculiar people, the adopted, the justified, the sanctified&mdash;around the Church there are bulwarks of stupendous strength, munitions which guard them safely. When the foe came to attack Jerusalem, he counted the towers and bulwarks, and marked them well. And after he had seen the strength of the holy city, he fled! How could he ever hope to scale such ramparts as those? Brothers and Sisters, Satan often counts the towers and bulwarks of the New Jerusalem! Anxiously does he desire the destruction of the saints, but it shall never be. He that rests in Christ is saved! He who has passed through the gate of faith to rest in Jesus Christ may sing with joyful confidence&mdash;
 
@@ -71,7 +71,7 @@ As a broad wall which surrounds the saints of God is the work of the Holy Spirit
 
 "Here am I," will He say, "and the children that You have given Me. Of all whom You have given Me, I have lost none." He will keep all the saints even to the end! The honor of Christ is involved in this matter. If Christ loses one soul that leans upon Him, the integrity of His crown is gone&mdash;for if there should be one believing soul in Hell, the Prince of Darkness would hold up that soul and say&mdash;"Aha! You could not save them all! Aha! You Captain of Salvation, You were defeated here! Here is one poor little Benjamin, are Ready-to-Halt that You could not bring to Glory, and I have him to be my prey forever!" But it shall not be! Every gem shall be in Jesus' crown! Every sheep shall be in Jesus' flock! He shall not be defeated in any way, or in any measure, but He shall divide the spoil with the strong, He shall establish the cause He undertakes, He shall eternally conquer! Glory be unto His great and good name!
 
-The idea of a broad wall&mdash;and with this I close&mdash;SUGGESTS ENJOYMENT.
+The idea of a broad wall&mdash;and with this I close&mdash;suggests enjoyment.
 
 The walls of Nineveh and Babylon were broad&mdash;so broad that there was found room for several chariots to pass each other. Here men walked at sunset and talked and promoted good fellowship. If you have ever been in the city of York, you will know how interesting it is to walk around the broad walls there. But our figure is drawn from the Orientals. They were accustomed to come out of their houses and walk on the broad walls. They used them for rest from toil and for the manifold pleasures of recreation. It was very delightful, when the sun was going down and all was cool, to walk on those broad walls. And so, when a Believer comes to know the deep things of God and to see the defenses of God's people, he walks along them and he rests in confidence. "Now," he says, "I am at rest and peace. The destroyer cannot molest me. I am delivered from the noise of archers in the place of the drawing of water and here I can exercise myself in prayer and meditation. Now that salvation is appointed for walls and bulwarks, I will sing a song unto Him who has done these great things for me. I will take my rest and be quiet, for he that believes has entered into rest. There is therefore now no condemnation to them which are in Christ Jesus." Broad walls, then, are for rest, and so are our broad walls of salvation!
 
@@ -95,7 +95,7 @@ Verses 1-8. In You, O Lord, do I put my trust: let me never be put to confusion.
 
 7-11. I am at a wonder unto many, but You are my strong refuge. Let my mouth be filled with Your praise and with Your honor all the day. Cast me not off in the time of old age; forsake me not when my strength fails. For my enemies speak against me, and they that lay wait for my soul They take counsel together, saying, God has forsaken him: persecute and take him; for there is none to deliver him. Surely that ought to have been the reason for letting him alone! With right-minded persons it would have been so, but the devil and his children are arrant cowards and their argument is, "Persecute and take him: for there is none to deliver him." You might as well expect tenderness in a wolf as anything like bravery and chivalry in a persecutor!
 
-12-14. O God be not far from me: O my God, make haste for my help. Let them be confounded and consumed that are adversaries to my soul; let them be covered with reproach and dishonor that seek my hurt But I will hope continually, and will yet praise You more andmore. [See Sermons #2318, Volume 39&mdash;God's PUPIL, God's PREACHER&mdash;AN AUTOBIOGRAPHY and #3271, Volume 57&mdash;God, THE CHILDREN's TEACHER.] How was he going to do it?
+12-14. O God be not far from me: O my God, make haste for my help. Let them be confounded and consumed that are adversaries to my soul; let them be covered with reproach and dishonor that seek my hurt But I will hope continually, and will yet praise You more andmore. [See Sermons #2318, Volume 39&mdash;God's pupil, God's preacher&mdash;an autobiography and #3271, Volume 57&mdash;God, the children's teacher.] How was he going to do it?
 
 Already his mouth was filled with God's praise, so, surely he would fill his whole life with it, and his actions which would speak more loudly than his words, would bear daily testimony to the goodness of God.
 
@@ -117,4 +117,4 @@ And my soul, which You have redeemed. "The sprinkled blood is on my soul and, th
 
 My tongue also shall talk of Your righteousness all the daylong: for they are confounded, for they are brought
 
-unto shame, that seek my hurt. [See Sermon #998, Volume 17&mdash;MORE AND MORE.]
+unto shame, that seek my hurt. [See Sermon #998, Volume 17&mdash;more and more.]
