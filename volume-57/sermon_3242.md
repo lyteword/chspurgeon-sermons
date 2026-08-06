@@ -2,9 +2,9 @@
 
 "Lord, where are Your former loving kindnesses, which You swore unto David in Your truth?" Psalm 89:49.
 
-THE Lord had made an Everlasting Covenant with David, ordered in all things and sure, yet that Covenant was not intended to preserve him from trouble. When this Psalm was written, he had been brought very low. His crown had been cast down to the ground, his enemies had rejoiced over him and he had become a reproach to his neighbors. Then his thoughts flew back to the happier days of the past and the Covenant which the Lord had made with him&mdash;and either David, himself, or Ethan, writing on his behalf, enquired, in the words of our text, "Lord, where are Your former loving kindnesses, which You swore unto David in Your truth?"
+The Lord had made an Everlasting Covenant with David, ordered in all things and sure, yet that Covenant was not intended to preserve him from trouble. When this Psalm was written, he had been brought very low. His crown had been cast down to the ground, his enemies had rejoiced over him and he had become a reproach to his neighbors. Then his thoughts flew back to the happier days of the past and the Covenant which the Lord had made with him&mdash;and either David, himself, or Ethan, writing on his behalf, enquired, in the words of our text, "Lord, where are Your former loving kindnesses, which You swore unto David in Your truth?"
 
-Applying this passage to the people of God, I remark, first, that WE HAVE RECEIVED MANY MERCIES IN THE PAST.
+Applying this passage to the people of God, I remark, first, that we have received many mercies in the past.
 
 Is that too common a matter for you to think and talk about? If you know it so well, why do you forget it so often? The mercies of God wake us every morning so that we are as used to them as we are to the sunlight, yet some of us think but little of them. They follow us till the night and we get as accustomed to them as we do to our beds, yet perhaps some of us think less of them than we do of our beds! We have Providential mercies every moment of the day and every day of our lives&mdash;we can never count the number of them, for they are more than the sands upon the seashore! I am going, however, to speak of the spiritual mercies with which God has enriched us&mdash;the blessings of the upper springs&mdash;and it will help you to recall them if I take the list of them that is given at the beginning of the one hundred and third Psalm.
 
@@ -20,7 +20,7 @@ For the next clause in the Psalm is this, " who crowns you with loving kindness 
 
 We must not forget the next verse&mdash;" who satisfies your mouth with good things; so that your youth is renewed like the eagle's." If we are in Christ Jesus, we have all that we need&mdash;we are perfectly satisfied. We do not need a better Savior, we do not need a better hope, we do not need a better Bible, we do not need better promises. We doneed more faith, but we do not need a better ground of faith! We do desire to have more love to our Lord, but we do not desire a better Object for our love! We desire to always dive deeper and deeper, but only in the fathomless sea of Jesus' love! Others are roaming here and there, vainly seeking satisfaction, but our mouth is so filled with good things that we are satisfied. We asked and the Lord gave to us. We prayed for pardon and the Lord fully forgave us for Jesus' sake. We have received so much mercy from Him that our soul is satisfied and soars aloft as on an eagle's wings, leaving all terrestrial cares, sorrows and doubts far below us amid the earth-born clouds above which we have mounted by God's Grace!
 
-Now, having thus briefly recalled the Lord's former loving kindnesses, I have to remind you, in the second place, that WE ARE NOT ALWAYS CONSCIOUS OF THE SAME FLOW OF MERCY TOWARD US.
+Now, having thus briefly recalled the Lord's former loving kindnesses, I have to remind you, in the second place, that we are not always conscious of the same flow of mercy toward us.
 
 The Psalmist asks, "Lord, where are Your former loving kindnesses?" Well, where are they? Why, they are where they used to be, though we do not always realize them! The Lord's mercies have not changed, but our perception of them is not always as vivid as it ought to be. Let us again consider the mercies of which I have already spoken to you.
 
@@ -40,9 +40,9 @@ So is it with the last mercy in the list&mdash;" who satisfies your mouth with g
 
 so what can we need besides?
 
-Now, thirdly, WHY ARE WE NOT ALWAYS CONSCIOUS OF THE SAME FLOW OF MERCY TOWARD
+Now, thirdly, why are we not always conscious of the same flow of mercy toward
 
-US?
+us?
 
 Sometimes we miss our former comforts as the result of sin. Sin indulged is a certain barrier to happiness. No one can enjoy communion with Christ while turning aside to crooked ways. To the extent to which a Believer is inconsistent with his profession, to that extent will he be unhappy&mdash;and it will be no cause for surprise if he has to cry, "Lord, where are Your former loving kindnesses?" We must always distinguish between the punishment of sin which Christ endured on His people's behalf and the fatherly chastisement with which God visits upon them for their wrong-doing. Though He will not condemn them as a Judge, He will chastise them as a Father. And they cannot expect to enjoy the loving kindnesses of the Lord while they are enduring the strokes of His rod because of their transgressions!
 
@@ -52,9 +52,9 @@ The same result follows when any idol is set up in our heart. While we worship t
 
 Coldness of heart towards Godi s another cause of the loss of enjoyment of His favor. When the heart grows spiritually cold, the whole being soon gets out of order. If the heart is warm and vigorous, the pulsations throughout the entire frame will be kept strong and healthy, but when the heart is cold, the blood will be chilled in the veins and all the powers will be numbed and paralyzed. So, Beloved, see to it that in the power of the Holy Spirit you maintain the love of your espousals&mdash;that pristine warmth of holy affection which you delighted to manifest when first you knew the Lord&mdash; or else you will soon have to cry, "Lord, where are Your former loving kindnesses?" Live near to God and this shall not often be your cry! But if you backslide from Him, this shall soon be your sorrowful enquiry. If you have to mourn an absent God, seek to know the reason why He has withdrawn Himself from you&mdash;and repent of the sin that has separated you from Him.
 
-Now, Lastly, LET US REMEMBER THAT THE DIVINE COVENANT REMAINS FIRM AND STEADFAST
+Now, Lastly, let us remember that the divine covenant remains firm and steadfast
 
-UNDER ALL CHANGING CIRCUMSTANCES. The Covenant made with David was established by the oath of God. And Paul, writing to the Hebrews, says that "God, willing more abundantly to show unto the heirs of promise the immutability of His counsel, confirmed it by an oath, that by two Immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us."
+under all changing circumstances. The Covenant made with David was established by the oath of God. And Paul, writing to the Hebrews, says that "God, willing more abundantly to show unto the heirs of promise the immutability of His counsel, confirmed it by an oath, that by two Immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us."
 
 For our consolation, let us remember, first, that the parties to the Covenant are always the same. God has not one set of chosen ones today and another set tomorrow. In the Lamb's Book of Life there are not erasures of certain names and the insertion of others in their place. No, Beloved, that is not the way in which the Lord deals with His elect&mdash;He does not play fast and loose with them like that. He does not love them one day, and hate them the next. Oh, no!&mdash;
 
@@ -78,7 +78,7 @@ Exposition by C. H. Spurgeon: Psalm89.
 
 Verses 1, 2. I will sing of the mercies of the Lord forever: with my mouth will I make known Your faithfulness to all generations. For I have said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens.
 
-[See Sermon #1565, Volume 26&mdash;MASCHIL OF ETHAN, a MAJESTIC SONG.]
+[See Sermon #1565, Volume 26&mdash;maschil of ethan, a majestic song.]
 
 1 Here is an eternal song concerning eternal mercy! The mercy of the Lord is from everlasting to everlasting, so the saints' praise for the never-ending mercy must itself be without end. The Psalmist has made known God's faithfulness to all generations, not only by speaking of it, but especially by writing of it, for that which is written abides when that which is merely spoken is soon forgotten. God's faithfulness concerns Heaven as well as earth and He will establish it "in the very heavens."
 
@@ -94,7 +94,7 @@ the congregation of the saints on earth! In His gracious condescension, He allow
 
 You have a mighty arm: strong is Your hand, and high is Your right hanc. [See Sermons #674, Volume 12&mdash;the mighty
 
-ARM and #1314, Volume 22 which has the same title.] Amid all the varying expressions that the Psalmist uses, he continues to admire and magnify God's majestic might. Whether for the defense of His people or the overthrow of His enemies, His arm is mighty, yes, more than that, for it is Almighty! No human language can adequately describe that glorious hand which has only to be opened to satisfy the desire of every living thing!
+arm and #1314, Volume 22 which has the same title.] Amid all the varying expressions that the Psalmist uses, he continues to admire and magnify God's majestic might. Whether for the defense of His people or the overthrow of His enemies, His arm is mighty, yes, more than that, for it is Almighty! No human language can adequately describe that glorious hand which has only to be opened to satisfy the desire of every living thing!
 
 Justice and judgment are the habitation of Your Throne: mercy and truth shall go before Your face. What blessed heralds does the Lord employ! "Mercy and truth shall go before Your face." It is these gracious attributes, especially as they are displayed in the Person and work of the Lord Jesus Christ, that enable us even to welcome those sterner attributes&mdash;"justice and judgment," which are the habitation of God's Throne.
 
@@ -108,7 +108,7 @@ And in Your righteousness shall they be exalted. They shall mount to a higher pl
 
 17-19. For You are the Glory of their strength: and in Your favor our horn shall be exalted. For the Lord is our defense; and the Holy One of Israel is our king. Then You spoke in vision to Your holy one, and said, I have laid help
 
-upon One that is mighty; I have exalted One chosen out of the people. [See Sermon #11, Volume 1&mdash;THE PEOPLE's Christ.] This is the very marrow of the Gospel! This is, indeed, "the joyful sound" which makes us truly blessed&mdash;the fact that God did, of old, exalt "One chosen out of the people," with whom He entered into an Eternal Covenant, pledging Himself to bless us through Him.
+upon One that is mighty; I have exalted One chosen out of the people. [See Sermon #11, Volume 1&mdash;the people's Christ.] This is the very marrow of the Gospel! This is, indeed, "the joyful sound" which makes us truly blessed&mdash;the fact that God did, of old, exalt "One chosen out of the people," with whom He entered into an Eternal Covenant, pledging Himself to bless us through Him.
 
 I have found David My servant; with My holy oil have I anointed him. David was the means of bringing great blessings to the people over whom he ruled. God blessed the whole nation through him and the Covenant made with David was virtually a Covenant made with all the people of Israel. In like manner, the Covenant made with "great David's greater Son" is virtually made with all those for whom He stood as Surety and Representative. The essence of the Gospel lies in the Covenant which God has made with His Son, Jesus Christ, on behalf of all His chosen people. Notice that God
 
