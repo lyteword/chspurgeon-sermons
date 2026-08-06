@@ -2,7 +2,7 @@
 
 "What time I am afraid, I will trust in You." Psalm 56:3.
 
-IT must be a very difficult thing to be the first traveler through as unknown country, but it is a much more simple matter to travel where others have preceded us. However difficult may be the road, we discover our path by certain marks which they have left for us, and as we turn to the record of their journey, we say, "Yes, they said that here they came to a forest, and here is the forest. Here they spoke of a broad river and here they forded it. Here is exactly the spot which is marked&mdash;we are on the right road, for we are following in the tracks of those who have gone before." Now God in His Providence has placed us in "the ends of the world" as to time&mdash;a long caravan of pilgrims has preceded us, and they have left us marks on the way and records of their journey.
+It must be a very difficult thing to be the first traveler through as unknown country, but it is a much more simple matter to travel where others have preceded us. However difficult may be the road, we discover our path by certain marks which they have left for us, and as we turn to the record of their journey, we say, "Yes, they said that here they came to a forest, and here is the forest. Here they spoke of a broad river and here they forded it. Here is exactly the spot which is marked&mdash;we are on the right road, for we are following in the tracks of those who have gone before." Now God in His Providence has placed us in "the ends of the world" as to time&mdash;a long caravan of pilgrims has preceded us, and they have left us marks on the way and records of their journey.
 
 A notable one among the pilgrims to the skies was David, for his pilgrimage was so singularly varied. Some travel to Heaven amid sunshine almost all the way there. And some, on the other hand, seem to have storms from beginning to end. But David's case differed from these, for he had both the storms and the sunshine! No man had fairer weather than the King of Jerusalem, yet no man ever plowed his way through soil that was more deep with mire, nor through an atmosphere more loaded with tempest than did this man of many tribulations! He has been a kind of pioneer for us. I remember seeing, some years ago, the French army going through Paris and noticing some of the big, tall fellows&mdash;old men who had been in the wars of the first Napoleon. These went in front and they seemed to be worth all the rest that were behind. They were the pioneers that cleared the way for the others. Now David, and such as he, of whom we read in the Scriptures, are the grand old soldiers that bear the standard and lead the way&mdash;and we are the raw recruits that follow on behind them! Let us be thankful that we have some veterans to lead the vanguard!
 
@@ -10,7 +10,7 @@ Our text is rather an extraordinary one, yet it represents the experience of man
 
 You notice in the text, first, a complex condition&mdash;here is a man afraid and yet he is trusting. Then we will look at the natural side of this condition&mdash;"I am afraid." And then we will look at the gracious side&mdash;"I will trust in You."
 
-Notice, first, then, that here is David in a COMPLEX CONDITION. He says, "I am afraid," yet with the same breath he says, "I will trust in You." Is not this a contradiction? It looks like a paradox. Paradox it may be, but contradiction it is not! What strange creatures we are! I suppose every man is a trinity, certainly every Christian is&mdash;spirit, soul and body&mdash;and we may be in three states at once. And we may not know which of the three is our real state! The whole three may be so mixed up that we become a puzzle to ourselves. Though certain mental philosophers would say that I flagrantly err in asserting that such a thing can be, yet nevertheless I am quite certain that it is a very common experience of the child of God!
+Notice, first, then, that here is David in a complex condition. He says, "I am afraid," yet with the same breath he says, "I will trust in You." Is not this a contradiction? It looks like a paradox. Paradox it may be, but contradiction it is not! What strange creatures we are! I suppose every man is a trinity, certainly every Christian is&mdash;spirit, soul and body&mdash;and we may be in three states at once. And we may not know which of the three is our real state! The whole three may be so mixed up that we become a puzzle to ourselves. Though certain mental philosophers would say that I flagrantly err in asserting that such a thing can be, yet nevertheless I am quite certain that it is a very common experience of the child of God!
 
 It is even quite possible for us to find two minds and two wills&mdash;two sets of facilities within ourselves clashing and jarring and warring and contending with one another. In a record of some very notable experiences of doctors who attend upon the insane, there is a very singular case described of a man who was always sane regularly one day, as clear in the intellect and intelligent in judgment as any man&mdash;but the next day he was always insane. On the day on which he was sane, he used to talk about how the doctor ought to treat him on the morrow, and to express his surprise that he entered into such a state, reasoning in the most practical manner. He seemed to be two men! There is a record of another case, even more remarkable, of a man who would act and speak and think as an intelligent full-grown person, but after sleeping two or three days he would wake up a child, to learn like a child, to walk like a child, to speak like a child, and to all
 
@@ -24,7 +24,7 @@ So, too, you have been the subject of another phase of the same phenomenon in re
 
 I might go on to mention many other ways in which these two states of mind will come. I have found it frequently so in prayer when I have sought to draw near to God. An idle worldly spirit will bring ten thousand distracting thoughts to bear upon the soul and the heart will seem to say, "I cannot pray just now, I have other things to do. I must think of them." What is worse, the mind will persist in thinking of these things and they will come crowding in&mdash;some work that you have to do, perhaps some friend that you have to call upon, something you have forgotten&mdash;those things will come pouring in upon you as if in your own heart you said, "I do not want to pray." Yet at that very same time you have felt a holy craving, an insatiable longing to draw near to God in prayer and you have said, "I must pray, I cannot live without it. I must now have a period of fellowship with God, cost me what it may." These two things will be here&mdash;the praying and the not praying, the faithless and the believing struggling, one with another, and your poor spirit will be like ground that is trampled upon by two armies that are fiercely contending as to which shall get the mastery! You see that in David's case, when in the text he says, "I am afraid," yet adds, "I will trust in You."
 
-Now, secondly, let us look at THE NATURAL SIDE OF THIS CONDITION.
+Now, secondly, let us look at the natural side of this condition.
 
 David says, "I am afraid." Admire his honesty in making this confession. Some men would never have admitted that they were afraid. They would have blustered and said they cared for nothing! Generally there is no greater coward in this world than the man who never will acknowledge that he is afraid. But this hero of a thousand conflicts, this brave scion of the sons of men, honestly says, "I am afraid." Why was he afraid?
 
@@ -54,7 +54,7 @@ The same is the case, too, with the man who is afraid because of the thought of 
 
 This, then, is the natural side of the question. A man may be a true Believer, he may be a very David&mdash;and yet be afraid.
 
-Now take THE GRACIOUS SIDE OF IT&mdash;"What time I am afraid, I will trust in You."
+Now take the gracious side of it&mdash;"What time I am afraid, I will trust in You."
 
 "I will trust in You." How glorious is this confession of faith! It is not the expression of nature&mdash;it is a sign of Divine Grace. No man trusts in God unless there has first been a Divine work upon his soul! At least no man who is afraid can trust in God unless the Lord has taught his timorous spirit to fly like a dove to the sure dovecot cleft by Divine Grace in the Rock of Ages. Happy soul that has been taught the sacred art and mystery of believing in Jesus! It is the highest and noblest of all the practical sciences! God grant us Grace, what time we are afraid, to exercise ourselves in it!
 
@@ -110,7 +110,7 @@ And Jesus said, Make the men sit down. Now there was much grass in the place. So
 
 10, 11. In number about five thousand. And Jesus took the loaves; and when He had given thanks&mdash;[See Sermon #2216,
 
-Volume 37&mdash;THE LAD's LOAVES IN THE Lord's HANDS.] Among the Jews, it
+Volume 37&mdash;the lad's loaves in the Lord's hands.] Among the Jews, it
 
 is always the master of the house who gives thanks. They do not call upon a child to say Grace, but the father of the family, like a priest in his own house, stands up and pronounces a blessing upon the food. It is a beautiful thought that Christ
 
@@ -124,7 +124,7 @@ Then those men, when they had seen the miracle that Jesus did, said, This is of 
 
 15-17. When Jesus, therefore perceived that they would come and take Him by force, to make Him a king, He de-partedagain into a mountain alone. And when evening was now come, His disciples went down to the sea, and entereda boat, and went over the sea toward Capernaum. And it was now dark, and Jesus had not come to them. [See Sermon #2945,
 
-Volume 51 &mdash;NIGHT&mdash;AND Jesus NOT THERE.] Then it was very dark. Ah,
+Volume 51 &mdash;night&mdash;and Jesus not there.] Then it was very dark. Ah,
 
 my dear Friends, perhaps you know what it is to be in trouble and to mourn an absent Lord! This is a direful description of an especially dark night for the disciples&mdash;"It was now dark, and Jesus had not come to them."
 
