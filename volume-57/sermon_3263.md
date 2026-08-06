@@ -12,17 +12,17 @@ But David says more than that, and it is to this I call your attention. He says,
 
 It shall be my endeavor, then, for a little while, as God shall help me to command such an obedience and show you the excellence of that earnest pursuit which seeks out God's commandments.
 
-Such AN OBEDIENCE IS DEEPLY SPIRITUAL.
+Such an obedience is deeply spiritual.
 
 Were I simply to do that part of the Divine will which everybody else does. If, being a member of a certain Christian Church, I take my cue from my fellow members, or pin myself to the sleeve of my pastor and act precisely according to the fashion which everybody else is setting, I may be merely conforming to religious usages in a mechanical, dreamy, unspiri-tual, unacceptable way. It may not be the worship of God at all! It may be but a physical exercise following in the rut as the cart that is dragged there by the horse. Does it profit my character that I make proof of nothing but these grooves through which I am drawn by custom? But you will see at once that when a man bestirs himself to find out what the will of the Lord is, there is an exercise of the mind at once! The spirit is then, even before any action is taken, in a state of obedience&mdash;it is bowing itself reverently before the Most High and saying to Him, "What would You have me to do?" The man who seeks to know the Lord's will is never likely to become a mere formalist. His mind will be aware. Why, some of
 
 you, I dare say, have come here a good many times and you have sat through the service and have gone away again none the better because it has grown into a regular thing with you! I have sometimes noticed this in our worship. Dissenting worship is simple enough, but yet for all that there gets to be a formality about it. If it has been the habit of people to sit during the singing of the hymn, when they have been asked to stand up, they have felt that it was a dreadful innova-tion&mdash;quite a departure from the old mechanism! And should a verse be given out&mdash;have you not noticed it?&mdash;with a doxology or a chorus at the end, how many have dropped into their seats before we have got to the last line, and risen up again wondering what the preacher can be doing because their minds are not awake in the service of God! We are all prone to get into that kind of routine. Sitting in the same seat, or even standing on the same platform and going though the same form of worship produces in us mechanical service. But if we seek to know the Lord's will, it is evident that in that thing, at least, we have broken through the mechanical and got into that which is spiritual&mdash;worship which God says He will accept, for, "God is a Spirit, and they that worship Him must worship Him in spirit and in truth."
 
-The obedience which seeks to know the Lord's will also INDICATES THE TRUEST SINCERITY.
+The obedience which seeks to know the Lord's will also indicates the truest sincerity.
 
 A man who is not sincere in his obedience may conform to the regular order of that which he knows to be prescribed, but only the sincere man will seek to find out matters he is not yet acquainted with. Which is the better servant&mdash;the man who must always have his orders written for him every morning and who at night excuses himself for the neglect of many an obvious duty because, as he says, "It was not down on the paper, Sir. I have followed your instructions"&mdash;is he the better servant, or the other man who thinks after he has obeyed his orders, "What ought I to do for my master? Is there not this thing, or that thing which, though it may not be absolutely recorded or written down, yet is intended in the spirit of my instructions?" Do you not love the child who looks out for occasions and opportunities to please you? Do you not feel a satisfaction in accepting from a friend a kindness which may be almost unexpected and which manifests to you that he must have been thinking about you and has, perhaps, lain awake at night to consider how he could gratify or serve you? You feel that this is sincere friendship! So it is with your service for God. If you do only those duties which I stand here and write out to you so plainly that you cannot help seeing them, why, is there any great forwardness or fidelity of purpose in it? But if you go to that grand old Book and on your knees say to your Lord and Master, "I want to do all that I can to show how my heart loves You&mdash;teach me what You would have me do," this manifests a sincerity which is indisputable!
 
-Again, is not the seeking out of the Divine commands a PROOF OF AN INTENSE AFFECTION?
+Again, is not the seeking out of the Divine commands a proof of an intense affection?
 
 Common affection will do what it must, but intense affection will do all it can. A vehement enthusiasm, a constraining love, such as that which Jesus Christ deserves of us, says&mdash;
 
@@ -35,13 +35,13 @@ Common affection will do what it must, but intense affection will do all it can.
 
 Diligent enquiry in seeking out the Divine will manifests that holy intensity of affection which becomes the disciple of such a Lord as our Savior, Jesus Christ, and which I trust and pray always gleams, and shall gleam in the bosoms of many of us who have been redeemed by His precious blood!
 
-Further, this searching after the Divine Commandments indicates THE MATURE MANHOOD OF GRACE. The babe in Grace does that which is simply and obediently plain, but it is not to be expected that he will begin to
+Further, this searching after the Divine Commandments indicates the mature manhood of grace. The babe in Grace does that which is simply and obediently plain, but it is not to be expected that he will begin to
 
 search and pry into things which are not so clear until he has grown and had his senses exercised. At any rate, it is more excusable if the babe in Grace is more ready to be led by his fellow Christian than to be on his own account a deep searcher into the Divine Word. But the man who is a man in Christ, having grown in Grace, takes the Book and he says, "My Lord, I desire to serve You to the utmost stretch of my manhood. You have been pleased to give me an understanding,
 
 not that I may cringe at the foot of the priest and lower myself into a beast of burden to be driven wherever those incarnations of evil spirits may goad me on! No, but You have made me a man and given me mind, thought, capacity&mdash;and You have put into my hands a Book which I can understand, and here I am&mdash;assist me while I bow this judgment to Your sway, and teach me what Your mind is." God would have us all educated for the skies. We are here but minors. I trust, however, we have, many of us, passed our infancy! We are getting something beyond the mere first childhood of Grace and now we seek to know, and to practically know, the Lord's will and mind respecting us! If you would always be babes, then sit still and have this word and that put into your mouths, forms of prayer composed for your use and unintelligible creeds compiled for you to repeat! But if you would grow into men in Christ Jesus, come to the Book and keep and seek out the commands of God with full purpose of heart to obey them!
 
-I KNOW THERE WILL BE a GREAT MANY EXCUSES MADE.
+I know there will be a great many excuses made.
 
 In these days, people do not read their Bibles much. One reason why Romanism is popular is because it allows a man to get a deputy to do his thinking for him&mdash;and to do his praying for him. But what a poor affair it is with the man who keeps his brains in somebody else's head and carries his heart in somebody else's bosom! Are there not many of you who do not read the Word of God? We stand up as Protestants and say, "The Bible, and the Bible, alone, is the religion of Protestants!" And yet what multitudes never think of reading it! They hear a Chapter read in public service and, perhaps now and then, read a chapter at home. But as to downright studyof the Word and searching out the Divine meaning, I do believe that is an exercise to which many professors are totally unaccustomed! They do not engage in it regularly and constantly, nor come to it as a daily duty and a daily privilege. Indeed, their great theme is unsectarianism. Unsectarian-ism! That is the correct thing nowadays&mdash;unsectarianism! Which, being translated means&mdash;it does not signify which is which, whether it is right or wrong, it matters not one atom whether you obey God or obey man, whether you belong to a Church which is apostate from the Truth, or one that holds the Truth of God! Unsectarianism, my Friends, is treason
 
@@ -51,7 +51,7 @@ It is only the strong sectarian who can be true&mdash;I mean only the man who fo
 
 The world points its finger at the rigid Puritan and declaims against him&mdash;but the rigid Puritan is the man whom God accepts! Nor can he be too rigid in everything in which he believes the Divine will is concerned. "How liberal," says one. Yes, but let a servant be liberal with his own money, not with his master's. I have no right to liberality in principle. Principles and duties are things which I have no more right to touch than I have to take pains to alter the statute law of the realm! Yes, let the canons of law be altered and Acts of Parliament be burned in the fire, but let the Word of God stand fast forever! If any man preaches any other Gospel than that we have received, instead of saying, "No doubt he is an excellent, but a mistaken man," let us say with Paul, "Let him be accursed!" And until we get back the old spirit of following out the Master's mind in all things&mdash;personally, scrupulously, rigidly, our conscience keeping close to the Divine mind&mdash;we shall scarcely know what true obedience is! The Church greatly needs to be brought back to her true standing of obedience to her Lord and King!
 
-Taking this for granted, admitting that it is our duty to search out the Divine Command in all respects and to yield in nothing, whatever, you may ask, HOW ARE WE TO DISCOVER THE DIVINE MIND?
+Taking this for granted, admitting that it is our duty to search out the Divine Command in all respects and to yield in nothing, whatever, you may ask, how are we to discover the divine mind?
 
 Let me say at once, only by searching the Word of God, under the teaching of the Holy Spirit. Brothers and Sisters, let me warn you against the many ways in which men have sought to discover God's will apart from His Word&mdash;all foolish and some of them wicked! I have known some who have opened the Book as if the passage on which they should alight at haphazard became their oracle, or if another passage of a different complexion, irrespective of the context, should open or turn up, that should guide them. Do you not know that this was an old heathen custom? The Romans, using Virgil or some other poet, as you use your Bible, did just the same thing. When you are so doing, you are simply guilty of idolatry and might just as well go to the shrine of Delphi and consult the Pythian oracle, as thus tempt the Lord your God! We have known some cast lots to know what they should do&mdash;as if the most precarious hazard could interpret God's will which is clear and plain! I marvel how any civilized man can be so besotted as to do such things&mdash;and yet I know that this is an evil pastime and practice which lingers among some Christians!
 
@@ -59,7 +59,7 @@ Others judge of the Divine Mind by Providence . But what do you mean by Providen
 
 Others, too, judge of their duty by impressions. "If I feel it impressed upon my mind," says one, "I shall do it." Does God command you to do it? This is the proper question. If He does, you should make haste, whether it is impressed upon your mind or not! But if there is no command to that effect, or rather, if it diverges from the line of God's statutes and needs apology or explanation, hold your hand, for though you have ten thousand impressions, yet must you never dare to go by them! It is a dangerous thing for us to make the whims of our brain instead of the clear precepts of God, the guide of our moral actions. "To the Law and to the testimony"&mdash;this is the lamp that shows the Christian true light! Be this your chart! Be this your compass! But as to impressions, and whims, and fancies, and I know not what besides which some have taken&mdash;these are more wreckers' lights that will entice you on the rocks! Hold fast to the Word of God and nothing else! Whoever he shall be that shall guide you otherwise, close your ears to him! If at any time, through infirmity or weakness, I should teach you anything which is contrary to this Book, cast it from you! Hurl it away as chaff is driven from the wheat&mdash;if it is mine and not my Master's, cast it away! Though you love me, though I may have been the means of your conversion to God, think no more of what I say than of the very strangers in the street if it is not consistent with the teachings of the Most High. Our guide is His written Word, let us keep to this.
 
-MANY ARGUMENTS MIGHT BE STATED FOR SUCH OBEDIENCE AS THIS, but we shall only mention
+many arguments might be stated for such obedience as this, but we shall only mention
 
 three or four of them.
 
@@ -79,7 +79,7 @@ The Lord give you Grace to believe, and to follow in His ways, and to Him be the
 
 Exposition by C. H. Spurgeon: Romans8:23-39.
 
-[Concluded from Sermon #3255, Volume 57&mdash;THE PEARL OF PATIENCE.]
+[Concluded from Sermon #3255, Volume 57&mdash;the pearl of patience.]
 
 Verse 23. And not only they, but ourselves, also, which have the first fruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body. That is what we are waiting for&mdash;"the redemption of our body"&mdash;and we shall not wait in vain for it, for Christ is the Savior of our body as well as of our soul, and the day shall come when even our bodies shall be free from pain, weakness, weariness, sin and death. Happy day! We may well look forward to it with the loftiest anticipations.
 
@@ -91,7 +91,7 @@ Likewise the Spirit also helps our infirmities: for we know not what we should p
 
 And He that searches the hearts knows what is the mind of the Spirit because He make intercession for the saints according to the will of God. This explains what to many is the mystery of prayer. The Holy Spirit, being Himself God, knows the secret purposes of the Divine Will and, therefore, moves the saints to pray in accordance with that will&mdash;and makes their supplications effectual through His own prevailing intercession. [See Sermons #788, Volume 14&mdash;creation's groans and
 
-THE SAINTS' SIGHS and #1616, Volume 27&mdash;SAVED IN HOPE]
+the saints' sighs and #1616, Volume 27&mdash;saved in hope]
 
 And we know&mdash;Paul, like John, was no Agnostic! He did not even say, "We think, we imagine, we suppose."
 
@@ -109,7 +109,7 @@ Moreover whom He did predestinate, them He also called: and whom He called, them
 
 31, 32. What shall we then say to these things? If God is for us who can be against us? He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also give us all things?'After having given us His own Son, what is there that He can withhold from us if it is for our real good? No, He has already virtually given us all
 
-things in giving Him to us! [See Sermons #159, Volume 3&mdash;THE TRUE ChristIAN's BLESSEDNESS; #355, Volume 7&mdash;PORTRAITS OF Christ; #1043, Volume 18&mdash;GLORIOUS PREDESTINATION; #241, Volume 5&mdash;PREDESTINATION AND CALLING and #627, Volume 11&mdash;JUSTIFICATION AND GLORY]
+things in giving Him to us! [See Sermons #159, Volume 3&mdash;the true ChristIAN's blessedness; #355, Volume 7&mdash;portraits of Christ; #1043, Volume 18&mdash;glorious predestination; #241, Volume 5&mdash;predestination and calling and #627, Volume 11&mdash;justification and glory]
 
 33, 34. Who shall lay anything to the charge of God's elect? It is God that justifies. Who is it that condemns? It is
 
@@ -137,4 +137,4 @@ present, nor things to come, nor height, nor depth, nor any other creature shall
 
 God which is in Christ Jesus our Lord. Paul had good reason for being persuaded that there was no separation for those
 
-for whom there was no condemnation! May we be among them by God's Grace! Amen. [See Sermons #256, Volume 5&mdash;the believer's CHALLENGE; #2240, Volume 38&mdash;a CHALLENGE AND a SHIELD; #751, Volume 13&mdash;MORE THAN CONQUERORS and #2492, Volume 42&mdash;PAUL's PERSUASION.]
+for whom there was no condemnation! May we be among them by God's Grace! Amen. [See Sermons #256, Volume 5&mdash;the believer's challenge; #2240, Volume 38&mdash;a challenge and a shield; #751, Volume 13&mdash;more than conquerors and #2492, Volume 42&mdash;paul's persuasion.]
