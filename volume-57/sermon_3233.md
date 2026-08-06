@@ -2,11 +2,11 @@
 
 "Is not this a brand plucked out of the fire?" Zechariah 3:2.
 
-[Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11&mdash;Zechariah's VISION OF Joshua THE HIGH PRIEST.]
+[Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11&mdash;Zechariah's vision of Joshua the high priest.]
 
-IT may be well to explain these words, for simple as they are, a few words of exposition may be useful to open up the metaphor and enforce the thrilling Truth of God that underlies it.
+It may be well to explain these words, for simple as they are, a few words of exposition may be useful to open up the metaphor and enforce the thrilling Truth of God that underlies it.
 
-There is mention of a fire. A cry of "FIRE!"has something fearful in it. When a fire begins to get the upper hand with us, it is terrible in its destructiveness. The fire here meant is more awful than any flame that makes havoc of matter, and its devastations are ten thousand times more appalling! It is the fire of sin. It blazed in the heart of an angel and he became a devil. Its sparks fell into the bosom of mother Eve and into the heart father Adam&mdash;and Paradise was burned up and the world became a wilderness. Sin is a fire which destroys the comfort of mankind, here, and all the joy of mankind hereafter. It is a flame which yields no comfortable warmth. The sinner may dance in the light of it for a moment, but in sorrow will he have to lie down in it forever! Woe unto those who have to make their bed in this fire&mdash;to dwell with these consuming flames for a term that knows no ending!
+There is mention of a fire. A cry of "fire!"has something fearful in it. When a fire begins to get the upper hand with us, it is terrible in its destructiveness. The fire here meant is more awful than any flame that makes havoc of matter, and its devastations are ten thousand times more appalling! It is the fire of sin. It blazed in the heart of an angel and he became a devil. Its sparks fell into the bosom of mother Eve and into the heart father Adam&mdash;and Paradise was burned up and the world became a wilderness. Sin is a fire which destroys the comfort of mankind, here, and all the joy of mankind hereafter. It is a flame which yields no comfortable warmth. The sinner may dance in the light of it for a moment, but in sorrow will he have to lie down in it forever! Woe unto those who have to make their bed in this fire&mdash;to dwell with these consuming flames for a term that knows no ending!
 
 There is, further, mention of a brand. Nothing can be more suitable to burn in the fire than a brand. It is not a branch just taken from the tree, fresh and full of sap&mdash;it is a brand&mdash;dry, sere timber, fit for the burning. It is not a mass of stone or iron, but a combustible brand. And what does this indicate but man's natural heart which is so congenial to the fire of sin? Our heart is like the tinder&mdash;Satan has but to strike the spark and how readily does the spark find a nest within our bosom! As the firebrand fits the fire, so does the sinner fit in with sin. When sin and the sinner come in contact, it is, "Hail fellow, well met!" They are bosom companions. The sinner's heart is the nest well prepared&mdash;and sins are the foul birds which come to nestle there! Not to go a step without a particular application, it will be well for us all to understand that weare, ourselves, like the brands&mdash;there is a fitness between us and sin. If we burn in the fire of sin, it is no wonder! With our fallen nature, it is no greater marvel that we should be incited by sin than that the firebrand should kindle in the flame!
 
@@ -20,7 +20,7 @@ Albeit the Christian is relieved of that peril, he does not escape by his own fr
 
 This question, as it appears to me, will bear three renderings. First, it may be looked upon as an exclamation of wonder&mdash;"Is not this a brand plucked out of the fire!" Secondly, as an enquiry or hope&mdash;"Is not this a brand&mdash; particularly this one&mdash;"plucked out of the fire?" And, in the third place, it is certainly a defiance for us, assured of our safety, to throw into the face of Satan, the accuser&mdash;"Is not this a brand plucked out of the fire?"
 
-THE TEXT BEARS THE SENSE OF WONDERMENT&mdash;"Is not this a brand plucked out of the fire?"
+the text bears the sense of wonderment&mdash;"Is not this a brand plucked out of the fire?"
 
 It was said of Joshua, the High Priest. There was such astonishment at his preservation, that with hands uplifted, the question was asked, "Is not this man just like a firebrand snatched from among the glowing coals?" Nor is this marvel confined to Joshua. I believe this is a matter of wonder in the case of every saved sinner. Was there ever a man saved by Grace who was not a wonder? Is not every Christian conscious that there is some peculiarity about his own salvation which makes it marvelous? If you cannot all chime in with, "Yes," I must at least lead the chorus in which an overwhelming multitude will join&mdash;confessing that it was so with myself! For a long while, I could not believe that it was possible that my sins could be forgiven. I do not know why, but I seemed to be the odd person in the world. When the catalog was made out, it seemed to me that, for some reason, I must have been left out. If God had saved me and not the rest of the world, I would have wondered, indeed! But if He had saved all the world except me, that would have seemed to be according to the common course&mdash;and a right course, too. And now, being saved by Grace, I cannot help saying, "Yes, I am a brand plucked out of the fire!"And does not each Believer say the same? Why, look at the Believer! He is fallen, lost, and yet, though lost in his first parent, he is saved in Christ! The Believer's own nature is depraved like that of other men and yet, contrary to nature, his is made a new creature! As though Niagara were suddenly made to leap upwards instead of falling downwards, our nature, so mighty for sin, has been suddenly turned into the opposite direction and we have been compelled to seek after Grace and holiness!
 
@@ -52,9 +52,9 @@ Now, if ever such people as these are saved from this terrible disease of self-r
 
 > Legible only by the light they give,   
 > Stand the soul-quickening words&mdash;   
-> 'BELIEVE AND LIVE.'   
+> 'Believe and live.'   
 
-With more brevity than the preacher likes, though with perhaps as much amplitude as will be pleasant to yourselves, we shall now take the text by WAY OF ENQUIRY OR HOPE. Our time has so far gone that I can only hint at what I meant to say.
+With more brevity than the preacher likes, though with perhaps as much amplitude as will be pleasant to yourselves, we shall now take the text by way of enquiry or hope. Our time has so far gone that I can only hint at what I meant to say.
 
 When a sinner's eyes are suffused with tears and the sorrowful cry breaks forth, "Alas! Woe is me!" you may then say, "Is not this a brand plucked out of the fire?" for the tear of sorrow for sin is a blessed omen of Mercy's dawning! May Mercy reach her noontide soon! And when, alone, the knee is bent and the whispered prayer goes up, "Jesus, Master, pity me! Save me, or I die," the angels recognize the penitent's prayer. They say, "Behold, he prays!" And then they feel that this is "a brand plucked out of the fire." The tear of penitence and the prayer of the seeking soul are evidences of the working of Almighty Grace!
 
@@ -64,7 +64,7 @@ And when, in the midst of many a conflict and soul-struggle, the heart flings aw
 
 I would invite you to think over these signs of Grace and if you see them in yourselves, may you ask the question, and be able to answer it with joy, "Is not this a brand plucked out of the fire?"
 
-And lastly, WHAT a QUESTION OF DEFIANCE THIS IS!
+And lastly, what a question of defiance this is!
 
 Do you not catch the idea of the text? There stood Joshua, the High Priest. There stood the angel of the Lord and there stood Satan. The adversary began to attack Joshua, but the angel of the Lord said to him, "'The Lord rebuke you, O Satan; even the Lord that has chosen Jerusalem rebuke you: Is not this a brand plucked out of the fire?' What have you to do with him? If God has plucked him out of the fire, you can never put him in again. Seeing God has plucked him out of the fire, go your way and mind your own business! You have nothing to do with this saved soul, this elect vessel, this one whom God has chosen, in whom the Spirit's power has shown itself! He has plucked him out of the fire! Go your way, Satan, and leave this soul alone!"
 
@@ -136,7 +136,7 @@ And said, Naked came I out of my mother's womb, and naked shall I return there. 
 
 The Lord gave and the Lord has taken away; blessed be the name of the Lord [See Sermons #2457, Volume 42&mdash;jobs
 
-RESIGNATION and #3025, Volume 53&mdash;FIFTEEN YEARS LATE.] I think these are
+resignation and #3025, Volume 53&mdash;fifteen years late.] I think these are
 
 the grandest words in the whole record of human speech! Considering the circumstances of the man at the time, that he should thus speak was, I think, a miracle of Grace!
 
