@@ -2,7 +2,7 @@
 
 "In the middle of its street, and on either side of the river, was the Tree of Life, which bore twelve fruits, each tree yielding its fruit every month. The leaves of the tree were for the healing of the nations." Revelation 22:2.
 
-[Another Sermon by Mr. Spurgeon upon the same text is #1233, Volume 31&mdash;HEALING LEAVES.]
+[Another Sermon by Mr. Spurgeon upon the same text is #1233, Volume 31&mdash;healing leaves.]
 
 You will remember that in the first Paradise, there was a Tree of Life in the midst of the garden. When Adam had offended and was driven out, God said, "Lest he put forth his hand and take of the Tree of Life and eat, and live forever, therefore the Lord God drove out the man." It has been supposed, by some, that this Tree of Life in the Garden of Eden was intended to be the means of continuing man in immortality&mdash;that his feeding upon it would have supported him in the vigor of unfailing youth, preserved him from exposure to decay and imparted, by a spiritual regeneration, the seal of perpetuity to his constitution. I do not know about that. If it were so, I can understand the reason why God would not have the first man, Adam, become immortal in the lapsed state he was then in, but ordained that the old nature should die, and that the immortality would be given to a new nature which would be formed under another leadership and quickened by another Spirit.
 
@@ -12,7 +12,7 @@ At any rate, Beloved, if this is not the absolute purpose of the sublime vision 
 
 First, we shall take the Tree of Life in the winter with no fruit on it Secondly, we shall try to show you the Tree of Life budding and blossoming. And, thirdly, we shall endeavor to show you the way to partake of its fruits.
 
-And first, my Brothers and Sisters, I have to speak to you of Jesus Christ, THE TREE OF LIFE IN THE WINTER.
+And first, my Brothers and Sisters, I have to speak to you of Jesus Christ, the tree of life in the winter.
 
 You will at once anticipate that I mean, by this figure, to describe Jesus in His sufferings, in His dark winter days when He did hang upon the Cross and bleed and die. When He had no honor from men and no respect from anyone&mdash; when even God the Father hid His face from Him for a season and He was made sin for us, that we might be made the righteousness of God in Him. My dear Friends, you will never see the Tree of Life aright unless you first look at the Cross. It was there that this tree gathered strength to bring forth its later fruit. It was there, we say, that Jesus Christ, by His glorious merits and His wondrous work achieved upon the Cross, obtained power to become the Redeemer of our souls and the Captain of our salvation!
 
@@ -44,7 +44,7 @@ Beloved, I wish it were in my power to set forth Christ Crucified&mdash;Christ v
 
 Thus, then, Jesus Christ hanging on the Cross is the Tree of Life in its winter time.
 
-And now let me show you, as I may be enabled, THAT SAME TREE OF LIFE WHEN IT HAS BLOSSOMED AND BROUGHT FORTH FRUIT.
+And now let me show you, as I may be enabled, that same tree of life when it has blossomed and brought forth fruit.
 
 There He stands&mdash;Jesus&mdash;still the same Jesus&mdash;and yet how changed! The same Jesus, but clothed with honor instead of shame, able now to save them to the uttermost that come unto God by Him. My text says of this tree that it bears "twelve fruits." I suppose that is intended to signify that a perfect and complete assortment of all supplies for human necessities is to be found in Christ&mdash;all sorts of mercies for all sorts of sinners&mdash;all kinds of blessings to suit all kinds of necessities. We read of the palm tree, that every bit of it is useful, from its root to its fruit. So is it with the Lord Jesus Christ. There is nothing in Him that we could afford to do without. There is nothing about Jesus that is extraneous or superfluous. You can put Him to use in every part, in every office, in every relationship!
 
@@ -64,11 +64,11 @@ This Tree also yields medicine. ' 'The leaves of the tree were for the healing o
 
 And what more shall I say? Is there anything else your spirits can need? O children of God, Christ is All! O you ungodly ones who have been roaming through the world to find the tree that should supply your needs, stop here! This
 
-"apple tree [See Sermon #1120, Volume 19&mdash;THE APPLE TREE IN THE WOODS and #3249, Volume 57&mdash;UNDER THE APPLE TREE.] among the trees of the woods" is the tree which your souls require! Stay here and you shall have all that you need. For, listen&mdash;this tree yields a shelter from the storm. Other trees are dangerous when the tempest howls, but he that shelters beneath the tree of the Lord Jesus shall find that all the thunderbolts of God shall fly by him and do him no injury. He cannot be hurt who clings to Jesus! Heaven and earth should sooner pass away than a soul be lost that hides beneath the boughs of this Tree. And oh, you who have hidden there to shelter from the wrath of God, let me remind you that in every other kind of danger it will also yield you shelter! And if you are not in danger, yet still in the hot days of care you shall find the shade of it to be cool and genial. The spouse in Solomon's Song said, "I sat down under His shadow with great delight, and His fruit was sweet to my taste." Get Christ and you have got comfort, joy, peace and liberty&mdash;and when the trouble comes, you shall find shelter and deliverance by coming near to Him.
+"apple tree [See Sermon #1120, Volume 19&mdash;the apple tree in the woods and #3249, Volume 57&mdash;under the apple tree.] among the trees of the woods" is the tree which your souls require! Stay here and you shall have all that you need. For, listen&mdash;this tree yields a shelter from the storm. Other trees are dangerous when the tempest howls, but he that shelters beneath the tree of the Lord Jesus shall find that all the thunderbolts of God shall fly by him and do him no injury. He cannot be hurt who clings to Jesus! Heaven and earth should sooner pass away than a soul be lost that hides beneath the boughs of this Tree. And oh, you who have hidden there to shelter from the wrath of God, let me remind you that in every other kind of danger it will also yield you shelter! And if you are not in danger, yet still in the hot days of care you shall find the shade of it to be cool and genial. The spouse in Solomon's Song said, "I sat down under His shadow with great delight, and His fruit was sweet to my taste." Get Christ and you have got comfort, joy, peace and liberty&mdash;and when the trouble comes, you shall find shelter and deliverance by coming near to Him.
 
 He is the Tree of Life, then, yielding twelve fruits, those fruits being always ripe and always ready, for they ripen every month, all being free to all who desire them, for the leaves are not for the healing of some, but "for the healing of the nations." What a large word! Then there are enough of these leaves for the healing of all the nations that shall ever come into the world. Oh, may God grant that none of you may die from spiritual sickness when these leaves can heal you! And may none of you be filling yourselves with the sour grapes of this world, the poisonous grapes of sin, while the sweet fruit of Christ's love are waiting which would refresh you and satisfy you.
 
-And now I have to show you HOW TO GET AT THE FRUIT OF THIS TREE OF LIFE.
+And now I have to show you how to get at the fruit of this tree of life.
 
 That is the main matter. Little does it matter to tell that there is fruit unless we can tell how it can be obtained. I wish that all here really wanted to know the way, but I am afraid many care very little about it. Dr. Payson had once been out to tea with one of his people who had been particularly hospitable to him, and when he was leaving, the doctor said, "Well, now, Madam, you have treated me exceedingly well, but how do you treat my Master?" That is a question I should like to put to some of you. How do you treat my Master? Why, you treat Him as if He were not Christ! As if you did not need Him! But you doneed Him. May you find Him soon, for when you come to die, you will need Him then, and perhaps then you may not find Him.
 
@@ -110,11 +110,11 @@ And the leaves of the tree were for the healing of the nations. Everything in He
 
 And there shall be no more curse. No more thorns or thistles, no more pangs of child-bearing, no more sickness, or sorrow, or death.
 
-But the Throne of God and of the Lamb [See Sermon #1576, Volume 27&mdash;THE THRONE OF God AND OF THE LAMB.] shall be in it, and His servants shall serve Him/They shall have nothing else to do, and it shall be their supreme delight to serve Him perfectly and unceasingly.
+But the Throne of God and of the Lamb [See Sermon #1576, Volume 27&mdash;the throne of God and of THE lamb.] shall be in it, and His servants shall serve Him/They shall have nothing else to do, and it shall be their supreme delight to serve Him perfectly and unceasingly.
 
-And they shall see His face.[See Sermon #824, Volume 14&mdash;THE HEAVEN OF HEAVEN.] Not through a glass darkly, but face to face shall they behold their God! Surely that will be the very Heaven of Heaven!
+And they shall see His face.[See Sermon #824, Volume 14&mdash;the heaven of heaven.] Not through a glass darkly, but face to face shall they behold their God! Surely that will be the very Heaven of Heaven!
 
-And His name shall be on their foreheads. Aaron was to wear upon his forehead a plate of pure gold, with HOLINESS TO THE Lord engraved upon it, that the children of Israel might be accepted before the Lord. But the saints in Glory are to have the name of their God "on their foreheads." In the very forefront of their glorified personalities there shall be the marks to declare that they are the children of God!
+And His name shall be on their foreheads. Aaron was to wear upon his forehead a plate of pure gold, with holiness to the Lord engraved upon it, that the children of Israel might be accepted before the Lord. But the saints in Glory are to have the name of their God "on their foreheads." In the very forefront of their glorified personalities there shall be the marks to declare that they are the children of God!
 
 And there shall be no night there. The saints in Glory will have no need of sleep, so "there shall be no night there," but one perpetual day of holy, unwearying service. There shall be no night of ignorance, of sorrow, of sin, of death&mdash;there shall be no powers of darkness there, and no darkness in which they might work their evil deeds.
 
@@ -136,7 +136,7 @@ He that is unjust, let him be unjust still: and he which is filthy, let him be f
 
 13. And, behold, I come quickly; and My reward is with Me, to give every man according as his work shall be. I
 
-am Alpha and Omega, the Beginning and the End, the First and the Last.[See Sermon #546, Volume 9&mdash;ALPHA AND OMEGA.] These must be the words of the Lord Jesus Christ, Himself! No
+am Alpha and Omega, the Beginning and the End, the First and the Last.[See Sermon #546, Volume 9&mdash;alpha and omega.] These must be the words of the Lord Jesus Christ, Himself! No
 
 mere messenger, however high his rank, would have dared to say, "I am Alpha and Omega, the Beginning and the End, the First and the Last."
 
@@ -146,7 +146,7 @@ I Jesus have sent My angel to testify unto you these things in the churches. I a
 
 And the Spirit and the bride say, come. And let him that hears say, come. And let him that is thirsty, come.
 
-And whoever will, let him take the water of life freely. [See Sermons #279, Volume 5&mdash;COME AND WELCOME; #1331, Volume 22&mdash;THE TWO "COMES"; #1608, Volume 27&mdash;THE DOUBLE "COME" and #2685, Volume 46&mdash;THE OFT-REPEATED INVITATION.] Here we have the last invitations in the Word of God&mdash;may all who have not yet accepted them do so now, lest they should never again be uttered in their hearing!
+And whoever will, let him take the water of life freely. [See Sermons #279, Volume 5&mdash;come and welcome; #1331, Volume 22&mdash;the two "comes"; #1608, Volume 27&mdash;THE double "come" and #2685, Volume 46&mdash;THE oft-repeated invitation.] Here we have the last invitations in the Word of God&mdash;may all who have not yet accepted them do so now, lest they should never again be uttered in their hearing!
 
 18-21. For I testify unto every man that hears the words of the prophecy of this Book, If any man shall add unto these things, God shall add unto him the plagues that are written in this Book: and if any man shall take away from the
 
