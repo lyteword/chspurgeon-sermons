@@ -20,7 +20,7 @@ It is certain that thoughts are the eggs of sin. These are the embryo out of whi
 
 Therefore, as God takes cognizance of our thoughts, let us be mindful of the responsibility they entail upon us. Let us no longer despise them, but look into the nursery where they are reared and begin to search our hearts&mdash;and to judge ourselves as in the sight of Him who searches all hearts.
 
-BAD THOUGHTS AND THEIR FRUIT EXHIBIT a VERY LARGE VARIETY. I shall, however, but refer you to the twentieth Chapter of the Book of Exodus, where the Ten Commandments will help us to a list of thoughts, all of which are horribly mischievous.
+bad thoughts and their fruit exhibit a very large variety. I shall, however, but refer you to the twentieth Chapter of the Book of Exodus, where the Ten Commandments will help us to a list of thoughts, all of which are horribly mischievous.
 
 The First Commandment God gives to us is, "You shall have no other gods before Me. " That is, in fact, "You shall have no other god but Me, " since God is everywhere. This precept is easily broken in our thoughts. If I say to myself, "This is God's Law, but the contrary action will be most to my profit," then I make myself, or my money, my god. If on any occasion I say within myself, "I clearly perceive that I ought not to indulge in that sin, but then it will give me great pleasure"&mdash;should I indulge in it, then I make my pleasure, that is to say, myself, my god&mdash;I worship myself instead of God! This is a sin, the essence of which must lie in the thoughts, in the judgment, in the affections. You need not make an image of gold, or of wood and bow down before it&mdash;you can become a thorough-paced idolater in the temple of your heart by offering homage to your own self-will!
 
@@ -58,7 +58,7 @@ Procrastinating thoughts have been the fruitful source of mischief to full many 
 
 Others of us have to complain of wandering thoughts when we are worshipping God&mdash;and the fruit of these is to spoil the golden seasons which, well used, might yield great profit. Oftentimes, when the service has been fitted enough to minister refreshment and instruction&mdash;and others have been nourished by the Word&mdash;some poor soul goes out and says, "I have not enjoyed it at all." Why, of course not, for your thoughts have been elsewhere! These are the birds that come down upon the sacrifice. If, like Abraham, we drive them away, we shall be able to worship in peace. But if not, the fruit of wandering thoughts in the House of God is that the service is spoiled. So, too, in the closet, whether ostensibly engaged in private devotion, or the reading of Scripture&mdash;unless the thoughts are centered upon the subject in hand&mdash; there can be no spiritual gain in drawing near unto God.
 
-For a few minutes, now, let us think of brighter things while I mention a FEW GOOD THOUGHTS AND THEIR FRUIT.
+For a few minutes, now, let us think of brighter things while I mention a few good thoughts and their fruit.
 
 "Of which," says an Apostle, "we cannot now speak particularly," when he had a long list and little space, so I must say now. If you would have good faith in your soul, cultivate humble thoughts. No man was ever injured by having too lowly a view of himself. The best definition of humility I ever heard was this&mdash;"to think light of ourselves." To think of ourselves as below the standard is lowliness&mdash;to think of ourselves as above the standard is pride. But to form a right estimation of ourselves is true humility! Avoid the counterfeit which is in the world&mdash;that is mock humility. Be truly humble. Have low thoughts of yourselves, especially before God! Penitent thoughts of sin, humble views with regard to Divine Grace and a close account of your own responsibility are indispensable&mdash;so, you will find that humility will sweep out the chamber of your soul and prepare it for the incoming of the Great Prince.
 
@@ -90,7 +90,7 @@ unto this house, which is called by My name, wherein you trust, and unto the pla
 
 Jeremiah 17:1. The sin of Judah is written with a pen of iron, and with the point of a diamond. [See Sermon #812, Volume
 
-14&mdash;THE DEEP-SEATED CHARACTER OF SIN.] It is so ingrained in their
+14&mdash;the deep-seated character of sin.] It is so ingrained in their
 
 very nature that you might as well try to erase an inscription that is written upon steel with the point of a diamond as hope to get this perversity out of the nation! It is engraved upon the tablets of their heart. What is mere habit can be altered, but what is ingrained in the heart cannot be taken away except by a miracle of Grace! It was the heart that was wrong&mdash;the fountainhead was polluted&mdash;so what could the streams be, but foul?
 
@@ -106,4 +106,4 @@ The heart. That is the principal matter, it was the heart of the nation which ha
 
 12-14. A glorious high throne from the beginning is the place of our sanctuary. O Lord, the hope of Israel, all that forsake You shall be ashamed and they that depart from Me shall be written in the earth, because they have forsaken the Lord, the fountain of living waters. Heal me, O Lord, and I shall be healed; save me, and I shall be saved: for You are
 
-my praise. [See Sermon #1786, Volume 30&mdash;OUR SANCTUARY.]
+my praise. [See Sermon #1786, Volume 30&mdash;our sanctuary.]
