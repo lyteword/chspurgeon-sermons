@@ -8,7 +8,7 @@ Dear Friends, when we preach to you, we do, as it were, shoot arrows at a mark b
 
 As God shall enable me, by his Holy Spirit, I intend to describe the case of those who have been pierced by God's arrows. But I want, first, to speak of some arrows which do not come from God's quiver at all, but which, nevertheless, cause very much pain to some sensitive spirits. So, first, I am going to try to break the devil's arrows! Secondly, to endeavor to describe God's arrows. And then, thirdly, to seek to comfort those who have been wounded by these arrows.
 
-First, then, I am TO TRY TO BREAK SOME OF THE DEVIL's ARROWS.
+First, then, I am to try to break some of the devil's arrows.
 
 I will venture to say that nine out of ten of the terrible feelings which men have when under conviction of sin are not the work of God's Spirit, but are the result of the uprising of their own unbelief stirred and agitated by the diabolic suggestions of Satan. He knows that it is "now or never" with them&mdash;if he can now drive them to despair and keep them from coming to Christ, he will have gained his end. But if now the anxious soul should find shelter and rest in the Atonement of Christ, the Prince of Darkness will have lost it forever and, therefore, he exerts all his power and stirs up all his fellow fiends to do their utmost to keep the poor soul in despair!
 
@@ -34,7 +34,7 @@ Truth?
 
 I do not know what other arrows the devil may have shot at any of you. He may, perhaps have told you that you have committed the unpardonable sin, but that is certainly more than he knows. If you now desire to be saved, you may depend upon it that you have not committed that sin which is unto death! And if you are now believing in the Lord Jesus Christ, you have the best possible proof that this sin cannot be laid to your charges, for whomever believes in Him is not condemned, but has everlasting life! Cling to the Cross of Christ and you shall never sink down to Perdition.
 
-Having thus tried to break some of the devil's arrows, I want, next, TO ENDEAVOR TO DESCRIBE SOME OF God's ARROWS.
+Having thus tried to break some of the devil's arrows, I want, next, to endeavor to describe some of God's arrows.
 
 Here I will give you a piece of my own experience. When God began to deal with me, one of the first arrows that flew right into my heart was this, "You God see me." I recollected that God knew all about my sins, that He had seen them or heard them, and had noted them all down in His Book of Remembrance. I was greatly alarmed, for I had forgotten many of them and had dreamed that God also had forgotten them.
 
@@ -52,7 +52,7 @@ Then there came another arrow which caused me to suffer still more. It bore this
 
 These are God's arrows and the messages they bear are all true. It is true that God sees us. It is true that He reads our thoughts and motives. It is true that He punishes sin. It is true that His commandments are exceedingly broad. It is true that we are powerless to save ourselves. And if, my dear Hearers, you are feeling the force of any of these Truths of God, I congratulate you that God has thus made you a mark for His arrows!
 
-Now, thirdly, I want TO SEEK TO COMFORT THOSE WHO HAVE BEEN WOUNDED by THESE ARROWS.
+Now, thirdly, I want to seek to comfort those who have been wounded by these arrows.
 
 My dear afflicted Friends, thus troubled and distressed in mind, please consider why God sends these arrows to you. Remember that they are not sent to destroy you, but to save you&mdash;and to save you by destroying some things of which you are very fond! They are sent, first of all, to destroy your false peace. God cannot bear that you should say, "Peace, peace," when there is no peace and, therefore, He shoots these arrows to kill your carnal ease that you may be stirred up to seek His face. They are also sent to slay your self-righteousness&mdash;and they are blessed arrows that can do that! When Mr. Hervey asked a poor farmer what was the hardest thing to get rid of, he expected him to answer, "Sinful self." But the reply was, "Righteous self." And certainly, of the two, righteous self is much harder to part with than sinful self. These arrows are also sent to kill your strength. Remember, Sinner, when you can do nothing, then God will do everything! When you are so completely emptied that you have nothing left, God will give you everything! If you wish to save yourselves, do it, but God will have no share in the work under such conditions. If He is to save you, He must be Alpha and Omega&mdash;He must have all the praise because He gives all the power!
 
@@ -102,7 +102,7 @@ He has also broken my teeth with gravel stones, He has covered me with ashes. Th
 
 17-21. And You have removed my soul far off from peace: I forgot prosperity. And I said, My strength and my hope are perished from the Lord: remembering my affliction and my misery, the wormwood and the gall. My soul has them still in remembrance, and is humbled in me. This I recall to my mind, therefore have I hope. [See Sermon #654, Volume 11&mdash;
 
-MEMORY&mdash;THE HANDMAID OF HOPE.] Notice the gracious change that
+memory&mdash;the handmaid of hope.] Notice the gracious change that
 
 has taken place, as if the sun had risen after the blackness and gloom of the night! Now the birds of joy begin to sing and the flowers of hope begin to open their golden cups.
 
@@ -116,7 +116,7 @@ of charge, at http://www.spurgeongems.org .] Can you get a hold of this blessed 
 
 26, 27. It is good that a man should both hope and quietly wait for the salvation of the Lord. It is good for a man
 
-that he bear the yoke in his youth. [See Sermon #1291, Volume 22&mdash;THE BEST BURDEN FOR YOUNG SHOULDERS.] For this yoke, though it may seem to be very heavy for a time, when it has humbled us and brought us to Christ, will bring us innumerable blessings!
+that he bear the yoke in his youth. [See Sermon #1291, Volume 22&mdash;the best burden for young shoulders.] For this yoke, though it may seem to be very heavy for a time, when it has humbled us and brought us to Christ, will bring us innumerable blessings!
 
 28-33. He sits alone and keeps silence, because he has borne it upon him. He puts his mouth in the dust so there may be hope. He gives his cheek to him that smites him: he is filled full with reproach. For the Lord willnot cast off forever: but though He causes grief, yet will He have compassion according to the multitude of His mercies. For He does not afflict willingly nor grieve the children of men. Unless He has some gracious motive for it, He never afflicts or grieves them, and when He does act thus, it is as when a father smites his child. It is because it must be done and not because he loves to do it. See, then, the great mercy of God! May it lead the sinner to repentance, yes, and lead us all to put our trust in the Lord!
 
@@ -132,11 +132,11 @@ Upon this I awaked, and beheld; and my sleep was sweet unto me. Jeremiah woke up
 
 31, 32. Behold, the days come, says the Lord, that I will make a new Covenant with the house of Israel, and with the house of Judah: not according to the Covenant that I made with their fathers in the day that I took them by the hand to bring them out of the land of Egypt; which My Covenant they broke, although I was an Husband unto them, says the Lord. What bliss it is to know about this new Covenant! Let us notice its tenor.
 
-But this shall be the Covenant that I will make with the house of Israel; after those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts [See Sermons #1687, Volume 28&mdash;THE LAW WRITTEN IN THE HEART and
+But this shall be the Covenant that I will make with the house of Israel; after those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts [See Sermons #1687, Volume 28&mdash;THE law written in THE heart and
 
-#2992, Volume 52&mdash;God's WRITING UPON MAN's HEART.] Not on the tablets
+#2992, Volume 52&mdash;God's writing upon man's heart.] Not on the tablets
 
-[See Sermon #2436, Volume 41&mdash;"HOW GOOD TO THOSE WHO SEEK."]
+[See Sermon #2436, Volume 41&mdash;"how good to those who seek."]
 
 The passage here expounded is Jeremiah 31:22-37.
 
