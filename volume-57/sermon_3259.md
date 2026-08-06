@@ -2,13 +2,13 @@
 
 "So then faith comes by hearing, and hearing by the Word of God." Romans 10:17.
 
-[Another Sermon by C. H. Spurgeon upon the same text is #1031, Volume 18&mdash;HOW CAN I OBTAIN FAITH?.]
+[Another Sermon by C. H. Spurgeon upon the same text is #1031, Volume 18&mdash;how can I obtain faith?.]
 
-ACCORDING to the Christian religion, faith is the great essential thing. "Without faith it is impossible to please God." Whatever we may do or may be, we cannot be acceptable with the Most High unless we believe in Him. Even prayer can only be a mockery if it is not the prayer of faith. "He that comes to God must believe that He is and that He is a rewarder of them that diligently seek Him," or else he does not really pray. The Lord Jesus Christ has died to save men, but it is certain that no man will be saved without faith. Even the blood of Jesus Christ does not save any except those who believe in it. "God so loved the world" is a very wide expression, but we must not make it wider than Scripture makes it, for remember how the verse goes on, "God so loved the world, that He gave His only begotten Son, that whoever believes in Hmshould not perish, but have everlasting life." Without faith Christ is not ours. His blood cannot cleanse us, His life cannot quicken us. We must have faith to get at the blessings of salvation.
+According to the Christian religion, faith is the great essential thing. "Without faith it is impossible to please God." Whatever we may do or may be, we cannot be acceptable with the Most High unless we believe in Him. Even prayer can only be a mockery if it is not the prayer of faith. "He that comes to God must believe that He is and that He is a rewarder of them that diligently seek Him," or else he does not really pray. The Lord Jesus Christ has died to save men, but it is certain that no man will be saved without faith. Even the blood of Jesus Christ does not save any except those who believe in it. "God so loved the world" is a very wide expression, but we must not make it wider than Scripture makes it, for remember how the verse goes on, "God so loved the world, that He gave His only begotten Son, that whoever believes in Hmshould not perish, but have everlasting life." Without faith Christ is not ours. His blood cannot cleanse us, His life cannot quicken us. We must have faith to get at the blessings of salvation.
 
 Suppose we could be brought into touch with Christ without faith for a while, yet, if we had not continuous faith, we would not have a continued connection with the Savior and, consequently, would not abide in eternal life, for it is written, "The just shall live by faith." They not only begin to live by faith, but continue to live in the same manner. In our holy religion, everything is by faith&mdash;faith for life and faith for death. Even the first tears of repentance must be salted with faith&mdash;and the last song on earth shall be full of faith. You must have faith or you will perish. "He that believes and is baptized shall be saved, but he that believes not shall be damned," is the declaration of Jesus Christ, the Savior, Himself!
 
-So, first, LET US DISCOVER WHAT FAITH IS.
+So, first, let us discover what faith is.
 
 We have seen that it is essential. It is very important to understand its nature. Well, faith with regard to God is the same as faith with regard to anything else. It is the same act of the mind, though it differs as to its object. When I believe in God, it is the same kind of mental act as when I believe in my friend. I believe with the same mind. 'Tis true that all saving faith is the work of the Holy Spirit in us, but be it always remembered that we, ourselves, believe, and that the Holy Spirit does not believe for us! What has the Holy Spirit to believe about? It is not written that He is to believe in the Lord Jesus Christ. No, but we are to believe in Him! He leads us to faith, but the faith is our own act and deed&mdash;and if there could be supposed to be a faith which was not our own act and deed, it could not possibly be the faith which saves the soul! If I understand aright the faith which saves is just this&mdash;God has revealed such-and-such a Truth. I believe it to be true and I so believe it to be true that I act upon it. God has said that He has laid sin upon Christ&mdash;I believe He has done so. He tells me that if I trust Christ, I may be assured that mysin was laid upon Christ. I trust Christ, that is, I rely upon Him&mdash;and the reliance which springs out of belief is the essence of faith.
 
@@ -22,7 +22,7 @@ Now, there are some who say they wish they could get this faith. They declare th
 
 Albeit faith is the gift of God, it is always the act of man&mdash;while faith is a privilege, it is always a natural duty! Men are bid to believe in Jesus and are sinful if they do not believe in Jesus. Where faith does exist, it is the gift of God, but where it does not exist, it is because men will not believe in Him, but shut their eyes to His Light. If they would but see it, that Light of God would convince them!
 
-LET US, THEREFORE, CLEAR AWAY SOME DIFFICULTIES WITH REFERENCE TO FAITH.
+Let us, therefore, clear away some difficulties with reference to faith.
 
 You want faith, you say. You are not a skeptic&mdash;you accept the Word of God. You are not one of those who are unsound about the Deity of Christ, you receive that. Still, you cannot, you say, get at faith in Jesus Christ. Listen, then, to these observations.
 
@@ -44,7 +44,7 @@ The religion of Jesus Christ is not a religion of performances. It has its ordin
 
 The text suggests two things, then, as to faith's way of approach. If I want to get faith I must hear, but I must mind whatI hear. And I must mind howI hear.
 
-LET US REMEMBER, THEN, THAT FAITH COMES THROUGH THE WORD OF God.
+let us remember, then, that faith comes through the word of God.
 
 Soul, would you have faith? Then mind what it is you hear, for the hearing must be "by the Word of God." Faith comes by hearing, but not by hearing anything and everything! The hearing is "by the Word of God" and only as the preaching is according to the Word of God will God bless it. God never blessed a lie to the creation of a newborn spirit. The Truth of God has vitality in it&mdash;only the Word of God is the living Seed in the soul!
 
@@ -68,7 +68,7 @@ To you, Sinner, I would also say hear the preacher who speaks pointedly. Do not 
 
 Take heed what you hear, for if you hear the Word of God preached in the power of the Spirit of God, then faith comes by such hearing!
 
-LET US BE ASSURED THAT FAITH WILL COME by HEARING.
+let us be assured that faith will come by hearing.
 
 If we would get faith, we must take care how we hear, as well as what we hear. The hearing is, itself, almost as important as the preaching. Faith does not come by every sort of hearing. There have been persons who have heard the Gospel for many years, but they have really heard nothing, for it has gone in one ear and out the other. Faith does not come by such hearing!
 
@@ -124,7 +124,7 @@ Accounting that God was able to raise him up, even from the dead from which he a
 
 can raise the dead," says Faith, and that is a most comforting Truth of God! O you bereaved ones, wear that ring! [See
 
-Sermons #107, Volume 3&mdash;FAITH; #2100, Volume 35&mdash;FAITH ESSENTIAL TO PLEASING God; #2513, Volume 43&mdash;HOW TO PLEASE God; #2740, Volume 47&mdash; WHAT IS ESSENTIAL IN COMING TO God? and #2147, Volume 46&mdash;NOAH's FAITH, FEAR, OBEDIENCE AND SALVATION.] O you who fear to die, wear that priceless jewel! It will be better than any amulet or talisman that the ancients ever wore!
+Sermons #107, Volume 3&mdash;faith; #2100, Volume 35&mdash;faith essential to pleasing God; #2513, Volume 43&mdash;how to please God; #2740, Volume 47&mdash; what is essential in coming to God? and #2147, Volume 46&mdash;noah's faith, fear, obedience and salvation.] O you who fear to die, wear that priceless jewel! It will be better than any amulet or talisman that the ancients ever wore!
 
 20, 21. By faith Isaac blessed Jacob and Esau concerning things to come. By faith Jacob, when he was dying, blessed both the sons of Joseph and worshipped, leaning upon the top of his staff Faith can bless other people as well as the Believer, himself! It not only brings good cheer into a man's own heart, but it enables him to speak words of love and consolation to his children. Dying Jacob pronounces living blessings upon his sons and upon their sons generation after generation!
 
@@ -140,7 +140,7 @@ By faith the walls of Jericho fell down after they were compassed about seven da
 
 31-33. By faith the harlot Rahab perished not with them that believed not, when she had received the spies with
 
-peace. And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and [See Sermons #1401, Volume 24&mdash;JACOB WORSHIPPING ON HIS STAFF; #966, Volume 16&mdash;JOSEPH's BONES; #1421, Volume 24&mdash;THE HIDING OF MOSES by FAITH; #163, Volume 18&mdash;MOSES' DECISION and #2030, Volume 34&mdash;MOSES&mdash;HIS FAITH AND DECISION.]
+peace. And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and [See Sermons #1401, Volume 24&mdash;Jacob worshipping on his staff; #966, Volume 16&mdash;joseph's bones; #1421, Volume 24&mdash;the hiding of moses by faith; #163, Volume 18&mdash;moses' decision and #2030, Volume 34&mdash;moses&mdash;his FAITH and decision.]
 
 of Jephthae, of David also, and Samuel, and of the Prophets who through faith subdued kingdoms, worked righteousness, obtained promises, stopped the mouths of lions&mdash;Remember Daniel in the lions' den and then ask yourself, "What is there that faith cannot do?"
 
