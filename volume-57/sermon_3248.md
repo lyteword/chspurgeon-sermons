@@ -2,11 +2,11 @@
 
 "You eat of the vineyards and olive groves which you did not plant." Joshua 24:13.
 
-THE Israelites, when they came into Canaan, entered into possession of a country which was thoroughly prepared for their occupation. There were walled cities and houses exactly adapted for their use and in habitable repair. The vineyards were in full bearing and the hills terraced ready for cultivation. They were not like emigrants to the wild west who have to clear forests and turn over prairies! They had not even to take possession of ruined cities and to rebuild them! For the most part, everything stood waiting for them, "houses full of all good things," and even "the old corn of the land" stored up for their immediate use! Moses had promised them that it would be so and Joshua reminded them of the promise when it had become a fact.
+The Israelites, when they came into Canaan, entered into possession of a country which was thoroughly prepared for their occupation. There were walled cities and houses exactly adapted for their use and in habitable repair. The vineyards were in full bearing and the hills terraced ready for cultivation. They were not like emigrants to the wild west who have to clear forests and turn over prairies! They had not even to take possession of ruined cities and to rebuild them! For the most part, everything stood waiting for them, "houses full of all good things," and even "the old corn of the land" stored up for their immediate use! Moses had promised them that it would be so and Joshua reminded them of the promise when it had become a fact.
 
 As the Holy Spirit shall help us, let us first learn from the text as it referred to Israel And then, taking the general principle here mentioned, let us learn from their case to consider our own, for we also enjoy that which we have neither produced nor earned.
 
-First, then, LET US LEARN FROM THE TEXT AS IT REFERRED TO ISRAEL. They entered into possession of wells which they had not dug, cities which they had not built, olive trees and vineyards which they had not planted.
+First, then, let us learn from the text as it referred to Israel. They entered into possession of wells which they had not dug, cities which they had not built, olive trees and vineyards which they had not planted.
 
 In the first place, this was a fulfillment of the ancient Covenant Although all the details of these blessings to Israel were not mentioned in the Covenant made with Abraham, yet they were virtually included&mdash;and Moses mentioned them very particularly in the sixth Chapter of Deuteronomy when he told the people to beware lest they should forget the Lord who brought them out of the land of Egypt, out of the house of bondage. So that every time an Israelite walked out into his olive garden and especially when he beat the tree to bring down its fruit, he could say to himself, "Here is the fulfillment of the promise made to our fathers." If he was a truly devout Jew, he would never gather the grapes from his vineyard, nor drink of the milk, nor taste the honey which abounded in the land without recognizing that as the Lord had spoken, so the Lord had done! Jehovah had not fallen short of His promise in any respect&mdash;He had brought His people into just such a country as He had aforetime covenanted to bestow upon them!
 
@@ -42,7 +42,7 @@ There is something, dear Friends, in your position and mine, which is analogous 
 
 Then, next, these vineyards and olive groves, possessed by those who had not planted them, were claims upon them for service. They were commanded by Moses to love with all their heart, and soul, and might that God who had given them the land flowing with milk and honey and all the blessings that they found in it. All He asked of them was that they should worship Him, alone, dedicate to Him the tenth of all their substance and seek to make the whole land to be holiness unto the Lord. Because He had brought them up out of Egypt and settled them in Canaan, they were bound to be His faithful servants. And, Beloved, how many voices are calling upon us who have been spiritually brought up out of Egypt into the place of Covenant privileges to serve the living God! Let others serve whomever they will&mdash;we are bound to the Lord by the cords of a man and the bands of love! If you, my Brother, forsook the service of the Most High, whose service could you enter? Where could you find a king or prince worthy of your homage and devotion? There are some of us here to whom it is our very life to serve our God! His love has won us and will hold us fast forever! If the Israelite, sitting under his olives and vines, felt that He was so deeply indebted to God that He must serve Him, much more should you and I, sitting under the Tree of Life which bears all manner of fruits, feel that we are not our own, but are bought with a price and that, therefore, we will henceforth serve Him who has given to us such priceless blessings! Do you not feel thus, Beloved? I trust that the Holy Spirit will press this Truth of God home upon your hearts that it may be worked out in your lives.
 
-Now, having spoken thus concerning the children of Israel, and somewhat also concerning ourselves, I want to bring out THE GENERAL PRINCIPLE AND ITS LESSONS FOR OURSELVES.
+Now, having spoken thus concerning the children of Israel, and somewhat also concerning ourselves, I want to bring out the general principle and its lessons for ourselves.
 
 First as the Israelites ate the fruit of the tree which they had not planted, we have many similar blessings which impose corresponding obligations upon us. It would be impossible for me to go over the full list of the things which we have which are like cities which we did not build, like houses which we did not furnish, like trees which we did not plant and garden plots which we did not till. The great hulk of the things that we have&mdash;and certainly all the best things&mdash;are pure gifts of God's Grace bestowed upon us freely out of the goodness and love of His heart!
 
@@ -72,7 +72,7 @@ So shall we now neglect to train our own children, or shall our Sunday schools l
 
 Exposition by C. H. Spurgeon: 2 Peter 1:9-21.
 
-[This is concluded from Sermon #3245, Volume 57&mdash;OUR POSITION AND OUR PURPOSE.]
+[This is concluded from Sermon #3245, Volume 57&mdash;our position and our purpose.]
 
 But he that lacks these things is blind, and cannot see afar off He is short-sighted. He has some light, and some physical sight, but he cannot see at a distance. Spiritually, he is blind.
 
@@ -82,7 +82,7 @@ Therefore, brethren, give diligence to make your calling and election sure: for 
 
 For so an entrance shall be supplied unto you abundantly into the everlasting Kingdom of our Lord and Savior
 
-Jesus Christ. [See Sermon #123, Volume 3&mdash;PARTICULAR ELECTION.] You
+Jesus Christ. [See Sermon #123, Volume 3&mdash;particular election.] You
 
 shall get far into the Kingdom&mdash;you shall know the innermost joys of it! You shall get near the King and you shall became like the King&mdash;and when you come to die, you shall not be tugged into the harbor like a dismasted, water-logged vessel, but you shall go in like a full-rigged ship with all sails set! And so you shall have an abundant entrance into the fair haven of Eternal Happiness. May God grant us this unspeakable blessedness, so that we shall not "be saved, yet so as by fire" but that we shall find our Heaven begun below&mdash;and go from Heaven below to Heaven above scarcely knowing any change at all! There have been saints who have found the stream of Christ's love running so strongly and carrying them down to the great ocean of Eternal Life, that they have scarcely known where the river and the ocean have met!
 
