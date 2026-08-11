@@ -12,7 +12,7 @@ The blessing invoked in the text is very comprehensive, but although there is mu
 
 With as much brevity as possible, I shall first speak on that part of the text which contains two positive facts. And then upon that part of it which expresses two holy desires.
 
-The sixteenth verse contains a VERY CLEAR STATEMENT OF THE TWO POSITIVE FACTS.
+The sixteenth verse contains a VERY CLEAR STATEMENT OF THE TWO POSITIVE FActs.
 
 Paul, writing concerning believers in Christ at Thessalonica and everywhere else, says, "Now our Lord Jesus Christ Himself, and God, even our Father, who has loved us and has given us everlasting consolation and good hope through Grace." From this we gather that every true Believer&mdash;everyone who rests upon Christ and is saved through the effectual working of the Holy Spirit&mdash;is, at the present moment, first of all, the object of the love of God&mdash;"who has loved us." So, my Friends, Paul does not speak of God as though we were strangers to Him and He is a stranger to us, but he says, "who has loved us." Concerning this matter, he does not speak as one who was in doubt&mdash;with mingled hope and fear&mdash; but he says positively, "Our Lord Jesus Christ, Himself, and God, even our Father, who has l oved us." He is quite sure of it! He is certain that these people to whom he is writing, and all believers in Jesus, are the objects of Divine Love!
 
@@ -97,7 +97,7 @@ Then, in this Christian Church, may you work in prayer, may you work in teaching
 
 But remember that we must first come to Christ, or these good wishes will be only wishes. We must first trust the Savior, or else these blessings can never be ours! May Divine Grace bring us to Jesus and keep us at His feet&mdash;and Divine Grace shall have the praise forever and ever!
 
-EXPOSITION BY C. H. SPURGEON: 2 THESSALONIANS 2.
+Exposition by C. H. Spurgeon: 2 Thessalonians 2.
 
 Verses 1, 2. Now we beseech you, brethren, concerning the coming of our Lord Jesus Christ, and our gathering together unto Him, that you be not soon shaken in mind, or be troubled, neither by spirit, nor by word, nor by letter from us, as that the day of Christ is at hand. In the Church of Christ, the teaching has always been that Christ is coming quickly and that teaching must never be withdrawn, for He is coming quickly, as He said to John in the Revelation. At the same time, this teaching has given an opportunity to certain presumptuous people to prophesy that at such-and-such a time, Christ will come. They know nothing about it and their prophecies are not worth the breath they spend in uttering them! And we have, today, what the Apostle wrote to the Thessalonians&mdash;
 
