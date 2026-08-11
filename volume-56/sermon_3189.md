@@ -34,7 +34,7 @@ It would not be well to close this point without remarking that God has been ple
 
 In the great bunch of keys in that good old Book, there is a key for every lock! And if it were not so, there are one or two promises like master keys which will fit all. Such a promise is the one in Isaiah 41:10, "Fear you not, for I am with you: be not dismayed; for I am your God." It will suit the youth and the gray-head. It will be satisfactory to you if you have to overcome difficulties or if you have to endure sufferings. In the calm or in the storm, lying in the trench or climbing the scaling ladder, that text will still be precious&mdash;"Fear you not, for I am with you: be not dismayed; for I am your God." We will fall back, then, upon the consolatory Truth that with God are the consolations of His children, that He is Himself responsible for their comfort, having engaged to be their Father! And so we may suck marrow out of our text, "As one whom his mother comforts, so will I comfort you."
 
-But now the second head is to be HOW GOD COMFORTS. "As one whom his mother comforts."
+But now the second head is to be HOW God COMFORTS. "As one whom his mother comforts."
 
 This is a peculiarly delightful metaphor. A father can comfort, but I think he is not much at home in the work. When God speaks about His pity, He compares Himself to the father. "Like as a father pities his children, so the Lord pities them that fear Him." But when He speaks about comfort, He selects the mother. When I have seen the little ones sick, I have felt all the pity in the world for them, but I did not know how to set to work to comfort them&mdash;but a mother knows by instinct how to do it! There is placed in the mother's tender heart a power of sympathy and very soon she finds the word or gives the touch that will meet her darling's case and cheer its troubled soul. The father is awkward at it&mdash;our rougher, sterner nature hardly shines in the matter of consolation. But the mother can do it to perfection. How, then, does the mother comfort her child?
 
@@ -54,7 +54,7 @@ But, once more, a mother comforts all her life. "A mother is a mother all her li
 
 God will not cease to comfort His people! Perhaps there is a Brother who is passing through a very severe trial and he thinks he shall never be comforted again. Well, but your mother will not forsake you&mdash;and do you think God will? "But," says one, "you do not know my difficulty. It is a crushing one." My dear Friend, I know I do not know it, but your heavenly Father knows it. And do you suppose if an earthly mother sticks fast by her child, that He will leave you? Go to Him! His heart is as near to you, now, as when you were on the mountain rejoicing in the full sunshine of His love. The very shadow of a change is unknown to Him. Go to Him with confidence and humble faith and you shall find the text, true, "As one whom his mother comforts, so will I comfort you."
 
-Now I have just a little to say upon the third point, that is, WHERE GOD COMFORTS His people. The text
+Now I have just a little to say upon the third point, that is, WHERE God COMFORTS His people. The text
 
 says, "in Jerusalem."
 
@@ -96,7 +96,7 @@ To that end, I pray the Master to help all His servants. Pray for your ministers
 
 May God add His blessing and bring troubled sinners to look to Christ, and Christ shall have the glory! Amen.
 
-EXPOSITION BY C. H. SPURGEON: COLOSSIANS2.
+Exposition by C. H. Spurgeon: Colossians2.
 
 Verse 1. For I would that you knew what great conflict Ihave for you and for them at Laodicea, and for as many as have not seen my face in the flesh. Paul had not met these Colossian Christians, but he had heard of their faith, hope, and love&mdash;and he so desired their good that he had a continual care for them in his heart. He carried that care to God in prayer, yet he still bore them in loving remembrance. They were always on his heart as a sick child is always on the heart of its mother.
 
@@ -130,7 +130,7 @@ Blotting out the handwriting of ordinances that was against us, which was contra
 
 And having spoiled principalities and powers, He made a show of them openly, triumphing over them in it [See
 
-Sermon #273, Volume 5&mdash;CHRIST TRIUMPHANT.] Exhibiting them as His
+Sermon #273, Volume 5&mdash;Christ TRIUMPHANT.] Exhibiting them as His
 
 prisoners in a triumphal procession, as the victorious Roman generals did when they returned from war!
 
