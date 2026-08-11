@@ -13,7 +13,7 @@ BLESSED be His name, there are some of us who count it our highest joy to answer
 
 I thought of speaking a little to such persons. This, perhaps, will be unfortunate for most of you, for I shall not be addressing many, perhaps, here present. Still, if there are but a few such, we must look after the one at the risk even of leaving the ninety-nine. So I address myself to those whom we assuredly suspect to be followers of Jesus, concerning whose faith we need to have a little better evidence and whose life we would see a little more consistent with their being truly His followers.
 
-First, then, I would ask, WHY ARE YOU SUSPECTED OF BEING a DISCIPLE OF CHRIST? Please observe the reasons why Simon Peter was suspected, for the same reasons may be applicable to you.
+First, then, I would ask, WHY ARE YOU SUSPECTED OF BEING a DISCIPLE OF Christ? Please observe the reasons why Simon Peter was suspected, for the same reasons may be applicable to you.
 
 He was suspected by some of being a disciple of Christ because he had been seen with the disciples. One of the servants of the high priest said to Peter, "Did not I see you in the garden with Him?" Now, there are some of you who are always seen in the House of God&mdash;not only at stated services which are attended by the general public, but you are seen at the Prayer Meetings, you are seen at times when the interest is more spiritual&mdash;and when only the spiritual, it would be supposed, would be attracted and find anything that would interest them&mdash;there are you found. It is not only in the House of God that you are seen with Christ's people, but out-of-doors, too. You do not enjoy frivolous society. You are not at home in the haunts of vanity. Your companions are the godly. You delight in their conversation and the more spiritual the conversation becomes, the more you enjoy it!
 
@@ -79,11 +79,11 @@ I trust the questions I have put to you, my Hearers, will not be lost upon you. 
 
 then&mdash;and then, it willmatter if you are Christ's disciple, or not! It will notmatter, then, whether you have been rich or not, educated or not&mdash;but it will matter for all eternity whether you are His or not, for remember the division&mdash;"These shall go away into everlasting punishment; but the righteous into life eternal." God grant that you then may be with the company of the disciples of Jesus for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN18:12-27.
+Exposition by C. H. Spurgeon: John18:12-27.
 
 Verses 12, 13. Then the bandand the captain and officers of the Jews took Jesus and boundHim, andledHim away to Annas first; for he was father-in-law to Caiaphas, who was the high priest that same year. [See Sermons #2820, Volume 49&mdash;
 
-CHRIST BEFORE ANNAS and #2822, Volume 49&mdash;CHRIST IN BONDS.] Annas had
+Christ BEFORE ANNAS and #2822, Volume 49&mdash;Christ IN BONDS.] Annas had
 
 been high priest before, and he seems to have been still regarded as high priest and to have been a leading spirit among the adversaries of Christ. The old sinner would not go to bed that night until he had seen the Man whom he hated brought bound before him. Sometimes hatred becomes a more powerful passion than even love, and here, while the disciples of Jesus all fled in terror, Annas, the Savior's bitter foe, was wide awake and awaiting His arrival with those who had taken Him captive.
 
