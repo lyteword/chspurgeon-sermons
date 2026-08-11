@@ -44,7 +44,7 @@ I think that Jesus also intended these words, "All that the Father gives Me shal
 
 Now I come to the last and perhaps the sweetest part of the whole discourse, which is to be concerning THE
 
-FULLNESS AND FREENESS OF DIVINE GRACE&mdash;ALL WHO COME BY THIS ONE WAY SHALL BE SAVED!
+FULLNESS AND FREENESS OF DIVINE GRACE&mdash;ALL WHO COME by THIS ONE WAY SHALL BE SAVED!
 
 "Him that comes to Me, I will in no wise cast out.
 
@@ -72,7 +72,7 @@ glo-Saxon expression that sweeps round the man who comes to Christ and guards hi
 
 What do you say, My Hearers, to all this? I have pleaded with some of you hundreds of times and now, in this, my last Sabbath message for the year, I ask you once again&mdash;Will you come to Christ? When will you come? Tomorrow? That means never, for tomorrow never comes. By-and-by? That means that you do not intend to come to Christ at all! The text is in the present tense, "him that comes to me," for, "now is the accepted time. Behold, now is the day of salvation." Trust in Jesus now, Sinner! Trust your soul to Him as you trust your money to your banker and your body to your doctor! "Believe on the Lord Jesus Christ and you shall be saved." Oh, that the Holy Spirit may enable you to say, at this moment, "This is a sinner's salvation and, as I am a sinner, it exactly suits my case! I accept it, My Lord, praising and blessing You that I, a poor, foul, lost, condemned sinner coming to You, am saved&mdash;saved now and saved forever! Glory be unto Your holy name! Amen!"
 
-EXPOSITION BY C. H. SPURGEON: LUKE 11:1-26.
+Exposition by C. H. Spurgeon: Luke 11:1-26.
 
 Andit came topass, that as He waspraying in a certain place, when He ceased, one ofHis disciples said unto Him, Lord, teach us to pray, as John also taught his disciples. It seemed to this disciple as if he did not know how to pray after he had heard Christ pray. The prayer of Jesus was so infinitely above anything that he had ever reached that he said, "Lord, teach us to pray." And as if he felt that he needed a precedent for asking such hallowed instruction, he said, "Teach us to pray, as John also taught his disciples." We must all feel that if we are to pray aright, we must be taught of God, by his Holy Spirit. We are full of infirmities and if there is any time when our infirmities are felt most, it is when we engage in prayer, but "the Spirit also helps our infirmities: for we know not what we should pray for as we ought." Let us, then, breathe this prayer to our great Teacher, "Lord, teach us to pray."
 
