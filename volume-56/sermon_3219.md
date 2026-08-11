@@ -56,7 +56,7 @@ The most unpleasant places to us in life are often the places where the blessing
 
 I would then encourage each one of you to seek a blessing, wherever you may be. I think most of you have been in the house of trial&mdash;seek to get a blessing there. The place of pleading, at any rate, is open to you all&mdash;get a blessing there. The sacred spot of communion&mdash;we may get the blessing that is always to be found there. And I suppose most of you have had your times of tumbling, of stripping and getting very low&mdash;may you get a blessing there!
 
-So I turn to notice very briefly that THERE ARE OTHER PLACES WHERE CHRISTIANS GET BLESSINGS besides the place where Jacob won his.
+So I turn to notice very briefly that THERE ARE OTHER PLACES WHERE ChristIANS GET BLESSINGS besides the place where Jacob won his.
 
 Beloved, there is a place (how shall I speak of it?) where the Lord has always blessed us. It is of old in eternity. God is so glad to bless His people that He began doing it long ago! "Long ago," do I say? He began before time began! He has blessed us with all spiritual blessings in Christ Jesus according as He has chosen us in Him before the foundation of the world. When the Decree was given, when the Covenant was established, when the Election was determined, He blessed each one of us there, if indeed we are Believers in Jesus&mdash;
 
@@ -104,7 +104,7 @@ There may perhaps, be some Christians here in trouble. Brother, Sister, I do not
 
 cares for you." Will you not trust to Him after that? If so, He will bless you there! Is your trouble concerning temporal need? Let me put this passage into your mouth as a sweet morsel, "Your Father knows what things you have need of before you ask Him." Suck that down and He will bless you there! Oh, what a blessing will come out of the marrow and fatness of that thought! Is there a poor Christian here who says, "I feel half ashamed to go to the Communion Table. I am so unworthy?" You never were worthy and never will be! Turn your eyes again to the Cross! Look to the Savior for worthiness. He will bless you there! "I feel so cold and chill," says another. Think of the Savior's love to poor, dead, cold sinners such as you are and He will bless you there! If you are very cold, it is no use thinking of the cold in order to get hot&mdash;the best thing is to go to the fire. And if you feel dull and dead, do not try to get better by looking within and examining yourself&mdash;fly away to Jesus Christ and He will bless you there! Let all of us now say, "Dear Lord, meet with us, show us Your hands and Your side." And if we come to His Throne in that spirit of desire, He will bless us there! The Lord be with us all, for Jesus' sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW10:24-42.
+Exposition by C. H. Spurgeon: Matthew10:24-42.
 
 Our Lord had been sending forth His 12 Apostles to preach the Gospel of the Kingdom and to work miracles in His name. Having given them their commission, He warned them of the treatment they could expect to receive and then fortified their minds against the persecutions they would have to endure.
 
