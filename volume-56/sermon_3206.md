@@ -10,7 +10,7 @@ God!
 
 The first point to which I am going to draw your attention is the description given of Believers as the Church of the First-Born. Next, I want to remind you of what is said about their enrolment&mdash;they are written or enrolled (as the original reading renders it) in Heaven. And then, thirdly, I shall have something to say concerning their great general assembly, when all the righteous shall be gathered to Christ, to be parted from Him no more forever.
 
-To begin then, from our text it seems that BELIEVERS IN CHRIST ARE DESCRIBED AS THE CHURCH OF THE FIRST-BORN. I shall try to make my remarks, as I utter them, self-examining, so that you and I may question ourselves to see whether we belong to this general assembly.
+To begin then, from our text it seems that BELIEVERS IN Christ ARE DESCRIBED AS THE CHURCH OF THE FIRST-BORN. I shall try to make my remarks, as I utter them, self-examining, so that you and I may question ourselves to see whether we belong to this general assembly.
 
 By the term "first-born" is often meant, in Scripture, the most excellent, the chief. Jesus Christ, because of the excellence of His Character, is said to be "the first-born among many brethren," "the first-born of every creature," "the firstborn from the dead, that in all things He might have the preeminence." So, although Believers are, by nature, the child-
 
@@ -40,7 +40,7 @@ Put these three things together&mdash;redemption by blood, redemption by substit
 
 Our time flies so quickly that I am afraid the other two divisions of my discourse will have to suffer. But I must remind you, as I promised to do, that the first-born, having been redeemed, had very special privileges. First, they had a double portion of their father's goods. Hence, Elisha, who was, in the prophetic sense, the first-born of Elijah, pleaded with him as his spiritual son, "I pray you, let a double portion of your spirit be upon me." Now God is good to all men, and His tender mercies are over all His works, but His special favor is reserved for the called and chosen, and faithful ones whom He has redeemed. The first-born also had the privilege of priesthood in the old patriarchal times, and every true child of God is made a king and a priest unto God, to offer daily, spiritual and acceptable sacrifices through Jesus Christ. The first-born was, in many respects, a ruler over the whole household&mdash;and Christ, the great First-Born&mdash;is the supreme Ruler over His Church, and we, in and through Him, are made rulers over many things. And He bids us ascend the throne and reign with Him as God's first-born, kings and priests unto Him forever.
 
-Now, secondly, and but very briefly, let us enquire WHAT IS MEANT BY THE ENROLLMENT OF THE FIRST-BORN?
+Now, secondly, and but very briefly, let us enquire WHAT IS MEANT by THE ENROLLMENT OF THE FIRST-BORN?
 
 Moses had to set down the names of the Jewish first-born. And we find that right down to the Apostles' age, there were some who were very busy about what Paul calls "endless genealogies, which minister questions, rather than godly edifying which is in faith." But, dear Friends, there is an enrollment about which we should be greatly concerned. There are certain names written in the Lamb's Book of Life and it should be to you and to me a matter of solemn interest to enquire if our names are written there. Is your name, is my name, inscribed upon that secret, sacred roll of the elect of God? We cannot scale the heights of Heaven to search the pages of that sealed book, nor can we discover the secrets that the Most High has recorded there. It is impossible for us to read our names there, yet there are certain evidences by which we can tell whether they are or are not there!
 
@@ -60,7 +60,7 @@ Let each one of us ask himself or herself, "Shall I be there?" If anyone says, "
 
 I dare not alter my Master's commission&mdash;"Go you into all the world and preach the Gospel to every creature. He that believes and is baptized shall be saved: but he that believes not shall be damned." There is no other alternative! Turn or burn! Believe and be saved, or disbelieve and be lost! May God, in His mercy, make the choice for you, Sinner, this very hour, and lead you in the Way everlasting. And unto Father, Son and Holy Spirit shall be the glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 12.
+Exposition by C. H. Spurgeon: Hebrews 12.
 
 After giving a long list of the heroes of faith, the Apostle adds&mdash;
 
@@ -116,7 +116,7 @@ For you know how that afterward, when he would have inherited the blessing, he w
 
 22-24. But you are come unto Mount Zion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and Church of the First-Born, which are written in Heaven, and to God, the Judge of all, and to the spirits of just men made perfect. And to Jesus, the Mediator of the New Covenant, and to the blood of sprinkling that speaks better things than that of Abel. [See Sermons #211, Volume 4&mdash;the voice of the
 
-BLOOD OF CHRIST; #708, Volume12&mdash;THE BLOOD OF ABLE AND THE BLOOD OF JESUS; #1888, Volume 32&mdash;THE BLOOD OF SPRINKLING (FIRST SERMON) and #1889, Volume 32&mdash;THE BLOOD OF SPRINKLING (SECOND SERMON).] We are
+BLOOD OF Christ; #708, Volume12&mdash;THE BLOOD OF ABLE AND THE BLOOD OF Jesus; #1888, Volume 32&mdash;THE BLOOD OF SPRINKLING (FIRST SERMON) and #1889, Volume 32&mdash;THE BLOOD OF SPRINKLING (SECOND SERMON).] We are
 
 come to that blood, and it is that blood which has made such a change in us! We may rejoice together, now, and we ought to do so if we are all one in Christ Jesus.
 
