@@ -6,7 +6,7 @@ THE very high value that the Apostle Paul set upon the Savior is most palpable w
 
 I would to God that you all felt the same. I wish that the ambition of every one of my fellow creatures here assem-bled&mdash;and, indeed, the wide world over&mdash;were this, that they might win Christ! Oh, if they did but know His precious-ness, if they did but understand how happy and how blessed He makes those to be who gain Him, they, too, would give up everything else for this one desire&mdash;that they may win Christ! I hope that, perhaps, a few words of mine may be blessed of God the Spirit to stir up such a desire in the hearts of the congregation now assembled. How, then, shall I begin?
 
-WHILE YOU HAVE NOT CHRIST, YOU ARE IN a VERY BAD CONDITION&mdash;SHOULD NOT THIS MAKE YOU LONG FOR HIM?
+WHILE YOU HAVE NOT Christ, YOU ARE IN a VERY BAD CONDITION&mdash;SHOULD NOT THIS MAKE YOU LONG FOR HIM?
 
 Consider, my dear Hearer, you who are Christless tonight, what you are and where you are. You are a sinner&mdash;that you know. Without Christ you are an unpardoned sinner, a condemned sinner and, before long you will be a sinner judged, sentenced and cast into Hell! Do you not know that? You are a diseased sinner. Sin is the leprosy which is in you and, without Christ, you are sick without a physician. For you there is no balm in Gilead, no physician there. Your sickness is mortal! It will certainly be your ruin, for you have no Savior. You are a mortal&mdash;you cannot doubt it. You will soon die and can you tell what it will be to die without Christ? Have you ever formed an idea of what it will be to pass into the realm of separate spirits with no rod to lean on and no staff to comfort you in the dark valley? Man, you are an immortalbeing! You know that, too! You will not cease to be when you die. You will live again&mdash;and what will it be to live again without Christ? It will be to live the life of a condemned spirit, withered by the wrath of God, scathed by the lightning of Divine Justice! Can you think of that without dismay?&mdash;
 
@@ -30,7 +30,7 @@ O you souls out of Christ, I could, with half a moment's thought, stop and burst
 
 We will now change the strain, but not the objective. Remember that ALL THE THINGS IN THE WORLD
 
-ARE VAIN WITHOUT CHRIST.
+ARE VAIN WITHOUT Christ.
 
 The world's goods, its substance, its riches, its pleasures, its pomp, its fame&mdash;what are all these without Christ? They are a painted pageantry to go to Hell in! They are a mockery to an immortal spirit! They are a mirage of the wilderness, deluding the traveler, but not yielding to his desires one substantial drop of joy! There have been those in this world who have tried it, and they say, "It sounds, it sounds, it sounds, because it is empty and hollow as a drum." It is&mdash;
 
@@ -56,7 +56,7 @@ And let me tell you, dear Hearer, that your repentance, if it does not lead you 
 
 "My hope is built on nothing less Than Jesus' blood and righteousness! I dare not trust the sweetest frame, But wholly lean on Jesus'name&mdash; On Christ, the solid Rock, I stand, All other ground is sinking sand!" Oh, how this ought to make you long for Christ, when you think that everything else is but a bauble when compared with Him! And think what a state you are in as long as you are destitute of Him!
 
-I must not tarry, so let me remind you, my dear Hearer, though you cannot possibly know how anxious I am to speak so that you may feel what I say, that NOTHING CAN MAKE AMENDS TO YOU FOR LOSING CHRIST.
+I must not tarry, so let me remind you, my dear Hearer, though you cannot possibly know how anxious I am to speak so that you may feel what I say, that NOTHING CAN MAKE AMENDS TO YOU FOR LOSING Christ.
 
 I know how it is with some of you. You say you cannot afford to follow Christ. Your trade&mdash;your wicked trade&mdash; you would have to give that up, for it happens to be an ungodly calling. Well now, Friend, let me take you by the button-hole a minute. Which had you better be&mdash;a beggar and go to Heaven, or a duke&mdash;and go to Hell? Come, now, which had you better do&mdash;go to Heaven with an empty pocket or go down to the Pit with a full one? All you who worship Mammon, I know how you will answer, but you who have souls above earth, I hope you will reply, "Nothing in the
 
@@ -68,7 +68,7 @@ Some give Jesus Christ up for the pleasures of the world, but can the giddy danc
 
 A fourth observation upon which I shall not enlarge, is this&mdash;DEPEND UPON IT, THAT WHATEVER YOU
 
-LOSE FOR CHRIST's SAKE WILL BE a BLESSED LOSS FOR YOU!
+LOSE FOR Christ's SAKE WILL BE a BLESSED LOSS FOR YOU!
 
 Gregory Nazianzen, a foremost father of the Christian Church, rejoiced that he was well versed in the Athenian phi-losophy&mdash;and why do you think he rejoiced in that? Because he had to give it all up when he became a Christian! And he said, "I thank God that I had a philosophy to throw away." He counted it no loss, but a gain, to be a loser of such learned lumber when he found a Savior! An old Divine said, "Who would refuse to give up a whole sky full of stars if he could buy a sun with them? And who would refuse to give up all the comforts of this life if he could have Christ at so goodly a price?" That grand old Ignatius, one of the earliest of the Church fathers, said, "Give me burning, give me hanging, give me all the torments of Hell if I may but get my Savior! I would gladly be content to bear them all as a price." And so might we! Did I not tell you of the martyrs sitting and singing in old Bonner's damp coal-hole, and one of them writing, "There are six brave companions with me in this paradise, and we do sit and sing in the dark all day?" Ah, yes, they were no losers! Did not Rutherford say when he declared that he had but one eye and his enemies had put that out&mdash;for that one eye was the preaching of the Gospel, an eye to the glory of God&mdash;and his enemies had made him silent in Aberdeen, so that he used to weep over his dumb and silent Sabbaths? Yet did he not say, "But how mistaken they are! They thought they sent me to a dungeon, but Christ has been so precious to me that I thought it to be the king's parlor and the very Paradise of God"?
 
@@ -83,7 +83,7 @@ could stop, or persecution could dry up. The saints of Christ have given Christ 
 
 Yes, if you suffer with Him, you shall also be glorified together! God grant you Grace to feel this to be true and to make any sacrifice as long as you can but "win Christ, and be found in Him."
 
-IF EVER YOU GET CHRIST, YOU WILL FIND HIM ALL GAIN AND NO LOSS!
+IF EVER YOU GET Christ, YOU WILL FIND HIM ALL GAIN AND NO LOSS!
 
 The Apostle says, "That I may win Christ" It is all winning and no losing. Why, if you get Christ, you will get life! Does He not give life and immortality to those that have Him? Yes, for He says, "he that believes in Me, though he were dead, yet shall he live." If you get Christ, you will get light. He said, "I am the light of the world: he that follows Me shall not walk in darkness." The Sun of Righteousness shall arise upon you! Get Christ and you shall get health&mdash;your soul shall leave her sicknesses with Him who bore her sickness in the days of His flesh. Get Christ and you shall get riches, "the unsearchable riches of Christ." You may be poor, perhaps, outwardly, but you shall be rich, yourselves, and be able to make many others rich&mdash;rich in faith, giving glory to God! Get Christ and prosperity shall not hurt you&mdash;your feet shall be like hinds' feet, to stand upon your high places. Get Christ and He will turn your bitter Marahs into sweet Elims. He is the Tree which, when put into the brackish water, makes it sweet to the taste. Affliction is no longer affliction when Christ is with us! Then the furnace glows, not with heat, alone, but with a golden Radiance, a present Glory when Christ treads the burning coals!
 
@@ -105,7 +105,7 @@ But suppose I summoned a jury of bright spirits from Heaven? Ah, they would not 
 
 Pray that prayer. Ask Him to save you and may the Lord bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PHILIPPIANS3.
+Exposition by C. H. Spurgeon: Philippians3.
 
 Verse 1. Finally, my brethren, rejoice in the Lord. Let this be the end of everything, before you get to the end of it. And when you do get to the end of it, "rejoice in the Lord." It is incumbent upon us, as Christians, to rise out of our despondencies. Joy should be the normal state of the Christian. What a happy religion is ours in which it is a duty to be happy! "Finally, my brethren, rejoice in the Lord."
 
@@ -141,10 +141,10 @@ hold of that for which Christ has laid hold of me. He has grasped me in order to
 
 Ofwhom Ihave toldyou often, andnow tellyou even weeping, that they are the enemies ofthe Cross ofChrist
 
-[See Sermons #102, Volume 2&mdash;FALSE PROFESSORS SOLEMNLY WARNED and #2553, Volume 44&mdash;THE ENEMIES OF THE CROSS OF CHRIST.] The worst enemies that the Cross of Christ has are the enemies inside the professing Church of Christ!
+[See Sermons #102, Volume 2&mdash;FALSE PROFESSORS SOLEMNLY WARNED and #2553, Volume 44&mdash;THE ENEMIES OF THE CROSS OF Christ.] The worst enemies that the Cross of Christ has are the enemies inside the professing Church of Christ!
 
 Whose endis destruction, whose Godis their belly, and whose glory is in their shame, who mind earthly things. They call themselves spiritual, yet they live for earthly things, indulging their appetites, living for self, yet pretending to be Christians, whereas selfishness is the very reverse of Christianity.
 
 20, 21. For our conversation is in Heaven; from where also we look for thee Savior, thee LordJesus Christ: who shall change our vile body, that it may be fashioned like unto His glorious body, according to the working whereby He is able
 
-even to subdue all things unto Himself [See Sermon #973, Volume 17&mdash;THE POWER OF CHRIST ILLUSTRATED BY THE RESURRECTION.]
+even to subdue all things unto Himself [See Sermon #973, Volume 17&mdash;THE POWER OF Christ ILLUSTRATED by THE RESURRECTION.]
