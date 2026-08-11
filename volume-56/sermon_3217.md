@@ -66,7 +66,7 @@ from their sins by power and brought home to Heaven. Trust Jesus Christ, Soul! H
 
 Have you done so? Then, even if the clock has not ticked once since you believed in Jesus Christ, you are as surely saved as if you had been a saint these 20 years, for he that believes in Him is not condemned! This declaration makes no stipulation as to time. "There is therefore now no condemnation to them which are in Christ Jesus." "He that believes and is baptized shall be saved." God grant that you may obey the heavenly precept, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 2f 3.
+Exposition by C. H. Spurgeon: Hebrews 2f 3.
 
 Hebrews 2:1. Therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let them slip. That is to say, because Jesus is so great, because the Truths which He came to reveal are so infinitely important, "therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let them slip." For sometimes, we seem to let them slip. We grow old. Our mind is dull. Our heart is occupied with other matters and we let these heavenly things leak out, or drift by us, as if we were not concerned in them.
 
@@ -108,7 +108,7 @@ to save men. Therefore He came not in the nature of angels, but in the nature of
 
 17, 18. Therefore in all things it behooved Him to be made like unto His brethren, that He might be a merciful and faithful High Priest in things pertaining to God, to make reconciliation for the sins of the people. For in that He Himself has suffered being tempted, He is able to succor them that are tempted. "And this is the reason why He suf-fered&mdash;and why He became a man capable of suffering&mdash;that He might be able to succor the tempted. It was for this that Christ left Heaven, for this He was born of the virgin, for this He lived and for this He died, that He might be "able to
 
-succor them that are tempted." [See Sermons #487, Volume 9&mdash;a TEMPTED SAVIOR&mdash;OUR BEST SUCCOR; #1974, Volume 33&mdash;THE SUFFERING SAVIOR's SYMPATHY and #2885, Volume 50&mdash;CHRIST's SYMPATHY WITH HIS PEOPLE.]
+succor them that are tempted." [See Sermons #487, Volume 9&mdash;a TEMPTED SAVIOR&mdash;OUR BEST SUCCOR; #1974, Volume 33&mdash;THE SUFFERING SAVIOR's SYMPATHY and #2885, Volume 50&mdash;Christ's SYMPATHY WITH HIS PEOPLE.]
 
 Hebrews 3:1. Therefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus. Think of Him, think how great He is, think what attention He deserves from all who believe in Him!
 
