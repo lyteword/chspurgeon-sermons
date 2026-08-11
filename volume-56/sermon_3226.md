@@ -73,7 +73,7 @@ If you will do this, that faith-look of yours will be the evidence that this new
 
 May the Lord enable you to have done with yourself and to have begun with Him! The end of the creature is the beginning of the Creator. When you acknowledge that you cannot save yourself and trust Him to save you, He will do it! Cast yourself upon Him this very moment and then, by an act of Almighty Grace, the fig tree shall be changed into a fruitful olive tree and your fruit shall be unto holiness&mdash;and the end everlasting life!
 
-EXPOSITION BY C. H. SPURGEON: PSALM 56; 57.
+Exposition by C. H. Spurgeon: Psalm 56; 57.
 
 Psalm 56:1. Be merciful unto me, O God, for man would swallow me up. Fighting all day he oppresses me. "Man has no mercy upon me, but, O God, be You merciful to me! If Your Justice does for a while let my enemies loose upon me, let Your mercy diminish their power over me, for they are very cruel. They would make a complete end of me if they could, utterly devouring me."
 
@@ -91,7 +91,7 @@ Are they not in Your Book?"Are they not all duly recorded there?"
 
 When I cry unto You, then shall my enemies turn back. "When I cry, they shall fly, so swift is prayer to reach the ear and heart of God! And so kind is God to me."
 
-9-12. This Iknow; for God is for me. In God will Ipraise His Word: in the LORD willIpraise His Word. In God have I put my trust I will not be afraid what man can do unto me. Your vows are upon me, O God. "I am bound to praise You, I am bound to love You and I will, come what may."
+9-12. This Iknow; for God is for me. In God will Ipraise His Word: in the Lord willIpraise His Word. In God have I put my trust I will not be afraid what man can do unto me. Your vows are upon me, O God. "I am bound to praise You, I am bound to love You and I will, come what may."
 
 12, 13. I will render praises unto You. For You have delivered my soul from death: will You not deliver my feet from falling, that I may walk before God in the light of the living?
 
