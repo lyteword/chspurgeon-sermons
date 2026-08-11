@@ -40,7 +40,7 @@ I have no doubt the scales became all the more perceptible to poor Saul when he 
 
 Now thirdly, and here I should like to stir up the people of God to a little practical business&mdash;we have seen Saul with the scales outside his eyes. He now knows that he is blind, though he did not know it before when he was a proud Pharisee. He can see a great deal better, now, than he could when he thought he could see. But still, there he is, in dark-
 
-ness&mdash;and we long for the scales to be removed! WHAT INSTRUMENTALITY DID THE LORD USE TO TAKE THE
+ness&mdash;and we long for the scales to be removed! WHAT INSTRUMENTALITY DID THE Lord USE TO TAKE THE
 
 SCALES AWAY?
 
@@ -82,7 +82,7 @@ One more thing that Saul saw, when his eyes were opened, was what some do not se
 
 I pray the Lord to bless these feeble words of mine. O Souls, O Souls, it does seem to me so dreadful that so many of you should come here continually and yet be blind! I try to talk plainly about your souls' needs and about Christ Jesus as able to meet those needs&mdash;how long must I repeat the old story? Once again I beseech you, think upon my Lord and Master and see what a Savior He is, and how suitable He is for you! I would entreat you to delay no longer, but to close in with the invitations of His mercy. I think, sometimes, that my Master deserves that we should do more than invite you. We commandyou, in the name of Jesus of Nazareth, to bow before His scepter, for He is the King! Acknowledge His dominion and let Him be your Savior, for know this&mdash;His Gospel comes with Divine Authority as well as with gentle persuasion&mdash;and neither can men reject it except at the peril of their souls! He whom I preach to you tonight will shortly come to be your Judge. And if you will not trust Him on His Cross, you must tremble before Him on His Throne! Oh, come to Him! Simple trust is the way to come to Him. Believe in Him and He is yours and His salvation is yours!
 
-EXPOSITION BY C. H. SPURGEON: ACTS 9:1-22; 22:1-16.
+Exposition by C. H. Spurgeon: Acts 9:1-22; 22:1-16.
 
 Acts 9:1, 2. And Saul, yet breathing out threats and slaughter against the disciples of the Lord, went to the high priest and desired of him letters to Damascus to the synagogues, that if he found any of this Way, whether they were men or women, he might bring them bound to Jerusalem. His very breath was hot with malice against the saints! He could not live without venting his spite upon the disciples of Christ. He showed this by the fact that he not only sought to arrest men, but he was equally cruel towards women, who, from their weakness, one would have thought might have been left alone&mdash;but he expressly desired it to be written in the letters that, "whether they were men or women, he might bring them bound to Jerusalem."
 
