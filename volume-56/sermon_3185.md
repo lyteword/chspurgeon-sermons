@@ -12,7 +12,7 @@ The text seems to me to indicate just this state of mind. Perhaps some of you ma
 
 We may occupy the time profitably if God the Holy Spirit shall enable us in speaking upon these matters. We have here, first, a soul enjoying personal interest in the Lord Jesus Christ or, personal interest assured. We have, next, a soul taking the deepest interest in Christ and longing to know where He isor, the deepest interest evinced. And then we have a soul anxiously desiring present communion with Christ or, visible fellowship, conscious communion sought after.
 
-We have here, first, PERSONAL INTEREST IN THE LORD JESUS CHRIST ASSURED.
+We have here, first, PERSONAL INTEREST IN THE Lord Jesus Christ ASSURED.
 
 I do not mean to try to preach tonight. I should like my text to preach. And the way in which I should like it to preach would be to see how far we can get hold of it. How we can take it word by word and drink it in! Come to each
 
@@ -67,7 +67,7 @@ Stop that! Do not sing lies, for you know very well that you would not give Him 
 
 I am afraid I shall have to stop here and ask the question, without getting any answer to it&mdash;How far can we get toward this second sentence, "My Beloved is mine, and I am His?" Do you feel as if you could not say that? Do you feel that you cannotsay it? Then let this be your prayer, "Lord, if I have not yet done all that I can do. If there is anything left which I might have done for You, and which I have not done, give me Grace that I may do all I can for You and give all I can to You!" There ought not to be an unconsecrated hair on a Christian's head, nor an unconsecrated drop of blood in his veins. Christ gave Himself wholly for us&mdash;He deserves that we should give ourselves wholly to Him! Where reserve begins, there Satan's dominion begins, for what is not Christ's is the property of the flesh, and the property of the flesh is the property of Satan! Oh, may the spiritual consecration be so perfect in each one of us that if we live, we may live unto Christ&mdash;or if we die, it may still be unto Him! I hope, though we may have to make many grave confessions, that we can still say, "My Beloved is mine, and I am His." If He stood here at this moment. If we could just clear a space and all of a sudden He should come and stand in our midst, with His wounds still visible, it would be so sweet to be able to then say, "My Beloved is mine, and I am His." But I am afraid that in His Presence we would have to say, "Jesus, forgive us. We are Yours, but we have not acted as if we were. We have stolen from You what was Your purchase and what You have the right to keep. From this day may we bear in our body the marks of the Lord Jesus and may we be wholly Yours!"
 
-I cannot say much upon the second part of the subject, for our time is already nearly gone. THE SOUL, BEING ASSURED OF ITS PERSONAL INTEREST IN CHRIST, LONGS TO KNOW WHERE HE IS.
+I cannot say much upon the second part of the subject, for our time is already nearly gone. THE SOUL, BEING ASSURED OF ITS PERSONAL INTEREST IN Christ, LONGS TO KNOW WHERE HE IS.
 
 "Where is He?" asks the soul, and the answer comes from the text, "He feeds among the lilies." The worldling cares not where Christ is, but that is the Christian's one subject of thought&mdash;
 
@@ -85,7 +85,7 @@ From His footsteps never depart." If we would find Christ, we must get into comm
 
 If you would meet with Him, look, too, in the blessed lily beds of Scripture. Each Book of the Bible seems to be full of lilies, yet you must never be satisfied merely with Scripture, but must get to the Christ of Scripture, the Word of God, the sum and substance of the Revelation of the Most High! "He feeds among the lilies." That is where He is to be found. Lord Jesus come and feed us among the lilies tonight! Come and feed our hungry souls and we will bless Your holy name!
 
-I must leave that part of the subject unfinished because I want to speak of THE SOUL, ASSURED OF CHRIST's LOVE, DESIRING HIS CONSCIOUS PRESENCE. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
+I must leave that part of the subject unfinished because I want to speak of THE SOUL, ASSURED OF Christ's LOVE, DESIRING HIS CONSCIOUS PRESENCE. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
 
 You observe that the soul speaks here of the day breaking. All of us who love the Lord have to look for daybreak, but the sinner has a night to come. Sinner, this is your day! And when you die, that will be your long and awful night&mdash; unbroken by a single star of hope! But Christian, this is your night, the darkest period that you will ever have&mdash;but your day will break! Yes, the Lord will come in His Glory, or else you shall sleep in Him and then your day shall break. When the Resurrection trumpet shall sound, the Day of the Lord will be darkness and not light to the sinner, but to you it will be an everlasting daybreak! Perhaps at the present moment your life is wrapped in shadows. You are poor, and poverty casts a shadow. You have a sick one at home, or perhaps you are sickly in body&mdash;that is a shadow to you. And the reflection of your sin is another shadow, but when the day breaks the shadows will flee away! No poverty then! No sin then, which is better still! And&mdash;
 
@@ -99,7 +99,7 @@ Then the soul says, "Turn, my Beloved, and be You like a roe or a young hart upo
 
 And you, poor Sinner, who have never comfortably seen His face&mdash;remember that there is life for a look at Him! God give you Grace, now, to trust Him&mdash;and may you see His face, here, so that you may see Him hereafter with everlasting joy!
 
-EXPOSITION BY C. H. SPURGEON: 2 THESSALONIANS1.
+Exposition by C. H. Spurgeon: 2 Thessalonians1.
 
 [This exposition belongs to Sermon #3179, Volume 56&mdash;a COMPREHENSIVE BENEDICTION&mdash;but there was not sufficient space available for its insertion there.]
 
