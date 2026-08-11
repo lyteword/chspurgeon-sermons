@@ -114,50 +114,50 @@ All the power of the Gospel lies in itself, not in the sinner&mdash;salvation co
 
 Therefore, there is nothing about the sinner to make us hesitate to preach to him because if he is dead, God can lift him up. Yes, if he is like Lazarus, dead and buried, the Voice of God can call him forth from the tomb! Yes, if he were as nothing, God makes the things that are not, to be mightier than the things that are! He can bless where all was cursed. Out of the stones of the brook He can raise up children to Abraham. Let us have great comfort, next Sunday, in going to preach, or to teach in the Sunday school, or to engage in other forms of usefulness. All the springs lie in God and if we are going to work in a dry and thirsty land where there is no water, never mind! Our springs are in God&mdash;our faith is in Him and, according to our faith, so shall it be done to us. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM34
+Exposition by C. H. Spurgeon: Psalm34
 
-Verse 1 I will bless the LORD at all times: His praise shall continually be in my mouth. What a sweet resolve! Oh, that all of us who know the Lord would make that resolve and keep it all our days&mdash;"I will bless the Lord at all times." In dark times and bright times, as long as I live. "His praise shall continually be in my mouth"&mdash;that is the most delightful mouthful that a man can possibly have!
+Verse 1 I will bless the Lord at all times: His praise shall continually be in my mouth. What a sweet resolve! Oh, that all of us who know the Lord would make that resolve and keep it all our days&mdash;"I will bless the Lord at all times." In dark times and bright times, as long as I live. "His praise shall continually be in my mouth"&mdash;that is the most delightful mouthful that a man can possibly have!
 
-My soul shall make her boast in the LORD. We do not like boasters, but we would encourage every child of God to boast in the Lord as much as he pleases!
+My soul shall make her boast in the Lord. We do not like boasters, but we would encourage every child of God to boast in the Lord as much as he pleases!
 
 The humble shall hear thereof and be glad. There is nothing that humble people dislike more than to hear others boasting&mdash;yet there is nothing that they like more than to hear anyone boast in the Lord!
 
-Omagnify the LORD with me. There is a sweet contagion about the praise of God. We want others to help us to spread it everywhere, so we say with David, "O magnify the Lord with me"&mdash;
+Omagnify the Lord with me. There is a sweet contagion about the praise of God. We want others to help us to spread it everywhere, so we say with David, "O magnify the Lord with me"&mdash;
 
-3-4. Andlet us exalt His name together. Isought the LORD, andHe heardme, and deliveredme from allmy fears. There is nothing that is so effective as personal testimony to the Lord's saving power. How often is the skill of a physician commended by the grateful testimony of the patients who have been healed by him! So, shall not the prayer-hearing God be commended by those of us who have had our prayers answered by Him? Let us not be slow to say, "I sought the Lord and He heard me, and delivered me from all my fears."
+3-4. Andlet us exalt His name together. Isought the Lord, andHe heardme, and deliveredme from allmy fears. There is nothing that is so effective as personal testimony to the Lord's saving power. How often is the skill of a physician commended by the grateful testimony of the patients who have been healed by him! So, shall not the prayer-hearing God be commended by those of us who have had our prayers answered by Him? Let us not be slow to say, "I sought the Lord and He heard me, and delivered me from all my fears."
 
 They looked unto Him and were lightened: and their faces were not ashamec. [See Sermon #195, Volume 4&mdash;looking unto
 
-JESUS.] "They looked unto Him"-a whole army of them, an
+Jesus.] "They looked unto Him"-a whole army of them, an
 
 innumerable company&mdash;"They looked unto Him and were lightened: and their faces were not ashamed." There never was a face that was ashamed of being turned Christward and Godward!
 
-This poor man cried, and the LORD heard him, and saved him out of all his troubles. [See Sermon #2193, Volume 27&mdash;a
+This poor man cried, and the Lord heard him, and saved him out of all his troubles. [See Sermon #2193, Volume 27&mdash;a
 
 POOR MAN's CRY&mdash;AND WHAT CAME OF IT.] Here David speaks of himself again, but he refers to himself in the third person&mdash;"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
 
-The angel of the LORD encamps round about them that fear Him, and delivers them. The great Angel of the Covenant, the Lord Jesus Christ, surrounds with His army the dwellings of the saints and takes care to have them in safe keeping.
+The angel of the Lord encamps round about them that fear Him, and delivers them. The great Angel of the Covenant, the Lord Jesus Christ, surrounds with His army the dwellings of the saints and takes care to have them in safe keeping.
 
-8-10. O taste and see that the LORD is good: blessed is the man that trusts in Him. O fear the LORD, you His saints. For there is no need to them that fear Him. The young lions do lack and suffer hunger: but they that seek the LORD shall not want any good thing.[See Sermon #65, Volume 2&mdash;LIONS LACKING BUT THE CHILDREN SATISFIED.] We are often in need because we are not seeking the Lord, but are seeking what we think we need, whereas, if we sought Him and left the supply of our needs to Him, He would supply all our need according to His riches in Glory by Christ Jesus. Christ's command is, "Seek you first the Kingdom of God and His righteousness, and all these things shall be added unto you." Men think that they will not get what they want except they seek it, but if they seek God, He will give them what they really need even if He does not give them all that they want!
+8-10. O taste and see that the Lord is good: blessed is the man that trusts in Him. O fear the Lord, you His saints. For there is no need to them that fear Him. The young lions do lack and suffer hunger: but they that seek the Lord shall not want any good thing.[See Sermon #65, Volume 2&mdash;LIONS LACKING BUT THE CHILDREN SATISFIED.] We are often in need because we are not seeking the Lord, but are seeking what we think we need, whereas, if we sought Him and left the supply of our needs to Him, He would supply all our need according to His riches in Glory by Christ Jesus. Christ's command is, "Seek you first the Kingdom of God and His righteousness, and all these things shall be added unto you." Men think that they will not get what they want except they seek it, but if they seek God, He will give them what they really need even if He does not give them all that they want!
 
 Come, you children, hearken unto me. This man of God has made his confession to the saints and now he tells it to the children. There is nothing like working on material that will last&mdash;and those who are now children will, most of them, be alive when those who are now old men are dead and gone. So David says, "Come you children, hearken unto me"&mdash;
 
-11-13. I will teach you the fear of the LORD. What man is he that desires life, and loves many days; that he may see good? Keep your tongue from evil, and your lips from speaking guile. There is life or death in the human tongue! There is life in the tongue that is under subjection to the will of God. There is death, there is mischief of all sorts in a wild un-governed tongue!
+11-13. I will teach you the fear of the Lord. What man is he that desires life, and loves many days; that he may see good? Keep your tongue from evil, and your lips from speaking guile. There is life or death in the human tongue! There is life in the tongue that is under subjection to the will of God. There is death, there is mischief of all sorts in a wild un-governed tongue!
 
 Depart from evil, and do good. Get away from evil as far as you can&mdash;that is the negative side. Do good&mdash;that is the positive side of piety. He who obeys these two commands shall find happiness and blessing.
 
 Seekpeace, and pursue it Do not be of an angry, irritable, quarrelsome frame of mind. If you do not at once find peace, seek it. And if it runs away from you, pursue it until you overtake it. Remember that it is the meek who shall inherit the earth&mdash;and that it is the peaceful spirit that is the happiest spirit.
 
-The eyes of the LORD are upon the righteous, and His ears are open unto their cry. He gives them His eyes and His ears&mdash;and this means that He gives them Himself and that He is always ready to perceive their needs and to hear their cries.
+The eyes of the Lord are upon the righteous, and His ears are open unto their cry. He gives them His eyes and His ears&mdash;and this means that He gives them Himself and that He is always ready to perceive their needs and to hear their cries.
 
-The face of the LORD is against them that do evil. He sets His face against them&mdash;and this means that He is, Himself, eternally opposed to all their wicked ways.
+The face of the Lord is against them that do evil. He sets His face against them&mdash;and this means that He is, Himself, eternally opposed to all their wicked ways.
 
-16, 17. To cut off the remembrance of them from the earth. The righteous cry, and the LORD hears and delivers them out of all their troubles. Not only out of some of them, but out of allof them. It is often a very long, "all." The list of their troubles is often difficult to read through but in due time there comes a "finis," to it written by the hand of Divine Mercy&mdash;"The Lord delivers them out of all their troubles."
+16, 17. To cut off the remembrance of them from the earth. The righteous cry, and the Lord hears and delivers them out of all their troubles. Not only out of some of them, but out of allof them. It is often a very long, "all." The list of their troubles is often difficult to read through but in due time there comes a "finis," to it written by the hand of Divine Mercy&mdash;"The Lord delivers them out of all their troubles."
 
-The LORD is near unto them that are of a broken heart; and saves such as are of a contrite spirit Not your proud spirits, not your hectoring ones, but your lowly, penitent souls are the ones that are dear to the heart of God. He is near to them and saves them.
+The Lord is near unto them that are of a broken heart; and saves such as are of a contrite spirit Not your proud spirits, not your hectoring ones, but your lowly, penitent souls are the ones that are dear to the heart of God. He is near to them and saves them.
 
-19, 20. Many are the afflictions of the righteous; but the LORD delivers him out of them all. He keeps all his bones: not one of them is broken. He will have many a flesh wound, but there shall be no permanent injury to him. And even though his body were diseased, his soul would be saved.
+19, 20. Many are the afflictions of the righteous; but the Lord delivers him out of them all. He keeps all his bones: not one of them is broken. He will have many a flesh wound, but there shall be no permanent injury to him. And even though his body were diseased, his soul would be saved.
 
-21, 22. Evil shall slay the wicked: and they that hate the righteous shall be desolate. The LORD redeems the soul of His servants. Great as the price is, He pays it! They are so precious to Him that He minds not what price He pays so that He may redeem the souls of His servants.
+21, 22. Evil shall slay the wicked: and they that hate the righteous shall be desolate. The Lord redeems the soul of His servants. Great as the price is, He pays it! They are so precious to Him that He minds not what price He pays so that He may redeem the souls of His servants.
 
 And none of them that trust in Him shall be desolate. Blessed be His holy name!
