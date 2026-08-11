@@ -2,9 +2,9 @@
 
 "Hearken to Me, you that follow after righteousness, you that seek the Lord: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
 
-[Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18&mdash;a BRIGHT LIGHT IN DEEP SHADES.]
+[Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18&mdash;a bright light in deep shades.]
 
-THESE words were addressed to those who were already the people of God. No others could be thus exhorted to look unto the rock where they were hewn, since they have never been hewn from it. Nor to the hole of the pit where they were dug, for they still are in the hole of the pit. They are lost and ruined and they still remain in that condition. But the people of God have been broken off that rock by a blow from the Divine hammer. They have been brought up from the horrible pit by the might of the Divine arm and their feet are now firmly fixed upon the Rock of Ages!
+These words were addressed to those who were already the people of God. No others could be thus exhorted to look unto the rock where they were hewn, since they have never been hewn from it. Nor to the hole of the pit where they were dug, for they still are in the hole of the pit. They are lost and ruined and they still remain in that condition. But the people of God have been broken off that rock by a blow from the Divine hammer. They have been brought up from the horrible pit by the might of the Divine arm and their feet are now firmly fixed upon the Rock of Ages!
 
 The people of God are here described as those "that follow after righteousness." That is the direction in which their life generally flows. They are not perfect, but they want to be. They do not love that which is unrighteous, but they desire to be right in all things both before God and before men. They are also said to be those "that seek the Lord," that is to say, they are those who could not live without seeking the Lord in prayer, or in public or private worship. Their great objective in life is to glorify God, to make Him famous among the sons of men&mdash;and they desire to devote all their time, talents and powers of every kind to His service and honor!
 
@@ -12,7 +12,7 @@ It is to such privileged people as these that the message of our text is address
 
 So, first, let us look where we are told to look. And secondly, let us learn the lessons which that look is intended to teach us.
 
-First, then, LET US LOOK WHERE WE ARE TOLD TO LOOK&mdash;"unto the rock where you were hewn, and to the hole of the pit where you were dug."
+First, then, let us look where we are told to look&mdash;"unto the rock where you were hewn, and to the hole of the pit where you were dug."
 
 Look back then, first of all, to your nature's origin in the Garden of Eden. Look at that man and woman perfect in beauty, without blemish from head to foot, and altogether spotless in mind and heart as they came fresh from their Creator's hands! They are placed in a garden which is as perfect as they are. All that is fragrant to the smell, gratifying to the taste and lovely to the eyes, they have in the greatest profusion. The man's easy task was to dress and keep the garden which would have spontaneously yielded all that he and his required. And the tenure upon which he might have held that fair estate for himself and his heirs forever was very simple and clear&mdash;"Of every tree of the garden you may freely eat, but of the Tree of the Knowledge of Good and Evil, you shall not eat of it: for in the day that you eat thereof, you shall surely die." To eat of that tree would show that man had revolted from his allegiance to his Sovereign, that he had ceased to depend upon the God who had created him and set up on his own account. And it would be, in fact, a declaration of war by finite man against the Infinite Jehovah! Alas for us that our first parents were not immune from temptation! Mother Eve, deceived by the serpent, took of the forbidden fruit and ate of it and gave some to her husband, and he also
 
@@ -34,9 +34,9 @@ Others of us who were graciously restrained by God from falling into the grosser
 
 There is only one more look that I ask you to give, and that is the saddest and most terrible of all&mdash;look, as far as you can, at the state of the lost. There is a land of darkness and of the shadow of death where the very light is as darkness, and where despair reigns supreme. There are no sights to be seen in that land but such as cause the eyes to weep. And no sounds to be heard but such as grate upon the ears, for He who knows all about it has told us that there shall be weeping and wailing and gnashing of teeth in that dead world of the lost! Stand at a distance from that place where the smoke of their torment goes up forever and ever&mdash;and if you can bear it, try to think what must be the condition of spirits that are at this moment, while you are sitting here, banished from the Presence of God and condemned to reap the results of the deeds done in the body! Think, also, that but for Divine Grace, we would have been there too. There are some here, who but for a special interposition of Providence might have been there now! Had that fever proved fatal, you would have been there, my Friend! Had that vessel veered just a little from her course in that dense fog, you, being unregenerate, would have been there to weep and wail forever! There is one who, before his conversation, was at death's door and at Hell's gate scores of times. I want you, my Brother, to think of that, and then you will say, "Had it not been for Divine Grace, I would have been this night among those lost spirits instead of being here among my Brothers and Sisters in Christ, rejoicing in what the Lord has done for me and praising and magnifying His holy name!" Great as is the distance between the heights of Heaven and the depths of Hell, as great is the Lord's mercy toward you whom He has redeemed. So, looking away even to the abode of the lost, and trying to realize from how terrible a doom the Lord has delivered you, remember the rock where you have been hewn and the hole of the pit where you have been dug.
 
-Now, in the second place, LET US LEARN THE LESSONS WHICH THIS LOOK IS INTENDED TO TEACH
+Now, in the second place, let us learn the lessons which this look is intended to teach
 
-US.
+us.
 
 I have already hinted at one result of looking back in the way I have described, but may again remind you that it ought to humble us. How apt we are to be proud! If there is one man here who says, "I am not proud, I am very humble," I say to him, "My dear Brother, you must excuse me, but I would not be surprised if you are the proudest man here, for he who imagines he is humble proves by that every fact how very proud he is." We are all proud. Pride can hide under a beggar's rags as well as under an alderman's robes. Pride is a weed that will grow on a dunghill as well as in a palace garden, but it ought never to be allowed to grow in the heart of a Christian! Yet I think&mdash;yes, I knowthat I have seen it in some who profess to be followers of the Lord Jesus Christ! Some professors are proud because they have got on in the world, and have raked together a big heap of money. But, of all kinds of pride, that is one of the most contemptible, for a man is no more of a man because there is more gold and silver in his house than in other people's. The man must be judged apart from his money. There is many a millionaire who is miserably poor, and many a truly rich man who scarcely ever has a shilling to spare. It is paltry pride that is proud of riches and, on the other hand, I have known others who had no money to make them proud, who were not a whit more humble than the purse-proud people, for pride can come in at the back door as easily as at the front!
 
@@ -71,7 +71,7 @@ That you shouldnot obey the truth, before whose eyes Jesus Christ has been evide
 
 This only I want to learn from you: Didyou receive the Spirit by the works of the Law, or by the hearing of faith?
 
-[See Sermon #1705, Volume 29&mdash;THE HEARING OF FAITH.] "You profess to
+[See Sermon #1705, Volume 29&mdash;the hearing of faith.] "You profess to
 
 have received the Spirit&mdash;did the Spirit come to you by the works of the Law, or through hearing and believing the
 
@@ -95,13 +95,13 @@ For as many as are of the words of the Law are under the curse: for it is writte
 
 But that no man is justified by the Law in the sight of God is evident: for the just shall live by faith. [See Sermons
 
-#814, Volume 14&mdash;LIFE by FAITH and #2809, Volume 48&mdash;FAITH&mdash;LIFE.] This passage is again and again repeated in the Scriptures&mdash;"The just shall live by faith." There are no other just men living! There cannot be any other just men living, but those that live by faith!
+#814, Volume 14&mdash;life by faith and #2809, Volume 48&mdash;faith&mdash;life.] This passage is again and again repeated in the Scriptures&mdash;"The just shall live by faith." There are no other just men living! There cannot be any other just men living, but those that live by faith!
 
 And the Law is not of faith: but, the man that does them shall live in them. The law demands doing. The Gospel enjoins believing. The believing man comes in as an heir of the blessing, but the man who trusts to his own doing is an heir of the curse.
 
 Christ has redeemed us from the curse ofthe Law, being made a curse for us: for it is written, Cursedis everyone
 
-that hangs on a tree. [See Sermons #873, Volume 15&mdash;Christ MADE a CURSE FOR US and #2093, Volume 35&mdash;THE CURSE AND THE CURSE FOR US.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"&mdash;
+that hangs on a tree. [See Sermons #873, Volume 15&mdash;Christ made a curse for us and #2093, Volume 35&mdash;the curse and THE curse for us.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"&mdash;
 
 That the blessing of Abraham might come on the Gentiles through Jesus Christ, that we might receive the promise ofthe Spirit through faith. Dear Friends, are you living by faith upon the Son of God? Are you trusting in God? Are you believing His promises? Some think that this is a very little thing, but God does not think so. Faith is a better index of character than anything else. The man who trusts his God and believes His promises is honoring God far more than is the man who supposes that by any of his own doings he can merit Divine approval and favor.
 
@@ -113,7 +113,7 @@ For if the inheritance is ofthe Law, it is no more of promise. God gave it to Ab
 
 18, 19. But Godgave it to Abraham bypromise. Whatpurpose, therefore, does the Lawserve?[See Sermon #128, Volume
 
-3&mdash;THE USES OF THE LAW.] What was the use of it?
+3&mdash;the uses of THE law.] What was the use of it?
 
 It was added because of transgressions, till the Seed should come to whom the promise was made. The law makes us know what transgression is. It reveals its true nature. Under the hand of the Holy Spirit, it makes us see the evil of sin. We might not have perceived sin to be sin if it had not been for the command of God not to commit it&mdash;but when the commandment comes, then we recognize sin and the evil of it.
 
@@ -121,17 +121,17 @@ It was added because of transgressions, till the Seed should come to whom the pr
 
 But the Scripture has concluded all under sin, that the promise by faith of Jesus Christ might be given to them
 
-that believe. [See Sermon #1145, Volume 19&mdash;THE GREAT JAIL AND HOW TO GET OUT OF IT.] All of us, by nature, are shut up like criminals in a prison that is so securely bolted and barred that there is no hope of escape for any who are within it. But why are all the doors shut and fastened? Why in order that Christ may come and open the one only eternal door of salvation&mdash;"that the promise by faith of Jesus Christ might be given to them that believe."
+that believe. [See Sermon #1145, Volume 19&mdash;the great jail and how to get out of it.] All of us, by nature, are shut up like criminals in a prison that is so securely bolted and barred that there is no hope of escape for any who are within it. But why are all the doors shut and fastened? Why in order that Christ may come and open the one only eternal door of salvation&mdash;"that the promise by faith of Jesus Christ might be given to them that believe."
 
 But before faith came, we were kept under the Law, shut up unto the faith which should afterwards be revealed.
 
-[See Sermon #2402, Volume 41&mdash;UNDER ARREST.] Well do I remember when
+[See Sermon #2402, Volume 41&mdash;under arrest.] Well do I remember when
 
 I was "shut up" in this fashion. I struggled and strove with might and main to get out, but I found no way of escape. I was "shut up" until Faith came and opened the door and brought me out into "the glorious liberty of the children of God."
 
 Therefore the Law was our tutor to bring us to Christ, that we might be justified by faih. [See Sermon #1196, Volume
 
-20&mdash;THE STERN TEACHER.] The tutor was a slave who led the children to school and sometimes whipped them to school. That is what the Law did with us&mdash;it took us under its management, whipped us and drove us to Christ.
+20&mdash;the stern teacher.] The tutor was a slave who led the children to school and sometimes whipped them to school. That is what the Law did with us&mdash;it took us under its management, whipped us and drove us to Christ.
 
 But after faith is come, we are no longer under a tutor. Now we go to Christ willingly, cheerfully, joyfully, trusting in Him with all our hearts. The tutor's work is done so far as we are concerned.
 
