@@ -4,11 +4,11 @@
 
 "The Spirit itself bears witness with our spirit that we are the children of God, and if children, then heirs, heirs of God, and joint heirs with Christ." Romans 8:16,17.
 
-[See Sermon #339, Volume 6&mdash;THE SONS OF GOD.]
+[See Sermon #339, Volume 6&mdash;THE SONS OF God.]
 
 THESE two texts will furnish me with two familiar but most important themes&mdash;what Christians were and what they are. There are great and vital differences between what they once were and what they now are&mdash;and these are implied or indicated by the two expressions, "the children of wrath" and, "the children of God." There is so much instruction in each of our texts that we will proceed at once to consider them without any further introduction.
 
-So, first, let us consider WHAT CHRISTIANS WERE.
+So, first, let us consider WHAT ChristIANS WERE.
 
 The Apostle tells us that we "were by nature the children of wrath, even as others." "By nature," mark you, not merely by practice, but, "by nature the children of wrath" The expression is a Hebraism. When a person was doomed to die, he would be called by the Jews, "the child of death." One who was very poor would be called by them, "the child of poverty." So because we were, by nature, under the wrath of God, we are called "the children of wrath."
 
@@ -36,7 +36,7 @@ Yes, Beloved Brothers and Sisters in Christ, you "were by nature the children of
 
 Yes, and to emphasize what I have previously said, "we were by nature the children of wrath, even as others" who pass away impenitent and in due time must stand before the Judgment Bar of God! They will stand shivering before that Great White Throne whose spotless luster will reveal to them, as in a wondrous mirror, the blackness of their lives and the guiltiness of their impenitence! And when the King sits down upon His Throne, even though it will be the Lamb, Himself, who died for sinners, who will sit as their Judge&mdash;they will cry to the mountains and rocks, "Fall on us, and hide us from the face of Him that sits on the Throne and from the wrath of the Lamb: for the Great Day of His wrath is come, and who shall be able to stand?" There is nothing so terrible to look upon as injured love. Fiercer than a lion leaping upon its prey is love when once it is incensed. Oil flows smoothly, but it burns furiously&mdash;and when the love of Jesus has been finally rejected&mdash;then the sight of Him whose head was once crowned with thorns will be more terrifying than anything else to the eyes of those who have rejected Him. They will wish they had never been born and, indeed, it would have been better for them if they had never had an existence! Had it not been for the Grace of God, their portion would also have been our portion, for by nature we were the children of wrath even as they were&mdash;and amidst that shivering, trembling crowd we would have taken our station. But, believing in Jesus, our place shall be at His right hand "when He shall come to be glorified in His saints and to be admired in all them that believe." We shall be among those to whom the King will then say, "Come, you blessed of My Father, inherit the Kingdom prepared for you from the foundation of the world." Yet, by nature, we were "the children of wrath, even as others."
 
-Now I must turn from that sad, solemn knell&mdash;"Children of wrath, even as others," to the joyous peal that rings out from our second text which tells us WHAT CHRISTIANS ARE&mdash;what we now are if we have believed in Jesus&mdash; "The Spirit itself bears witness with our spirit, that we are the children of God."
+Now I must turn from that sad, solemn knell&mdash;"Children of wrath, even as others," to the joyous peal that rings out from our second text which tells us WHAT ChristIANS ARE&mdash;what we now are if we have believed in Jesus&mdash; "The Spirit itself bears witness with our spirit, that we are the children of God."
 
 It is such a wonderful thing that those who were the children of wrath should now be the children of God and that there are two witnesses to it. First, our own spirit says that we are the children of God and then the Holy Spirit comes and says, "Yes, and I also bear witness that you are the children of God."
 
@@ -68,7 +68,7 @@ Finally the Apostle says, "and joint heirs with Christ." It always adds to our e
 
 There is, however, such a danger of being only children of God in name, and not in truth, that we shall all do well to give heed to the Apostle's warning, "Let us therefore fear, lest a promise being left us of entering into His rest, any of you should seem to come short of it." Having put our hand to the plow, let us not even thinkof looking back, but may we be proved to be the living children of the living God by walking in His ways until we come into His blessed Presence to go no more out forever for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS2.
+Exposition by C. H. Spurgeon: Ephesians2.
 
 Verse 1. And you has He quickened, who were dead in trespasses and sins. [See Sermons #127, Volume 3&mdash;spiritual resurrection; #2267, Volume 38&mdash;LIFE FROM THE DEAD and #2388, Volume 40&mdash;ONCE DEAD, NOW ALIVE.] Then you owe your very life to Him! You were dead, you were like a corrupt carcass, but His life has been breathed into you. "You has He quickened." Then you are no longer dead&mdash;you are a living soul before the living God&mdash;and as you owe this to Him, praise Him with all the life you have! You "were dead in trespasses and sins." 2, 3. Wherein in time past you walked according to the course of this world, according to the prince of the power of
 
@@ -76,7 +76,7 @@ the air, the spirit that now works in the children of disobedience: among whom w
 
 4, 5. But God, who is rich in mercy, for His great love wherewith He loved us, even when we were dead in sins, has quickened us together with Christ, (by Grace you are saved). [See Sermons #2968, Volume 52&mdash;"his great love"; #805, Volume 14&mdash;
 
-RESURRECTION WITH CHRIST and #2741, Volume 47&mdash;SALVATION BY GRACE.]
+RESURRECTION WITH Christ and #2741, Volume 47&mdash;SALVATION by GRACE.]
 
 "By Grace you are saved." I know that you feel that it is so. Our quickening out of our death in sin must have been by Grace&mdash;and as God has done it&mdash;unto Him must be ascribed all the glory of it! There can be no merit in those who are dead in sin that they should be quickened out of their sin! This must be the work of the Lord, alone, and unto Him be all the praise. He "has quickened us together with Christ," so that our life is mystically linked with the life of Christ, as He said to His disciples, "Because I live, you shall also live." Until He can die, those who are one with Him cannot die.
 
@@ -94,7 +94,7 @@ And that not of yourselves: it is the gift of God. "Not of yourselves." What do 
 
 Not of works, lest any man should boast. God will not have a boaster in Heaven! He will not have the creature exalting himself in His Presence. The command, "Look unto Me, and be you saved, all the ends of the earth." is backed up by this reason, "for I am God, and there is none else." Therefore unto God, Himself, must be the praise and glory for all who are saved.
 
-For we are His workmanship. [See Sermons #1829, Volume 31&mdash;THE SINGULAR ORIGIN OF a CHRISTIAN and #2210, Volume 37&mdash;THE AGREEMENT OF SALVATION BY GRACE WITH WALKING IN GOOD WORKS] Salvation cannot be of works, for if we have any good works, it is because we are God's workmanship.
+For we are His workmanship. [See Sermons #1829, Volume 31&mdash;THE SINGULAR ORIGIN OF a ChristIAN and #2210, Volume 37&mdash;THE AGREEMENT OF SALVATION by GRACE WITH WALKING IN GOOD WORKS] Salvation cannot be of works, for if we have any good works, it is because we are God's workmanship.
 
 10-12. Created in Christ Jesus unto good works, which God has before ordained that we should walk in them. Therefore remember that you being in time past, Gentiles in the flesh&mdash;who are called Uncircumcision by that which is called the Circumcision in the flesh by hands&mdash;that at that time you were without Christ Certainly we were poor sinners of the Gentiles, having no participation whatever in the old Mosaic dispensation.
 
