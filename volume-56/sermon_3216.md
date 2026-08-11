@@ -6,7 +6,7 @@ JUST a few sentences must suffice concerning the first meaning of the text. I th
 
 The text, however, seems to me to have two other meanings. I believe that it relates, first, to the gathering together of all God's chosen people by the preaching of the Word and by other means. And that, secondly, it also has a bearing upon the great gathering of all the chosen around the Throne of Christ in everlasting Glory.
 
-So, first, I have to speak concerning THE GATHERING TOGETHER OF ALL GOD's CHOSEN PEOPLE BY THE PREACHING OF THE WORD AND BY OTHER MEANS. The text appears to me to be a message to God's people from the living lips of Him who redeemed us by His blood. He speaks to the heavensas though He would make all the Providences of God to be His servants for this great work, and to the earth as though the willing hearts of His people, there, would gladly obey the summons, "Gather My saints together unto Me; those that have made a covenant with Me by sacrifice."
+So, first, I have to speak concerning THE GATHERING TOGETHER OF ALL God's CHOSEN PEOPLE by THE PREACHING OF THE WORD AND by OTHER MEANS. The text appears to me to be a message to God's people from the living lips of Him who redeemed us by His blood. He speaks to the heavensas though He would make all the Providences of God to be His servants for this great work, and to the earth as though the willing hearts of His people, there, would gladly obey the summons, "Gather My saints together unto Me; those that have made a covenant with Me by sacrifice."
 
 My first question will be, who are to be gathered? I think we must understand the text as relating to all the chosen people of God, including those who, as yet, have not been called and quickened and have not, in the strict sense of the term, made a personal covenant with God by faith. Our Lord Jesus Christ is the Divinely appointed Representative of all the elect&mdash;whatever He did, He did as their Covenant Head, their Sponsor, Surety and Substitute. When He made a Covenant with God on behalf of His people, they virtually made that Covenant, too. As Adam's covenant concerned us all, and was practically our covenant with God, so Christ's Covenant concerns all who are in Him and is reckoned as the Covenant that they, also, have made with His Father. And I believe that the mission of the Gospel is to gather out from among the rest of mankind all those whose names are written on the roll of the Everlasting Covenant&mdash;those who were given to Christ by His Father before the foundation of the world!
 
@@ -28,7 +28,7 @@ Perhaps someone asks, "Where are the chosen ones that are to be gathered unto Ch
 
 Now, secondly, I want to show you that the text has a bearing upon THE GREAT GATHERING OF ALL THE
 
-CHOSEN AROUND THE THRONE OF CHRIST IN GLORY. In His intercessory prayer before He suffered, our Lord
+CHOSEN AROUND THE THRONE OF Christ IN GLORY. In His intercessory prayer before He suffered, our Lord
 
 Jesus Christ prayed "Father, I will that they, also, whom You have given Me, be with Me where I am, that they may behold My Glory which You have given Me."And in the text Christ says to His servants in the heavens above and on the earth beneath, "Gather My saints together unto Me, those that have made a covenant with Me by sacrifice."
 
@@ -69,13 +69,13 @@ could assure them, on the word of a gentleman, that he had died very happily. Wh
 
 When I read that tract, I thought that the working man's reasoning was perfectly sound. And I wish that all of you, dear Friends, had just as good cause as he had to live happily and to die happily! You will have that if you will only trust in the same Savior in whom he trusted! May God the Holy Spirit enable you to do so now! This is the way of salvation. "All have sinned and come short of the glory of God." "Christ Jesus came into the world to save sinners." He saves all who put their trust in Him! "Believe on the Lord Jesus Christ and you shall be saved." All who believe on Him are His chosen ones&mdash;His saints, as our text calls them&mdash;and those who truly trust Him are known by the holiness and gracious-ness of their lives! They are gathered unto Him, here, as they are, by His Grace, called out from the mass of mankind and, in God's good time, they shall all be gathered unto Him in that great general assembly and Church of the First-Born which are written in Heaven! May God grant that everyone of us may be there, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM50.
+Exposition by C. H. Spurgeon: Psalm50.
 
 A Psalm of Asaph.
 
 It is mentioned, in the life of Hezekiah, that "the king and the princes commanded the Levites to sing praise unto the Lord with the words of David and of Asaph, the Seer," so that very likely this Psalm was sung in the Temple after it had been cleansed and reopened for worship. The first part of the Psalm contains a majestic prophecy of the Second Advent.
 
-Verses 1-3. The mighty God, even the LORD, has spoken, and called the earth from the rising of the sun unto the going down thereof Out of Zion, the perfection of beauty, God has shined. Our God shall come and shall not keep silent; a fire shall devour before Him, and it shall be very tempestuous round about Hi . He came once under the old legal dispensation and then, "there were thunders and lightning, and a thick cloud upon the mount...Sinai was altogether on a smoke because the Lord descended upon in it fire." And when Christ shall come, in the latter days, with equal splendor, there shall be fire and tempest to swell the pomp of His court.
+Verses 1-3. The mighty God, even the Lord, has spoken, and called the earth from the rising of the sun unto the going down thereof Out of Zion, the perfection of beauty, God has shined. Our God shall come and shall not keep silent; a fire shall devour before Him, and it shall be very tempestuous round about Hi . He came once under the old legal dispensation and then, "there were thunders and lightning, and a thick cloud upon the mount...Sinai was altogether on a smoke because the Lord descended upon in it fire." And when Christ shall come, in the latter days, with equal splendor, there shall be fire and tempest to swell the pomp of His court.
 
 He shall call to the heavens from above, and to the earth, that He may judge His people. Heaven shall yield up the blessed who are already there, and earth shall give up those that are alive and remain until Christ's coming. And so "the whole company of the redeemed shall stand in the Presence of their great Lord and Savior when Christ shall come to be glorified in His saints and to be admired in all them that believe." This is the summons that is to ring out to the heavens above and the earth beneath&mdash;
 
