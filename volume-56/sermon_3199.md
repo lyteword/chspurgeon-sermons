@@ -6,7 +6,7 @@ THE sense of this passage may be that Judea would be so desolated that it would 
 
 Our text deals with the lambs, and to the lambs we intend to speak&mdash;may the Good Shepherd speak to them also! Young converts, newborn souls, these words are for you&mdash;you shall feed in your pasture.
 
-Our first observation is that GOD WOULD HAVE ALL HIS CHURCH FED&mdash;a simple enough observation, certainly, and clearly to be inferred from the common course of nature, for no sooner is any living thing created than there are appliances for its feeding. No sooner is a seed cast into the ground and vitalized than it gathers to itself the particles upon which it feeds. And no sooner is an animal born than it receives food. Surely the Lord does not create life in the regenerated soul without providing stores upon which it may be nourished! Where He gives life, He gives food.
+Our first observation is that God WOULD HAVE ALL HIS CHURCH FED&mdash;a simple enough observation, certainly, and clearly to be inferred from the common course of nature, for no sooner is any living thing created than there are appliances for its feeding. No sooner is a seed cast into the ground and vitalized than it gathers to itself the particles upon which it feeds. And no sooner is an animal born than it receives food. Surely the Lord does not create life in the regenerated soul without providing stores upon which it may be nourished! Where He gives life, He gives food.
 
 Simple as this statement is, it has often been forgotten by those who should best have borne it in mind. It strikes me that it has been forgotten by some ministers. They have exhorted, threatened and thundered, but they have never fed those to whom they have preached! They have cried, "Believe! Believe!" but seldom explained what was to be believed, or, when they have mentioned the simple elements of the faith, they have gone no further, but have continued to speak the first principles of the Gospel and no more. These Brothers have their proper sphere, but they should not be pastors unless they can feed the flock of God! The wanderers must be gathered first, but afterwards they must be fed. For lack of this, many have remained in weakness and bondage&mdash;and have made no advance in the Divine Life. The necessity for spiritual food has been forgotten by some ministers who have continually harped upon the sublime Doctrines of the Gospel, but have not preached the elementary Truths of God. Surely they have not carried out their Lord's command, "Feed My lambs." They have been content to feed the older people, who by reason of use have had their senses exercised, forgetting that the same necessities befall all the flock and that the lambs need to be fed as well as the sheep.
 
@@ -44,7 +44,7 @@ A little excitement in the Christian Church, especially by young converts, is by
 
 Once more, when the lambs feed in their pasture, they feed in company. They like to get with others if they can. Sheep thrive best in flocks. I call upon every young Christian here to get into some part of Christ's flock. I invite you into this portion of Christ's Church, but if you find another where, all things considered, you think it would be better for you to be, go there! Mind that you join yourself first to Christ&mdash;and after that unite with His people. Do not try to go to Heaven as a solitary individual, that is not the Christian way. Jesus gathers His people into a Church&mdash;He does not profess to lead His people one by one, as solitary pilgrims, but they are to go in groups and bands. From company to company they proceed towards the New Jerusalem. May you have much love to the visible Church and believe that, notwithstanding all her faults, there is none like her on the earth! That, notwithstanding all her spots, she is excellent for beauty, and fairest among women!
 
-I must close with the remark that IN THE WORST OF TIMES, GOD WILL SEE THAT HIS LAMBS AND
+I must close with the remark that IN THE WORST OF TIMES, God WILL SEE THAT HIS LAMBS AND
 
 THE REST OF HIS FLOCK ARE FED.
 
@@ -60,11 +60,11 @@ We shall now separate and scatter, as congregations have scattered, I might say,
 
 But I hear you say, O angel, in answer to that prayer&mdash;I hear you speak out of the Glory and say, "There can be no union at the Throne of God except there first be union at the Cross." Listen to that warning and come to Jesus! There stands the Cross, which is the center of the Church! Lo, I see upon it the Son of God, His wounds still fountains of cleansing blood! Will you come to the Cross? Will you trust the Redeemer? Will you bow before Him? Will you be washed in His blood? Will you be saved with His salvation? If so, we shall all meet in Heaven to see the face of the Lamb in His Glory. God grant we may, for Jesus sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM23,24.
+Exposition by C. H. Spurgeon: Psalm23,24.
 
 Did you ever notice that the twenty-second Psalm exhibits "that Great Shepherd of the sheep" as laying down His life for the sheep? And that the twenty-third Psalm exhibits "the Good Shepherd" with all His sheep around Him happy and restful, while the twenty-fourth Psalm represents "the Chief Shepherd" who shall appear in due time&mdash;and when He does appear, then shall His sheep, also, appear with Him in Glory?
 
-Psalm 23:1. The LORD is my Shepherd, I shall not want. [See Sermon #3006, Volume 52&mdash;"the lord is my shepherd."] How can a sheep want, or have needs, when it has a good and
+Psalm 23:1. The Lord is my Shepherd, I shall not want. [See Sermon #3006, Volume 52&mdash;"the lord is my shepherd."] How can a sheep want, or have needs, when it has a good and
 
 wise shepherd able and willing to provide for it? And how can a Believer want when he has God, Himself, the ever-gracious and Omnipotent Lord of All, to provide his needs and to prevent him from ever knowing what want means? David does not say, "I shall have all I wish for because the Lord is my Shepherd," but he does say, "I shall not want. Not only have I no need now, but I never shall need while my Shepherd lives. Though I am only one out of His countless flock, yet He cares for me and, therefore, 'I shall not want.'" Why should a Believer think that he shall ever want? Let him look at his present condition.
 
@@ -100,9 +100,9 @@ My cup runs over. [See Sermons #874, Volume 15&mdash;THE OVERFLOWING CUP and #12
 
 Surely goodness and mercy shall follow me all the days of my life. I shall never be able to outrun the goodness and mercy of my God! I shall always have closely attendant upon me His goodness to supply my needs and His mercy to forgive my sins.
 
-And I will dwell in the house of the LORD forevei.
+And I will dwell in the house of the Lord forevei.
 
-Psalm 24:1. The earth is the LORD's, and the fullness thereof And therefore it is also the Believer's! The real fullness of the earth belongs to the Christian. "The meek shall inherit the earth."
+Psalm 24:1. The earth is the Lord's, and the fullness thereof And therefore it is also the Believer's! The real fullness of the earth belongs to the Christian. "The meek shall inherit the earth."
 
 1, 2. The world, and they that dwell therein. For He has foundedit upon the seas, and established it upon the floods. So, child of God, you are in your Father's house even while you are down here on earth! Still, that question in the next verse is very suggestive. Albeit that the earth is the Lord's, yet we do not want to stay in it forever.
 
@@ -114,4 +114,4 @@ stain from them, and to touch holy things without defiling them. This expression
 
 This is the generation Jacob, of them that seek Him, who seek Your face. Selah. It is a wonderful thing that Jesus Christ should take His people's name but He does. He gives His Church His own name in that remarkable passage in Jeremiah 33:16&mdash;"This is the name wherewith she shall be called, The Lord Our Righteousness." And now, to make the union complete, He takes her name as His own&mdash;Christ is here called "Jacob."
 
-7-10. Lift up your heads, O you gates; and be you lift up, you everlasting doors; and the King of Glory shall come in. Who is this King of Glory? The LORD strong and mighty, the LORD mighty in battle. Lift up your heads, O you gates, even lift them up, you everlasting doors; and the King of Glory shall come in. Who is this King of glory? The LORD of Hosts, He is the King of Glory. Selah. Now, if Christ is our Shepherd in the meadows down here where He makes us to lie down in the green pastures of His Grace, He will also be our Shepherd in the heavenly pastures up there on the hilltops of Glory where the Lamb which is in the midst of the Throne shall feed us and shall lead us unto living fountains of waters! And we shall delight forever to "follow the Lamb wherever He goes."
+7-10. Lift up your heads, O you gates; and be you lift up, you everlasting doors; and the King of Glory shall come in. Who is this King of Glory? The Lord strong and mighty, the Lord mighty in battle. Lift up your heads, O you gates, even lift them up, you everlasting doors; and the King of Glory shall come in. Who is this King of glory? The Lord of Hosts, He is the King of Glory. Selah. Now, if Christ is our Shepherd in the meadows down here where He makes us to lie down in the green pastures of His Grace, He will also be our Shepherd in the heavenly pastures up there on the hilltops of Glory where the Lamb which is in the midst of the Throne shall feed us and shall lead us unto living fountains of waters! And we shall delight forever to "follow the Lamb wherever He goes."
