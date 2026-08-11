@@ -1,6 +1,6 @@
 # Sermon 3194 | A Look and Its Lessons
 
-"Hearken to Me, you that follow after righteousness, you that seek the LORD: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
+"Hearken to Me, you that follow after righteousness, you that seek the Lord: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
 
 [Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18&mdash;a BRIGHT LIGHT IN DEEP SHADES.]
 
@@ -63,7 +63,7 @@ I close by reminding every sinner here that God is able to save him, into whatev
 
 bore our sins in His own body on the tree! Then all His merits shall be reckoned unto you&mdash;there shall be a clear exchange made&mdash;Christ taking your sin and you taking His righteousness! Oh, that you would believe on Him this very moment! May God give you Grace to do so! Then shall you be able, with us who also have believed in Jesus, to look back to the rock where you were hewn and to the hole of the pit where you were dug&mdash;and to adore and magnify the name of the Lord forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: GALATIANS3.
+Exposition by C. H. Spurgeon: Galatians3.
 
 Verse 1. O foolish Galatians, who has bewitchedyou? Paul writes as if they had come under some kind of witchcraft and been deluded by it. This seemed to astonish the Apostle, so he cries out to them "Who has bewitched you?"
 
@@ -95,13 +95,13 @@ For as many as are of the words of the Law are under the curse: for it is writte
 
 But that no man is justified by the Law in the sight of God is evident: for the just shall live by faith. [See Sermons
 
-#814, Volume 14&mdash;LIFE BY FAITH and #2809, Volume 48&mdash;FAITH&mdash;LIFE.] This passage is again and again repeated in the Scriptures&mdash;"The just shall live by faith." There are no other just men living! There cannot be any other just men living, but those that live by faith!
+#814, Volume 14&mdash;LIFE by FAITH and #2809, Volume 48&mdash;FAITH&mdash;LIFE.] This passage is again and again repeated in the Scriptures&mdash;"The just shall live by faith." There are no other just men living! There cannot be any other just men living, but those that live by faith!
 
 And the Law is not of faith: but, the man that does them shall live in them. The law demands doing. The Gospel enjoins believing. The believing man comes in as an heir of the blessing, but the man who trusts to his own doing is an heir of the curse.
 
 Christ has redeemed us from the curse ofthe Law, being made a curse for us: for it is written, Cursedis everyone
 
-that hangs on a tree. [See Sermons #873, Volume 15&mdash;CHRIST MADE a CURSE FOR US and #2093, Volume 35&mdash;THE CURSE AND THE CURSE FOR US.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"&mdash;
+that hangs on a tree. [See Sermons #873, Volume 15&mdash;Christ MADE a CURSE FOR US and #2093, Volume 35&mdash;THE CURSE AND THE CURSE FOR US.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"&mdash;
 
 That the blessing of Abraham might come on the Gentiles through Jesus Christ, that we might receive the promise ofthe Spirit through faith. Dear Friends, are you living by faith upon the Son of God? Are you trusting in God? Are you believing His promises? Some think that this is a very little thing, but God does not think so. Faith is a better index of character than anything else. The man who trusts his God and believes His promises is honoring God far more than is the man who supposes that by any of his own doings he can merit Divine approval and favor.
 
