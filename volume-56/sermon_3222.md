@@ -2,7 +2,7 @@
 
 "Behold the Lamb of God, which takes away the sin of the world." John 1:29.
 
-[Two other Sermons by Mr. Spurgeon upon the same text are #1987, Volume 33&mdash;"BEHOLD THE LAMB OF GOD" and #2646, Volume 45&mdash; THE BAPTIST's MESSAGE.]
+[Two other Sermons by Mr. Spurgeon upon the same text are #1987, Volume 33&mdash;"BEHOLD THE LAMB OF God" and #2646, Volume 45&mdash; THE BAPTIST's MESSAGE.]
 
 BEFORE we plunge into our main subject, it is necessary to notice what is implied in our text, which is that "the world" was lost through sin and that all mankind had become guilty before God. You, therefore, my dear Hearer, are one of those who are thus guilty. Though you may never have broken the laws of your country, nor even the rules of propriety. Though you may be both amiable and admirable in your general deportment, yet, for all this, as "there is none righteous, no, not one," you, also, are included among the unrighteous! It matters not what religious professions you may have made, or what outward forms of godliness you may have observed&mdash;unless you have a better righteousness than your own, you are a lost sinner! I believe there is now present a Brother who, when he was first convicted of sin, tried hard to make himself a better man under the mistaken idea that this was the way of salvation. And when, one Sabbath night, he heard me say that all the reforms you could ever make upon your old nature would be useless as to the matter of salvation, but that, "you must be born-again," he felt very angry and made a vow that he would never be found listening to me again! Yet here he is, rejoicing that the Lord has taught him to see himself as a lost, ruined sinner and to put his heart's trust in Jesus Christ, the sinner's Savior!
 
@@ -54,7 +54,7 @@ Let me also, dear Friend, warn you against the notion that your prayers can save
 
 "None but Jesus, none but Jesus, Can do helpless sinners good!" This great Truth of God, that believingis the Divinely appointed means of salvation, may be illustrated by the old
 
-story of the children of Israel and the serpent of brass. [Other Sermons by Mr. Spurgeon upon this subject, are as follows&mdash;#153, Volume 3&mdash;THE MYSTERIES OF THE BRONZE SERPENT; #285, Volume 5&mdash;MAN's RUIN AND GOD's REMEDY and #1500, Volume 25&mdash;NUMBER 1500&mdash;OR, LIFTING UP THE
+story of the children of Israel and the serpent of brass. [Other Sermons by Mr. Spurgeon upon this subject, are as follows&mdash;#153, Volume 3&mdash;THE MYSTERIES OF THE BRONZE SERPENT; #285, Volume 5&mdash;MAN's RUIN AND God's REMEDY and #1500, Volume 25&mdash;NUMBER 1500&mdash;OR, LIFTING UP THE
 
 BRONZE SERPENT.] You have heard it scores of times, yet I beg you
 
@@ -72,7 +72,7 @@ I must not detain you longer, as our time has fled. Otherwise I was to have answ
 
 The answer would have been that God has appointed this as the only way of salvation, that those who obey the command of the text will obtain immediate salvation and that, being saved, they shall have joy and peace in believing! But you who neglect or refuse to "behold the Lamb of God" must, without doubt, everlastingly perish! Of His infinite mercy, may God graciously grant that none whom I am now addressing may refuse to believe in Jesus, but may everyone look to Him and live&mdash;live now, and live forever!
 
-EXPOSITION BY C. H. SPURGEON: JOHN 1:1-34.
+Exposition by C. H. Spurgeon: John 1:1-34.
 
 Verse 1. In the beginning was the Word. Christ the Word has existed from all eternity! He is the Eternal Son of the Eternal Father. He is really what Melchisedec was metaphorically, "having neither beginning of days, nor end of life." "In the beginning was the Word."
 
@@ -116,4 +116,4 @@ Him"&mdash;
 
 31-34. But that He should be made manifest to Israel, therefore am I come baptizing with water. And John bore record, saying, I saw the Spirit descending from Heaven like a dove, and it abode upon Him. And I knew Him not: but He that sent me to baptize with water, the same said unto me, Upon whom you shall see the Spirit descending, and remaining on Him, the same is He which baptizes with the Holy Spirit. And I saw, and bare record that this is the Son of God. Since John's time, many others have borne similar testimony. We, also, have received Him and rejoice to say that He has baptized us with the Holy Spirit. All that John said of Him is true&mdash;and much more than John said is also true. He is the Lamb of God who has taken upon Himself the sin of all who believe in Him and, therefore, He is able to save unto the uttermost all that come unto God by Him. Oh, that all men would receive the testimony concerning Him which we find in this blessed Book&mdash;and which we delight to repeat in His name!
 
-[See Sermons #858, Volume 15&mdash;THE FULLNESS OF JESUS THE TREASURY OF SAINTS and #1169, Volume 20&mdash;THE FULLNESS OF CHRIST.]
+[See Sermons #858, Volume 15&mdash;THE FULLNESS OF Jesus THE TREASURY OF SAINTS and #1169, Volume 20&mdash;THE FULLNESS OF Christ.]
