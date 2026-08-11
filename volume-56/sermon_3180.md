@@ -102,9 +102,9 @@ He must reign. What power is there that can stand against Him who created all th
 
 Happy is he who is the lowliest page in the retinue of such a King! Happy is he who shall be privileged to sprinkle a few drops of water to lay the dust in the road over which our conquering King shall ride! Blessed is he who shall spread his garments in the way, or wave a palm branch in honor of the royal Victor in His triumphal procession! Happy shall he be, then, who has been laughed to scorn for Christ's sake! Or who has been lying in a dungeon till the moss has grown on his eyelids! Or who has been burned at the stake and his ashes cast to the four winds of Heaven because he would not deny his Lord! Oh to be wholly on His side, now, that we may be among His faithful followers on that Day! Here we are, O glorious Son of David! Take us and all that we have, and make us more than ever Yours from this time forward, and unto You shall be the glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-COLOSSIANS1.
+Colossians1.
 
 Verses 1, 2. Paul, an Apostle of Jesus Christ by the will of God, and Timothy, our brother, to the saints and faithful brethren in Christ which are at Colosse: Grace be unto you, and peace from God our Father and the Lord Jesus Christ Kindness is the very breath of Christianity, so the Apostle will not begin the subject matter of his letter until first of all he has breathed out a benediction upon those to whom he writes.
 
@@ -130,7 +130,7 @@ Who is the beginning, the first-born from the dead; that in all things He might 
 
 For it pleased the Father that in Him should all fullness dwell [See Sermons #978, Volume 17&mdash;all fullness in christ and
 
-#1169, Volume 20&mdash;THE FULLNESS OF CHRIST THE TREASURY OF THE SAINTS.]
+#1169, Volume 20&mdash;THE FULLNESS OF Christ THE TREASURY OF THE SAINTS.]
 
 That we might have to go to Him for it, it pleased the Father to make errands for us so as to take us to Christ and to thus make our very emptiness to minister to the Glory of Christ!
 
@@ -140,12 +140,12 @@ That we might have to go to Him for it, it pleased the Father to make errands fo
 
 And fill up that which is behind of the afflictions of Christ in my flesh for His body's sake, which is the Church. There is nothing "behind" as to the atoning efficacy of the sufferings of Christ, but there is much yet to be endured in order that all the elect may be brought to Christ. Some must suffer through their extraordinary labors in preaching the Gospel, others through bearing reproach for the Truth of God's sake&mdash;and Paul was glad to take in his mortal body, his share of the sufferings to be endured for the sake of Christ's Church&mdash;which is His mystical body.
 
-25-27. Of which I became a minister according to the stewardship from God which was given to me for you, to fulfill the Word of God, the mystery which has been hid from ages and from generations, but now is made manifest to His saints: to whom God wouldmake known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory [See Sermon #1720, Volume 29&mdash;CHRIST IN YOU.] This is the most blessed of all mysteries! I trust that many of us understand it&mdash;may the Holy Spirit reveal it to any who know it not!
+25-27. Of which I became a minister according to the stewardship from God which was given to me for you, to fulfill the Word of God, the mystery which has been hid from ages and from generations, but now is made manifest to His saints: to whom God wouldmake known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory [See Sermon #1720, Volume 29&mdash;Christ IN YOU.] This is the most blessed of all mysteries! I trust that many of us understand it&mdash;may the Holy Spirit reveal it to any who know it not!
 
 Whom we preach. That is, Christ. It is not so much what we preach as whom we preach. We preach the Person of Christ&mdash;"whom we preach"&mdash;
 
 28, 29. Warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus: whereunto I also labor, striving according to His working, which works in me mightily. [See Sermon #914, Volume 16&mdash;
 
-WORK IN US AND WORK BY US.] There will never be any mighty work
+WORK IN US AND WORK by US.] There will never be any mighty work
 
 come from us unless there is first a mighty work in us&mdash;no man truly labors for souls unless the Holy Spirit has first worked mightily in him.
