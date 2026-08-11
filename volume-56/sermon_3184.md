@@ -1,6 +1,6 @@
 # Sermon 3184 | Maroth&mdash;or, the Disappointed
 
-"For the inhabitant of Marroth waited carefully for good: but evil came down from the LORD unto the gate of Jerusalem." Micah 1:12.
+"For the inhabitant of Marroth waited carefully for good: but evil came down from the Lord unto the gate of Jerusalem." Micah 1:12.
 
 The village of the bitter spring, for that is probably the meaning of this name, Maroth, experienced a bitter disappointment. At the time when the Assyrians invaded the land, the inhabitants expected that deliverance would come to them from some quarter or other. From the context, I judge that they placed some sort of reliance upon the Philistines. They possibly had some hope that the king of Egypt would come up to attack Sennacherib. Evidently they looked for help everywhere except to God and, consequently, as no good came to them from the men upon whom they had relied, trial and overwhelming distress came to them from the hand of God. He was angry at their trust in men and their lack of trust in Himself and, therefore, He punished their unbelief by their total overthrow! The Assyrian swept over them and stopped not till he reached the gate of Jerusalem, where Hezekiah's faith in God made the enemy pause and retreat.
 
@@ -64,7 +64,7 @@ I fear that there are some here who have no right to cherish any of these expect
 
 was all in vain, for die they must! God save all of you, my dear Hearers, from such a doom as that! In order that it may be so, put not your trust in things below&mdash;be not like the inhabitants of Maroth who looked to the Philistines and the Egyptians to help them&mdash;and so waited in vain for the good that never came. But turn your eyes unto Him who says, "Look unto Me, and be you saved," and then your expectations shall not be disappointed. So may it be, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 4.
+Exposition by C. H. Spurgeon: Hebrews 4.
 
 
 Verse 1. Let us therefore fear lest a promise being left us of entering into His rest, any of you should seem to come short of it. Not only dread coming short, but dread the very appearanceof it! Oh, that we might now enter into that rest and so clearly enjoy it that there should not even be a seeming to come short of it!
@@ -99,4 +99,4 @@ Seeing then that we have a great High Priest that is passed into the heavens, Je
 
 of charge, at http://www.spurgeongems.org.] Let us, therefore, come boldly unto the Throne of Grace, that we may obtain mercy and find Grace to help in time of need.
 
-as we are, yet without sin. [See Sermon #2143, Volume 36&mdash;THE TENDERNESS OF JESUS
+as we are, yet without sin. [See Sermon #2143, Volume 36&mdash;THE TENDERNESS OF Jesus
