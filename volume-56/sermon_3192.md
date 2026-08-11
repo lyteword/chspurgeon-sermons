@@ -24,7 +24,7 @@ Best of all, Christ, has gone back to Glory as the Representative of His people.
 
 Changing the direction of our thought, yet still keeping to the same main track, let us turn to the second clause of
 
-the text. "My blood is drink, indeed." That is to say, CHRIST's REDEEMING SACRIFICE IS MOST SOUL-
+the text. "My blood is drink, indeed." That is to say, Christ's REDEEMING SACRIFICE IS MOST SOUL-
 
 SATISFYING. It is not merely soul-comforting, but soul-satisfying!
 
@@ -75,11 +75,11 @@ Him is not condemned: but he that believes not is condemned already, because he 
 
 There is the Gospel as Paul preached it! May the Spirit of God enable you to receive it by faith in Jesus Christ, the Son of God, and the Son of Mary&mdash;and so you will find that His flesh will become to you food, indeed, and His blood drink, indeed. God grant it, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN6:22-59.
+Exposition by C. H. Spurgeon: John6:22-59.
 
 Verses 22-24. The day following, when the people who stood on the other side of the sea saw that there was no other boat there, except that one which His disciples had entered, and that Jesus went not with His disciples into the boat, but that the disciples were gone away alone&mdash;however other boats from Tiberias came near the place where they ate bread after the Lord had given thanks&mdash;when the people therefore saw that Jesus was not there, neither the disciples,
 
-they also got into boats and came to Capernaum, seeking for Jesus. [See Sermon #947, Volume 16&mdash;SEEKING FOR JESUS.] Everything looked very favorable, did it not? These people put themselves to considerable trouble in order to get where the Savior was&mdash;they were not satisfied to be away from Him&mdash;they were "seeking for Jesus."
+they also got into boats and came to Capernaum, seeking for Jesus. [See Sermon #947, Volume 16&mdash;SEEKING FOR Jesus.] Everything looked very favorable, did it not? These people put themselves to considerable trouble in order to get where the Savior was&mdash;they were not satisfied to be away from Him&mdash;they were "seeking for Jesus."
 
 25, 26. And when they had found Him on the other side of the sea, they said unto Him, Rabbi, when did You come here? Jesus answered them and said, Verily, verily, I say unto you, You seek Me not because you saw the miracles but because you ate of the loaves, and were fille . He did not gratify their curiosity by telling them how or when He came there, for that was no concern of theirs. Neither is it the business of Christ's preachers to spin ingenious theories about the Gospel, or to tell pretty tales to amuse their hearers. Their business is to deal faithfully with men's hearts and consciences as their Master did when He said to these people "You seek Me not because you saw the miracles." They said that at first, no doubt. Christ's miracles dazzled them so they sought Him in order to see more miracles worked by Him. This was not the highest motive for seeking the Savior, but they had found a still lower one&mdash;they were now following Him because they "ate of the loaves and were filled." Yet the Master did not repel them and thus He teaches us that it is better to follow Him from the lowest motive than not to follow Him at all. Perhaps some of us have been too severe upon certain people. We have said that they come to our place of worship out of mere curiosity. What if they do? It is well that they come at all, so let us not cut even the spider's web that links a man in any sense with Christ&mdash;that web may grow into a thread, that thread into a cord, that cord into a cable and there may yet be an unbreakable union between that man and Christ! That which begins in an inferior way may lead to something higher and better. Still, it is wise to let people know that they are not deceiving Christ, even though they deceive themselves as to their motive in seeking Him. So He said to them&mdash;
 
@@ -101,7 +101,7 @@ But I said to you that you have seen Me, and yet do not believe. See, then, how 
 
 All that the Father gives Me shall come to Me. God's own elect shall surely come to Christ. They shall all believe in Him and be saved by Him.
 
-And him that comes to Me I will in no wise cast out [See Sermons #1762, Volume 30&mdash;HIGH DOCTRINE AND BROAD DOCTRINE; #2349, Volume 40&mdash;ALL COMERS TO CHRIST WELCOMED; #2954, Volume 51&mdash;THE BIG GATES WIDE OPEN and #3000, Volume 52&mdash;NO. 3000&mdash;OR, COME AND WELCOME.] "Whoever he is that comes, I will never reject him.
+And him that comes to Me I will in no wise cast out [See Sermons #1762, Volume 30&mdash;HIGH DOCTRINE AND BROAD DOCTRINE; #2349, Volume 40&mdash;ALL COMERS TO Christ WELCOMED; #2954, Volume 51&mdash;THE BIG GATES WIDE OPEN and #3000, Volume 52&mdash;NO. 3000&mdash;OR, COME AND WELCOME.] "Whoever he is that comes, I will never reject him.
 
 Whoever he may be that accepts Me and believes in Me, he is Mine and I will never cast him away from Me."
 
@@ -123,6 +123,6 @@ The Jews therefore quarreled among themselves, saying, How can this Man give us 
 
 53-56. Then Jesus said to them, verily, verily, Isay unto you, Exceptyou eat the flesh ofthe Son ofMan, and drink His blood, you have no life in you. Whoever eats My flesh and drinks My blood, has eternal life; and I will raise him up at the last day. For My flesh is food, indeed, and My blood is drink, indeed. He that eats My flesh, and drinks My blood
 
-dwells in Me, and I in him. [See Sermon #1288, Volume 12&mdash;TRULY EATING THE FLESH OF JESUS.] Do not any of you interpret this teaching of Christ as the Jews did, after a carnal fashion, and fancy that we literally eat the flesh and drink the blood of Christ when we come to the Communion Table. The Lord's Supper was not instituted at the time that our Savior spoke these words and He was speaking of quite another matter&mdash;the spiritual reception of Christ&mdash;the real and true feeding by faith with our spirit upon the Lord Jesus Christ.
+dwells in Me, and I in him. [See Sermon #1288, Volume 12&mdash;TRULY EATING THE FLESH OF Jesus.] Do not any of you interpret this teaching of Christ as the Jews did, after a carnal fashion, and fancy that we literally eat the flesh and drink the blood of Christ when we come to the Communion Table. The Lord's Supper was not instituted at the time that our Savior spoke these words and He was speaking of quite another matter&mdash;the spiritual reception of Christ&mdash;the real and true feeding by faith with our spirit upon the Lord Jesus Christ.
 
 57-59. As the living Father has sent Me, andIlive by the Father: so he that eats Me, even he shalllive byMe. This is that bread which came down from Heaven: not as your fathers did eat manna, and are dead: he that eats of this bread shalllive forever. These things said He in the synagogue, as He taught it in Capernaum.
