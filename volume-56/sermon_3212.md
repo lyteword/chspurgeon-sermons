@@ -74,7 +74,7 @@ O Lamb of God, I come"?
 
 If You have said that from your heart, you are now a saved soul and you may go to your home rejoicing in the Lord, for your sins, which were many, are all forgiven and you are on your way to Heaven! God grant that it may be so, for Jesus Christ's sake!
 
-EXPOSITION BY C. H. SPURGEON: JAMES 1.
+Exposition by C. H. Spurgeon: James 1.
 
 Verse 1. James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are scattered abroad, greet-ings. The Apostle James evidently believed in no lost ten tribes, as some, nowadays, do. They were never lost&mdash;the Israelites whom we see nearly every day belong to some of all the 12 tribes, so James addressed his Epistle, "to the twelve tribes which are scattered abroad, greetings."
 
