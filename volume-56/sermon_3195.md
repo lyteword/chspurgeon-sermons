@@ -102,7 +102,7 @@ Hangs my helpless soul on Thee." Look to the wounds of Christ, they will heal yo
 
 May God add His blessing and bring many of His bondaged ones out of prison! This shall be to His eternal praise! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 13:1-13.
+Exposition by C. H. Spurgeon: Luke 13:1-13.
 
 Verse 1. There were present at that season some that told Him of the Galileans, whose blood Pilate had mingled with their sacrifices. This was a matter of common town talk, so of course they brought the news to Jesus. Notice how wisely He used this shameful incident. You and I too often hear the news of what is happening, but we learn nothing from it&mdash;our Savior's gracious mind turned everything to good account&mdash;He was like the bee that gathers honey from every flower.
 
