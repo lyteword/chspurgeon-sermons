@@ -64,7 +64,7 @@ nal reasonings! I hate my sins, but I cannot doubt my Savior! It is true I have 
 
 I say to you, Sinner. I say to you, Saint. I say to you all this one thing, and I have done. When your souls are at the blackest, seek for nothing but the blood! When your souls are at the darkest, seek no light anywhere but in the Cross! Do not cling to preparations, to humbling, to repentings. All these things are good in their way, but they cannot be a balsam to a wounded conscience! Christ and Christ Crucified is what you need. Do not look within&mdash;look without. I say, when you repent, it is a base repentance that will not let you trust Christ, for while repentance should have one eye on sin, it should have the other upon the Cross. While repentance should make you lie low, yet it is not repentance, but unbelief, that makes you doubt the power of Christ to save you! Christ never came to save the righteous&mdash;He came to save sinners. I would have you magnify the Grace of God by believing that when your sin stares you most in the face, when you are most conscious of it and it seems to be worse than ever, Christ is the same to you and for you, your glorious Surety and your blessed satisfaction! Still believe and still trust, and do not let go your confidence that Christ is able to save sinners, even the chief, and will save you without help from your doings or your feelings! His own right arm will get Himself the victory and, having trod the winepress of Divine Wrath alone, He will save you solely by the merit of His life and of His death! Oh, for Grace to rest in the Savior and to know the truth of this text&mdash;"He has made Him who knew no sin to be sin for us, that we might be made the righteousness of God in Him"!
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 5:1-10; 2 CORINTHIANS 4; 5.
+Exposition by C. H. Spurgeon: Romans 5:1-10; 2 Corinthians 4; 5.
 
 Romans 5:1-3. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ: by whom also we have access by faith into this Grace wherein we stand, and rejoice in hope of the glory of God. And not only so, but we glory in tribulations also. Faith has such wondrous power that it makes us rejoice even in trial! It helps Christians to be glad even in the midst of sorrow.
 
@@ -84,7 +84,7 @@ our nature.
 
 For when we were yet without strength, in due time Christ died for the ungodly."'[See Sermons #1191, Volume 20&mdash;for
 
-WHOM DID CHRIST DIE? and #1345, Volume 23&mdash;FOR WHOM IS THE GOSPEL MEANT?.]
+WHOM DID Christ DIE? and #1345, Volume 23&mdash;FOR WHOM IS THE GOSPEL MEANT?.]
 
 What a wonderful statement! "Christ died for the ungodly." Yet it was no slip of the pen, for the Apostle takes up his own expression and preaches the following little sermon upon it&mdash;
 
@@ -150,6 +150,6 @@ Therefore, from now on, we regard no man after the flesh. Even though we have kn
 
 Therefore if any man is in Christ, he is a new creature: old things are passed away; behold all things are become new. There could not be a greater change than that which is worked by regeneration! It is a new creation, the passing
 
-away of the old, and the making of all things new. [See Sermons #881, Volume 15&mdash;THE BELIEVER a NEW CREATURE and #1328, Volume 22&mdash; CHRIST THE MAKER OF ALL THINGS NEW.]
+away of the old, and the making of all things new. [See Sermons #881, Volume 15&mdash;THE BELIEVER a NEW CREATURE and #1328, Volume 22&mdash; Christ THE MAKER OF ALL THINGS NEW.]
 
 18-21. And all things are of God who has reconciled us to Himself by Jesus Christ, and has given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them; and has committed unto us the Word of reconciliation. Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead be you reconciled to God. For He made Him who knew no sin, to be sin for us, that we might be made the righteousness of God in Him.
