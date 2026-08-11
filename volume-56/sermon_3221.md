@@ -2,7 +2,7 @@
 
 "And yet there is room." Luke 14:22.
 
-I REMINDED YOU, this morning, [See Sermon #485, Volume 8&mdash;NO ROOM FOR CHRIST IN THE INN.] that there was no room for Christ and His parents in the inn at Bethlehem&mdash;and also that there were then other places where, although there was no room for Christ, far inferior persons found a welcome and entertainment. I need, this evening, to convince you that although there are still many sinners who seem to have no room for Christ in their hearts and lives, yet there is plenty of room for sinners in the heart and love of Christ! And I am going to give them an earnest, tender, affectionate invitation to come to Christ while "yet there is room." You who have hitherto been strangers to the Grace of God. You who, as yet, have never feasted at the Gospel Banquet, you who have, until now, been content with this world's frothy dainties and have never tasted that which is substantial and satisfying for time and for eternity&mdash;to you, even to you&mdash;comes the message of our text, "yet there is room."
+I REMINDED YOU, this morning, [See Sermon #485, Volume 8&mdash;NO ROOM FOR Christ IN THE INN.] that there was no room for Christ and His parents in the inn at Bethlehem&mdash;and also that there were then other places where, although there was no room for Christ, far inferior persons found a welcome and entertainment. I need, this evening, to convince you that although there are still many sinners who seem to have no room for Christ in their hearts and lives, yet there is plenty of room for sinners in the heart and love of Christ! And I am going to give them an earnest, tender, affectionate invitation to come to Christ while "yet there is room." You who have hitherto been strangers to the Grace of God. You who, as yet, have never feasted at the Gospel Banquet, you who have, until now, been content with this world's frothy dainties and have never tasted that which is substantial and satisfying for time and for eternity&mdash;to you, even to you&mdash;comes the message of our text, "yet there is room."
 
 My first question concerning the text is, WHERE IS THERE ROOM? And the answer is, there is room in the Fountain opened for sin and for uncleanness! There is room for you to be washed and to be made clean. Vast multitudes have gone into that Fountain black as the thickest night&mdash;and they have come up from the washing "whiter than snow." Innumerable offenses have there been washed away, but the Fountain has lost none of its cleansing power, nor will it until the last elect soul has been washed therein, as Cowper so confidently and so truly sings&mdash;
 
@@ -71,7 +71,7 @@ Perhaps the black doubt comes to you, "Is there room for me?" My answer to that 
 
 May God grant that many shall come to Jesus this very moment, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 14:7-24.
+Exposition by C. H. Spurgeon: Luke 14:7-24.
 
 Verse 7. And He put forth a parable to those which were bidden, when He marked how they chose out the chief rooms. This parable was by far the best part of the entertainment of the day!
 
