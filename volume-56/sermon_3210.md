@@ -2,9 +2,9 @@
 
 "Then Jesus said unto the twelve, Will you also go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life." John 6:67, 68.
 
-[See Sermons #2914, Volume 50&mdash;a MOURNFUL DEFECTION and #1646, Volume 28&mdash;a HOME QUESTION AND a RIGHT ANSWER.]
+[See Sermons #2914, Volume 50&mdash;a mournful defection and #1646, Volume 28&mdash;a home question and a right answer.]
 
-WITHOUT any preface, we will proceed at once to consider the first division of our subject, which is that THE PREACHING OF THE DOCTRINES OF TRuth IS OFTEN THE MEANS OF SEPARATING THE PRECIOUS FROM THE VILE.
+without any preface, we will proceed at once to consider the first division of our subject, which is that the preaching of the doctrines of truth is often the means of separating the precious from the vile.
 
 In the case before us, we see that the preaching of the Lord Jesus Christ acted like a great winnowing machine. His nominal disciples were like a heap of wheat and chaff all mingled together on the threshing floor. His words were like a mighty wind passing through the whole mass, separating the chaff from the wheat and driving it away&mdash;leaving only the good corn lying all around Him. This leads me to say that apart from afflictions, temptations and persecutions, the preaching of the Gospel is, in itself, a means of dividing the true followers of Christ from those who are only His disciples in name and, wherever there is a faithful, Christ-like ministry, you will find many going away from it for the very same reasons that those nominal disciples went away from Christ. "From that time many of His disciples went back and walked no more with Him."
 
@@ -26,7 +26,7 @@ of the house. Some who, when they leave the congregation of the saints, also lea
 
 Well now, suppose that they do leave Christ when they leave us? That suggests a second topic of consideration in
 
-our text, which is that WHEN SOME PEOPLE GO AWAY, WE MUST NOT BE SURPRISED, NOR UNDULY ALARMED.
+our text, which is that when some people go away, we must not be surprised, nor unduly alarmed.
 
 You notice that in the narrative there is no mention of any remark by Christ concerning those who had turned back, nor any expression of a desire for their return. He could read their hearts and knew the motives that had caused them to reject His teaching and cease to be even nominally His followers, so He turned to His 12 Apostles and put to them the pathetic question which we will presently examine&mdash;"Will you also go away?" This silence of our Savior concerning those who were driven away from Him by His preaching of the Truth of God suggests that they were not plants of His Father's right-hand planting, but only weeds that had to be pulled up by the roots and thrown away!
 
@@ -38,7 +38,7 @@ Others, no doubt, followed Christ for a time because they liked anything new, cu
 
 So I might go on describing those who go away from us even as Christ's nominal followers went away from Him, but I will just say to any minister here who has lost any of his hearers through his faithful preaching of the Truth, "Do not fret, my dear Brother, on their account, and do not abate a single jot or tittle of anything that you believe to be the Truth of God." I would not alter my preaching in order to retain any individual, however eminent or influential he might be. Others may fish for him if they like, but I shall not. My business is to declare my Master's message exactly as He has revealed it to me in His Word and by His Spirit! I am responsible to Him for the faithful discharge of the duties to which He has called me&mdash;and when I have, in His name, fully and fearlessly proclaimed all the Truth that He has taught me, I am not to be blamed if some refuse to receive the Word, and so it becomes a savor of death unto death to them. It was so with the preaching of our Lord Himself, for there were many who "went back, and walked no more with Him," when He uttered Truths of God which were unpalatable to them.
 
-Now I come to the very important matter upon which I want to especially speak to you, as it particularly concerns you who are now present. Some have gone out from us because they were not of us, for if they had really been of us they would doubtless have continued with us. And this fact suggests the need of putting to you THE SOLEMN QUESTION WHICH OUR Lord PUT TO HIS DISCIPLES&mdash;"Will you also go away?"
+Now I come to the very important matter upon which I want to especially speak to you, as it particularly concerns you who are now present. Some have gone out from us because they were not of us, for if they had really been of us they would doubtless have continued with us. And this fact suggests the need of putting to you the solemn question which our Lord put to his disciples&mdash;"Will you also go away?"
 
 Every word in this question is important. Let us first consider the little pronoun, "you." "Will you also go away?" "You, the 12 who have been with Me from the beginning. You who have been with Me in my tribulation and have shared My reproach. You who were, some of you with Me on the Mount of Transfiguration and in the room where the little maid was bid to rise&mdash;will you go away from Me? To you," Christ seemed to say, "I have expounded the parables as I never explained them to the mixed multitude. To you I have unlocked the mysteries of the Kingdom of God. To you My heart has been opened as it has been to no one else&mdash;I have not kept back from you anything that was good for you to know&mdash;you are My chosen ones, My favorites, My much-loved ones. To deliver you from peril, I walked upon the stormy waves. To preserve you in the time of temptation, I spent whole nights in prayer. Upon you I have poured a plenitude of blessings&mdash;will you go away from Me after all this?" Now Christ seems to me to put this solemn, personal question to you, my dear Brothers and Sisters in Christ! Will you go away from Him after all that He has done for you? You believe that you have been called by His Grace, for you have enjoyed the sweetness of His love and you have been admitted into close personal fellowship with Him. The secret of the Lord is with you who fear Him. He has delivered you in six troubles, and in seven no evil has touched you. You bear your willing witness that He is a gracious Lord and Master, and that He has been a precious Christ to you! Indeed, you say that He is your All-in-All and that words fail you to tell all that you think of Him! Then canyou, willyou go away from Him after all this? I think I know what your answer must be, but I will not speak of that just now.
 
@@ -55,7 +55,7 @@ We must, all of us know some of these reprobates who once were numbered among th
 > When any turn from Zion's way (Alas, what numbers do)! I think I hear my Savior say, 'Willyou forsake Me too?' Ah, Lord, with such a heart as mine, Unless You hold me fast I feel I will! I shall decline, And prove like they at last. What anguish has that question stirred, If I will also go?   
 > Yet, Lord, relying on Your Word, I humbly answer, 'No.'   
 
-Now, as briefly as we can, let us consider Peter's REPLY TO OUR Lord's QUESTION, and I hope that
+Now, as briefly as we can, let us consider Peter's reply to our Lord's question, and I hope that
 
 many a heart here will make that reply its own. It was a grand answer! There is a magnificence about it which I cannot expect to bring out to the fullest&mdash;"Lord, to whom shall we go? You have the words of eternal life."
 
