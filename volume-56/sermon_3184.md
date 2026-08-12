@@ -71,9 +71,9 @@ Verse 1. Let us therefore fear lest a promise being left us of entering into His
 
 For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being
 
-mixed with faith in them that heard it [See Sermon #2089, Volume 35&mdash;profitable mixture.] They were not united to it by faith. Consequently, as they did not receive the Word, it was taken away from them.
+mixed with faith in them that heard it  They were not united to it by faith. Consequently, as they did not receive the Word, it was taken away from them.
 
-For we who have believed do enter into rest.[See Sermons #866, Volume 15&mdash;rest&mdash;and #2090, Volume 35&mdash;a delicious experience.] Faith brings us into this rest, even as unbelief shut them
+For we who have believed do enter into rest. Faith brings us into this rest, even as unbelief shut them
 
 out.
 
