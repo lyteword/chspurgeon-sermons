@@ -124,13 +124,11 @@ Buried with Him in baptism, wherein also you are risen with Him through the fait
 
 And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven all your trespasses. "You do not need to go to a 'priest' for pardon, for Christ has forgiven you all your
 
-trespasses. [See Sermons #2101, Volume 35&mdash;life and pardon and #2605, Volume 45&mdash;death and its sentence abolished.] You are so complete in Christ that confession to man and priestly absolution from man would be of no use to you."
+trespasses.  You are so complete in Christ that confession to man and priestly absolution from man would be of no use to you."
 
 Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to His Cross. "All the Mosaic ceremonies from which you were shut out as Gentiles, are abolished! Christ has driven a nail through them and fastened them up to His Cross." As sometimes a banker stamps a check when it is paid, so has Christ cut through the very heart of all Jewish ordinances by what He has done for His people.
 
-And having spoiled principalities and powers, He made a show of them openly, triumphing over them in it [See
-
-Sermon #273, Volume 5&mdash;Christ triumphant.] Exhibiting them as His
+And having spoiled principalities and powers, He made a show of them openly, triumphing over them in it  Exhibiting them as His
 
 prisoners in a triumphal procession, as the victorious Roman generals did when they returned from war!
 
