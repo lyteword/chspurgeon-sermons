@@ -2,7 +2,7 @@
 
 "Are not you also one of His disciples?" John 18:25.
 
-BLESSED be His name, there are some of us who count it our highest joy to answer this question, "Yes." Whatever may be entailed by the confession, we shall be glad to endure! We could not do otherwise than say, "He acknowledged us of old and He is still not ashamed to call us brethren and, therefore, we are not ashamed of Him, but we delight to call Him Master and Lord." In an interview I had about a fortnight ago, with a dear and venerable friend who is just upon the borders of the grave, he said to me, "There is a verse in the Hymn-Hook which I know you do not like, Sir, and which I do not like, though both of us have sometimes been obliged to sing it&mdash;
+Blessed be His name, there are some of us who count it our highest joy to answer this question, "Yes." Whatever may be entailed by the confession, we shall be glad to endure! We could not do otherwise than say, "He acknowledged us of old and He is still not ashamed to call us brethren and, therefore, we are not ashamed of Him, but we delight to call Him Master and Lord." In an interview I had about a fortnight ago, with a dear and venerable friend who is just upon the borders of the grave, he said to me, "There is a verse in the Hymn-Hook which I know you do not like, Sir, and which I do not like, though both of us have sometimes been obliged to sing it&mdash;
 
 > Tis a point I long to know,   
 > Oft it causes anxious thought   
@@ -13,7 +13,7 @@ BLESSED be His name, there are some of us who count it our highest joy to answer
 
 I thought of speaking a little to such persons. This, perhaps, will be unfortunate for most of you, for I shall not be addressing many, perhaps, here present. Still, if there are but a few such, we must look after the one at the risk even of leaving the ninety-nine. So I address myself to those whom we assuredly suspect to be followers of Jesus, concerning whose faith we need to have a little better evidence and whose life we would see a little more consistent with their being truly His followers.
 
-First, then, I would ask, WHY ARE YOU SUSPECTED OF BEING a DISCIPLE OF Christ? Please observe the reasons why Simon Peter was suspected, for the same reasons may be applicable to you.
+First, then, I would ask, why are you suspected of being a disciple of Christ? Please observe the reasons why Simon Peter was suspected, for the same reasons may be applicable to you.
 
 He was suspected by some of being a disciple of Christ because he had been seen with the disciples. One of the servants of the high priest said to Peter, "Did not I see you in the garden with Him?" Now, there are some of you who are always seen in the House of God&mdash;not only at stated services which are attended by the general public, but you are seen at the Prayer Meetings, you are seen at times when the interest is more spiritual&mdash;and when only the spiritual, it would be supposed, would be attracted and find anything that would interest them&mdash;there are you found. It is not only in the House of God that you are seen with Christ's people, but out-of-doors, too. You do not enjoy frivolous society. You are not at home in the haunts of vanity. Your companions are the godly. You delight in their conversation and the more spiritual the conversation becomes, the more you enjoy it!
 
@@ -45,7 +45,7 @@ I have suggested many hopeful things that would lead me to think that you are Hi
 
 I sometimes wish you would push yourself into this corner. If it came to the point, Beloved&mdash;if it really came to the point&mdash;some of you who have said, "I am afraid I do not love Him," because you do not love Him as you ought. Some of you who have said, "I am afraid I do not trust Him," because you have some doubts and some fears, I have no doubt that if it came to the point, notwithstanding all things, God would lead you to trust Him and to rejoice in Him! Remember that story of one of the martyrs who had been condemned to die for Christ, and who, about a week before he died, was full of fear and trembling? He was afraid of the fire and much cast down by the prospect of being burned. There was a fellow prisoner with him who scolded him for it and told him that he ought to trust in God, that he ought not to be dismayed, and ought not to be cast down. When the day came for them to burn together, the poor, weak, trembling man stood on the firewood and he said, before the fire was kindled, "Oh, He has come! He has come! He has come and He has filled my soul with His Presence!" He died triumphantly, while the other man, who had scolded him for his lack of faith, recanted at the last moment and became a traitor to the Truth of God. The Lord will help you if you are but right toward Him. Still, I pray that you may be delivered from every question about whether you are His disciple or not.
 
-Now, having thus uttered my suspicions about some of you, I shall, in the second place, demand from those of you who seem to be Christ's disciples, WHY DO YOU NOT ACT AS IF YOU WERE a DISCIPLE? "Are not you also one of His disciples?
+Now, having thus uttered my suspicions about some of you, I shall, in the second place, demand from those of you who seem to be Christ's disciples, why do you not act as if you were a disciple? "Are not you also one of His disciples?
 
 Why, then, are you not sharing His reproach? Peter is standing there warming his hands, looking to his personal comfort. His Master is over yonder being despised and rejected, maltreated and smitten. If you are one of His disciples, Peter, is this the place for you&mdash;among the ribald crowd around the fire? Is not your proper place at your Lord's side, to be laughed at as He is, falsely accused as He is, and buffeted as He is? I may be speaking to some who love Christ, or are to be suspected of it, but they have never borne His reproach. You are not numbered with any Christian Church because well, it is not a very respectable thing in the circle in which you move! You have not professed those Truths of God which you have believed because it would render you extremely unpopular if you did! You have not said in your household, "I am a Christian," because it is clear to you that your husband might not like it, or that your father might not have patience with it. You have slunk into the workshop and you have hidden your colors and you have been comfortable with ungodly men&mdash;and when they have uttered hard things about Christ, though you have not liked what they said, you have not expressed your disapproval&mdash;and so your silence gave consent to them.
 
@@ -83,7 +83,7 @@ Exposition by C. H. Spurgeon: John18:12-27.
 
 Verses 12, 13. Then the bandand the captain and officers of the Jews took Jesus and boundHim, andledHim away to Annas first; for he was father-in-law to Caiaphas, who was the high priest that same year. [See Sermons #2820, Volume 49&mdash;
 
-Christ BEFORE ANNAS and #2822, Volume 49&mdash;Christ IN BONDS.] Annas had
+Christ before annas and #2822, Volume 49&mdash;Christ in bonds.] Annas had
 
 been high priest before, and he seems to have been still regarded as high priest and to have been a leading spirit among the adversaries of Christ. The old sinner would not go to bed that night until he had seen the Man whom he hated brought bound before him. Sometimes hatred becomes a more powerful passion than even love, and here, while the disciples of Jesus all fled in terror, Annas, the Savior's bitter foe, was wide awake and awaiting His arrival with those who had taken Him captive.
 
@@ -103,6 +103,6 @@ Jesus answered him, If I have spoken evil, bear witness of the evil: but if well
 
 24-27. Now Annas had Him sent bound to Caiaphas the high priest. And Simon Peter stood and warmed himself. They said therefore unto him, Are not you also one of His disciples? He denied it, and said, I am not. One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him? [See Sermon
 
-#2106, Volume 35&mdash;"IN THE GARDEN WITH HIM".] Peter then denied
+#2106, Volume 35&mdash;"in the garden with him".] Peter then denied
 
 again: and immediately the cock cre . We know that the Lord turned and looked upon Peter. He did not speak a word, perhaps lest Peter should fall into the hands of those who were round about him&mdash;but His look was sufficient to kindle in Peter the fires of repentance&mdash;and he went out to weep bitterly over his shameful denial of his Lord.
