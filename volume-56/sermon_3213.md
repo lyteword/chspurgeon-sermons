@@ -6,7 +6,7 @@ It does one good to think that there are such things in the world as springs bub
 
 Did he not mean, first, "all the springs I drink of are in You" Secondly, did he not mean, "All the springs within myself come from You" I do not know that those two heads comprise even one-tenth of the thoughts that might arise out of our text, but then we have not time to take such a great text as this and consider it in full. We shall, therefore, just take the two series of thoughts that will spring up under those heads.
 
-The first thought is, ALL THE SPRINGS I DRINK OF ARE IN YOU.
+The first thought is, all the springs I drink of are in you.
 
 To begin, he may have remembered the deep which lies under In the benediction upon Joseph, Moses said that he was to have the blessing of the deep which couches beneath. Deep down in the earth are vast reservoirs of water and when these are tapped, they spring up and we are refreshed by them. These are symbolical of the mighty fountains of Eternal Love, the electing Grace of God, the Infinite fullness of the heart of God in His own Nature, for, "His nature and His name are Love." When we get to the great fountains of the Infinite, Eternal, Immutable Love of the Father towards His chosen people, then, indeed, we come to the fountainhead of all the streams which make the people of God glad! There is not a blessing we receive but it may be traced to the eternal purpose of God! We may see, on every single benediction of the Covenant, the stamp of the eternal purpose and decree&mdash;
 
@@ -76,7 +76,7 @@ If you turn to the fourth Chapter of Deuteronomy, verse 49, you will read about 
 
 Thus I might continue to use the similes of Scripture, and show that whatever sort of springs there may be, they all come from the great deep of the Infinite Love of God and that all our springs are in Him.
 
-But now we come to our second point, namely, that ALL THE SPRINGS THAT ARE WITHIN US COME FROM THE SAME SOURCE.
+But now we come to our second point, namely, that all the springs that are within us come from the same source.
 
 You know that our Savior says, concerning the man who drinks of the water that He gives, that it "shall be in him a well of water springing up into everlasting life." A Christian is not a cistern that is filled and emptied, but, by God's Grace, he becomes a living well! He is not a puppet moved with strings. He is not a machine that is wound up and goes by wheels mechanically worked&mdash;there is a living Power in him! He is a new creature in Christ Jesus, instinct with the highest form of life and that life possessed in the highest degree of freedom, for while a man is naturally a free agent, yet he is in a far superior sense a free agent when he becomes a converted soul! "If the Son shall make you free, you shall be free indeed."
 
@@ -134,11 +134,11 @@ innumerable company&mdash;"They looked unto Him and were lightened: and their fa
 
 This poor man cried, and the Lord heard him, and saved him out of all his troubles. [See Sermon #2193, Volume 27&mdash;a
 
-POOR MAN's CRY&mdash;AND WHAT CAME OF IT.] Here David speaks of himself again, but he refers to himself in the third person&mdash;"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
+poor man's cry&mdash;and what came of it.] Here David speaks of himself again, but he refers to himself in the third person&mdash;"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
 
 The angel of the Lord encamps round about them that fear Him, and delivers them. The great Angel of the Covenant, the Lord Jesus Christ, surrounds with His army the dwellings of the saints and takes care to have them in safe keeping.
 
-8-10. O taste and see that the Lord is good: blessed is the man that trusts in Him. O fear the Lord, you His saints. For there is no need to them that fear Him. The young lions do lack and suffer hunger: but they that seek the Lord shall not want any good thing.[See Sermon #65, Volume 2&mdash;LIONS LACKING BUT THE CHILDREN SATISFIED.] We are often in need because we are not seeking the Lord, but are seeking what we think we need, whereas, if we sought Him and left the supply of our needs to Him, He would supply all our need according to His riches in Glory by Christ Jesus. Christ's command is, "Seek you first the Kingdom of God and His righteousness, and all these things shall be added unto you." Men think that they will not get what they want except they seek it, but if they seek God, He will give them what they really need even if He does not give them all that they want!
+8-10. O taste and see that the Lord is good: blessed is the man that trusts in Him. O fear the Lord, you His saints. For there is no need to them that fear Him. The young lions do lack and suffer hunger: but they that seek the Lord shall not want any good thing.[See Sermon #65, Volume 2&mdash;lions lacking but the children satisfied.] We are often in need because we are not seeking the Lord, but are seeking what we think we need, whereas, if we sought Him and left the supply of our needs to Him, He would supply all our need according to His riches in Glory by Christ Jesus. Christ's command is, "Seek you first the Kingdom of God and His righteousness, and all these things shall be added unto you." Men think that they will not get what they want except they seek it, but if they seek God, He will give them what they really need even if He does not give them all that they want!
 
 Come, you children, hearken unto me. This man of God has made his confession to the saints and now he tells it to the children. There is nothing like working on material that will last&mdash;and those who are now children will, most of them, be alive when those who are now old men are dead and gone. So David says, "Come you children, hearken unto me"&mdash;
 
