@@ -2,7 +2,7 @@
 
 "You know not what a day may bring forth." Proverbs 27:1.
 
-[Another Sermon by Mr. Spurgeon, upon the whole verse is #94, Volume 2&mdash;tomorrow.]
+
 
 What a great mercy it is that we do not know "what a day may bring forth"! We are often thankful for knowledge, but in this case we may be particularly grateful for ignorance. It is the Glory of God, we are told, to conceal a thing and it most certainly is for the happiness of mankind that He should conceal their future. Supposing that bright lines were written for us in the book of destiny and that we could read those bright lines now, and be sure of them&mdash;we would probably loiter away our time until we arrived at them&mdash;and would have no heart for the present. If, on the other hand, we knew that there were dark days of trouble in store for us, and had a full conviction as to when they would come, probably the thought of them would overshadow the present so that the joys which we now drink would be left untasted by reason of our nervous fears as to the distant future! To know the good might lead us to presumption&mdash;to know the evil might tempt us to despair. Happy for us is it that our eyes cannot penetrate the thick veil which God hangs between us and tomorrow, that we cannot see beyond the spot where we now are and that, in a certain sense, we are utterly ignorant as to the details of the future. We may, indeed, be thankful for our ignorance!
 
