@@ -2,11 +2,11 @@
 
 "That I may win Christ." Philippians 3:8.
 
-THE very high value that the Apostle Paul set upon the Savior is most palpable when he speaks of winning Him. This shows that the Savior held the same place in Paul's esteem as the crown did in the esteem of the runner at the Olympic games. To gain that crown, the competitor strained every nerve and sinew, feeling as though he were content to drop down dead at the goal if he might but win it. Paul felt that were he to run with all his might, if that were the way of winning Christ&mdash;were he to strain soul and body to win Him, He would be well worth the effort. He shows his value of Christ by speaking of Him as the prize he panted to win. He uses the very same words which the soldier would use concerning the victory when, with garments rolled in blood, amidst confused noise and clouds of smoke, he counts all things but little if he may but hear the shout of triumph. So, Paul, regarding Christ as more glorious and excellent than mountains of prey, considered such a prize to be worth all the fighting, even though he should agonize and sweat with blood! He would be well worth dying to win. I take it that he speaks of Christ here as though he felt that He was the very climax of his desire, the summit of his ambition. If he might but get Christ, he would be perfectly satisfied&mdash;but if he could not get Him&mdash;whatever else he might have, he would still remain unblessed.
+The very high value that the Apostle Paul set upon the Savior is most palpable when he speaks of winning Him. This shows that the Savior held the same place in Paul's esteem as the crown did in the esteem of the runner at the Olympic games. To gain that crown, the competitor strained every nerve and sinew, feeling as though he were content to drop down dead at the goal if he might but win it. Paul felt that were he to run with all his might, if that were the way of winning Christ&mdash;were he to strain soul and body to win Him, He would be well worth the effort. He shows his value of Christ by speaking of Him as the prize he panted to win. He uses the very same words which the soldier would use concerning the victory when, with garments rolled in blood, amidst confused noise and clouds of smoke, he counts all things but little if he may but hear the shout of triumph. So, Paul, regarding Christ as more glorious and excellent than mountains of prey, considered such a prize to be worth all the fighting, even though he should agonize and sweat with blood! He would be well worth dying to win. I take it that he speaks of Christ here as though he felt that He was the very climax of his desire, the summit of his ambition. If he might but get Christ, he would be perfectly satisfied&mdash;but if he could not get Him&mdash;whatever else he might have, he would still remain unblessed.
 
 I would to God that you all felt the same. I wish that the ambition of every one of my fellow creatures here assem-bled&mdash;and, indeed, the wide world over&mdash;were this, that they might win Christ! Oh, if they did but know His precious-ness, if they did but understand how happy and how blessed He makes those to be who gain Him, they, too, would give up everything else for this one desire&mdash;that they may win Christ! I hope that, perhaps, a few words of mine may be blessed of God the Spirit to stir up such a desire in the hearts of the congregation now assembled. How, then, shall I begin?
 
-WHILE YOU HAVE NOT Christ, YOU ARE IN a VERY BAD CONDITION&mdash;SHOULD NOT THIS MAKE YOU LONG FOR HIM?
+while you have not Christ, you are in a very bad condition&mdash;should not this make you long for Him?
 
 Consider, my dear Hearer, you who are Christless tonight, what you are and where you are. You are a sinner&mdash;that you know. Without Christ you are an unpardoned sinner, a condemned sinner and, before long you will be a sinner judged, sentenced and cast into Hell! Do you not know that? You are a diseased sinner. Sin is the leprosy which is in you and, without Christ, you are sick without a physician. For you there is no balm in Gilead, no physician there. Your sickness is mortal! It will certainly be your ruin, for you have no Savior. You are a mortal&mdash;you cannot doubt it. You will soon die and can you tell what it will be to die without Christ? Have you ever formed an idea of what it will be to pass into the realm of separate spirits with no rod to lean on and no staff to comfort you in the dark valley? Man, you are an immortalbeing! You know that, too! You will not cease to be when you die. You will live again&mdash;and what will it be to live again without Christ? It will be to live the life of a condemned spirit, withered by the wrath of God, scathed by the lightning of Divine Justice! Can you think of that without dismay?&mdash;
 
@@ -28,9 +28,9 @@ O you souls out of Christ, I could, with half a moment's thought, stop and burst
 
 "Come, guilty souls, and flee away Like doves to Jesus' wounds! This is the welcome Gospel-Day, Wherein Free Grace abounds! God loved the Church and gave His Son To drink the cup of wrath. And Jesus says He'll cast out none That come to Him by faith."
 
-We will now change the strain, but not the objective. Remember that ALL THE THINGS IN THE WORLD
+We will now change the strain, but not the objective. Remember that all the things in the world
 
-ARE VAIN WITHOUT Christ.
+are vain without Christ.
 
 The world's goods, its substance, its riches, its pleasures, its pomp, its fame&mdash;what are all these without Christ? They are a painted pageantry to go to Hell in! They are a mockery to an immortal spirit! They are a mirage of the wilderness, deluding the traveler, but not yielding to his desires one substantial drop of joy! There have been those in this world who have tried it, and they say, "It sounds, it sounds, it sounds, because it is empty and hollow as a drum." It is&mdash;
 
@@ -56,7 +56,7 @@ And let me tell you, dear Hearer, that your repentance, if it does not lead you 
 
 "My hope is built on nothing less Than Jesus' blood and righteousness! I dare not trust the sweetest frame, But wholly lean on Jesus'name&mdash; On Christ, the solid Rock, I stand, All other ground is sinking sand!" Oh, how this ought to make you long for Christ, when you think that everything else is but a bauble when compared with Him! And think what a state you are in as long as you are destitute of Him!
 
-I must not tarry, so let me remind you, my dear Hearer, though you cannot possibly know how anxious I am to speak so that you may feel what I say, that NOTHING CAN MAKE AMENDS TO YOU FOR LOSING Christ.
+I must not tarry, so let me remind you, my dear Hearer, though you cannot possibly know how anxious I am to speak so that you may feel what I say, that nothing can make amends to you for losing Christ.
 
 I know how it is with some of you. You say you cannot afford to follow Christ. Your trade&mdash;your wicked trade&mdash; you would have to give that up, for it happens to be an ungodly calling. Well now, Friend, let me take you by the button-hole a minute. Which had you better be&mdash;a beggar and go to Heaven, or a duke&mdash;and go to Hell? Come, now, which had you better do&mdash;go to Heaven with an empty pocket or go down to the Pit with a full one? All you who worship Mammon, I know how you will answer, but you who have souls above earth, I hope you will reply, "Nothing in the
 
@@ -66,9 +66,9 @@ Some lose Christ for the sake of fame. It is not a fashionable thing to be a Chr
 
 Some give Jesus Christ up for the pleasures of the world, but can the giddy dance for a few minutes of this life be worth the torments of the world to come? Oh, weigh, like wise men&mdash;as merchants weigh their goods against the gold&mdash; I pray you, weigh your souls against the pleasures of this world! Oh, where is the pleasure? Even Tiberius, in his desert island, when he had ransacked the world to find a new joy, could not, if he could give us all the mirth he knew, tell us of anything that would be worth the casting away of the soul! This pearl is too priceless for the world to attempt to purchase! I pray you, be wise enough to feel that nothing can compensate you for this loss! Seek Jesus and may you find Him tonight!
 
-A fourth observation upon which I shall not enlarge, is this&mdash;DEPEND UPON IT, THAT WHATEVER YOU
+A fourth observation upon which I shall not enlarge, is this&mdash;depend upon it, that whatever you
 
-LOSE FOR Christ's SAKE WILL BE a BLESSED LOSS FOR YOU!
+lose for Christ's sake will be a blessed loss for you!
 
 Gregory Nazianzen, a foremost father of the Christian Church, rejoiced that he was well versed in the Athenian phi-losophy&mdash;and why do you think he rejoiced in that? Because he had to give it all up when he became a Christian! And he said, "I thank God that I had a philosophy to throw away." He counted it no loss, but a gain, to be a loser of such learned lumber when he found a Savior! An old Divine said, "Who would refuse to give up a whole sky full of stars if he could buy a sun with them? And who would refuse to give up all the comforts of this life if he could have Christ at so goodly a price?" That grand old Ignatius, one of the earliest of the Church fathers, said, "Give me burning, give me hanging, give me all the torments of Hell if I may but get my Savior! I would gladly be content to bear them all as a price." And so might we! Did I not tell you of the martyrs sitting and singing in old Bonner's damp coal-hole, and one of them writing, "There are six brave companions with me in this paradise, and we do sit and sing in the dark all day?" Ah, yes, they were no losers! Did not Rutherford say when he declared that he had but one eye and his enemies had put that out&mdash;for that one eye was the preaching of the Gospel, an eye to the glory of God&mdash;and his enemies had made him silent in Aberdeen, so that he used to weep over his dumb and silent Sabbaths? Yet did he not say, "But how mistaken they are! They thought they sent me to a dungeon, but Christ has been so precious to me that I thought it to be the king's parlor and the very Paradise of God"?
 
@@ -83,7 +83,7 @@ could stop, or persecution could dry up. The saints of Christ have given Christ 
 
 Yes, if you suffer with Him, you shall also be glorified together! God grant you Grace to feel this to be true and to make any sacrifice as long as you can but "win Christ, and be found in Him."
 
-IF EVER YOU GET Christ, YOU WILL FIND HIM ALL GAIN AND NO LOSS!
+if ever you get Christ, you will find him all gain and no loss!
 
 The Apostle says, "That I may win Christ" It is all winning and no losing. Why, if you get Christ, you will get life! Does He not give life and immortality to those that have Him? Yes, for He says, "he that believes in Me, though he were dead, yet shall he live." If you get Christ, you will get light. He said, "I am the light of the world: he that follows Me shall not walk in darkness." The Sun of Righteousness shall arise upon you! Get Christ and you shall get health&mdash;your soul shall leave her sicknesses with Him who bore her sickness in the days of His flesh. Get Christ and you shall get riches, "the unsearchable riches of Christ." You may be poor, perhaps, outwardly, but you shall be rich, yourselves, and be able to make many others rich&mdash;rich in faith, giving glory to God! Get Christ and prosperity shall not hurt you&mdash;your feet shall be like hinds' feet, to stand upon your high places. Get Christ and He will turn your bitter Marahs into sweet Elims. He is the Tree which, when put into the brackish water, makes it sweet to the taste. Affliction is no longer affliction when Christ is with us! Then the furnace glows, not with heat, alone, but with a golden Radiance, a present Glory when Christ treads the burning coals!
 
@@ -93,7 +93,7 @@ Get Christ, Beloved, and you have got all your soul can wish for Now may you str
 
 Surely all this ought to make the sinner's mouth water to get Christ! It ought to make his heart ache till he gets Christ! It ought to set his soul a-hungering and a-thirsting till he gets Jesus! It ought to make him resolve that he will not be kept back till at last he gets a firm hold upon the Crucified!
 
-My last remark shall be this&mdash;WE SHALL UNDERSTAND ALL THIS a GREAT DEAL BETTER VERY SOON.
+My last remark shall be this&mdash;we shall understand all this a great deal better very soon.
 
 There is a curtain, but it is lifting, it is lifting, it is lifting&mdash;and when it is lifted, what do I see? The spirit world! 'Tis death that lifts the curtain and when it is lifted, these present things will vanish, for they are but shadows. The world of eternity and reality will then be seen. I would summon a jury of the spirits that have passed that curtain and they would not be long debating about the question whether Christ is worth the winning! I care not where you select them
 
@@ -123,7 +123,7 @@ Though I might also have confidence in the flesh. "If any man might trust in out
 
 4-6. If anyone else thinks he may have confidence in the flesh, I more: circumcised the eight day, of the stock of Israel, of the tribe ofBenjamin, an Hebrew of the Hebrews; as touching the Law, a Pharisee; concerning zeal, persecuting the Church; touching the righteousness which is in the Law, blameless. So that if anybody could have boasted of what he was by birth, what he was by profession, what he was by the display of religious zeal&mdash;Paul could have boasted as boldly as anyone could, for in all those respects he was second to nobody! You know that it is a very easy thing, or it ought to be a very easy thing, for some people to be humble, for they have nothing to be proud of&mdash;but here is a man who had much of which he might have been proud! According to the letter of the Law, he was a diamond of the first water, yet see what a different verdict he gives after Divine Grace has opened his eyes!
 
-7-9. But what things were gain to me, those I counted loss for Christ Yes, indeed, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in Him, not having my own righteousness, which is of the Law, but that which is through the faith of Christ, the righteousness which is of God by faith. [See Sermon #1357, Volume 23&mdash;a businesslike ACCOUNT.] Everything else must go in order to secure that.
+7-9. But what things were gain to me, those I counted loss for Christ Yes, indeed, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in Him, not having my own righteousness, which is of the Law, but that which is through the faith of Christ, the righteousness which is of God by faith. [See Sermon #1357, Volume 23&mdash;a businesslike account.] Everything else must go in order to secure that.
 
 Paul thinks that to be righteous by faith is infinitely better than all the righteousness that can come by works and ceremonies. He therefore utterly despises that which he once thought to be more precious that gold! And he takes possession of, as his greatest treasure, that which he once trampled in the mire. Now his great desire is&mdash;
 
@@ -131,7 +131,7 @@ Paul thinks that to be righteous by faith is infinitely better than all the righ
 
 But I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus. [See Sermon #2315,
 
-Volume 39&mdash;PAUL APPREHENDED AND APPREHENDING.] "I want to lay
+Volume 39&mdash;paul apprehended and apprehending.] "I want to lay
 
 hold of that for which Christ has laid hold of me. He has grasped me in order to make me perfect and I want to grasp that perfection. He has laid hold of me to rid me of my sin and I want to lay hold of a clean riddance of sin, apprehending that for which also I am apprehended of Christ Jesus."
 
@@ -141,10 +141,10 @@ hold of that for which Christ has laid hold of me. He has grasped me in order to
 
 Ofwhom Ihave toldyou often, andnow tellyou even weeping, that they are the enemies ofthe Cross ofChrist
 
-[See Sermons #102, Volume 2&mdash;FALSE PROFESSORS SOLEMNLY WARNED and #2553, Volume 44&mdash;THE ENEMIES OF THE CROSS OF Christ.] The worst enemies that the Cross of Christ has are the enemies inside the professing Church of Christ!
+[See Sermons #102, Volume 2&mdash;false professors solemnly warned and #2553, Volume 44&mdash;the enemies of the cross of Christ.] The worst enemies that the Cross of Christ has are the enemies inside the professing Church of Christ!
 
 Whose endis destruction, whose Godis their belly, and whose glory is in their shame, who mind earthly things. They call themselves spiritual, yet they live for earthly things, indulging their appetites, living for self, yet pretending to be Christians, whereas selfishness is the very reverse of Christianity.
 
 20, 21. For our conversation is in Heaven; from where also we look for thee Savior, thee LordJesus Christ: who shall change our vile body, that it may be fashioned like unto His glorious body, according to the working whereby He is able
 
-even to subdue all things unto Himself [See Sermon #973, Volume 17&mdash;THE POWER OF Christ ILLUSTRATED by THE RESURRECTION.]
+even to subdue all things unto Himself [See Sermon #973, Volume 17&mdash;the power of Christ illustrated by THE resurrection.]
