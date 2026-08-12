@@ -4,8 +4,6 @@
 
 "The Spirit itself bears witness with our spirit that we are the children of God, and if children, then heirs, heirs of God, and joint heirs with Christ." Romans 8:16,17.
 
-[See Sermon #339, Volume 6&mdash;the sons of God.]
-
 These two texts will furnish me with two familiar but most important themes&mdash;what Christians were and what they are. There are great and vital differences between what they once were and what they now are&mdash;and these are implied or indicated by the two expressions, "the children of wrath" and, "the children of God." There is so much instruction in each of our texts that we will proceed at once to consider them without any further introduction.
 
 So, first, let us consider what Christians were.
@@ -70,13 +68,11 @@ There is, however, such a danger of being only children of God in name, and not 
 
 Exposition by C. H. Spurgeon: Ephesians2.
 
-Verse 1. And you has He quickened, who were dead in trespasses and sins. [See Sermons #127, Volume 3&mdash;spiritual resurrection; #2267, Volume 38&mdash;life from the dead and #2388, Volume 40&mdash;once dead, now alive.] Then you owe your very life to Him! You were dead, you were like a corrupt carcass, but His life has been breathed into you. "You has He quickened." Then you are no longer dead&mdash;you are a living soul before the living God&mdash;and as you owe this to Him, praise Him with all the life you have! You "were dead in trespasses and sins." 2, 3. Wherein in time past you walked according to the course of this world, according to the prince of the power of
+Verse 1. And you has He quickened, who were dead in trespasses and sins. Then you owe your very life to Him! You were dead, you were like a corrupt carcass, but His life has been breathed into you. "You has He quickened." Then you are no longer dead&mdash;you are a living soul before the living God&mdash;and as you owe this to Him, praise Him with all the life you have! You "were dead in trespasses and sins." 2, 3. Wherein in time past you walked according to the course of this world, according to the prince of the power of
 
 the air, the spirit that now works in the children of disobedience: among whom we, also, all had our conversation in times past in the lusts of our flesh, fulfilling the desires of the flesh and of the mind; and were by nature the children of wrath, even as others. It does us good to remember what we used to be. There was no reason in us, by nature, why we should be made the children of God. There were in us no distinguishing traits of character by which we were separated from our fellow sinners. We ran in the same course. We were possessed by the same spirit. We worked the same works. We had the same nature. We were under the same condemnation&mdash;"children of wrath, even as others."
 
-4, 5. But God, who is rich in mercy, for His great love wherewith He loved us, even when we were dead in sins, has quickened us together with Christ, (by Grace you are saved). [See Sermons #2968, Volume 52&mdash;"his great love"; #805, Volume 14&mdash;
-
-resurrection with Christ and #2741, Volume 47&mdash;salvation by grace.]
+4, 5. But God, who is rich in mercy, for His great love wherewith He loved us, even when we were dead in sins, has quickened us together with Christ, (by Grace you are saved).
 
 "By Grace you are saved." I know that you feel that it is so. Our quickening out of our death in sin must have been by Grace&mdash;and as God has done it&mdash;unto Him must be ascribed all the glory of it! There can be no merit in those who are dead in sin that they should be quickened out of their sin! This must be the work of the Lord, alone, and unto Him be all the praise. He "has quickened us together with Christ," so that our life is mystically linked with the life of Christ, as He said to His disciples, "Because I live, you shall also live." Until He can die, those who are one with Him cannot die.
 
@@ -86,7 +82,7 @@ up there together with Christ, and to be made to sit there with Him, is a gift t
 
 8. That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through
 
-Christ Jesus. For by Grace are you saved through faithl. [See Sermons #1064, Volume 18&mdash;salvation all of grace and #1609, Volume 27&mdash; faith&mdash;what is it? how can it be obtained?] It must be all of Grace
+Christ Jesus. For by Grace are you saved through faithl. It must be all of Grace
 
 because of the greatness of the favor bestowed. A man dead in trespasses and sins cannot deserve to be made alive. And when he is made alive, he cannot deserve to be raised up to sit with Christ in the heavenly places! That is too great a gift to come to us by the way of the Law&mdash;it must come to us emphatically as the gift of the Grace of God in Christ Jesus! "For by Grace are you saved through faith"&mdash;
 
@@ -94,7 +90,7 @@ And that not of yourselves: it is the gift of God. "Not of yourselves." What do 
 
 Not of works, lest any man should boast. God will not have a boaster in Heaven! He will not have the creature exalting himself in His Presence. The command, "Look unto Me, and be you saved, all the ends of the earth." is backed up by this reason, "for I am God, and there is none else." Therefore unto God, Himself, must be the praise and glory for all who are saved.
 
-For we are His workmanship. [See Sermons #1829, Volume 31&mdash;the singular origin of a ChristIAN and #2210, Volume 37&mdash;THE agreement of salvation by grace with walking in good works] Salvation cannot be of works, for if we have any good works, it is because we are God's workmanship.
+For we are His workmanship. Salvation cannot be of works, for if we have any good works, it is because we are God's workmanship.
 
 10-12. Created in Christ Jesus unto good works, which God has before ordained that we should walk in them. Therefore remember that you being in time past, Gentiles in the flesh&mdash;who are called Uncircumcision by that which is called the Circumcision in the flesh by hands&mdash;that at that time you were without Christ Certainly we were poor sinners of the Gentiles, having no participation whatever in the old Mosaic dispensation.
 
