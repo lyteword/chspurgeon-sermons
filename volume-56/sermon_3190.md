@@ -2,7 +2,7 @@
 
 "And they came to a place which was named Gethsemane." Mark 14:32.
 
-[Other Sermons by Mr. Spurgeon upon "Christ in Gethsemane," are #493, Volume 9&mdash;Gethsemane; #693, Volume 12&mdash;the garden of the soul; #1199, Volume 20&mdash;the agony in gethsemane and #494, Volume 9&mdash;the betrayal.]
+
 
 our Lord had been sitting at the table of happy fellowship with His disciples, talking to them in a very solemn and impressive manner. He then delivered those choice discourses which are recorded by John and offered that wonderful prayer which deserves to always be called, "The Lord's Prayer." Knowing all that was to befall Him, He and His disciples left the upper room and started to go to His usual place of quiet retreat, "a place which was named Gethsemane." You can easily picture their descent into the street. The moon was at the full on the Paschal night and it was very cold, for we read that the high priest's servants had kindled a fire and warmed themselves, because it was cold. As Jesus walked along the narrow streets of Jerusalem, He doubtless still spoke to His disciples in calm and helpful tones. And before long they came to the Brook Kidron over which David passed when Absalom stole away the hearts of the people from his father. So now, "great David's greater Son" must go the same way to the olive garden where He had often been before with His disciples. It was called Gethsemane, "the olive press." As we think of Christ in Gethsemane, I want you who love Him not only to adore Him, but to learn to imitate Him, so that when you are called to "drink of His cup," and to be baptized with the baptism wherewith He was baptized, you may behave as His true followers should and come forth from your conflict victorious as He came forth from His!
 
@@ -66,7 +66,7 @@ Verse 1. Verily, verity, I say unto you, he that enters not by the door into the
 
 And the sheep hear his voice. Those who are really chosen of God hear and heed the voice of Christ but those who are not Christ's chosen ones will not heed His discourse, but will listen to the many voices which attract the ears and the hearts of sinful men. The elect of God are known by this mark&mdash;that they hear the voice of Christ! Just as you can find out in a heap of ashes, whether there are any pieces of steel there by simply thrusting in a magnet, so can you find out God's chosen people by the mighty magnet of Christ's voice!
 
-And he calls his own sheep by name, and leads them out. [See Sermon #2359, Volume 40&mdash;personal and effectual calling.] Sometimes He leads them out from the midst of the world's
+And he calls his own sheep by name, and leads them out.  Sometimes He leads them out from the midst of the world's
 
 flocks. And sometimes He calls them by name when they are in His fold and leads them out to even higher and better pastures, calls them and leads them out to higher Truths of God than they have before received.
 
@@ -92,15 +92,15 @@ Shepherd and as He is everything that is necessary and good for His people! If I
 
 The thiefcomes not but to steal, and to kill, and to destroy: Iam come that they might have life, and that they
 
-might have it more abundantly. [See Sermon #1150, Volume 20&mdash;life more abundant.] I trust that the first purpose of Christ's coming has been fulfilled to many of us, for we "have life" through Him&mdash;but ought we not to be encouraged to hope that we may reach a higher standard of that life&mdash;and so have it more abundantly? We do not want to have just enough life to enable us to breathe, but we want life enough for usefulness, for joy, for triumph, for likeness to Christ, for communion with the Father and with His Son Jesus Christ!
+might have it more abundantly.  I trust that the first purpose of Christ's coming has been fulfilled to many of us, for we "have life" through Him&mdash;but ought we not to be encouraged to hope that we may reach a higher standard of that life&mdash;and so have it more abundantly? We do not want to have just enough life to enable us to breathe, but we want life enough for usefulness, for joy, for triumph, for likeness to Christ, for communion with the Father and with His Son Jesus Christ!
 
 11-13. Iam the Good Shepherd: the good shepherd gives his life for the sheep. But he that is an hireling, and not the shepherd, whose own the sheep are not, sees the wolf coming, and leaves the sheep, and flees: and the wolf catches them, and scatters the sheep. The hireling flees, because he is an hireling, and cares not for the sheep. Christ is the Good Shepherd and, therefore, He never fled as the hireling flees. He cared for the sheep, for they were His own. The wolf might come, but the Good Shepherd was ready to meet him. He would not have His sheep scattered, but He would gather them in the cloudy and dark day, and in every time of danger He would be the center around which they might rally.
 
 14, 15. I am the Good Shepherd, and know My sheep, and am known of Mine. As the Father knows Me, even so I
 
-know the Father: and I lay down My life for the sheep. [See Sermon #1877, Volume 32&mdash;our own dear shepherd.] Our translators have ruined this passage by putting a full stop where there should not be one, and by breaking it into two verses. It should run thus&mdash;"I am the Good Shepherd, and know My sheep, and am known of Mine as the Father knows Me and I know the Father: and I lay down My life for the sheep." Christ here sets forth the intimate knowledge that there is between Himself and all His people&mdash;as much as there is between the Father and the Son! It is wonderful teaching, full of depth and spiritual power. As the Father knows the Son, and the Son knows the Father, so certainly does Christ know His Church&mdash;and His Church knows Him&mdash;or shall do so in the future.
+know the Father: and I lay down My life for the sheep.  Our translators have ruined this passage by putting a full stop where there should not be one, and by breaking it into two verses. It should run thus&mdash;"I am the Good Shepherd, and know My sheep, and am known of Mine as the Father knows Me and I know the Father: and I lay down My life for the sheep." Christ here sets forth the intimate knowledge that there is between Himself and all His people&mdash;as much as there is between the Father and the Son! It is wonderful teaching, full of depth and spiritual power. As the Father knows the Son, and the Son knows the Father, so certainly does Christ know His Church&mdash;and His Church knows Him&mdash;or shall do so in the future.
 
-And other sheep I have, which are not of this fold. [See Sermon #1713, Volume 29&mdash;other sheep and one flock.] They are of this flock, but they are not of this fold. The flock is divided,
+And other sheep I have, which are not of this fold.  They are of this flock, but they are not of this fold. The flock is divided,
 
 and lies down in different fields for the present&mdash;"Other sheep I have, which are not of this fold"&mdash;
 
@@ -110,6 +110,6 @@ and lies down in different fields for the present&mdash;"Other sheep I have, whi
 
 22-26. And it was at Jerusalem the Feast of Dedication, and it was winter. And Jesus talked in the Temple in Solo-mon'sporch. Then came the Jews roundabout Him and said to Him, How long do You make us to doubt? If You are the Christ, tell us plainly. Jesus answered them, I told you and you didn't believe Me: the works that I do in My Father's name, they bear witness of Me. But you believe not because you are not ofMy sheep, as I said unto you. "You are not My chosen people&mdash;there has been no work of Divine Grace in your hearts and, therefore, you do not believe." What a brave way that was of putting the Truth of God! Some would have said, "Because you do not believe, you are not my sheep;" but Jesus puts it the other way, "Because you are not My sheep, therefore you do not believe."
 
-27-30. My sheep hear My voice, and I know them, and they follow Me: and I give unto them eternal life; and they shall never perish, neither shall any man pluck them out ofMy hand. My Father, who gave them to Me, is greater than all; andno man is able to pluck them out ofMy Father's hand. IandMy Father are One. [See Sermon #2120, Volume 35&mdash;the security of believers&mdash;or, sheep who will never perish.] This great
+27-30. My sheep hear My voice, and I know them, and they follow Me: and I give unto them eternal life; and they shall never perish, neither shall any man pluck them out ofMy hand. My Father, who gave them to Me, is greater than all; andno man is able to pluck them out ofMy Father's hand. IandMy Father are One.  This great
 
 Truth of God angered the Jews so much that they "took up stones again to stone Him." They proved, by thus treating the Good Shepherd, that they were not His sheep!
