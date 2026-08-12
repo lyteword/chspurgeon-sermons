@@ -4,7 +4,7 @@
 
 We note from this incident that it was a cold night in which our Redeemer agonized in the Garden of Gethsemane.
 
-[See Sermon #2767, Volume 48&mdash;Jesus in gethsemane.] a cold night and
+ a cold night and
 
 yet He sweat! A cold night and yet there fell from Him, not the sweat of a man who earns the staff of life, but the sweat of One who was earning life, itself. "His sweat was, as it were, great drops of blood falling down to the ground." No natural heat of the sun, or of a sultry evening caused this! The heat within His soul distilled those sacred drops! His heart's throbs were so mighty that it seemed to empty itself and His life-floods rushed with such awful force that the veins, like overfilled rivers, burst their banks and covered His blessed Person with gory drops! On such a wintry night as this, while you wrap your garments about you, I would ask you to remember the olive garden and the lone Sufferer, all unsheltered, entering into the dread anguish by which He won our souls from death and Hell! The sharp frost may be a useful monitor to us if it makes us think of Him and remember that dark, that doleful night when all the powers of evil met and, even unto blood, He strove with them for our sakes!
 
@@ -78,7 +78,7 @@ They answered Him, Jesus of Nazareth. Jesus said unto them, I am H. Or, rather, 
 
 5, 6. And Judas, also, who betrayed Him, stood with them. As soon, then, as He had said to them, I am He, they went backward and fell to the groundIt seems as if our Lord intended to let them realize something of His Divine Power and Glory, for the utterance of that august expression, I Am, which is His Father's name, staggered them and they fell to the ground. Do you not wonder that they did not rise up and go away and leave Him after they had fallen at His feet and asked His forgiveness? They did not act so, for the power of fear, when it is not accompanied by love, is very small. There was enough power in it to make them fall down to the ground, but there was not power enough in it to make them fall at Christ's feet confessing their sin!
 
-7, 8. Then He asked them again, Whom are you seeking? And they said, Jesus of Nazareth. Jesus answered, I have told you that I am He: if, therefore, you seek Me, let these go their way. [See Sermons #2616, Volume 45&mdash;christ's care of his disciples and #2368, Volume 40&mdash;the living care of the dying Christ.] It is
+7, 8. Then He asked them again, Whom are you seeking? And they said, Jesus of Nazareth. Jesus answered, I have told you that I am He: if, therefore, you seek Me, let these go their way.  It is
 
 very cheering to us to think of our Lord meeting all the enemies of His people, gathering up all their weapons into His own heart, that His people might go free. You and I, if we had been in such a case, would have been hurried and worried&mdash;and our fears would have made us selfish&mdash;we would have forgotten our poor friends who were with us! But Jesus thought not of Himself&mdash;He thought of His poor trembling disciples and, therefore, He said, "If, therefore, you seek Me, let these go their way."
 
