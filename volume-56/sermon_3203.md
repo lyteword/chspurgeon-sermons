@@ -2,7 +2,7 @@
 
 "For He hats made Him who knew no sin to be sin for us, that we might be made the righteousness of God in Him." 2 Corinthians 5:21.
 
-I DARESAY I have preached from this text several times in your hearing. If my life is spared, I hope to
+I daresay I have preached from this text several times in your hearing. If my life is spared, I hope to
 
 preach from it twice as many more! The Doctrine it teaches, like salt upon the table, must never be left out&mdash;or, like bread, which is the staff of life&mdash;it is proper at every meal.
 
@@ -12,7 +12,7 @@ You scarcely need that I should explain the words when the sense is so plain. A 
 
 Of this transaction I would have you think tonight. Think of it adoringly! Think of it lovingly! Think of it joyfully!
 
-When you look at the great Doctrine of Substitution, you especially who are concerned in it and can see your sins laid upon Christ, I want you to LOOK AT IT WITH DEVOUT ADORATION.
+When you look at the great Doctrine of Substitution, you especially who are concerned in it and can see your sins laid upon Christ, I want you to look at it with devout adoration.
 
 Lowly and reverently adore the Justice of God. God set His heart upon saving your souls, but He would not be unjust, even to indulge His favorite attribute of Mercy. He had purposed that you should be His&mdash;He had set His love upon you, unworthy as you are, before the foundation of the world! Yet to save you, He would not tarnish His Justice. He had said, "The soul that sins, it shall die," and He would not recall the word because it was not too severe, but simply a just and righteous threat. Sooner than He would tarnish His Justice, He bound His only begotten Son to the pillar and scourged and bruised Him! Sooner than sin should go unpunished, He put that sin upon Christ and punished Him&mdash;oh, how tremendously and with what terrific strokes! Christ can tell you, but probably if He did tell you, you could not understand all that God thinks about sin, for God hates it, loathes it and must and will punish it! And upon His Son He laid a tremendous, incomprehensible weight, till the griefs of the dying Redeemer utterly surpassed all our imagination or comprehension! Adore, then, the Justice of God, and think how you might have had to adore it, not at the foot of the Cross, but in the depths of Hell! O my Soul, if you had had your deserts, you would have been driven from the Presence of God! Instead of looking into those languid eyes which wept for you, you would have had to look into His face whose eyes are as a flame of fire! Instead of hearing Him say, "I have blotted out your sins," you might have heard Him say, "Depart, you cursed one, into everlasting fire." Will you not pay as much reverence to the Justice of God exhibited on the Cross as exhibited in Hell? Let your reverence be deeper! It will not be that of a slave, or even of a servant, but let it be quite as humble. Bow low, bless the Justice of God, marvel at its severity, adore its unlimited holiness, join with seraphs
 
@@ -30,7 +30,7 @@ A great many persons rail at this plan of salvation, but if God has determined i
 
 are saved. Justice is magnified, Wisdom extolled, Grace resplendent, and every attribute of God glorified! Oh, let us, at the very mention of a dying Savior, bow down and adore!
 
-Not to change the topic, but to vary the line of thought, let us endeavor to LOOK LOVINGLY at Jesus Christ made sin for His people.
+Not to change the topic, but to vary the line of thought, let us endeavor to look lovingly at Jesus Christ made sin for His people.
 
 Every word here may help our love. That word, "Him,"may remind us of His Person&mdash;"He has made Him to be sin for us"&mdash;Him&mdash;the Son of God, coequal and co-eternal with the Father! Him&mdash;the son of Mary, born at Bethlehem&mdash; the spotless "Son of Man." "He has made Him to be sin." I am not going to enlarge. I only want to bring His blessed Person clearly before your mind. He who trod the waves. He who healed the sick He who had compassion upon the multitudes and fed them. He who always lives to make intercession for us&mdash;"He has made Him to be sin for us." Oh, love Him, Sinner, and let your heart join in the words&mdash;
 
@@ -50,7 +50,7 @@ Beloved in the Lord, there is one more string of your harp I would like to touch
 
 you and then He loves you as He loves His Son. He has put you into union with His Son and you are now hid with Christ in God. I trust you will endeavor to realize this position of yourselves as made the righteousness of God in Christ, and when you do, surely you will love the Savior who has done all this for you&mdash;undeserving, helpless, dying, guilty mortals! Oh, that the Lord Jesus would now send fire into all your souls and make you love Him, for surely, if you have but the sense of what He has done and how He did it, and what it cost Him to do it, and who He is that has done it&mdash;and who you were for whom He has done it&mdash;you will surely say, "Oh, for a thousand hearts that I may love You as I should, and a thousand tongues that I may praise You as I should!"
 
-And now, let us JOYFULLY VIEW THE GLORIOUS FACT OF SUBSTITUTION.
+And now, let us joyfully view the glorious fact of substitution.
 
 And here I will commence with the observation that till your sin as a Believer is gone, and till, as a Believer, Christ's righteousness is at present your glorious dress, your salvation is in no sense realized by yourselves. It is not dependent upon your frames and feelings. Your sins are not put away through your repentance. That repentance becomes to you the token of the pardon of sin, but the true cleansing is found, not in the eyes of the penitent, but in the wounds of Jesus! Your sins were virtually discharged upon the accursed Cross. You stand this day accepted, not for anything you are, or can be, or shall be, but entirely and wholly through the blood and righteousness of Jesus Christ. We cannot state this Truth of God, it seems to me, too boldly. This is the very Doctrine of the Reformation&mdash;Justification by Faith, or rather the basis Doctrine upon which it rests. And I am persuaded the more plainly it is preached, the better, for it is the Gospel of salvation to a lost and ruined world!
 
@@ -76,7 +76,7 @@ And experience, hope. What God has once done, He may do again. And as He has sho
 
 And hope makes us not ashamed. Our hope brings us courage&mdash;no longer are we trembling and diffident, but we feel like children do towards a loving father&mdash;we are happily, restfully at home with our God. "Hope makes us not ashamed."
 
-Because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us. [See Sermons #829, Volume 14&mdash;THE PERFUMING OF THE HEART and #1904, Volume 32&mdash;THE PERSONAL PENTECOST AND THE GLORIOUS HOPE.] When Mary, the sister of Lazarus, anointed the feet of Jesus with the very costly ointment of
+Because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us. [See Sermons #829, Volume 14&mdash;the perfuming of the heart and #1904, Volume 32&mdash;the personal pentecost and the glorious hope.] When Mary, the sister of Lazarus, anointed the feet of Jesus with the very costly ointment of
 
 spikenard, "the house was filled with the odor" of it&mdash;and in a similar fashion the love of God perfumes every part of
 
@@ -84,7 +84,7 @@ our nature.
 
 For when we were yet without strength, in due time Christ died for the ungodly."'[See Sermons #1191, Volume 20&mdash;for
 
-WHOM DID Christ DIE? and #1345, Volume 23&mdash;FOR WHOM IS THE GOSPEL MEANT?.]
+Whom did Christ die? and #1345, Volume 23&mdash;for whom is the gospel meant?.]
 
 What a wonderful statement! "Christ died for the ungodly." Yet it was no slip of the pen, for the Apostle takes up his own expression and preaches the following little sermon upon it&mdash;
 
@@ -94,7 +94,7 @@ Yet perhaps for a good man some would even dare to di. For a benevolent man, a t
 
 But God commends His love toward us, in that while we were yet sinners, Christ died for us. [See Sermon #104, Volume
 
-2&mdash;LOVE's COMMENDATION.] Certainly we were not "good" men, we
+2&mdash;love's commendation.] Certainly we were not "good" men, we
 
 were not even "just" men, but we are included in this black description, "sinners." And "while we were yet sinners, Christ died for us." He died for us as sinners&mdash;He did not come to save saints, but to save sinners&mdash;and it was for sinners that He died.
 
@@ -102,13 +102,13 @@ Much more, then, being now justified by His blood, we shall be saved from wrath 
 
 For if, when we were enemies, we were reconciled to God by the death of His Son, much more, being reconciled,
 
-we shall be saved by His life. [See Sermon #2587, Volume 44&mdash;"MUCH MORE."] There is a threefold argument here. If Christ died for us when we were His enemies, will He not save us, now that we are His friends? If He died to reconcile us to God, will He not completely save us, now that this great work has been accomplished? And as we were reconciled to God by Christ's death, shall we not much more be saved by His life? There are three arguments and each one is sound and conclusive. The Believer in Jesus must be eternally saved! If Christ died for sinners, what will He not do for Believers, who are no longer enemies, but are reconciled unto God by the death of His Son?
+we shall be saved by His life. [See Sermon #2587, Volume 44&mdash;"much more."] There is a threefold argument here. If Christ died for us when we were His enemies, will He not save us, now that we are His friends? If He died to reconcile us to God, will He not completely save us, now that this great work has been accomplished? And as we were reconciled to God by Christ's death, shall we not much more be saved by His life? There are three arguments and each one is sound and conclusive. The Believer in Jesus must be eternally saved! If Christ died for sinners, what will He not do for Believers, who are no longer enemies, but are reconciled unto God by the death of His Son?
 
 2 Corinthians 4:1. Therefore seeing we have this ministry, as we have received mercy, we faint not. Stern was the labor of the Apostles, but they felt that their work was so all-important, so Divine , that they must not grow weary of it, though they were, doubtless, often weary init.
 
 But have renounced the hidden things of dishonesty, not walking in craftiness, nor handling the Word of God deceitfully; but by manifestation of the truth commending ourselves to every man's conscience in the sight of God. It is no part of the business of Christ's ministers to modify the Truth of God which He has entrusted to them, or to put new meanings into it which God never meant, draining away the very life-blood of the Gospel and leaving it dead and useless! But it isboth our duty and our privilege to state it just as we find it and to proclaim it in as plain a language as possible so that everybody may understand what the teaching of God really is.
 
-But if our Gospel is hid, it is hid to them that are lost. [See Sermon #1663, Volume 28&mdash;THE true gospel is no hidden gospel.] It was not hidden under fine language and oratorical flourishes on the part of the Apostles&mdash;there was a far more terrible barrier in the way of its entrance into the hearts of some who heard it.
+But if our Gospel is hid, it is hid to them that are lost. [See Sermon #1663, Volume 28&mdash;the true gospel is no hidden gospel.] It was not hidden under fine language and oratorical flourishes on the part of the Apostles&mdash;there was a far more terrible barrier in the way of its entrance into the hearts of some who heard it.
 
 4-7. In whom the god of the world has blinded the mind of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine unto them. For we preach not ourselves, but Christ Jesus the Lord, and ourselves your servants for Jesus 'sake. For God who commanded the light to shine out of darkness, has shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ But we have this treasure in earthen vessels. There is nothing remarkable in us. We are, in ourselves, poor, frail, fragile creatures, like earthen vessels of no particular value! Yet this we do not regret, for there is a good reason for it&mdash;
 
@@ -126,7 +126,7 @@ So, then, death works in us, but life in yo . So long as Paul could be the means
 
 2 Corinthians 5:1. For we know that if our earthly house of this tabernacle were dissolved, we have a building of God, an house not made with hands, eternal in the heavens. [See Sermon #1719, Volume 29&mdash;the tent dissolved and the mansion
 
-ENTERED.] Is not this grand courage on the part of the Apostle?
+entered.] Is not this grand courage on the part of the Apostle?
 
 With all the world against him and he "always delivered unto death for Jesus' sake," he looks at the new body, the new house that God is making for him and he reckons that to shuffle off this mortal coil will be no loss to him, since when he loses the tent in which he lives, here, he will go to "a building of God, a house not made with hands, eternal in the heavens."
 
@@ -136,7 +136,7 @@ With all the world against him and he "always delivered unto death for Jesus' sa
 
 6-9. Knowing that while we are at home in the body, we are absent from the Lord: (for we walk by faith, not by sight): we are confident, I say, and willing rather to be absent from the body, and to be present with the Lord. Therefore we labor, that whether present or absent, we may be accepted of Him. [See Sermons #413, Volume 7&mdash;to die or not to die! and #1303,
 
-Volume 22&mdash;THE BELIEVER IN THE BODY AND OUT OF THE BODY.] To be well-
+Volume 22&mdash;the believer in THE body and out of THE body.] To be well-
 
 pleasing to God everywhere, in everything that we do, should be the one aim of a Christian, whether he is in the body or out of the body.
 
@@ -150,6 +150,6 @@ Therefore, from now on, we regard no man after the flesh. Even though we have kn
 
 Therefore if any man is in Christ, he is a new creature: old things are passed away; behold all things are become new. There could not be a greater change than that which is worked by regeneration! It is a new creation, the passing
 
-away of the old, and the making of all things new. [See Sermons #881, Volume 15&mdash;THE BELIEVER a NEW CREATURE and #1328, Volume 22&mdash; Christ THE MAKER OF ALL THINGS NEW.]
+away of the old, and the making of all things new. [See Sermons #881, Volume 15&mdash;the believer a new creature and #1328, Volume 22&mdash; Christ THE maker of all things new.]
 
 18-21. And all things are of God who has reconciled us to Himself by Jesus Christ, and has given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them; and has committed unto us the Word of reconciliation. Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead be you reconciled to God. For He made Him who knew no sin, to be sin for us, that we might be made the righteousness of God in Him.
