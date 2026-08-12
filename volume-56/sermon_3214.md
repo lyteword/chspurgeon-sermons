@@ -2,9 +2,9 @@
 
 "And when king Arad the Canaanite, which dwelt in the south, heard tell that Israel came by the way of the spies; then he fought against Israel, and took some of them prisoners. And Israel voweda vow unto the Lord, and said, If You will indeed deliver this people into my hand, then I will utterly destroy their cities. And the Lord hearkened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities: and He called the name of the place Hormah. And they journeyed from Mount Hor by the way of the Red Sea, to compass the land of Edom; and the soul of the people was much discouraged because of the way. And the people spoke against God, and against Moses, Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, neither is there any water and our soul loathes this light bread. And the Lord sent fiery serpents among the people, and they bit the people; and many people of Israel died." Numbers 21:1-6.
 
-OUR text is a long one, but we must have it all in order to get the sense of the passage, so as to contrast the two wilderness incidents which are here mentioned and to learn how we may use them to our own spiritual profit.
+our text is a long one, but we must have it all in order to get the sense of the passage, so as to contrast the two wilderness incidents which are here mentioned and to learn how we may use them to our own spiritual profit.
 
-So, in the first place, LET US CONTRAST THESE TWO WILDERNESS INCIDENTS.
+So, in the first place, let us contrast these two wilderness incidents.
 
 First of all, let us examine the details of the first incident. We learn, from this part of the narrative, that the children of Israel were in real danger. They were attacked by a ferocious foe who, being probably aware that he was doomed to destruction, determined to anticipate the contest by fighting against the Israelites while they were unprepared, and so injuring them as much as he could. Arad appears to have been a king of some considerable power and his skill in warfare is proved by the fact that he was at least partially successful against the Israelites, for he, "took some of them prisoners." So that the people were in real danger. And have you not noticed, dear Friends, that God's people often behave best when they are in their worst case? Usually, when they are in imminent peril, they cry to their God to deliver them, and so they soon obtain relief&mdash;but when they make trouble for themselves by a willful fretfulness of spirit&mdash;then it is that they lose their confidence in God and, instead of playing the man, they play the fool!
 
@@ -48,9 +48,9 @@ What did those people get as the result of their murmuring? Did the way become a
 
 So you see, dear Friends, the contrast between these two wilderness incidents. In the first case, real trouble carried to God in prayer was turned into an advantage. And in the second case, foolish and wicked discontent, for which there was no reason, was allowed to spend itself in murmuring against the Most High&mdash;and so brought down upon the people fiery serpents which bit them until many of them died.
 
-Now, secondly, LET US LEARN HOW WE MAY USE THESE TWO INCIDENTS TO OUR OWN SPIRITUAL
+Now, secondly, let us learn how we may use these two incidents to our own spiritual
 
-PROFIT.
+profit.
 
 Fellow Believer in Christ, you may do one or other of these two things&mdash;you may either cast your burden upon the Lord, and He will sustain you&mdash;or you may be like the bullock that is unaccustomed to the yoke and that kicks against the sharp goad and so angers his master and injures himself! Remember that true faith is a holy thing, but murmuring is sin. Do not think that it is a light thing to murmur against God, or to complain of His Providential dealings with you. No, it is really setting up your fallible judgment or your self-will against the Infinite Wisdom of the Most High! It is high treason against the King of kings to seek to&mdash;
 
@@ -113,11 +113,11 @@ And the Lord sent fiery serpents among the people, and they bit the people; and 
 
 8, 9. And the Lord said unto Moses, Make you a fiery serpent, and set it upon a pole: and it shall come to pass, that everyone that is bitten, when he looks upon it, shall live. And Moses made a serpent of brass and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived. [See Sermons #285, Volume 5&mdash;
 
-MAN's RUIN AND God's REMEDY and #1500, Volume 25&mdash;NUMBER 1500&mdash;OR, "LIFTING UP THE BRONZE SERPENT."]
+man's ruin and God's remedy and #1500, Volume 25&mdash;number 1500&mdash;or, "lifting up the bronze serpent."]
 
 John 3:1-3. There was a man of the Pharisees named Nicodemus, a ruler of the Jews: the same came to Jesus by night, and said unto Him, Rabbi, we know that You are a teacher come from God: for no man can do these miracles that You do, except God is with him. Jesus answered and said unto him, Verily, verily I say unto you, Except a man is born-
 
-again, he cannot see the Kingdom of God. [See Sermon #130, Volume 3&mdash;REGENERATION.] There must be a new birth because a new nature is absolutely necessary for the discernment of spiritual things. The natural man cannot comprehend spiritual things&mdash;they must be spiritually discerned. The new birth is therefore necessary that we may have a Spirit within us which can see or understand the Kingdom of God. But until a man is born-again, "he cannot see the Kingdom of God."
+again, he cannot see the Kingdom of God. [See Sermon #130, Volume 3&mdash;regeneration.] There must be a new birth because a new nature is absolutely necessary for the discernment of spiritual things. The natural man cannot comprehend spiritual things&mdash;they must be spiritually discerned. The new birth is therefore necessary that we may have a Spirit within us which can see or understand the Kingdom of God. But until a man is born-again, "he cannot see the Kingdom of God."
 
 4, 5. Nicodemus said unto Him, how can a man be born when he is old, can he enter the second time into his mother's womb, and be born? Jesus answered, Verily, verily, Isay unto you, Except a man is born of water and of the Spirit, he cannot enter the Kingdom of God. We understand the passage to mean, "Water, that is, the Spirit," but it may refer to the purifying influence of the Word as symbolized by water. I do not think that Baptism is referred to here at all.
 
@@ -127,7 +127,7 @@ And that which is born of the Spirit is spirit It is only then, as we are born o
 
 7, 8. Marvel not that I said unto you, You must be born-again. The wind blows where it wills, and you hear the sound thereof, but cannot tell from where it comes and where it goes: so is everyone that is born of the Spirit [See Sermon
 
-#1356, Volume 23&mdash;THE HEAVENLY WIND.] He undergoes a mysterious
+#1356, Volume 23&mdash;the heavenly wind.] He undergoes a mysterious
 
 change. He becomes a new man and he enters into a new life which others cannot comprehend. Though they hear the sound of it, they cannot tell from where this man's new life comes, or where it goes. He has become a spiritual person, not comprehended of natural men.
 
