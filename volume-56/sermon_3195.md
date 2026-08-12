@@ -2,7 +2,7 @@
 
 "And, behold, there was a woman which hada spirit ofinfirmity eighteen years, and was bent over, and could in no wise lift herselfup. And when Jesus saw her, He called her to Him and said unto her, Woman, you are loosened from your infirmity And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:11-13.
 
-[See Sermons #1426, Volume 24&mdash;the lifting up of the bowed down and #2891, Volume 50&mdash;a sabbath miracle&mdash; for sermons on the same miracle.]
+
 
 Our text commences with a "behold"&mdash;"behold, there was a woman." And as it was often remarked by the Puritan writers, whenever we see the word, "behold," in Scripture, we are to regard it as a nota bene, as a mark in the margin calling our particular attention to what follows. Where Christ worked wonders, we should have attentive eyes and ears. When Jesus is dispensing blessings, whether to ourselves or to others, we should never be in a state of indifference!
 
@@ -110,9 +110,7 @@ And Jesus answering said to them, Do you suppose that these Galileans were sinne
 
 I tell you, No, but except you repent, you shall all likewise perish. There would come upon them, also, because of their sin, a sudden and overwhelming calamity. When we read of the most dreadful things happening to men, we may conclude that something similar will happen to us if we are impenitent&mdash;if not in this world, yet in that which is to come!
 
-5. Or those eighteen, upon whom the tower in Siloam fell and slew them, do you think that they were sinners above all men that dwelt in Jerusalem? I tell you, No, but, except you repent, you shall all likewise perish^. [See Sermon #408,
-
-Volume 7&mdash;accidents, not punishments.] This was a foreshadowing
+5. Or those eighteen, upon whom the tower in Siloam fell and slew them, do you think that they were sinners above all men that dwelt in Jerusalem? I tell you, No, but, except you repent, you shall all likewise perish^.  This was a foreshadowing
 
 of the overthrow of Jerusalem and the razing of its walls and towers to the ground which happened not long after. And even that overthrow of Jerusalem was but a rehearsal of the tremendous doom that shall come upon all who remain impenitent.
 
@@ -122,9 +120,7 @@ Then he said to the dresser of the vineyard, Behold, these three years I have be
 
 ground?'"
 
-8-9. And he answering said unto him, Sir, let it alone this year, also, till I shall dig about it, and fertilize it: and if it bears fruit, well: and ifnot, then after that you shall cut it down. [See Sermons #650, Volume 11&mdash;judgment threatening but mercy
-
-sparing and #1451-a, Volume 25&mdash;"this year also."] He asks for a respite,
+8-9. And he answering said unto him, Sir, let it alone this year, also, till I shall dig about it, and fertilize it: and if it bears fruit, well: and ifnot, then after that you shall cut it down.  He asks for a respite,
 
 but only a limited one. "After that, you shall cut it down." If, after the trial of another year, it shall still be fruitless, then even the pleader will not ask for any further respite.
 
