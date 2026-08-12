@@ -45,9 +45,7 @@ So we find that it was while Christ was praying at His Baptism that the Holy Spi
 
 Let us learn, then, from this first instance of our Savior's preparatory prayer at His Baptism, the necessity of special supplication on our part in similar circumstances. If we are making our first public profession of faith in Him, or if we are renewing that profession. If we are moving to another sphere of service, if we are taking office in the Church as deacons or elders, if we are commencing the work of the pastorate. If we are in any way coming out more distinctly before the world as the servants of Christ, let us set apart special seasons for prayer&mdash;and so seek a double portion of the Holy Spirit's blessing to rest upon us!
 
-The second instance of the preparatory prayers of Christ which we are to consider is our Lord's prayer preparatory to choosing his twelve apostles. It is recorded in Luke 6:12, 13&mdash;"And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God. [See Sermon #798, Volume
-
-14&mdash;special protracted prayer.] And when it was day, He called
+The second instance of the preparatory prayers of Christ which we are to consider is our Lord's prayer preparatory to choosing his twelve apostles. It is recorded in Luke 6:12, 13&mdash;"And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God.  And when it was day, He called
 
 unto Him, His disciples: and of them He chose twelve, whom also He named Apostles."
 
@@ -83,7 +81,7 @@ But, Brothers and Sisters, do you not see that if Christ, who was so strong, nee
 
 The next prayer we are to consider is our Lord's prayer preparatory to Peter's fall. We have the record of that in Luke 22:31, 32&mdash;"And the Lord said, Simon, Simon, behold, Satan has desired to have you, that he may sift you as wheat: but I have prayed for you, that your faith fail not: and when you are converted, strengthen your
 
-brethren." [See Sermons #2620, Volume 45&mdash;Christ's prayer for Peter; #2034, Volume 34&mdash;Peter's restoration and #2035, Volume 34&mdash;Peter after his restoration.]
+brethren." 
 
 There is much that is admirable and instructive in this utterance of our Lord. Satan had not then tempted Peter, yet Christ had already pleaded for the Apostle whose peril He clearly foresaw! Some of us would have thought that we were very prompt if we had prayed for a Brother or Sister who had been tempted and who had yielded to the temptation. But our Lord prayed for Peter before he was tempted. As soon as Satan had desired to have him in his sieve, that he might sift him as wheat, our Savior knew the thought that was formed in the diabolic mind&mdash;and He at once pleaded for His imperiled servant who did not even know the danger that was threatening him! Christ is always beforehand with us. Before the storm comes, He has provided the harbor of refuge. Before the disease attacks us, He has the remedy ready to cure it. His mercy outruns our misery!
 
@@ -97,7 +95,7 @@ what you would be if you were in his place! Your fear reveals a secret concernin
 
 Now I must close with our Lord's preparatory prayer just before his death. You will find it in Luke 23:46&mdash;"And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit:
 
-and having said thus, He gave up the ghost." [See Sermons #2311, Volume 39&mdash;our Lord's last cry from the cross and #2644, Volume 45&mdash; the last words of Christ on the cross.]
+and having said thus, He gave up the ghost." 
 
 Our Lord Jesus was very specially occupied in prayer as the end of His earthly life drew near. He was about to die as His people's Surety and Substitute. The wrath of God, which was due to them, fell upon Him! Knowing all that was to befall Him, "He set His face steadfastly to go unto Jerusalem" and, in due time, "He endured the Cross, despising the shame." But He did not go to Gethsemane and Golgotha without prayer! Son of God as He was, He would not undergo that terrible ordeal without much supplication. You know how much there is about His praying in the later chapters of John's Gospel. There is especially that great prayer of His for His Church in which He pleaded with amazing fervor for those whom His Father had given Him. Then there was His agonized pleading in Gethsemane when "His sweat was, as it were, great drops of blood falling down to the ground." We will not say much about that, but we can well imagine that the bloody sweat was the outward and visible expression of the intense agony of His soul which was "exceedingly sorrowful, even unto death."
 
@@ -113,9 +111,7 @@ And cry, 'Behold, he prays!' Prayer is the Christian's vital breath, The Christi
 
 Exposition by C. H. Spurgeon: Luke 18:1-14
 
-Verse 1. And he spoke a parable unto them to this end, that men ought always to pray and not to faint. [See Sermon
-
-#2519, Volume 43&mdash;when should we pray?] An old writer says that
+Verse 1. And he spoke a parable unto them to this end, that men ought always to pray and not to faint.  An old writer says that
 
 many of Christ's parables need a key to unlock them. Here, the key hangs outside the door, for at the very beginning of the parable we are told what Christ meant to teach by it&mdash;"that men ought always to pray, and not to faint." And this is the parable.
 
@@ -131,17 +127,17 @@ not.
 
 6, 7. And the Lord said, Hear what the unjust judge says. And shall not God avenge His own elect who cry day and
 
-night unto Him, though He bears long with them?[See Sermon #2836, Volume 6&mdash;prayerful importunity.] He is no unjust judge! He is One who is perfectly holy, just, true and who appears in a nearer and dearer Character than that of judge, even as the One who chose His people from eternity! "Shall not God avenge His own elect?" Yes, that He will&mdash;only let them persevere in prayer and "cry day and night unto Him."
+night unto Him, though He bears long with them? He is no unjust judge! He is One who is perfectly holy, just, true and who appears in a nearer and dearer Character than that of judge, even as the One who chose His people from eternity! "Shall not God avenge His own elect?" Yes, that He will&mdash;only let them persevere in prayer and "cry day and night unto Him."
 
 I tell you that He will avenge them speedily. Nevertheless when the Son of Man comes, shall He find faith on the
 
-earth?[See Sermon #1963, Volume 33&mdash;the search for faith.] If anybody
+earth? If anybody
 
 can find it, He can, for He is the Creator of it! Yet, when He comes, there will be so little of it in proportion to what He deserves, and so little in proportion to the loving kindness of the Lord, that it will seem as if even He could not find it&mdash; although if there were only as much faith as a grain of mustard seed He would be the first to spy it out!
 
 And He spoke this parable unto certain who trusted in themselves that they were righteous, and despised others. It seems as if these two things went together&mdash;as our esteem of ourselves goes up, our esteem of others goes down&mdash;the scales seem to work that way.
 
-Two men went up into the Temple to pray. [See Sermon #2395, Volume 41&mdash;the blessings of public worship.] It was the place that was specially dedicated for prayer. It was the place
+Two men went up into the Temple to pray.  It was the place that was specially dedicated for prayer. It was the place
 
 where God had promised to meet with suppliants. They did well, in those days, to go up into the Temple to pray to God. Though, in these days&mdash;
 
@@ -155,12 +151,10 @@ I fast twice in the week, I give tithes of all that I posses. Observe that there
 
 And the publican, standing afar off&mdash; Just on the edge of the crowd, keeping as far away as he could from the Most Holy Place&mdash;
 
-Would not lift up so much as his eyes unto Heaven, but smote upon his breast, saying, God be merciful to me a sinne. [See Sermon #1949, Volume 33&mdash;a sermon for the worst man on earth.] That was allprayer&mdash;it was a prayer for mercy, it was a prayer in which the suppliant took his right place, for he was, as he said, "a sinner." He does not describe himself as a penitent sinner, or as a praying sinner, but simply as a sinner. And as a sinner, he goes to God asking for mercy. Our English version does not give the full meaning of the publican's prayer, it is, "God be propitious to me," that is, "be gracious to me through the ordained Sacrifice." And that is one of the points of the prayer that made it so acceptable to God. There is a mention of the Atonement in it. There is a pleading of the sacrificial blood. It was a real prayer and an acceptable prayer&mdash;while the Pharisee's boasting was not a prayer at all.
+Would not lift up so much as his eyes unto Heaven, but smote upon his breast, saying, God be merciful to me a sinne.  That was allprayer&mdash;it was a prayer for mercy, it was a prayer in which the suppliant took his right place, for he was, as he said, "a sinner." He does not describe himself as a penitent sinner, or as a praying sinner, but simply as a sinner. And as a sinner, he goes to God asking for mercy. Our English version does not give the full meaning of the publican's prayer, it is, "God be propitious to me," that is, "be gracious to me through the ordained Sacrifice." And that is one of the points of the prayer that made it so acceptable to God. There is a mention of the Atonement in it. There is a pleading of the sacrificial blood. It was a real prayer and an acceptable prayer&mdash;while the Pharisee's boasting was not a prayer at all.
 
 I tell you, this man&mdash;This publican, sinner as he had been, though he had no broad phylacteries like the Pharisee had, though he may not have washed his hands before he came into the Temple, as, no doubt the Pharisee did&mdash;this man, who could not congratulate himself upon his own excellence, "this man"&mdash;
 
-Went down to his house justified rather than the other He obtained both justification and the peace of mind that comes from it! God smiled upon him and set him at ease concerning his sin. The other man received no justification&mdash;he had not sought it and he did not get it. He had a kind of spurious ease of mind when he went into the Temple and he probably carried it away with him! But he certainly was not justified in the sight of God. [See Sermon #2687, Volume 46&mdash;
-
-too good to be saved!]
+Went down to his house justified rather than the other He obtained both justification and the peace of mind that comes from it! God smiled upon him and set him at ease concerning his sin. The other man received no justification&mdash;he had not sought it and he did not get it. He had a kind of spurious ease of mind when he went into the Temple and he probably carried it away with him! But he certainly was not justified in the sight of God. 
 
 For everyone that exalts himself shall be abased; and he that humbles himself shall be exalted. God turns things upside down! If we think much of ourselves, He makes us little, and if we make little of ourselves, we shall find that a humble and contrite heart He will not despise! May He teach us so to pray that we may go down to our house justified, as the publican was!
