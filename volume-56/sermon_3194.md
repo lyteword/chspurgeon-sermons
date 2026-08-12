@@ -2,7 +2,7 @@
 
 "Hearken to Me, you that follow after righteousness, you that seek the Lord: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
 
-[Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18&mdash;a bright light in deep shades.]
+
 
 These words were addressed to those who were already the people of God. No others could be thus exhorted to look unto the rock where they were hewn, since they have never been hewn from it. Nor to the hole of the pit where they were dug, for they still are in the hole of the pit. They are lost and ruined and they still remain in that condition. But the people of God have been broken off that rock by a blow from the Divine hammer. They have been brought up from the horrible pit by the might of the Divine arm and their feet are now firmly fixed upon the Rock of Ages!
 
@@ -71,7 +71,7 @@ That you shouldnot obey the truth, before whose eyes Jesus Christ has been evide
 
 This only I want to learn from you: Didyou receive the Spirit by the works of the Law, or by the hearing of faith?
 
-[See Sermon #1705, Volume 29&mdash;the hearing of faith.] "You profess to
+ "You profess to
 
 have received the Spirit&mdash;did the Spirit come to you by the works of the Law, or through hearing and believing the
 
@@ -93,15 +93,13 @@ So then they which are of faith are blessed with faithful Abraham. Just as the b
 
 For as many as are of the words of the Law are under the curse: for it is written, Cursed is everyone that continues not in all things which are written in the Book of the Law to do them. Can any man perfectly keep the whole Law of God? Has any man ever continued in all things which are written in the Book of the Law, to do them? No and, therefore, all that the Law does is to bring the curse upon those who are under its dominion&mdash;none of them can obtain salvation by the works of the Law!
 
-But that no man is justified by the Law in the sight of God is evident: for the just shall live by faith. [See Sermons
-
-#814, Volume 14&mdash;life by faith and #2809, Volume 48&mdash;faith&mdash;life.] This passage is again and again repeated in the Scriptures&mdash;"The just shall live by faith." There are no other just men living! There cannot be any other just men living, but those that live by faith!
+But that no man is justified by the Law in the sight of God is evident: for the just shall live by faith.  This passage is again and again repeated in the Scriptures&mdash;"The just shall live by faith." There are no other just men living! There cannot be any other just men living, but those that live by faith!
 
 And the Law is not of faith: but, the man that does them shall live in them. The law demands doing. The Gospel enjoins believing. The believing man comes in as an heir of the blessing, but the man who trusts to his own doing is an heir of the curse.
 
 Christ has redeemed us from the curse ofthe Law, being made a curse for us: for it is written, Cursedis everyone
 
-that hangs on a tree. [See Sermons #873, Volume 15&mdash;Christ made a curse for us and #2093, Volume 35&mdash;the curse and THE curse for us.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"&mdash;
+that hangs on a tree.  What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"&mdash;
 
 That the blessing of Abraham might come on the Gentiles through Jesus Christ, that we might receive the promise ofthe Spirit through faith. Dear Friends, are you living by faith upon the Son of God? Are you trusting in God? Are you believing His promises? Some think that this is a very little thing, but God does not think so. Faith is a better index of character than anything else. The man who trusts his God and believes His promises is honoring God far more than is the man who supposes that by any of his own doings he can merit Divine approval and favor.
 
@@ -111,9 +109,7 @@ Brethren, I speak after the matter of men. Though it is but a man's covenant, ye
 
 For if the inheritance is ofthe Law, it is no more of promise. God gave it to Abraham by promise. It was a free gift&mdash;He did not bestow it upon the condition of merit on Abraham's part. Isaac was born, not according to the power of the flesh, but according to promise&mdash;and the whole Covenant is according to free Grace and Divine promise.
 
-18, 19. But Godgave it to Abraham bypromise. Whatpurpose, therefore, does the Lawserve?[See Sermon #128, Volume
-
-3&mdash;the uses of THE law.] What was the use of it?
+18, 19. But Godgave it to Abraham bypromise. Whatpurpose, therefore, does the Lawserve? What was the use of it?
 
 It was added because of transgressions, till the Seed should come to whom the promise was made. The law makes us know what transgression is. It reveals its true nature. Under the hand of the Holy Spirit, it makes us see the evil of sin. We might not have perceived sin to be sin if it had not been for the command of God not to commit it&mdash;but when the commandment comes, then we recognize sin and the evil of it.
 
@@ -121,17 +117,15 @@ It was added because of transgressions, till the Seed should come to whom the pr
 
 But the Scripture has concluded all under sin, that the promise by faith of Jesus Christ might be given to them
 
-that believe. [See Sermon #1145, Volume 19&mdash;the great jail and how to get out of it.] All of us, by nature, are shut up like criminals in a prison that is so securely bolted and barred that there is no hope of escape for any who are within it. But why are all the doors shut and fastened? Why in order that Christ may come and open the one only eternal door of salvation&mdash;"that the promise by faith of Jesus Christ might be given to them that believe."
+that believe.  All of us, by nature, are shut up like criminals in a prison that is so securely bolted and barred that there is no hope of escape for any who are within it. But why are all the doors shut and fastened? Why in order that Christ may come and open the one only eternal door of salvation&mdash;"that the promise by faith of Jesus Christ might be given to them that believe."
 
 But before faith came, we were kept under the Law, shut up unto the faith which should afterwards be revealed.
 
-[See Sermon #2402, Volume 41&mdash;under arrest.] Well do I remember when
+ Well do I remember when
 
 I was "shut up" in this fashion. I struggled and strove with might and main to get out, but I found no way of escape. I was "shut up" until Faith came and opened the door and brought me out into "the glorious liberty of the children of God."
 
-Therefore the Law was our tutor to bring us to Christ, that we might be justified by faih. [See Sermon #1196, Volume
-
-20&mdash;the stern teacher.] The tutor was a slave who led the children to school and sometimes whipped them to school. That is what the Law did with us&mdash;it took us under its management, whipped us and drove us to Christ.
+Therefore the Law was our tutor to bring us to Christ, that we might be justified by faih.  The tutor was a slave who led the children to school and sometimes whipped them to school. That is what the Law did with us&mdash;it took us under its management, whipped us and drove us to Christ.
 
 But after faith is come, we are no longer under a tutor. Now we go to Christ willingly, cheerfully, joyfully, trusting in Him with all our hearts. The tutor's work is done so far as we are concerned.
 
