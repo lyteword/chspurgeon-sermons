@@ -2,7 +2,7 @@
 
 "But we preach Christ crucified." 1 Corinthians 1:23.
 
-IN the verse preceding our text, Paul writes, "The Jews require a sign." They said, "Moses worked miracles; let us see miracles worked and then we will believe," forgetting that all the wonders that Moses worked were altogether eclipsed by those which Jesus worked while He was upon the earth in the flesh. Then there were certain Judaizing teachers who, in order to win the Jews, preached circumcision, exalted the Passover and endeavored to prove that Judaism might still exist side by side with Christianity&mdash;and that the old rites might still be practiced by the followers of Christ. So Paul, who was made all things to all men that he might by all means save some, put his foot down and said, in effect, "Whatever others may do, we preach Christ crucified&mdash;we dare not, we cannot and we will not alter the great subject matter of our preaching, Jesus Christ, and Him crucified.
+In the verse preceding our text, Paul writes, "The Jews require a sign." They said, "Moses worked miracles; let us see miracles worked and then we will believe," forgetting that all the wonders that Moses worked were altogether eclipsed by those which Jesus worked while He was upon the earth in the flesh. Then there were certain Judaizing teachers who, in order to win the Jews, preached circumcision, exalted the Passover and endeavored to prove that Judaism might still exist side by side with Christianity&mdash;and that the old rites might still be practiced by the followers of Christ. So Paul, who was made all things to all men that he might by all means save some, put his foot down and said, in effect, "Whatever others may do, we preach Christ crucified&mdash;we dare not, we cannot and we will not alter the great subject matter of our preaching, Jesus Christ, and Him crucified.
 
 Then he added, "and the Greeks seek after wisdom." Corinth was the very eyes of Greece and the Corinthian Greeks sought after what they regarded as wisdom&mdash;that is to say, the wisdom of this world, not the wisdom of God which Paul preached! The Greeks also treasured the memory of the eloquence of Demosthenes and other famous orators. And they seemed to think that true wisdom must be proclaimed with the graces of masterly elocution&mdash;but Paul writes to these Corinthian Greeks, "I determined not to know anything among you, save Jesus Christ, and Him crucified. And my speech and my preaching was not with enticing words of man's wisdom, but in demonstration of the Spirit and of power, that your faith should not stand in the wisdom of men but in the power of God."
 
@@ -10,7 +10,7 @@ Now, in these days there are some who would be glad if we would preach anything 
 
 I am going to try to put our text into practice by telling you, first, what we preach Secondly, to whom we preach it And, thirdly, how we preach it
 
-First of all, WHAT WE PREACH. Paul is the model for all preachers and he says, "We preach Christ crucified."
+First of all, what we preach. Paul is the model for all preachers and he says, "We preach Christ crucified."
 
 In order to preach the Gospel fully, there must be a very clear description of the Person of Christ, and we preach Christ as God&mdash;not a man made into a God, nor a God degraded to the level of a man, not something between a man and a God, but, "very God of very God." He is One with His Father in every attribute&mdash;eternal, having neither beginning of days, nor end of years. Omnipresent, filling all space. Omnipotent, having all power in Heaven and on earth. Omniscient, knowing all things from eternity&mdash;the great Creator, Preserver and Judge of all&mdash;in all things the equal and the express Image of the invisible God! If we err concerning the Deity of Christ, we err everywhere! The Gospel that
 
@@ -32,7 +32,7 @@ We must also preach Christ as the Christian's only joy. We needed Christ as a li
 
 "You, O Christ, are all I need, More than all in You I find."
 
-Now, secondly, TO WHOM ARE WE TO PREACH THIS?
+Now, secondly, to whom are we to preach this?
 
 Possibly, one Brother says, "You ought to preach Christ to the elect" But how are we to know who are the elect? I read a sermon, some time ago, in which the minister said, "I have been preaching to the living in Zion&mdash;the rest of you
 
@@ -52,7 +52,7 @@ Christ to the drunk, for we believe that nothing but the Grace of God can rescue
 
 The preaching of Christ crucified, the lifting up of the dying Son of God, "as Moses lifted up the serpent in the wilderness," has power enough to turn the whole world upside down and to change innumerable sinners into saints, so we mean to keep on preaching Christ to all sinners of all sorts! We do not intend to leave out one, not even you, my Friend, who think you are left out, or ought to be left out. We know that there is a Book of Life before the Throne of God and that no more names can be written there&mdash;they were all recorded before the foundation of the world when the Father gave to Christ those who are to be eternally His. We cannot mount up to Heaven to read the names that are written there, but we believe the list contains millions upon millions of names of those who have not yet trusted in Christ, so we mean to keep on preaching Christ to sinners of every age, of every rank, of every sort, of every degree of blackness and vileness! And we believe that "there is yet room," there is yet mercy for the miserable, there is yet forgiveness for the guilty who will come and trust in Jesus Christ and Him crucified!
 
-Now, lastly, HOW OUGHT WE TO PREACH Christ CRUCIFIED?
+Now, lastly, how ought we to preach Christ crucified?
 
 I think, first, we ought to preach Christ very boldly. I recollect a young man going into a pulpit to address a small congregation, and he began by saying that he hoped they would pardon his youth and forgive his impertinence in coming to speak to them. Some foolish old gentleman said, "How humble that young man is to talk like that!" But another, who was wiser, though he was younger, said, "What a dishonor to his Lord and Master! If God sent him with a message to these people, what does it matter whether he is young or old? Such mock modesty as that is out of place in the pulpit." I think that second man was right and the first one wrong. A true minister of the Gospel is an ambassador for Christ and do our ambassadors go to foreign courts with apologies for carrying messages from their sovereign? It would be a gross insult to the crown of these realms if they showed such humility as that in their official capacity! Let ministers of the Gospel keep their modesty for other occasions when it ought to be manifested, but let them not dishonor their Master and discredit His message as that silly young man did! When we preach Christ crucified, we have no reason to stammer, or stutter, or hesitate, or apologize&mdash;there is nothing in the Gospel of which we have any cause to be ashamed! If a minister is not sure about his message, let him keep quiet till he is sure about it! We believe and, therefore, we speak with the accent of conviction! If I have not proved the power of the Gospel in my own heart and life, I am a base impostor to be standing in this pulpit to preach that Gospel to others! But as I do most assuredly know that I am saved by Grace through faith in Jesus Christ, and as I feel certain that I have been Divinely called to preach His Gospel&mdash;
 
@@ -84,11 +84,11 @@ thank God for the Divine Grace which these Corinthians had! Yet how seldom do we
 
 5, 6. That in everything you are enriched by Him, in all utterance, and in all knowledge; even as the testimony of
 
-Christ was confirmed in you [See Sermon #2875, Volume 50&mdash;CONFIRMING THE WITNESS OF Christ.] The Church at Corinth was an important Church, with more than the usual number of speaking men among the members. This led to mischief, but had they known how to use this talent aright, the Church at Corinth might have been of great service! Instead, it split itself up into little parties and became one of the worst churches that then existed, as certain communities which imitate them in this present day, have also done.
+Christ was confirmed in you [See Sermon #2875, Volume 50&mdash;confirming the witness of Christ.] The Church at Corinth was an important Church, with more than the usual number of speaking men among the members. This led to mischief, but had they known how to use this talent aright, the Church at Corinth might have been of great service! Instead, it split itself up into little parties and became one of the worst churches that then existed, as certain communities which imitate them in this present day, have also done.
 
 7, 8. So that you come behind in no gift: waiting for the coming of our Lord Jesus Christ: who shall also confirm you unto the end, that we may be blameless in the day of our Lord Jesus Christ Paul continues to recognize the abundance of their endowments and to express for them the utmost of affection. And then he adds his full conviction that God would prove the power of His Grace by keeping them unto the end, and then presenting them "blameless in the day of our Lord Jesus Christ."
 
-God is faithful, by whom you were called unto the fellowship of His Son Jesus Christ our Lord [See Sermon #2580, Volume 44&mdash;PARTNERSHIP WITH Christ.] As Paul wrote to the Thessalo-
+God is faithful, by whom you were called unto the fellowship of His Son Jesus Christ our Lord [See Sermon #2580, Volume 44&mdash;partnership with Christ.] As Paul wrote to the Thessalo-
 
 nians, "Faithful is He that calls you, who also will do it." To be called by the faithful God is the guarantee of everlasting salvation!
 
@@ -116,6 +116,6 @@ And the Greeks seek after wisdom. They would believe nothing but what could be p
 
 26-28. For you see your calling, brethren, how that not many wise men after the flesh, not many mighty, not many noble are called: but God has chosen the foolish things of the world to confound the wise; and God has chosen the weak things of this world to confound the things which are mighty; and base things of the world, and things which are despised, has God chosen, yes, and things which are not, to bring to nothing things that are. [See Sermon #587, Volume io&mdash;god's
 
-STRANGE CHOICE.] Those that do not even seem to have an existence&mdash;those that are so despicable that men do not deign to take any account of them&mdash;these are the very ones with which God shall break in pieces the many mighty errors of all the ages!
+strange choice.] Those that do not even seem to have an existence&mdash;those that are so despicable that men do not deign to take any account of them&mdash;these are the very ones with which God shall break in pieces the many mighty errors of all the ages!
 
 29-31 That no flesh should glory in His Presence. But of Him are you in Christ Jesus, who ofGod is made unto us wisdom, and righteousness, and sanctifcation, and redemption: that, according as it is written, He that gloried, let him glory in the Lord.
