@@ -114,7 +114,7 @@ We give thanks to God and the Father of our Lord Jesus Christ, praying always fo
 
 7, 8. As you also learned ofEpaphra our dear fellow servant, who is for you a faithful minister of Christ; who also declared unto us your love in the Spirit. Epaphras told them of Paul's prayers for them and when he came back from Colosse, he told Paul of their great love in the Spirit.
 
-For this cause we, also, since the day we heard it, do not cease to pray for you and to desire that you might be filled with the knowledge of His will in all wisdom and spiritual understanding. [See Sermon #1742, Volume 29&mdash;spiritual knowledge and its practical results.] See, the Apostle asks even more
+For this cause we, also, since the day we heard it, do not cease to pray for you and to desire that you might be filled with the knowledge of His will in all wisdom and spiritual understanding.  See, the Apostle asks even more
 
 for them than faith, hope and love&mdash;that they "might be filled with the knowledge of His will in all wisdom and spiritual understanding." This shows what a valuable thing it is to know and understand the will of God!
 
@@ -124,13 +124,11 @@ for them than faith, hope and love&mdash;that they "might be filled with the kno
 
 15-17. Who is the image of the invisible God, the first-born of every creature: for by Him were all things created that are in Heaven, and that are in earth, visible and invisible, whether they are thrones, or dominions, or principalities, or powers: all things were created by Him and for Him: and He is before all things, and by Him all things consist How can anyone ever read this passage and yet say that Christ Jesus is only a Man? By what twisting of words can such language as this be applied to the most eminent Prophet or Apostle who ever lived? Surely He must be God by whom all things were created, and by whom all things consist! But Paul's next sentence is, to us, the sweetest of all&mdash;
 
-And He is the head of the body, the Church. [See Sermon #839, Volume 14&mdash;the head of the church.] He is joined by an indissoluble union to His people and is the Head of their glory, their wisdom and their strength!
+And He is the head of the body, the Church.  He is joined by an indissoluble union to His people and is the Head of their glory, their wisdom and their strength!
 
 Who is the beginning, the first-born from the dead; that in all things He might have the preeminence. Are we giving Him the preeminence in all things? That theology must be false which puts Jesus in the second place, or even lower than that! And that experience is a wrong one which does not put Christ always in the front. He must in all things always stand first!
 
-For it pleased the Father that in Him should all fullness dwell [See Sermons #978, Volume 17&mdash;all fullness in christ and
-
-#1169, Volume 20&mdash;the fullness of Christ the treasury of THE saints.]
+For it pleased the Father that in Him should all fullness dwell 
 
 That we might have to go to Him for it, it pleased the Father to make errands for us so as to take us to Christ and to thus make our very emptiness to minister to the Glory of Christ!
 
@@ -140,12 +138,10 @@ That we might have to go to Him for it, it pleased the Father to make errands fo
 
 And fill up that which is behind of the afflictions of Christ in my flesh for His body's sake, which is the Church. There is nothing "behind" as to the atoning efficacy of the sufferings of Christ, but there is much yet to be endured in order that all the elect may be brought to Christ. Some must suffer through their extraordinary labors in preaching the Gospel, others through bearing reproach for the Truth of God's sake&mdash;and Paul was glad to take in his mortal body, his share of the sufferings to be endured for the sake of Christ's Church&mdash;which is His mystical body.
 
-25-27. Of which I became a minister according to the stewardship from God which was given to me for you, to fulfill the Word of God, the mystery which has been hid from ages and from generations, but now is made manifest to His saints: to whom God wouldmake known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory [See Sermon #1720, Volume 29&mdash;Christ in you.] This is the most blessed of all mysteries! I trust that many of us understand it&mdash;may the Holy Spirit reveal it to any who know it not!
+25-27. Of which I became a minister according to the stewardship from God which was given to me for you, to fulfill the Word of God, the mystery which has been hid from ages and from generations, but now is made manifest to His saints: to whom God wouldmake known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory  This is the most blessed of all mysteries! I trust that many of us understand it&mdash;may the Holy Spirit reveal it to any who know it not!
 
 Whom we preach. That is, Christ. It is not so much what we preach as whom we preach. We preach the Person of Christ&mdash;"whom we preach"&mdash;
 
-28, 29. Warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus: whereunto I also labor, striving according to His working, which works in me mightily. [See Sermon #914, Volume 16&mdash;
-
-work in us and work by us.] There will never be any mighty work
+28, 29. Warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus: whereunto I also labor, striving according to His working, which works in me mightily.  There will never be any mighty work
 
 come from us unless there is first a mighty work in us&mdash;no man truly labors for souls unless the Holy Spirit has first worked mightily in him.
