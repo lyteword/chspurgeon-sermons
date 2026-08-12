@@ -2,7 +2,7 @@
 
 "My Beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether." Song of Solomon 2:16,17.
 
-[Other Sermons by Mr. Spurgeon, upon parts of the same passage, are #1190, Volume 20&mdash;a song among the lilies; #2442, Volume 41&mdash;"my beloved is mine" and #2477, Volume 42&mdash;darkness before the dawn.]
+
 
 It has been well said that if there is a happy verse in the Bible, it is this one&mdash;"My Beloved is mine, and I am His: He feeds among the lilies." So peaceful, so full of assurance, so bursting with happiness and contentment is it, that it might well have been written by the same hand which penned the twenty-third Psalm&mdash;"The Lord is my shepherd; I shall not want. He makes me to lie down in green pastures: He leads me beside the still waters." The verse savors of Him who, just before He went to Gethsemane, said to His disciples, "Peace I leave with you, My peace I give unto you: not as the world gives, give I unto you...In the world you shall have tribulation: but be of good cheer; I have overcome the world." Let us ring the silver bell of this verse again, for its notes are exquisitely sweet! "My Beloved is mine, and I am His: He feeds among the lilies."
 
@@ -101,7 +101,7 @@ And you, poor Sinner, who have never comfortably seen His face&mdash;remember th
 
 Exposition by C. H. Spurgeon: 2 Thessalonians1.
 
-[This exposition belongs to Sermon #3179, Volume 56&mdash;a comprehensive benediction&mdash;but there was not sufficient space available for its insertion there.]
+
 
 Verse 1. Paul, Silvanus and Timothy, to the church of the Thessalonians. Paul loved to associate his fellow workers with himself when writing to his Brothers and Sisters in Christ. Although he had a superior experience to theirs, he put Silvanus, and Timothy, his own son in the faith, with him as his fellow Evangelists in writing to "the church of the Thessalonians."
 
@@ -109,9 +109,7 @@ In God our Father. What a wonderful expression! The Church is in God as God is i
 
 I, 2. And the Lord Jesus Christ. Grace unto you, and peace, from God our Father and the Lord Jesus Christ. This is the Apostle's usual salutation when he is writing to a Christian Church. When he is writing to a minister, it is, "Grace, mercy, and peace," for God's most prominent servants especially need great mercy on account of their heavy responsibilities and many shortcomings. But to the Church, Paul's greeting is, "Grace unto you, and peace, from God our Father and the Lord Jesus Christ."
 
-We are bound to thank Godalways foryou, brethren, as it is meet, because that your faith [See Sermons #205, Volume 4&mdash;a
-
-lecture for little-FAITH; #1856, Volume 31&mdash;the history of little-FAITH and #1857, Volume 31&mdash;the necessity of growing faith] grows exceedingly, and the charity of every one of you all toward each other abounds. What a kind of sacred network Christian love makes, intertwisting every believer in Christ with every other Believer! "The love of every one of you all toward each other abounds." Oh, that this might really be the case in all the Churches of our Lord Jesus Christ!
+We are bound to thank Godalways foryou, brethren, as it is meet, because that your faith  grows exceedingly, and the charity of every one of you all toward each other abounds. What a kind of sacred network Christian love makes, intertwisting every believer in Christ with every other Believer! "The love of every one of you all toward each other abounds." Oh, that this might really be the case in all the Churches of our Lord Jesus Christ!
 
 4, 5. So that we ourselves glory in you in the churches of God for your patience and faith in all your persecutions and tribulations that you endure: which is a manifest token of the righteous judgment of God. One of the clearest proofs of the judgment to come is to be found in the present sufferings of the saints through persecutions and tribulations, for if they, for the very reason that they love God, have to suffer here, there must be a future state and time for rectifying all this that is now so wrong!
 
