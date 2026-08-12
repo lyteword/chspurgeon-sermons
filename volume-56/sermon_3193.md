@@ -81,19 +81,11 @@ Ogive thanks unto the Lord; for He is good: for His mercy endures forever That i
 
 We have sinned with our fathers, we have committed iniquity, we have done wickedly. God has dealt kindly and graciously with us, yet here is an all too true description of what we have done! "We have sinned with our fathers, we have committed iniquity, we have done wickedly."
 
-Our fathers understood not Your wonders in Egypt [See Sermon #2204, Volume 37&mdash;sin&mdash;its springhead, stream and sea. Yet they were very plain, easy to understand, for they were the wonders of power that were worked by God on behalf of His people! But they understood them not.
-
-They remembered not the multitude of Your mercies. They had bad memories as well as bad understandings. And it is so often with us&mdash;we remember not the multitude of God's mercies to us.
-
-But provoked You at the sea, even at the Red Sea. That was a bad beginning. They were only just out of Egypt and they had not yet crossed the Red Sea, but they provoked the Lord even there. Oh, how soon after our first joy does our evil nature betray itself!
-
-Nevertheless He saved them for His name's sake, that He might make His mightypower to be known. [See Sermon
-
-#115, Volume 3&mdash;why are men saved?.] He saved them, not for their
+Our fathers understood not Your wonders in Egypt  He saved them, not for their
 
 own sakes, but for His name's sake, for the manifestation of His own power and glory. This is how God still deals with His children&mdash;not on the ground of their merits, but for the manifestation of His own mercy and Grace toward them!
 
-9-12. He rebuked the Red Sea, also, and it was dried up: so He led them through the depths, as through the wilderness. [See Sermon #72, Volume 2&mdash;Israel at the red sea.] And He saved
+9-12. He rebuked the Red Sea, also, and it was dried up: so He led them through the depths, as through the wilderness.  And He saved
 
 them from the hand of him that hated them, and redeemed them from the hand of the enemy. And the waters covered
 
@@ -125,9 +117,7 @@ Thus were they defiled with their own words, and played the harlot by their own 
 
 40, 41. Therefore was the wrath of the Lord kindled against His people, insomuch that He abhorred His own inheritance. And He gave them into the hand of the heathen, and they that hated them ruled over them. Read the history of God's ancient people and you will see how often this occurred.
 
-42-44. Their enemies also oppressed them, and they were brought into subjection under their hand. Many times did He deliver them; but they provoked Him with their counsel, and were brought low for their iniquity. Nevertheless&mdash;[See
-
-Sermon #1886, Volume 32&mdash;God's remembrance of his covenant.] Oh, that
+42-44. Their enemies also oppressed them, and they were brought into subjection under their hand. Many times did He deliver them; but they provoked Him with their counsel, and were brought low for their iniquity. Nevertheless&mdash; Oh, that
 
 wonderful, "nevertheless"&mdash;
 
