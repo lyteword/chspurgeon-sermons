@@ -2,7 +2,7 @@
 
 "Let us therefore come boldly unto the Throne of Grace." Hebrews 4:16.
 
-[Another sermon by Mr. Spurgeon, upon the same subject, is #1024, Volume 17&mdash;"The Throne of Grace."]
+
 
 Prayer occupies a most important place in the life of the Christian. "Behold, he prays," was one of the first and also one of the surest indications of the conversion of Saul of Tarsus. No one begins to live the life of faith who has not also begun to pray&mdash;and as prayer is necessary at the commencement of the Christian career, so is it necessary all through. A Christian's vigor, happiness, growth and usefulness all depend upon prayer. It is&mdash;
 
