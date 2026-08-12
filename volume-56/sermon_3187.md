@@ -66,9 +66,7 @@ Verse 1. Now there cried a certain woman of the wives of the sons of the Prophet
 
 And Elisha said unto her, What shall I do for you? Tell me, what have you in the house? And she said, Your handmaid has not anything in the house, save a pot of oil They used oil extensively in the preparation of their food as well as for lighting their dwellings. This woman was so poor that she had no meal in the house, but she had a little oil. When our Lord was about to feed the five thousand, He asked His disciples, "How many loaves have you?" So here the Prophet asked the poor woman, "What have you in the house?" and she told him she had only "a pot of oil."
 
-Then he said, Go, borrow the vessels abroad of all your neighbors, even empty vessels; borrow not a few. [See Sermon
-
-#2063, Volume 35&mdash;the filling of empty vessels.] Evidently the poor
+Then he said, Go, borrow the vessels abroad of all your neighbors, even empty vessels; borrow not a few.  Evidently the poor
 
 woman's credit was good, though her debts were heavy. Her neighbors knew she would have paid her creditor if she could, so they were willing to grant her request though they probably wondered why she wanted so many empty vessels.
 
