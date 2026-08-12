@@ -78,13 +78,11 @@ Be not you, therefore, like them: for your Father knows what things you have nee
 
 After this manner therefore pray you. Here is a model prayer for you to copy as far as it is suited to your case&mdash;
 
-9-13. Our Father in Heaven, [See Sermon #312, Volume 4&mdash;the fatherhood of God.] Hallowed be Your name. Your kingdom come. Your will be done in earth, as it is in Heaven. [See
-
-Sermon #1778, Volume 30&mdash;a heavenly pattern for our earthly life.]
+9-13. Our Father in Heaven,  Hallowed be Your name. Your kingdom come. Your will be done in earth, as it is in Heaven. 
 
 Give us this day our daily bread. And forgive us our debts, as we forgive our debtors. And lead us not into temptation,
 
-[See Sermon #1402, Volume 24&mdash;"lead us not into temptation".] but deliver us from evil: for Yours is the kingdom and the power, and the glory, forever Amen. And then, as if there was one part of the prayer that would be sure to arrest the attention of His hearers, namely, that concerning forgiving our debtors, the Savior makes the following remarks&mdash;
+ but deliver us from evil: for Yours is the kingdom and the power, and the glory, forever Amen. And then, as if there was one part of the prayer that would be sure to arrest the attention of His hearers, namely, that concerning forgiving our debtors, the Savior makes the following remarks&mdash;
 
 14, 15. For if you forgive men their trespasses, your heavenly Father will also forgive you: but if you forgive not men their trespasses, neither will your Father forgive your trespasses. Therefore, in order to succeed in prayer, we must have a heart purged from a spirit of revenge and from all unkindness! We must, ourselves, be loving and forgiving, or we cannot expect that God will hear our supplications when we come to crave His forgiveness.
 
@@ -98,7 +96,7 @@ Verily I say unto you, They have theirreward. And a poor reward it is.
 
 For where your treasure is, there will your heart be also. It is sure to be so&mdash;your heart will follow your treasure. Send it away, therefore, up to the everlasting hills! Lay up treasure in that blessed land before you go there yourself!
 
-22, 23. The lamp of the body is the eye: if, therefore, your eye is good, your whole body shall be full of light. But if your eye is evil, your whole body shall be full of darkness. If, therefore, the light that is in you is darkness, how great is that darkness! [See Sermon #335, Volume 6&mdash;a single eye and simple faith.] If your eye is brooked up with gold dust, or if you are living for self and this world, your whole life will be a dark life&mdash;and the whole of your being will dwell in darkness. "But," says someone, "may I not live for this world and the next, too?" Listen&mdash;
+22, 23. The lamp of the body is the eye: if, therefore, your eye is good, your whole body shall be full of light. But if your eye is evil, your whole body shall be full of darkness. If, therefore, the light that is in you is darkness, how great is that darkness!  If your eye is brooked up with gold dust, or if you are living for self and this world, your whole life will be a dark life&mdash;and the whole of your being will dwell in darkness. "But," says someone, "may I not live for this world and the next, too?" Listen&mdash;
 
 No man can serve two masters. He may serve two individuals, who have conflicting interests but they cannot both be his masters.
 
