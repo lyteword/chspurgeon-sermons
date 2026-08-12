@@ -2,7 +2,7 @@
 
 "The general assembly and Church of the First-Born, which are written in Heaven." Hebrews 12:23.
 
-PAUL had just been giving a brief description of the great gathering of the children of Israel around Mount Sinai, "the mount that might be touched, and that burned with fire," like a huge volcano. He had vividly portrayed "the blackness, and darkness, and tempest, and the sound of trumpet, and the voice of words," and the frightened multitudes standing, trembling, at a distance, and even Moses, their great leader, so alarmed that he cried out, "I exceedingly fear and quake." Paul intends that description to teach us the effect that the legal dispensation can produce&mdash;it can alarm and condemn&mdash;but it cannot save! You who are under the Law of God, you who are trying to win God's favor by your good works. You who fancy that human merit can bring you salvation, look to the flames which Moses saw and sink, and tremble and despair! You who think that you can live as the Law requires and so attain to everlasting life, may well stand shivering and trembling before this Almighty, though invisible God whose lightning blazes before your eyes and whose voice of thunder must alarm the most stout heart! Terrible is the plight of the man who has to depend upon what Sinai can give him&mdash;he is wretched in life, he shall be troubled in death, he shall be lost forever in eternity! "By the works of the Law shall no flesh be justified." "As many as are of the works of the Law are under the curse." "By Grace are you saved through faith; and that not of yourselves: it is the gift of God: not of works, lest any man should boast."
+Paul had just been giving a brief description of the great gathering of the children of Israel around Mount Sinai, "the mount that might be touched, and that burned with fire," like a huge volcano. He had vividly portrayed "the blackness, and darkness, and tempest, and the sound of trumpet, and the voice of words," and the frightened multitudes standing, trembling, at a distance, and even Moses, their great leader, so alarmed that he cried out, "I exceedingly fear and quake." Paul intends that description to teach us the effect that the legal dispensation can produce&mdash;it can alarm and condemn&mdash;but it cannot save! You who are under the Law of God, you who are trying to win God's favor by your good works. You who fancy that human merit can bring you salvation, look to the flames which Moses saw and sink, and tremble and despair! You who think that you can live as the Law requires and so attain to everlasting life, may well stand shivering and trembling before this Almighty, though invisible God whose lightning blazes before your eyes and whose voice of thunder must alarm the most stout heart! Terrible is the plight of the man who has to depend upon what Sinai can give him&mdash;he is wretched in life, he shall be troubled in death, he shall be lost forever in eternity! "By the works of the Law shall no flesh be justified." "As many as are of the works of the Law are under the curse." "By Grace are you saved through faith; and that not of yourselves: it is the gift of God: not of works, lest any man should boast."
 
 Having given that description of Sinai by way of contrast, Paul now brings out the much more pleasing picture of the Gospel dispensation. Christians shall also have their great assembly! There is a mountain upon which all those who are under Grace shall one day gather&mdash;a mountain that does not smoke, for it is Mount Zion&mdash;the city of the living God, the heavenly Jerusalem! There will be words there, but they will be words of sacred song and names of holy gladness. There may be trumpets there, but they will be the silver trumpets that will proclaim the eternal jubilee. Moses will be there, but no longer fearing and quaking, for when he comes to that mount of God, he will forget all his fears and rejoice without ceasing in the Lord his God. Believers are the multitude whom no man can number, who will assemble upon that glorious mountain to keep the everlasting holy day! Happy indeed shall we be when, by Grace, we come to the general assembly and Church of the first-born, whose names are written in Heaven&mdash;when we shall see that sight which was revealed to John in Patmos&mdash;a Lamb standing on the Mount Zion&mdash;and with Him those who have His Father's name written on their foreheads, who follow the Lamb wherever He goes and who are without fault before the Throne of
 
@@ -10,7 +10,7 @@ God!
 
 The first point to which I am going to draw your attention is the description given of Believers as the Church of the First-Born. Next, I want to remind you of what is said about their enrolment&mdash;they are written or enrolled (as the original reading renders it) in Heaven. And then, thirdly, I shall have something to say concerning their great general assembly, when all the righteous shall be gathered to Christ, to be parted from Him no more forever.
 
-To begin then, from our text it seems that BELIEVERS IN Christ ARE DESCRIBED AS THE CHURCH OF THE FIRST-BORN. I shall try to make my remarks, as I utter them, self-examining, so that you and I may question ourselves to see whether we belong to this general assembly.
+To begin then, from our text it seems that believers in Christ are described as the church of the first-born. I shall try to make my remarks, as I utter them, self-examining, so that you and I may question ourselves to see whether we belong to this general assembly.
 
 By the term "first-born" is often meant, in Scripture, the most excellent, the chief. Jesus Christ, because of the excellence of His Character, is said to be "the first-born among many brethren," "the first-born of every creature," "the firstborn from the dead, that in all things He might have the preeminence." So, although Believers are, by nature, the child-
 
@@ -40,7 +40,7 @@ Put these three things together&mdash;redemption by blood, redemption by substit
 
 Our time flies so quickly that I am afraid the other two divisions of my discourse will have to suffer. But I must remind you, as I promised to do, that the first-born, having been redeemed, had very special privileges. First, they had a double portion of their father's goods. Hence, Elisha, who was, in the prophetic sense, the first-born of Elijah, pleaded with him as his spiritual son, "I pray you, let a double portion of your spirit be upon me." Now God is good to all men, and His tender mercies are over all His works, but His special favor is reserved for the called and chosen, and faithful ones whom He has redeemed. The first-born also had the privilege of priesthood in the old patriarchal times, and every true child of God is made a king and a priest unto God, to offer daily, spiritual and acceptable sacrifices through Jesus Christ. The first-born was, in many respects, a ruler over the whole household&mdash;and Christ, the great First-Born&mdash;is the supreme Ruler over His Church, and we, in and through Him, are made rulers over many things. And He bids us ascend the throne and reign with Him as God's first-born, kings and priests unto Him forever.
 
-Now, secondly, and but very briefly, let us enquire WHAT IS MEANT by THE ENROLLMENT OF THE FIRST-BORN?
+Now, secondly, and but very briefly, let us enquire what is meant by the enrollment of the first-born?
 
 Moses had to set down the names of the Jewish first-born. And we find that right down to the Apostles' age, there were some who were very busy about what Paul calls "endless genealogies, which minister questions, rather than godly edifying which is in faith." But, dear Friends, there is an enrollment about which we should be greatly concerned. There are certain names written in the Lamb's Book of Life and it should be to you and to me a matter of solemn interest to enquire if our names are written there. Is your name, is my name, inscribed upon that secret, sacred roll of the elect of God? We cannot scale the heights of Heaven to search the pages of that sealed book, nor can we discover the secrets that the Most High has recorded there. It is impossible for us to read our names there, yet there are certain evidences by which we can tell whether they are or are not there!
 
@@ -86,15 +86,15 @@ For they verily for a few days chastened us after their ownpleasure; but He for 
 
 Now no chastening for the present seems to be joyous,How could it be? It would lose the very nature of chastening if there were joy in it.
 
-But grievous: nevertheless afterward&mdash;[See Sermon #528, Volume 9&mdash;CHASTISEMENT&mdash;NOW AND AFTERWARDS.] These are truly blessed words, "nevertheless afterward"&mdash;
+But grievous: nevertheless afterward&mdash;[See Sermon #528, Volume 9&mdash;chastisement&mdash;now and afterwards.] These are truly blessed words, "nevertheless afterward"&mdash;
 
 11-13. It yields the peaceable fruit of righteousness unto them who are exercised thereby. Therefore lift up the hands which hang down, and the feeble knees; and make straight paths for your feet, lest that which is lame be turned out of the
 
-way; but let it rather be healed. [See Sermon #2543, Volume 49&mdash;LAME SHEEP.] Come, children of God, do not be despondent because of your tribulations. You are in a race, so run even while you are smarting from your chastisements! Still run, and keep on running until you win the prize!
+way; but let it rather be healed. [See Sermon #2543, Volume 49&mdash;lame sheep.] Come, children of God, do not be despondent because of your tribulations. You are in a race, so run even while you are smarting from your chastisements! Still run, and keep on running until you win the prize!
 
 Follow peace with all men, and holiness, without which no man shall see the Lord. [See Sermon #2902, Volume 50&mdash;
 
-HOLINESS DEMANDED.] The holy God can only be seen by holy eyes.
+holiness demanded.] The holy God can only be seen by holy eyes.
 
 He must make us like Himself before we can see Him.
 
@@ -102,7 +102,7 @@ Looking diligently lest any man fail of the Grace of God. Seeming to have Divine
 
 Lest any root of bitterness springing up trouble you, and thereby many are defiled. [See Sermon #940, Volume 16&mdash;the
 
-WINNOWING FAN.] Sin is a bitter thing and a defiling thing and
+winnowing fan.] Sin is a bitter thing and a defiling thing and
 
 unless we look diligently, it will grow in our hearts like the weeds grow in our gardens after a heavy rain&mdash;it will spring up before we are aware of it.
 
@@ -116,7 +116,7 @@ For you know how that afterward, when he would have inherited the blessing, he w
 
 22-24. But you are come unto Mount Zion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and Church of the First-Born, which are written in Heaven, and to God, the Judge of all, and to the spirits of just men made perfect. And to Jesus, the Mediator of the New Covenant, and to the blood of sprinkling that speaks better things than that of Abel. [See Sermons #211, Volume 4&mdash;the voice of the
 
-BLOOD OF Christ; #708, Volume12&mdash;THE BLOOD OF ABLE AND THE BLOOD OF Jesus; #1888, Volume 32&mdash;THE BLOOD OF SPRINKLING (FIRST SERMON) and #1889, Volume 32&mdash;THE BLOOD OF SPRINKLING (SECOND SERMON).] We are
+blood of Christ; #708, Volume12&mdash;the blood of able and the blood of Jesus; #1888, Volume 32&mdash;the blood of sprinkling (first sermon) and #1889, Volume 32&mdash;the blood of sprinkling (second sermon).] We are
 
 come to that blood, and it is that blood which has made such a change in us! We may rejoice together, now, and we ought to do so if we are all one in Christ Jesus.
 
