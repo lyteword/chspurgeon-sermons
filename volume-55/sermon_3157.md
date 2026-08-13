@@ -2,7 +2,7 @@
 
 "Blessed are they who hunger and thirst after righteousness: for they shall be filled." Matthew 5:6.
 
-[In the year 1873, Mr. Spurgeon delivered what he called "a series of sententious homilies" on the Beatitudes. After an introductory discourse upon the Sermon on the Mount and the Beatitudes as a whole, he intended to preach upon each one separately, but either illness or some other special reason prevented him from fully carrying out this purpose. There are, however, six Sermons upon the Beatitudes, five of which have already been published&mdash;See Sermons #422, Volume 7&mdash; THE PEACEMAKER; #2103, Volume 35&mdash;THE HUNGER AND THIRST WHICH ARE BLESSED; #3155, Volume 55&mdash;THE BEATITUDES; #3156, Volume 55&mdash;THE FIRST BEATITUDE ; #3065, Volume 53&mdash;THE THIRD BEATITUDE.]
+
 
 I REMARKED, on a former occasion, that each of the seven Beatitudes rises above the one which precedes it, and rises out of it. It is a higher thing to hunger and thirst after righteousness than to be meek, or to mourn, or to be poor in spirit. But no man ever becomes hungry and thirsty after righteousness unless he has first passed through the three preliminary stages&mdash;has been convinced of his soul poverty, has been made to mourn for sin and has been rendered humble in the sight of God. I have already shown that the meek man is one who is contented with what God has given him in this world, that he is one whose ambition is at an end and whose aspirations are not for things beneath the moon. Very well then, having ceased to hunger and thirst after this world, he is the man to hunger and thirst after another and a better one! Having said farewell to these gross and perishing things, he is the man to throw the whole intensity of his nature into the pursuit of that which is heavenly and eternal&mdash;which is here described as "righteousness." Man must first of all be cured of his ardor for earthly pursuits before he can feel fervor for heavenly ones. "No man can serve two masters." And until the old selfish principle has been driven out and the man has become humble and meek, he will not begin to hunger and thirst after righteousness.
 
@@ -74,7 +74,7 @@ persist in enmity. We are to render blessing for cursing, prayers for persecutio
 
 For if you love them which love you, what reward have you, do not even the publicans do the same? Any common sort of man will love those who love him. Even tax gatherers and the scum of the earth can rise to this poor, starveling virtue. Saints cannot be content with such a groveling style of things. "Love for love is manlike," but "love for hate" is Christlike. Shall we not desire to act up to our high calling?
 
-And if you salute your brethren only, what do you more than others? [See Sermon #1029, Volume 18&mdash;a call to holy livING.] Do not even the publicans do sO? On a journey, or in the
+And if you salute your brethren only, what do you more than others?  Do not even the publicans do sO? On a journey, or in the
 
 streets, or in the house, we are not to confine our friendly greetings to those who are near and dear to us. Courtesy should be wide and none the less sincere because general. We should speak kindly to all and treat every man as a brother. Anyone will shake hands with an old friend, but we are to be cordially courteous towards every being in the form of man. If not, we shall reach no higher level than mere outcasts. Even a dog will salute a dog.
 

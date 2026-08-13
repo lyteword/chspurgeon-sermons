@@ -2,7 +2,7 @@
 
 "He shall glorify Me: for He shall receive ofMine, and shall show it unto you." John 16:14.
 
-[Other Sermons by Mr. Spurgeon, upon this passage, are as follows&mdash; Sermons #565, Volume 8&mdash;THE HOLY SPIRIT GLORIFYING CHRIST; #2212, Volume 37&mdash;"HONEY IN THE MOUTH!" and #3062, Volume 53&mdash;THE SPIRIT's OFFICE TOWARDS DISCIPLES]
+
 
 JESUS CHRIST, our gracious Lord and Master, is here speaking of the Holy Spirit and He says of Him, "He shall glorify Me: for He shall receive of Mine, and shall show it unto you." Our Lord Jesus Christ, in His own personal teaching, did not plainly declare all the Truths which He intended to reveal because the Holy Spirit was not then given to His disciples and they were not, at that time, able to receive all that He might have taught them. He Himself said to them, "I have yet many things to say unto you, but you cannot bear them now." The germ of everything that would be revealed was in the teaching of Christ, but not the full development of it. That was left till after the Holy Spirit had been given on the day of Pentecost. In the Acts of the Apostles, in their various Epistles and in the Apocalypse given to John, we have the full Revelation of the Truth of God&mdash;the Holy Spirit there taking of the things of Christ and revealing them to us and also, according to His promise, showing us, in the Book of the Revelation, "things to come."
 

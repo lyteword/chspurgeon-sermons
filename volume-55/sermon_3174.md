@@ -86,7 +86,7 @@ Gentiles came to Him and He saw, in that company of Greeks, the vanguard of that
 
 Verily, verily, I say unto you. Except a grain of wheat falls into the ground and dies, it abides alone: but if it
 
-dies, it brings forth much fruit. [See Sermon #3024, Volume 53&mdash;CHRIST's DEATH AND OURS] This was Christ's way to Glory, and it must be our way to Glory, too. The grain of wheat must fall into the ground and die, or else it cannot bring forth fruit. Just so must it be with you and with me&mdash;and in proportion as we learn to die to self, we shall live to the glory of God!
+dies, it brings forth much fruit.  This was Christ's way to Glory, and it must be our way to Glory, too. The grain of wheat must fall into the ground and die, or else it cannot bring forth fruit. Just so must it be with you and with me&mdash;and in proportion as we learn to die to self, we shall live to the glory of God!
 
 He that loves his life shall lose i. If you keep yourself to yourself, you will lose yourself.
 
@@ -94,21 +94,21 @@ And he that hates his life in this world shall keep it unto life eternal. Brothe
 
 26-28. If any man serves Me, let him follow Me; and where I am, there shall also My servant be. If any man serves Me, him will My father honor. Now is My soul troubled; and what shall I say? Father, save Me from this hour: but for
 
-this cause came I unto this hour. Father, glorify Your name. [See Sermon #1391, Volume 24&mdash;a GOLDEN PRAYER.] In the 27 verse, our Savior asked Himself the question, "What shall I say?" here He gives His own answer, "Father, glorify Your name." When you know not what to pray for, you can always safely pray, "Father, glorify Your name." As you stand where the crossroads meet and you ask, "Which way shall I choose?" pray, "Father, glorify Your name." This incident seems like a rehearsal of Christ's passion. Here we see that natural fear of death which came across the Savior's mind because He was so really and truly Man. If His pains had not been real pains, but had been pleasant and congenial to Him, there would have been no self-sacrifice in His suffering. But the fact that they cast upon His spirit the dark shadow of death only proves to us what sharp pains they were&mdash;but instead of asking for a way of escape from them, He surrendered Himself to them, gave Himself up as a willing Victim with this prayer upon His lips, "Father, glorify Your name." And now see what happened.
+this cause came I unto this hour. Father, glorify Your name.  In the 27 verse, our Savior asked Himself the question, "What shall I say?" here He gives His own answer, "Father, glorify Your name." When you know not what to pray for, you can always safely pray, "Father, glorify Your name." As you stand where the crossroads meet and you ask, "Which way shall I choose?" pray, "Father, glorify Your name." This incident seems like a rehearsal of Christ's passion. Here we see that natural fear of death which came across the Savior's mind because He was so really and truly Man. If His pains had not been real pains, but had been pleasant and congenial to Him, there would have been no self-sacrifice in His suffering. But the fact that they cast upon His spirit the dark shadow of death only proves to us what sharp pains they were&mdash;but instead of asking for a way of escape from them, He surrendered Himself to them, gave Himself up as a willing Victim with this prayer upon His lips, "Father, glorify Your name." And now see what happened.
 
-28, 29. Then came there a voice from Heaven, saying, Ihave both glorifiedit, and will glorify it again. Thepeople, therefore, that stood by and heard it, said that it thundered: others said, An angel spoke to Him. This was one of the three occasions on which testimony was openly borne to Christ by His Father&mdash;first at His Baptism, then at His Transfiguration, and now here at the rehearsal of His great Sacrifice. [In Sermon #909, Volume 16&mdash;voices from the excellent glory.] Verily, He is the Son of
+28, 29. Then came there a voice from Heaven, saying, Ihave both glorifiedit, and will glorify it again. Thepeople, therefore, that stood by and heard it, said that it thundered: others said, An angel spoke to Him. This was one of the three occasions on which testimony was openly borne to Christ by His Father&mdash;first at His Baptism, then at His Transfiguration, and now here at the rehearsal of His great Sacrifice.  Verily, He is the Son of
 
 God, and He is always well-pleasing to God! And God has glorified His name and will continue to glorify it through Jesus Christ His Son! We learn from this narrative that the voice of God is not understood by everybody. Some of those that stood by said that it thundered&mdash;and others said that an angel spoke to Him. It is necessary that you should be a child of God if you are to know your Father's voice! Though God is speaking at this moment in the clearest tones, none will recognize His voice, or understand His words, but those who are taught by His Holy Spirit.
 
 30, 31. Jesus answered and said, This voice came not because ofMe, but foryour sakes. Now is thejudgment ofthis
 
-world [See Sermon #2338, Volume 39&mdash;THE CRISIS OF THIS WORLD.] Now
+world  Now
 
 shall the ruler ofthis world be cast out See how the eyes of faith reads things differently from the eyes of sense! You and I would have said, "Now is Christ coming to His lowest point. Now is His name to be cast out from among men and His cause to be crushed as the result of His death." But Christ reads the signs of the times very differently. "Now," He said, "in the hour of My shame, suffering and death, is the judgment of this world. Now shall the ruler of this world be cast out." It was only by Christ being apparently conquered that Satan could be really vanquished! And there is often no way of victory for a saint except through defeat. When self is slain, then do we truly live!
 
 32, 33. And I, if I am lifted up from the earth, will draw all peoples unto Me. This He said signifying what death He
 
-should di. [See Sermons #139, Volume 3&mdash;CHRIST LIFTED UP; #775, Volume 13&mdash;THE GREAT ATTRACTION and #1717, Volume 29&mdash;THE MARVELOUS MAGNET.] The Pharisees said, "The world is gone after Him," but
+should di.  The Pharisees said, "The world is gone after Him," but
 
 Jesus says, "No, not while I am riding in state through the streets of Jerusalem. But when I am lifted up and hung upon the Cross, then shall it, indeed, be true, 'I, if I am lifted up from the earth, will draw all peoples unto Me.'" The crucified Christ of Calvary is the mighty magnet that is to attract multitudes of trembling, doubting, ruined sinners who by Grace shall be drawn unto Him and find eternal life in Him!
 

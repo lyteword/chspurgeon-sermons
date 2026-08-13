@@ -2,7 +2,7 @@
 
 "Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's place, be you reconciled to God." 2 Corinthians 5:20.
 
-[Other Sermons by Mr. Spurgeon, on verses 18 to 21, are as follows&mdash;Sermons #1123, Volume 19&mdash;GOD BESEECHING SINNERS BY HIS MINISTERS and #1910, Volume 32&mdash;THE HEART OF THE GOSPEL.]
+
 
 So, then, there is war between man and God. It seems preposterous that man should be in arms against his God, but it is all too sadly true. Shall the gnat contend with the flame? Shall an insect fight against an angel? Even this would not be as absurd as for man, who is utterly insignificant, to make war with God who is Infinite! Man, who is but as the ephemera of an hour, to enter into the lists against the dread, eternal and Almighty God? Accursed was that hour in which our first mother put forth her hand to take the forbidden fruit! From that moment war began between man and his Maker and from the Garden of Eden right on until now man has been an enemy of God! And although God has constantly returned good for evil, and is still the God of love and condescension, yet has man continued to fight against Him&mdash;there still is war between Heaven and earth. Otherwise, there would be no need for ambassadors between God and men. This would be proof enough that a state of war prevails. But, alas, in our own hearts we bear, each one of us, sad proofs of the enmity of man and God. And we see, besides, in our fellow men, ten thousand sorrowful instances which prove that they have not submitted themselves to the righteousness of God and are not the friends of the great Friend of man.
 

@@ -2,7 +2,7 @@
 
 "But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth and grow up as calves of the stall." Malachi 4:2.
 
-[Other Sermons by Mr. Spurgeon upon the same text are Sermons #1020, Volume 18&mdash;"THE SUN OF RIGHTEOUSNESS" and #1463B, Volume 25&mdash;THE RISING SUN.]
+
 
 THIS great promise was fulfilled at the coming of our Lord. There were many waiting for it, like Anna and Simeon, mourning the darkness in which they dwelt and scarcely cheered by a single star, for the voice of prophecy had ceased. Then suddenly Christ came and so the Sun of Righteousness arose upon those who feared the Lord! They went forth into blessed liberty, rejoicing in Him. And afterwards their light was greatly increased in brightness and their life in happiness as they grew in Divine knowledge and holiness. It is difficult for us to conceive the revulsion of feeling which must have come into the hearts of such patient waiters for the Lord as Anna and Simeon. They must have triumphed exceedingly, magnifying the Lord, with Mary, that at last He had come&mdash;the Light to lighten the Gentiles and to be the Glory of His people, Israel!
 
@@ -46,7 +46,7 @@ Christ, then, is the Sun of Righteousness. Now, Sinner. Now, Trembler. If you fe
 
 But the figure employed in the text is a double one. It is said that sometimes in the East, after a long time of calm, the very air gets putrid and the glowing sand reflects the burning heat till, presently, a refreshing land breeze comes up with the sunrise. So Christ is here pictured as a sun&mdash;His beams being like the wings of some gigantic golden eagle&mdash;and those wings, like refreshing winds, bringing health to the poor sickly inhabitants of earth who are ready to die. Certainly when Christ comes in all His splendor of Light, for He is "the Light of the world," He comes also with health to sick souls! Do not believe, Soul, that your sickness is incurable, though Satan may tell you a thousand times that it is! If Christ comes to deal with you, Man, though your disease should be the deadly cancer of blasphemy, He can cure it! Though you should have the fever of drunkenness within your soul, Christ can heal you of that fiery malady! I ventured to say this
 
-morning that there is now no hospital for incurable souls [See Sermon #720, Volume 12&mdash;THE GOSPEL's HEALING POWER.] because Christ can cure all manner of spiritual diseases!
+morning that there is now no hospital for incurable souls  because Christ can cure all manner of spiritual diseases!
 
 You perceive that the text does not say that they who fear the name of the Lord shall be cured of their spiritual maladies by what they do themselves. No, but that Christ, the Sun of Righteousness, shall arise upon them and in His light they shall obtain the health they lack! Get Jesus, poor Soul, and you need not trouble yourself about much else. There is everything that a sinner requires in the Person of the appointed Savior. Arise, O You blessed Jesus Christ, like the sun upon the darkness, that some who are in this place may now leave their sins and rejoice in Your power to save!
 

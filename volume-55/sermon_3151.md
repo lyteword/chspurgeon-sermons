@@ -2,7 +2,7 @@
 
 "This do you, as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:25,26.
 
-[Mr. Spurgeon preached many times upon these and the preceding verses. The following sermons have already been published&mdash;#2, Volume 1&mdash;"THE REMEMBRANCE OF CHRIST; #2307, Volume 39&mdash;THE GREATEST EXHIBITION OF THE AGE; #2595, Volume 44&mdash;WHAT THE LORD's SUPPER SEES AND SAYS; #2638, Volume 45&mdash;THE RIGHT OBSERVANCE OF THE LORD's SUPPER; #2872, Volume 50&mdash; THE LORD's SUPPER; #3099, Volume 54&mdash;THE DOUBLE FORGET-ME-NOT and #3130, Volume 55&mdash;"IN REMEMBRANCE".]
+
 
 IT would be a waste of time and would tend to mar our fellowship with Christ, were I to attempt an enumeration of the errors and misapprehensions into which men have fallen concerning the objective of the Lord's Supper. There are some communities of men among us&mdash;and they seem to be multiplying&mdash;who turn the Communion Table into an altar and convert the bread and wine, which are but a memorial, into the semblance of a sacrifice. I will only say that into their secret may we never enter and with their confederacy may we never be united, for their table is the table of idolatry, and their altar is little better than a sacrifice unto devils! Such offerings cannot be acceptable unto God, for those who observe them turn aside altogether from the simplicity of the Truth of God unto the cabalistic devices of Antichrist.
 
@@ -39,7 +39,7 @@ and let them know it as they sit here and remember Him!
 
 The second objective of this Communion Supper is THE SHOWING OF CHRIST's DEATH TILL HE COMES.
 
-"Till He comes." I must not say anything about that except that He will come! And I think that ought to be enough for Christians. To my great sorrow, I had sent to me this last week, two or three copies of a tract purporting, according to the title page to have been written by myself, prophesying the coming of the Lord in the year 1866. Now, you may expect to hear of me being in Bedlam [London insane asylum] whenever by my tongue or my pen, I give countenance to such rubbish! The Lord may come in 1866, and I shall be glad to see Him, but I do not believe He will. And one reason why I don't believe He will, I have told you before&mdash;it is because all these false two-penny-halfpenny prophets say that He will. If they said He would not, I would begin to think He would, but inasmuch as they are all crying as one man that He will come in 1866, or 1867, I am inclined to think He will not come at any such time! It seems to me that there are a very great many prophecies which must be fulfilled before the coming of Christ&mdash;which will not be fulfilled in the next 12 months. And I prefer, Beloved, to stand in the position of a man who knows neither the day nor the hour in which the Son of Man comes&mdash;always looking for His appearing, but never interfering with those dates and figures which seem to me to be proper amusement for young ladies who have nothing to do, and who take to them instead of reading novels. And for certain divines who have exhausted their stock of knowledge about sound Doctrine and, therefore, make up and gain a little ephemeral popularity by shuffling texts of Scripture as the Norwood gypsies shuffled cards in days gone by! Leave the prophets to divide the profits which they get from simpletons&mdash;and as for you, watch for Christ's coming, whether it shall be today, or tomorrow&mdash;and set no limits, and no dates, and no times! Only work while it is called today. Work so that when He comes, He may find you, as faithful servants, ready to come in to the wedding with Him. "Till He comes," then, the Lord's Supper is to be a showing forth of His death!
+"Till He comes." I must not say anything about that except that He will come! And I think that ought to be enough for Christians. To my great sorrow, I had sent to me this last week, two or three copies of a tract purporting, according to the title page to have been written by myself, prophesying the coming of the Lord in the year 1866. Now, you may expect to hear of me being in Bedlam  whenever by my tongue or my pen, I give countenance to such rubbish! The Lord may come in 1866, and I shall be glad to see Him, but I do not believe He will. And one reason why I don't believe He will, I have told you before&mdash;it is because all these false two-penny-halfpenny prophets say that He will. If they said He would not, I would begin to think He would, but inasmuch as they are all crying as one man that He will come in 1866, or 1867, I am inclined to think He will not come at any such time! It seems to me that there are a very great many prophecies which must be fulfilled before the coming of Christ&mdash;which will not be fulfilled in the next 12 months. And I prefer, Beloved, to stand in the position of a man who knows neither the day nor the hour in which the Son of Man comes&mdash;always looking for His appearing, but never interfering with those dates and figures which seem to me to be proper amusement for young ladies who have nothing to do, and who take to them instead of reading novels. And for certain divines who have exhausted their stock of knowledge about sound Doctrine and, therefore, make up and gain a little ephemeral popularity by shuffling texts of Scripture as the Norwood gypsies shuffled cards in days gone by! Leave the prophets to divide the profits which they get from simpletons&mdash;and as for you, watch for Christ's coming, whether it shall be today, or tomorrow&mdash;and set no limits, and no dates, and no times! Only work while it is called today. Work so that when He comes, He may find you, as faithful servants, ready to come in to the wedding with Him. "Till He comes," then, the Lord's Supper is to be a showing forth of His death!
 
 Let us just notice how we show it forth.
 
@@ -65,7 +65,7 @@ Chapter 17:1. These words spoke Jesus, andlifted up His eyes to Heaven, andsaid,
 
 As You have given Him power over all flesh, that He shouldgive eternallife to as many as You have given Him.
 
-[See Sermon #566, Volume 10&mdash;GENERAL AND YET PARTICULAR.] Some people
+ Some people
 
 seem unable to see that there is perfect harmony between the general and the particular aspects of Christ's Atonement. As the one Mediator between God and men, He has absolute power over all men, to do with them as He wills, yet that power has a special relation to those whom His Father gave Him before the foundation of the world. And they are those who come to Him in accordance with His declaration, "All that the Father gives Me shall come to Me; and He that comes to Me I will in no wise cast out."
 
@@ -99,7 +99,7 @@ be monasteries and nunneries where His servants might be shut away from the worl
 
 16, 17. They are not of the world, even as I am not of the world. Sanctify them through Your Truth: Your Word is
 
-Truth. [See Sermon #1890, Volume 32&mdash;OUR LORD's PRAYER FOR HIS PEOPLE's SANCTIFICATION.] Some men tell us that the Truth of God is in the Word, but that the Word is not the Truth. I read, the other day, that we might regard the Bible as a casket which contained the jewel of the Truth, but was not itself the jewel. Christ did not talk in that fashion, for He said to His father, "Your Word is Truth." This shows that God's Word is not merely the casket of Truth, but is the Truth itself!
+Truth.  Some men tell us that the Truth of God is in the Word, but that the Word is not the Truth. I read, the other day, that we might regard the Bible as a casket which contained the jewel of the Truth, but was not itself the jewel. Christ did not talk in that fashion, for He said to His father, "Your Word is Truth." This shows that God's Word is not merely the casket of Truth, but is the Truth itself!
 
 As You have sent Me into the world, even so have I also sent them into the worl. They are sent ones, even as Christ was the Sent One. As He is the Christ, they are Christians, anointed with the same anointing as He Himself is and they should endeavor to be in all respects missionaries to the world, even as Christ was God's great Missionary to the lost.
 
@@ -131,7 +131,7 @@ What shall be the occupation of those who are with Christ? "That they may behold
 
 25-26. O righteous Father, the world has not known You: but I have known You, and these have known that You have sent Me. And I have declared unto them Your name, and will declare it: that the love with which You have loved Me
 
-may be in them, and I in them. [See Sermons #1378, Volume 23&mdash;THE RIGHTEOUS FATHER KNOWN AND LOVED and #1667, Volume 28&mdash;"LOVE AND I"&mdash;a MYSTERY.] How rich is this language! How musical! Surely,
+may be in them, and I in them.  How rich is this language! How musical! Surely,
 
 never did any human poem match this peerless prose of the Divine Teacher! And now, what a descent it is as we pass on to the next scene in His life!
 
@@ -151,6 +151,6 @@ Jesus, therefore, knowing all things that should come upon Him, went forth and s
 
 7-9. Then asked He them again, Whom do you seek? And they said, Jesus of Nazareth. Jesus answered, I have told you that I am He: if therefore you seek Me, let these go their way: that the saying might be fulfilled which He spoke, Of
 
-them which You gave Me have I lost none. [See Sermons #2368, Volume 40&mdash;THE LIVING CARE OF THE DYING CHRIST and #2616, Volume 45&mdash; CHRIST's CARE OF HIS DISCIPLES.] That was a very gracious saying of
+them which You gave Me have I lost none.  That was a very gracious saying of
 
 Christ's, "If therefore you seek Me, let these go their way." This is what Christ says on His people's behalf to death and to the Law and the justice of God. And though this saying does not excuse the disciples' flight, it does make some sort of apology for their going away, every man to his own home. Christ knew that they would be safer there. One of them followed Him afar off instead of going his way&mdash;and you know what came of it. There is a time for openly following Christ, but there is a time when Jesus says, "Let these go their way." So, right to the end He takes care of His sheep and bids them scatter for a while now that the sword is about to enter their Shepherd's heart.

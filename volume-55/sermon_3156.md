@@ -2,7 +2,7 @@
 
 "Blessed aire the poor in spirit: for theirs is the Kingdom of Heaven." Matthew 5:3.
 
-[In the year 1873, Mr. Spurgeon delivered what he called "a series of sententious homilies" on the Beatitudes. After an introductory discourse upon the Sermon on the Mount and the Beatitudes as a whole, he intended to preach upon each one separately, but either illness or some other special reason prevented him from fully carrying out this purpose. There are, however, five Sermons upon the Beatitudes, four ofwhich have already been published&mdash;See Sermons #422, Volume 7&mdash; THE PEACEMAKER; #2103, Volume 35&mdash;THE HUNGER AND THIRST WHICH ARE BLESSED; #3155, Volume 55&mdash;THE BEATITUDES&mdash; #3065, Volume 53&mdash;THE THIRD BEATITUDE&mdash;and this one.]
+
 
 BEARING in mind the objective of our Savior's discourse, which was to describe the saved, and not to declare the plan of salvation, we now come to consider the first of the Beatitudes&mdash;
 
@@ -72,7 +72,7 @@ The dominion awarded by this Beatitude to the poor in spirit is no common one. I
 
 EXPOSITION BY C. H. SPURGEON: MATTHEW5:31-42.
 
-[Continued from Sermon #3155, Volume 55.]
+
 
 31, 32. It has been said, Whoever shall put away his wife, let him give her a writing of divorcement: but I say unto
 

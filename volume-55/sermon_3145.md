@@ -2,7 +2,7 @@
 
 "And we being exceedingly tossed with a tempest, the next day they lightened the ship; and the third day we cast out with our own hands the tackling of the ship. And when neither sun nor stars in many days appeared, and no small tempest lay on us, all hope that we should be saved was then taken away. But after long abstinence Paul stood forth in the midst of them, and said, Sirs, you should have listened to me, and not have sailed from Crete, and incurred this disaster and loss. And now I exhort you to be of good cheer: for there shall be no loss of life among you, but only of the ship. For there stood by me this night the angel of God, whose I am, and whom I serve, saying, Fear not, Paul, you must be brought before Caesar: and, lo, God has given you all them that sail with you. Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me." Acts 27:18-25.
 
-[Other Sermons by Mr. Spurgeon, upon parts of this passage, are as follows&mdash;Sermons #1070, Volume 18&mdash;WRECKED, BUT NOT RECKLESS; #2952, Volume 51&mdash;THE CHURCH&mdash;THE WORLD's HOPE and #1355, Volume 23&mdash;a CHEERY WORD IN TROUBLOUS TIMES.]
+
 
 HERE we see a Believer full of comfort cheering others. The words of good cheer now before us are from a man, but inasmuch as he does but repeat what the Lord had spoken to him, they are none the less precious. And they may be all the more profitable if they move us, by their example, to speak words of cheer to others.
 
@@ -70,7 +70,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM 90; ACTS27:1-26.
 
 Psalm 90 is entitled "A Prayer of Moses, the man of God," and it furnishes a suitable prayer for every man of God. Any men of God who have had experience as deep, trying and varied as that of Moses will be the better able to enter into the spirit of the Psalm.
 
-Psalm 90:1. LORD You have been our dwelling place in all generations. [See Sermon #46, Volume 1&mdash;the glorious habitaTION.] "This world in which we live is no home for our immortal
+Psalm 90:1. LORD You have been our dwelling place in all generations.  "This world in which we live is no home for our immortal
 
 spirits. You give us habitations for our bodies, but there are no dwelling places for our spirits that are of a nobler order. We dwell in You, O Lord; You are our home. Beneath Your wide wings we find blessed shelter and in communion with
 
@@ -96,7 +96,7 @@ So teach us to number our days, that we may apply our hearts unto wisdom. That i
 
 13, 14. Return, O LORD, how long? And let it repent You concerning Your servants. O satisfy us early with Your
 
-mercy; that we may rejoice and be glad all our days. [See Sermons #513, Volume 9&mdash;THE YOUNG MAN's PRAYER and #2987, Volume 52&mdash;THE "BEAU IDEAL" OF LIFE.] Dear young people, here is a suitable
+mercy; that we may rejoice and be glad all our days.  Dear young people, here is a suitable
 
 prayer for you to present to God&mdash;"O satisfy us early with Your mercy." Believe me, there is no joy for a lad like that of loving the Lord Jesus Christ while he is yet young! And O you maidens&mdash;there is no fairer jewel that you can ever wear than that of love to Jesus Christ&mdash;
 
