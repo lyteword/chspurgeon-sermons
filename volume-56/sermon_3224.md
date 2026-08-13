@@ -2,7 +2,7 @@
 
 "And that repentance and remission of sins should bepreached in His name among all nations, beginning at Jerusalem." Luke 24:47.
 
-[Another Sermon by Mr. Spurgeon upon the same text is #1729, Volume 29&mdash;beginning at jerusalem.]
+
 
 This verse is among our Lord's last words to His disciples just before He left them to return to Heaven. He wished to impress upon them the Truth of God that it was His purpose and desire that their lives should be devoted to the preaching of His Gospel among all nations upon the face of the earth. In Christ's own words and throughout the New Testament, we find the greatest stress laid upon preaching. Preaching is the great battering ram that is to shake the gates of Hell! Preaching is God's chief method of winning souls unto Himself&mdash;"for after that in the wisdom of God the world by wisdom knew not God, it pleased God by the foolishness of preaching to save them that believe." We cannot too often remind this age in which we live of this Truth, for this is a time in which it is supposed that rites and ceremonies, human learning and literature and I know not what else, may very properly be allowed to supplant the preaching of the Word! Yet our Lord has given no intimation of any change in His purpose and plan&mdash;on the contrary, His great commission is evidently intended to cover the whole of this present dispensation&mdash;"Go you, therefore, and teach (that is, make disciples of) all nations, baptizing them (that is, those who have been made disciples) in the name of the Father, and of the Son, and of the Holy Spirit; teaching them to observe all things whatever I have commanded you: and lo, I am with you always, even unto the end of the world (or, more properly, unto the end of the age). Amen." So, until this dispensation is brought to a close by the personal return of the Lord Jesus Christ, "repentance and remission of sins" are to "be preached in His name among all nations." Blessed, indeed, are those who, in this land or anywhere else, have heard their Lord and Master say to them as He said to His disciples before He left them, "and you are witnesses of these things."
 
@@ -53,7 +53,7 @@ Perhaps you say, "But all this seems so strange to me. You tell me that my sins 
 
 "But," says one, "I do not doubt that repentance and remission of sins are to be preached in Christ's name. My difficulty is as to whether they are for me!" Well, that is a point that you must settle under the guidance of the Holy Spirit. Have you really repented of your sin? Have you sorrowed over it as the great curse of your life? Have you hated it and turned away from it, and sought to live as the holy God would have you live? Well, then, if the repentance is yours, the remission, also, is yours&mdash;for they go together in Christ's own words&mdash;"repentance and remission of sins." To hate sin because it slew Christ. To hate sin because God is so good that we ought not to sin against Him. To hate sin because God is so gracious as to forgive it. To weep over sin, not like a child who has done wrong, and so keeps away from his father, but like a penitent child who lays his head in his father's bosom and sobs out his grief there, and mourns that he has offended such a loving father who is so ready to forgive him&mdash;this is evangelical repentance and wherever it is found, there is also the remission of sins! If you do not know experimentally what it is thus to repent, breathe the prayer, "O Lord, show me the guilt of my sin. Teach me to mourn over it, to loath it and leave it. Let me see Your dear Son bearing its penalty on my behalf and then assure me, by Your Spirit's gracious instructions, that my sins, which were many, are all forgiven for Jesus' sake, that so I may go on my way rejoicing as a sinner saved by Sovereign Grace."
 
-Those of you who were here last Sabbath morning [See Sermon #925, Volume 16&mdash;individual sin laid on Jesus.] will remember that my text was, "All we, like sheep, have gone astray; we have turned, every one, to his own way; and the Lord has laid on Him the iniquity of us all." And you will also recollect that I tried to describe various characters to whom that verse applies. I hope God gave comfort and blessing to some who listened to the sermon here. But oh, it was a joy to me to hear of one far away in Scotland who had been for years desponding and despairing who was led to find rest and peace through reading the printed sermon! But why should not many more of you be blessed while hearing the Word of God as so many are in reading it? Poor captive Soul, why should you not be set at liberty? Arise and shake yourself from the dust, for in Christ's name pardon is preached unto you if you will but repent of your sins and trust Him to save you from them!
+Those of you who were here last Sabbath morning  will remember that my text was, "All we, like sheep, have gone astray; we have turned, every one, to his own way; and the Lord has laid on Him the iniquity of us all." And you will also recollect that I tried to describe various characters to whom that verse applies. I hope God gave comfort and blessing to some who listened to the sermon here. But oh, it was a joy to me to hear of one far away in Scotland who had been for years desponding and despairing who was led to find rest and peace through reading the printed sermon! But why should not many more of you be blessed while hearing the Word of God as so many are in reading it? Poor captive Soul, why should you not be set at liberty? Arise and shake yourself from the dust, for in Christ's name pardon is preached unto you if you will but repent of your sins and trust Him to save you from them!
 
 Now, secondly, we are to think of the audience that is to be addressed upon this subject&mdash;
 
@@ -87,9 +87,7 @@ Exposition by C. H. Spurgeon: Acts2:36-47.
 
 You know that Peter had been preaching a plain, simple, straightforward sermon upon the death, Crucifixion and Resurrection of our Lord Jesus Christ. He who was once such a coward that he trembled before a little maid, now that he is filled with the Spirit, boldly charges this crowd with being murderers and Deicides because their kind put to death the Lord of Life and Glory! If you turn to the thirty-sixth verse, you will see the effect of Peter's plain preaching through the power of the Holy Spirit&mdash;
 
-36, 37. Therefore let all the house of Israel know assuredly, that God has made that same Jesus, whom you have crucified, both Lord and Christ Now when they heard this, they were pricked in their heart [See Sermon #2102, Volume 35&mdash;"pricked
-
-in their heart.] a little later in this same Book, we read of those
+36, 37. Therefore let all the house of Israel know assuredly, that God has made that same Jesus, whom you have crucified, both Lord and Christ Now when they heard this, they were pricked in their heart  a little later in this same Book, we read of those
 
 who listened to Stephen's sharp, sword-like sentences, "When they heard these things, they were cut to the heart"&mdash;and soon they stoned Stephen to death! To be "cutto the heart" is not enough! But to be prickedin the heart is to receive a mortal wound! Happy is the man who has had his sin killed through having received a deadly wound from the sword of the Spirit, which is the Word of God! These people who heard Peter preach "were pricked in their heart" and, first, they were in doubt as to what they should do, but secondly, they were resolved that whatever they were told to do they would do at once.
 
@@ -97,7 +95,7 @@ who listened to Stephen's sharp, sword-like sentences, "When they heard these th
 
 For the promise is unto you, and to your children, and to all that are afar off, even as many as the Lord our God
 
-shall call. [See Sermon #2586, Volume 44&mdash;a far-reaching promise.] This is
+shall call.  This is
 
 a most blessed verse. The promise is to us and to our descendants&mdash;not merely to our children, but also to our grandchildren. Yes, and to our race as far as it yet may run! And the next clause, "and to all that are afar off" proves that the promise is made to the far-off ones as well as to our children, with only this limitation, "even as many as the Lord our God shall call."
 
@@ -109,4 +107,4 @@ And they, continuing daily with one accord in the Temple, and breaking bread fro
 
 Praising God, and having favor with all His people. And the lord added to the Church daily such as should be
 
-saved. [See Sermon #1167, Volume 20&mdash;additions to the church.
+saved. 

@@ -98,13 +98,11 @@ And he was three days without sight, and neither did eat nor drink What passed t
 
 10, 11. And there was a certain disciple at Damascus named Ananias; and to him said the Lord in a vision, Ananias.
 
-And he said, Behold, I am here Lord. And the Lord said to him, Arise, and go into the street which is called Straight, and enquire in the house of Judas for one called, Saul of Tarsus: for, behold, he prays. [See Sermon #16, Volume Paul's First
-
-prayer.] He had been a praying man for most of his life, for he
+And he said, Behold, I am here Lord. And the Lord said to him, Arise, and go into the street which is called Straight, and enquire in the house of Judas for one called, Saul of Tarsus: for, behold, he prays.  He had been a praying man for most of his life, for he
 
 was a devout Jew and, according to his light, he had lived up to his knowledge. But now he was praying in the Christian sense of the term, drawing near to God through the very Christ whom he had in his ignorance and unbelief persecuted! How many prayers of unregenerate men, who know not Christ, and are not constrained by His love, go for nothing! When they first from the heart confess their sin and cry to God for mercy, then they begin to really pray!
 
-12-16. And has seen in a vision a man named Ananias coming in and putting his hand on him, that he might receive his sight. Then Ananias answered Lord, I have heard by many of this man, how much evil he has done to Your saints at Jerusalem: and here he has authority from the chief priests to bind all that call on Your name. But the Lord said unto him, go your way: for he is a chosen vessel unto Me, to bear My name before the gentiles, and kings, and the children of Israel: for I will show him how great things he must suffer for My name's sake. [See Sermon #944, Volume 16&mdash;an encouraging lesson from Paul's conversion.] Ananias said to the Lord, "I have
+12-16. And has seen in a vision a man named Ananias coming in and putting his hand on him, that he might receive his sight. Then Ananias answered Lord, I have heard by many of this man, how much evil he has done to Your saints at Jerusalem: and here he has authority from the chief priests to bind all that call on Your name. But the Lord said unto him, go your way: for he is a chosen vessel unto Me, to bear My name before the gentiles, and kings, and the children of Israel: for I will show him how great things he must suffer for My name's sake.  Ananias said to the Lord, "I have
 
 heard by many of this man, how much evil he has done to Your saints at Jerusalem." And now the Lord says to Ananias, in response to that, "I will show him how great things he must suffer for My name's sake." As he had made others suffer for Christ's name's sake, he must, himself, suffer in the same way. Yet in this he was greatly favored, for it is one of the highest honors that the Lord Jesus Christ can put upon His chosen ones that they should be called to suffer for His name's sake!
 

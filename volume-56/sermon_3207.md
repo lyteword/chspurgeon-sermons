@@ -81,9 +81,7 @@ then&mdash;and then, it willmatter if you are Christ's disciple, or not! It will
 
 Exposition by C. H. Spurgeon: John18:12-27.
 
-Verses 12, 13. Then the bandand the captain and officers of the Jews took Jesus and boundHim, andledHim away to Annas first; for he was father-in-law to Caiaphas, who was the high priest that same year. [See Sermons #2820, Volume 49&mdash;
-
-Christ before annas and #2822, Volume 49&mdash;Christ in bonds.] Annas had
+Verses 12, 13. Then the bandand the captain and officers of the Jews took Jesus and boundHim, andledHim away to Annas first; for he was father-in-law to Caiaphas, who was the high priest that same year.  Annas had
 
 been high priest before, and he seems to have been still regarded as high priest and to have been a leading spirit among the adversaries of Christ. The old sinner would not go to bed that night until he had seen the Man whom he hated brought bound before him. Sometimes hatred becomes a more powerful passion than even love, and here, while the disciples of Jesus all fled in terror, Annas, the Savior's bitter foe, was wide awake and awaiting His arrival with those who had taken Him captive.
 
@@ -101,8 +99,6 @@ The high priest then asked Jesus of His disciples, and of His Doctrine. This was
 
 Jesus answered him, If I have spoken evil, bear witness of the evil: but if well, why do you strike Me? Nothing could have been more calm or more dignified and, at the same time, more full of the spirit of forgiveness.
 
-24-27. Now Annas had Him sent bound to Caiaphas the high priest. And Simon Peter stood and warmed himself. They said therefore unto him, Are not you also one of His disciples? He denied it, and said, I am not. One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him? [See Sermon
-
-#2106, Volume 35&mdash;"in the garden with him".] Peter then denied
+24-27. Now Annas had Him sent bound to Caiaphas the high priest. And Simon Peter stood and warmed himself. They said therefore unto him, Are not you also one of His disciples? He denied it, and said, I am not. One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him?  Peter then denied
 
 again: and immediately the cock cre . We know that the Lord turned and looked upon Peter. He did not speak a word, perhaps lest Peter should fall into the hands of those who were round about him&mdash;but His look was sufficient to kindle in Peter the fires of repentance&mdash;and he went out to weep bitterly over his shameful denial of his Lord.

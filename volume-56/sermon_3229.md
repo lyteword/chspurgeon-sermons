@@ -2,13 +2,11 @@
 
 "Him has God exalted with His right hand to be a Prince and a Savior, to give repentance to Israel, and forgiveness of sins." Acts 5:31.
 
-[Another Sermon by Mr. Spurgeon upon the same verse is #1301, Volume 22&mdash;a prince and a savior.]
+
 
 This was part of the answer of Peter and the other Apostles to the question and declaration of the high priest&mdash; "Did not we command you that you should not teach in this name? And, behold, you have filled Jerusalem with your Doctrine and intend to bring this Man's blood upon us." Then Peter and the other Apostles replied, "We ought to obey God rather than men. The God of our fathers raised up Jesus, whom you slew and hanged on a tree." And, in the verse following our text, they claimed to be witness-bearers for the risen and reigning Prince and Savior. And, more than that, they declared that they were co-witnesses with "the Holy Spirit, whom God has given to them that obey Him." These Apostles were the representatives of Messiah, the Prince, acting under His authority and, as far as they could, filling up the gap caused by His absence. They asserted that their preaching and teaching had been done by Divine Command which could not be set aside by any human authority&mdash;imperial or ecclesiastical&mdash;and that the true Prince of Israel, the Son of David, alone, had the power and the right to issue commissions to those who owned allegiance to Jehovah. They declared that Jesus, whom the chief priests had crucified, was still alive reigning in Glory, enthroned at the right hand of God and that they were only fulfilling His royal commands when they were "standing in the Temple and teaching the people."
 
-Moreover, when the Apostles stated that in addition to being a Prince, Jesus was also a Savior, and that He had been exalted with His Father's right hand in order that He might "give repentance to Israel, and forgiveness of sins," they gave the very best reason in the world for their preaching&mdash;for they were all engaged in preaching that sinners should repent&mdash;and in assuring those who didrepent that their sins were forgiven for Christ's sake! I cannot conceive of any better argument than this which the Apostles used when answering the high priest&mdash;"You command us not to teach in Christ's name, but the command of the Son of God, our Prince and Savior, is 'that repentance and remission of sins [See
-
-Sermons #329, Volume 6&mdash;Christ's first and last subject; #1729, Volume 29&mdash;beginning at jerusalem and #3224, Volume 56&mdash;"repentance and remission."] should be preached in His name among all nations,
+Moreover, when the Apostles stated that in addition to being a Prince, Jesus was also a Savior, and that He had been exalted with His Father's right hand in order that He might "give repentance to Israel, and forgiveness of sins," they gave the very best reason in the world for their preaching&mdash;for they were all engaged in preaching that sinners should repent&mdash;and in assuring those who didrepent that their sins were forgiven for Christ's sake! I cannot conceive of any better argument than this which the Apostles used when answering the high priest&mdash;"You command us not to teach in Christ's name, but the command of the Son of God, our Prince and Savior, is 'that repentance and remission of sins  should be preached in His name among all nations,
 
 beginning at Jerusalem.' So, as we 'ought to obey God rather than men,' we have filled Jerusalem with His Doctrine. And we mean to go on preaching repentance and remission until, as far as we are able, we have filled the whole world with this Doctrine." That purpose of Christ was, at least in part, fulfilled by the Apostles in their day. God did give repentance and remission of sins to a chosen remnant of Israel. And when the rest of the Jews rejected the testimony of Christ's servants, they said, as Paul and Barnabas did to the Jews at Antioch, "It was necessary that the Word of God should first have been spoken to you, but seeing you put it from you, and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles." We must never forget, Beloved Brothers and Sisters in Christ, that we owe the first preaching of the Gospel to the Jews. They were, in all lands that were then known, the heralds of Christ, publishing the royal proclamation far and wide. Under the old dispensation, "unto them were committed the oracles of God" and the Gospel of the New Covenant was, in the first instance, entrusted to them&mdash;and it was through the Jews that it was made known unto us Gentiles! Let us remember this fact as we contemplate the glorious future, both of Jews and Gentiles. Israel as a nation will yet acknowledge her blessed Prince and Savior. During many centuries the chosen people who were of old so highly
 
@@ -24,9 +22,7 @@ Let us never imitate those who talk of Christ as a Prince, but will not accept H
 
 For, mark you, we cannot really receive Christ as Prince unless we also receive Him as Savior If we say that we accept Him as our Prince, but reject Him as our Savior, is there not merely disloyalty, but treason of the deepest dye in that
 
-rejection? This gracious Prince tells me that I am lost and undone and bids me trust Him to save me. If I practically tell Him that I do not need Him to save me&mdash;and I do that by rejecting Him&mdash;I virtually say that He came from Heaven to earth on an unnecessary errand, at least as far as I am concerned. If I do not put my trust in His expiatory Sacrifice, I say, in effect that His death upon Calvary was a superfluity by which He foolishly threw away His valuable Life in needless Self-sacrifice! But that would be rank blasphemy! If I reject Christ as Savior, I do by that very act reject Him as Prince. It is sheer mockery for me to say, "I honor Jesus of Nazareth, the King of the Jews, [See Sermons #1353, Volume 23&mdash;ecce rex and #3123,
-
-Volume 54&mdash;"the king of the jews."] but I refuse to be washed from my
+rejection? This gracious Prince tells me that I am lost and undone and bids me trust Him to save me. If I practically tell Him that I do not need Him to save me&mdash;and I do that by rejecting Him&mdash;I virtually say that He came from Heaven to earth on an unnecessary errand, at least as far as I am concerned. If I do not put my trust in His expiatory Sacrifice, I say, in effect that His death upon Calvary was a superfluity by which He foolishly threw away His valuable Life in needless Self-sacrifice! But that would be rank blasphemy! If I reject Christ as Savior, I do by that very act reject Him as Prince. It is sheer mockery for me to say, "I honor Jesus of Nazareth, the King of the Jews,  but I refuse to be washed from my
 
 sin and uncleanness in the fountain filled with His blood! I am willing to accept the Man Christ Jesus as my Exemplar and I will try, as far as I can, to follow His steps, but I will not accept pardon at His hands." If I talk like that, Christ is neither my Prince nor my Savior, and I am His enemy! And unless I repent and bow before Him in real homage, and accept Him both as Prince and Savior, He will at the last condemn me with the rest of His enemies who said, "We will not have this Man to reign over us." You may extol Him with your tongue, but the sacrifice of a broken and contrite heart would be far more prized by Him than all your empty praises! It is a higher praise to Christ to stoop to kiss His pierced feet and find in His wounds perfect healing for all the wounds that sin has made, than to pronounce the most fulsome compliment upon His spotless Character! He needs not the meaningless flatteries of men, but He thirsts for the trustfulness of souls that are willing to be saved by Him! This is the best refreshment He can ever have, as He told His disciples when He had won to Himself the soul of that poor fallen woman at Sychar, "My meat is to do the will of Him that sent Me and to finish His work."
 
@@ -85,13 +81,11 @@ For I bear them record that they have a zeal of God, but not according to knowle
 
 For they being ignorant of God's righteousness and going about to establish their own righteousness, have not
 
-submitted themselves unto the righteousness of God. [See Sermons #1899, Volume 32&mdash;zealous, but wrong and #2214, Volume 37&mdash; barriers broken down.] They were so busy trying to work out a
+submitted themselves unto the righteousness of God.  They were so busy trying to work out a
 
 righteousness of their own that they had never accepted the righteousness which God is prepared to freely give to all those who will receive it at His hands!
 
-For Christ is the end of the Law for righteousness to everyone that believes. [See Sermon #1325, Volume 22&mdash;christ the end
-
-of the law.] This is the very essence of the Gospel, that believing
+For Christ is the end of the Law for righteousness to everyone that believes.  This is the very essence of the Gospel, that believing
 
 in Christ brings to sinners a righteousness which they can never obtain in any other way!
 
@@ -101,13 +95,13 @@ in Christ brings to sinners a righteousness which they can never obtain in any o
 
 fess with your mouth the Lord Jesus, and shall believe in your heart that God has raised Him from the dead, you shall be
 
-saved. [See Sermon #1898, Volume 32&mdash;mouth and heart.] Oh, what a
+saved.  Oh, what a
 
 blessedly simple plan of salvation is here revealed! "If you shall confess with your mouth the Lord Jesus, and shall believe in your heart that God has raised Him from the dead, you shall be saved." The Apostle says this plan of salvation is so near to men that it is in their mouth! When anything is in your mouth, how can you make it your own? Why, by swallowing it! And so near is the Gospel to every man that he has, as it were, but to drink it down to make it his very own! It is not up there on the lofty heights, nor down there in the deeps of the abyss, but it is here and wherever else Christ is preached and wherever His Word is read! O, Sinner, the Word of God is near you, even in your mouth and in your heart"&mdash;then put it not away from you, but hold it fast forever!
 
 For with the heart man believes unto righteousness; and with the mouth confession is made unto salvation.
 
-[See Sermons #519, Volume 9&mdash;believing with the heart; #520, Volume 9&mdash;confession with the mouth and #3011, Volume 52&mdash;faith first, confession following.] After believing in Christ, the man must
+ After believing in Christ, the man must
 
 confess that he does believe in Him. It would be a shame for any Believer to try to sneak into Heaven without acknowledging that Christ has saved him. If any man is ashamed of his religion, you may depend upon it that it is one of which he has cause to be ashamed! But he who has true saving faith in his heart should never blush to acknowledge it. What is there to blush about in being a Christian? Let those blush who are not believers in the Lord Jesus Christ!
 
@@ -117,19 +111,15 @@ confess that he does believe in Him. It would be a shame for any Believer to try
 
 And how shall they believe in Him of whom they have not heard? Those who do not hear the Gospel are not likely to believe it. And there are many unbelievers who never seek to hear it&mdash;and it is always wrong for a man to refuse to believe any Truth of God before he knows what it really is. There should at least be a sincere searching of the Holy Scriptures and a candid listening to the preaching of the Word before it is rejected.
 
-14, 15. And how shall they hear without a preacher? And how shall they preach, except they are sent? As it is written, How beautiful are the feet of them that preach the Gospel of Peace, and bring glad tiding of good things." [See Sermon
-
-#2327, Volume 39&mdash;the whole machinery of salvation.] The Gospel
+14, 15. And how shall they hear without a preacher? And how shall they preach, except they are sent? As it is written, How beautiful are the feet of them that preach the Gospel of Peace, and bring glad tiding of good things."  The Gospel
 
 brings gladness wherever it comes. The Word which we preach tells of joys that will last forever! The Gospel shall make the whole world sing with new music when it is received by all! And it shall roll away the mists that now swathe this poor dusky planet and make it shine out like its sister stars in all the Glory of God when once Christ is fully acknowledged here as Lord and Savior!
 
-But they have not all obeyed the Gospel.[See Sermon #2804, Volume 48&mdash;disobedience to the gospel.] All who have heard the Gospel have not obeyed it.
+But they have not all obeyed the Gospel. All who have heard the Gospel have not obeyed it.
 
 For Isaiah says, Lord, who has believed our report? And what Isaiah said is what we also have to say today, "Who has believed our report? And to whom is the arm of the Lord revealed?"
 
-So, then, faith comes by hearing, and hearing by the Word of God. [See Sermon #1031, Volume 18&mdash;how can I obtain
-
-faith?] Salvation comes by faith, and faith comes by hearing,
+So, then, faith comes by hearing, and hearing by the Word of God.  Salvation comes by faith, and faith comes by hearing,
 
 but that hearing must be the hearing of the Word of God! Surely there is no great difficulty in understanding the Gospel. This is no maze in which a man may lose himself. Here are no puzzling directions which only the learned can comprehend! No, but here stands the plain, simple, soul-quickening words, "Believe and live."
 

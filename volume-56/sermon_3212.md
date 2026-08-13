@@ -2,7 +2,7 @@
 
 "Draw near to God, and He will draw near to you." James 4:8.
 
-[Another Sermon by Mr. Spurgeon, upon the same text, is #2795, Volume 48&mdash;the double drawing near.]
+
 
 notice the sentences immediately preceding our text&mdash;"Resist the devil, and he will flee from you. Draw near to God, and He will draw near to you." Wherever we are, we must come into contact with the unseen powers either for good or evil. Go where we may, we cannot shut ourselves away from them. If we could take the wings of the morning and fly to the uttermost parts of the earth, spiritual beings would still be all around us there. Doubtless there are many invisible spirits, good or evil, in our midst at this moment, and when we go forth to our homes, or tomorrow go to our business or other duties, they will still attend us&mdash;the evil spirits seeking to lead our souls astray and the holy angels carrying out their sacred commission&mdash;"to minister for them who shall be heirs of salvation."
 
@@ -78,9 +78,7 @@ Exposition by C. H. Spurgeon: James 1.
 
 Verse 1. James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are scattered abroad, greet-ings. The Apostle James evidently believed in no lost ten tribes, as some, nowadays, do. They were never lost&mdash;the Israelites whom we see nearly every day belong to some of all the 12 tribes, so James addressed his Epistle, "to the twelve tribes which are scattered abroad, greetings."
 
-My brethren, count it all joy when you fall into divers temptations. Or, trials. [See Sermon #1074, Volume 29&mdash;all joy in all
-
-trials.]
+My brethren, count it all joy when you fall into divers temptations. Or, trials. 
 
 3-5. Knowing this, that the trying of your faith works patience. But let patience have her perfect work, that you may be perfect and entire, wanting nothing. If any of you lack wisdom. That is just what most of us lack&mdash;"If any of you lack wisdom"&mdash;
 
@@ -90,7 +88,7 @@ Let him ask of God. That is the short road to true knowledge&mdash;to pray. Stud
 
 For he that wavers. The man who does not know whether prayer will succeed or not&mdash;
 
-Is like a wave of the sea driven with the wind and tossed. [See Sermon #2537, Volume 43&mdash;a warning to waverers.] You can never tell what will become of the wave. It goes just
+Is like a wave of the sea driven with the wind and tossed.  You can never tell what will become of the wave. It goes just
 
 where it is driven&mdash;and there are many men who can be good, after a certain fashion, if they are in good company&mdash;but they can be just as bad if the wind blows from another quarter! But if we have true faith in God and true faith in prayer, we shall not be "like a wave of the sea driven with the wind and tossed."
 
@@ -106,7 +104,7 @@ But the rich, in that he is made low: because as the flower of the grass, he sha
 
 he, himself, "as the flower of the grass, shall pass away" Let him rejoice to get down to the Rock of Ages! Let him lay hold of eternal things as if he had nothing else in which he could trust!
 
-11, 12. For the sun is no sooner risen with a burning heat, but it withers the grass, and the flo wer falls and the beauty of the fashion of it perishes; so also shall the rich man fade away in his ways. Blessed is the man that endures temptation. [See Sermon #1874, Volume 31&mdash;a discourse upon true blessedness here and hereafter.] Or, trial. The man that holds on and holds out under it and does not give way under it&mdash;blessed is the man that is tried&mdash;
+11, 12. For the sun is no sooner risen with a burning heat, but it withers the grass, and the flo wer falls and the beauty of the fashion of it perishes; so also shall the rich man fade away in his ways. Blessed is the man that endures temptation.  Or, trial. The man that holds on and holds out under it and does not give way under it&mdash;blessed is the man that is tried&mdash;
 
 12, 13. For when he is tried, he shall receive the crown of life, which the Lord has promised to them that love Him. Let no man say, when he is tempted, I am tempted of God. Here we must take the word, "tempted," in its dark meaning, for the Scriptural word, "temptation," means two very different things. When we are drawn towards evil, that is the black meaning of the word, "temptation." But when we are tested or tried in order that it may seen that the good in us is real&mdash;that is the bright meaning of the word, "temptation." In that sense, God did tempt (try or test) Abraham, but not in the other sense.
 
@@ -122,14 +120,12 @@ Of His own will begat He us with the word of truth, that we should be a kind of 
 
 Therefore, lay apart all filthiness and superfluity of naughtiness, and receive with meekness the engrafted Word,
 
-which is able to save your souk. [See Sermon #1847, Volume 31&mdash;before sermon, at sermon and after sermon&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.orgj That evil branch is cut away&mdash;now be ready to have a branch of a better kind inserted into you, even "the engrafted Word, which is able to save your souls"&mdash;that you may bring forth better fruit than the old crabbed stock of Nature can possibly yield!
+which is able to save your souk. 
 
-22-26. But be you doers of the Word, and not hearers only, deceiving yourselves. For if any is a hearer of the Word, and not a doer, he is like a man beholding his natural face in a mirror: for he beholds himself, and goes his way, and straightway forgets what manner of man he was. But whoever looks into the perfect law of liberty, and continues therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. [See Sermons #1467-b, Volume 25&mdash; Volume 56 www.spurgeongems.org 7
+22-26. But be you doers of the Word, and not hearers only, deceiving yourselves. For if any is a hearer of the Word, and not a doer, he is like a man beholding his natural face in a mirror: for he beholds himself, and goes his way, and straightway forgets what manner of man he was. But whoever looks into the perfect law of liberty, and continues therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. 
 
 two sorts of hearers and #1848, Volume 31&mdash;the looking glass&mdash;Read/download both sermons, free of charge, at http://www.spurgeongems.orgj If any
 
 man among you seems to be religious, but bridles not his tongue and deceives his own heart, this man's religion is vain. That which is in the well will come up in the bucket, and that which is in the heart will come up on the tongue. An unbridled tongue denotes an unrenewed heart. Oh, that God would always give us Grace in our heart to move our tongue aright! Then, as the water guides the whole ship, our tongue will guide our whole body and the whole of our manhood will be under holy government and control.
 
-Pure and undefled religion before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world. [See Sermon #2313, Volume 39&mdash;charity and purity&mdash;Read/download the entire sermon,
-
-free of charge, at http://www.spurgeongems.org.] Oh, how much this means&mdash;tenderness to others and tenderness of conscience in ourselves! How much Divine Grace we need in order that these two virtues may shine brightly within us!
+Pure and undefled religion before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.  Oh, how much this means&mdash;tenderness to others and tenderness of conscience in ourselves! How much Divine Grace we need in order that these two virtues may shine brightly within us!

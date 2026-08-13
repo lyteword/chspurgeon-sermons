@@ -1,34 +1,24 @@
 # Sermon 3204 | The Saints' Riches
 
-"He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?" Romans 8:32.
+> He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?  
+> Romans 8:32
 
 Many of you, dear Friends, are coming to the Lord's Table at the close of this service. Our blessed Redeemer instituted that simple but sublime ordinance so that we might be kept in constant remembrance of Him. The bread is nothing but bread, yet it is the very suggestive emblem of Christ's flesh. And it shall be well with you if, after a spiritual fashion, you shall thus eat the flesh of Christ. The wine is nothing but wine, yet is it the emblem of Christ's blood. And they are thrice blessed who experimentally understand the meaning of Christ's words, "Whoever eats My flesh, and drinks My blood, has eternal life." Christ is yours, Believer! You know that He is more yours than even your own life, for that you may lose. When God gave you your existence, He gave it to you without any covenant as to its prolongation, but He has given Christ to you by an Everlasting Covenant, to be yours forever and ever! Christ is yours, Beloved! Oh, that you knew how to make the best use of this blessed property! Christ is yours to live upon and to spend, yours to have and to hold, to keep and to enjoy, yours not only to look at that you may be saved, and to wear that you may be justified, but yours to eat that you may be refreshed by Him and live upon Him! Christ is yours to the fullest extent possible! There is no reservation&mdash;He is your absolute, indefeasible and inalienable property&mdash;yours, today, as perfectly as He will be when you are in Heaven! Yours as certainly as you are His. Oh, that you may now, knowing that Christ is thus your property, live upon Him, rejoice in Him and feel that you are, indeed, immeasurably rich!
 
-When we come to this Communion Table, to partake of these emblems of Christ's death, it will be a very happy thing for us if we remember that possessing Christ, we have everything. There is no need that you have which will not be supplied if you really know that Christ is yours. There is no necessity, however great, which may press upon you which shall not be instantaneously supplied if Christ is truly yours. You come to Christ's Table to meet with Christ and you know that when you have Him, you have everything, so you do well to sing&mdash;
+When we come to this Communion Table, to partake of these emblems of Christ's death, it will be a very happy thing for us if we remember that possessing Christ, we have everything. There is no need that you have which will not be supplied if you really know that Christ is yours. There is no necessity, however great, which may press upon you which shall not be instantaneously supplied if Christ is truly yours. You come to Christ's Table to meet with Christ and you know that when you have Him, you have everything, so you do well to sing&mdash;"You, O Christ, are all I need"&mdash; for in Him you have all that you can possibly need. And, moreover, the gift of Christ is God's solemn pledge that He will keep back from you nothing that you really need. "No good thing will he withhold from them that walk uprightly." "Whatever you shall ask in prayer, believing, you shall receive." Having given you Christ, He must, He will&mdash;with Christ&mdash;freely give you all things&mdash;
 
-"You, O Christ, are all I need"&mdash; for in Him you have all that you can possibly need. And, moreover, the gift of Christ is God's solemn pledge that He will keep back from you nothing that you really need. "No good thing will he withhold from them that walk uprightly." "Whatever you shall ask in prayer, believing, you shall receive." Having given you Christ, He must, He will&mdash;with Christ&mdash;freely give you all things&mdash;
+> How vast the treasure we possess!  
+> How rich Your bounty, King of Grace!  
+> This world is ours and worlds to come  
+> Earth is our lodge and Heaven our home.  
+> All things are ours&mdash;the gift of God!  
+> The purchase of a Savior's blood  
+> While the good Spirit shows us how  
+> To use and to improve them, too.  
 
-"How vast the treasure we possess!
+I am going to make it my business, in a very simple but earnest manner, to try and exhort the children of God to cast aside all thoughts of their being poor and to rejoice, now, in their boundless riches in Christ Jesus!
 
-How rich Your bounty, King of Grace!
-
-This world is ours and worlds to come&mdash;
-
-Earth is our lodge and Heaven our home.
-
-All things are ours&mdash;the gift of God!
-
-The purchase of a Savior's blood
-
-While the good Spirit shows us how
-
-To use and to improve them, too." I am going to make it my business, in a very simple but earnest manner, to try and exhort the children of God to cast aside all thoughts of their being poor and to rejoice, now, in their boundless riches in Christ Jesus!
-
-First, let me remind you, Believer, that, whatever you may really require, God will not deny it to you, for He has
-
-already given you Christ! Think what this gift was to the father&mdash;it was His only begotten and well-
-
-beloved Son!
+First, let me remind you, Believer, that, whatever you may really require, God will not deny it to you, for He has already given you Christ! Think what this gift was to the father&mdash;it was His only begotten and well-beloved Son!
 
 Perhaps you have a willful, wayward boy&mdash;one who costs you much, but brings you little comfort&mdash;yet, would you like to lose him? If you saw him in his coffin tomorrow, would you not cry over him as David cried over his son, "O my son, Absalom! My son, my son Absalom! Would God I had died for you, O Absalom, my son, my son?" Vile he may be, and a disgrace to your name, yet he is still your child and you could not bear to give him up. But what shall I say of the child who, from his youth up, has been obedient to you? Who, having grown up to manhood, has become your friend as well as your offspring? Who has been with you in every holy enterprise and has proved himself to be worthy of his father's love and esteem? Could you give him up? Mother, you know how dear is your first-born son to you. Of all griefs that tear a mother's heart, perhaps the greatest is to lose her first-born. Even if he is only in his infancy, it is a wound from which the mother's tender heart does not soon recover. But to lose that son in manhood. To see the hale strong man suddenly cut down&mdash;this is no small sorrow&mdash;and many, under such trying circumstances, have found it no easy task to say, "The Lord gave, and the Lord has taken away; blessed be the name of the Lord."
 
@@ -120,20 +110,20 @@ For we know not what we should pray for as we ought: but the Spirit itself makes
 
 And He that searches the hearts knows what is the mind of the Spirit, because He makes intercession for the
 
-saints according to the will of God. [See Sermon #1532, Volume 26&mdash;the Holy Spirit's intercession.] It cannot be supposed that the Father does not know what is the mind of the Spirit, since they are one God, and, moreover, inasmuch as the Spirit of God never intercedes for anything which is not according to God's will, we are sure that our heavenly Father will grant every Spirit-indited prayer!
+saints according to the will of God.  It cannot be supposed that the Father does not know what is the mind of the Spirit, since they are one God, and, moreover, inasmuch as the Spirit of God never intercedes for anything which is not according to God's will, we are sure that our heavenly Father will grant every Spirit-indited prayer!
 
-And we know that all things work together for good to them that love God, to them who are the called according to His purpose." [See Sermon #159, Volume 3&mdash;the true ChristIAN's blessedness.] Almost everything in this world looks to us to be in confusion, but to God's eyes, all is in order. One wave dashes this way and another that, but they are all working together, and they are all working with one great purpose, too. Say not, Christian, "All these things are against me." Ah, poor Soul! This is the verdict of your unbelief, but you will know better than that one of these days! All things are working for you, and not one of them is working against you&mdash;therefore, be not dismayed. They are all working together for good to those who love God, to those who are the called according to His purpose.
+And we know that all things work together for good to them that love God, to them who are the called according to His purpose."  Almost everything in this world looks to us to be in confusion, but to God's eyes, all is in order. One wave dashes this way and another that, but they are all working together, and they are all working with one great purpose, too. Say not, Christian, "All these things are against me." Ah, poor Soul! This is the verdict of your unbelief, but you will know better than that one of these days! All things are working for you, and not one of them is working against you&mdash;therefore, be not dismayed. They are all working together for good to those who love God, to those who are the called according to His purpose.
 
 For whom He did foreknow, He also did predestinate to be conformed to the image of His Son, that He might be
 
-the first-born among many brethren. [See Sermons #355, Volume 7&mdash;portraits of Christ and #1043, Volume 18&mdash;glorious predestination.] That was the very end and object of their predestination that they might become like Christ, their great perfect elder Brother&mdash;
+the first-born among many brethren.  That was the very end and object of their predestination that they might become like Christ, their great perfect elder Brother&mdash;
 
 > 'Christ, be My first Elect,' He said,   
 > Then chose our souls in Christ our Head   
 > Before He gave the mountains birth   
 > Or laid foundations for the earth!   
 
-Moreover whom He did predestinate, them He also called [See Sermon #241, Volume 5&mdash;predestination and calling.] My Soul, have you been called of God? Has the Spirit of God
+Moreover whom He did predestinate, them He also called  My Soul, have you been called of God? Has the Spirit of God
 
 ever called you? If so, rejoice in your predestination! Have no doubts and fears concerning that matter, for He would never have called you if He had not intended to save you from before the foundation of the world!
 
@@ -141,9 +131,7 @@ And whom He called, them He also justified: and whom He justified, them He also 
 
 Have you trusted in His precious blood? Then you are justified! Never give way, then, to any fears concerning your eternal salvation, for as surely as there is a Heaven, you shall be a partaker of its glories&mdash;for never was there a soul justified who was not afterwards glorified!
 
-What shall we then say to these things? If God is for us, who can be against uss'[See Sermon #580, Volume 10&mdash;god is with
-
-us.] Have you the world against you, Christian? What is the
+What shall we then say to these things? If God is for us, who can be against uss' Have you the world against you, Christian? What is the
 
 opposition of the world when God is on your side? Is your own heart against you? What then? God is greater than your heart! Is the devil against you? Ah, he is mighty, but God is Almighty and He shall bruise Satan under your feet shortly. Paul was no fanatic&mdash;he was a man of great experience and of sound sense&mdash;yet he makes nothing of all our foes when God is on our side!
 
@@ -155,9 +143,7 @@ Paul&mdash;
 
 It is God that justifies. He is both Just and the Justifier of all who believe in Jesus, and they are "God's elect."
 
-Who is He that condemns [See Sermons #256, Volume 5&mdash;THE believer's challenge and #2240, Volume 38&mdash;a challenge and a
-
-shield.] "Why," says one, "Christ, the great Judge, will condemn." No, that He will not, for&mdash;
+Who is He that condemns  "Why," says one, "Christ, the great Judge, will condemn." No, that He will not, for&mdash;
 
 It is Christ that died, yes, rather, that is risen again, who is even at the right hand of God, who also makes intercession for us. Christian, as Christ makes intercession for you, He will never condemn you! Did He shed His blood for you and yet will He cast you into Hell? Did He rise from the dead for you, and yet will He leave you among the dead and the lost? Think not so strangely of the Christ of God who is the same yesterday, and today, and forever&mdash;and who will never condemn those who trust in Him!
 
@@ -169,4 +155,4 @@ It is written, For Your sake we are killed all day long; we are accounted as she
 
 neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height nor
 
-depth, nor any other creature shall be able to separate us from the love of God, which is in Christ Jesus our Lord [See Sermon #2492, Volume 45&mdash;Paul's persuasion.]
+depth, nor any other creature shall be able to separate us from the love of God, which is in Christ Jesus our Lord 

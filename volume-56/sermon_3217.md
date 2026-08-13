@@ -84,11 +84,11 @@ But we see Jesus, who was made a little lower than the angels for the suffering 
 
 9, 10. That He, by the Grace ofGod, should taste death for everyman. Forit became Him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through
 
-sufferings. [See Sermon #2619, Volume 45&mdash;the captain of our salvation.]
+sufferings. 
 
 Not that Christ needed to be made perfect in Nature, but perfect in His capacity to be the Captain of our salvation&mdash; complete in all the offices which He sustains toward His redeemed people. He must be a Sufferer that He may be a Sympathizer&mdash;and hence His sufferings made Him perfect.
 
-For both He that sanctifies and they who are sanctified are all of one. [See Sermon #2418, Volume 41&mdash;"all of one."] He who sets them apart and they who are set apart "are all of
+For both He that sanctifies and they who are sanctified are all of one.  He who sets them apart and they who are set apart "are all of
 
 one." They are of one nature and they have one destiny before them.
 
@@ -98,17 +98,17 @@ Saying, I will declare Your name unto My brethren, in the midst of Your church w
 
 And again, I will put My trust in Him. And again, Behold Iand the children which God has given Me. There are some passages which we should never have thought related to the Messiah if the New Testament had not told us that they do. Hence I have no doubt that we much more often err in not seeing Christ in the Old Testament than in seeing Him there, for there may be many other passages besides these which are supposed to speak of Christ which do speak of Him.
 
-Forasmuch then as the children are partakers of flesh and blood, He also Himself likewise took part of the same, that through death He might destroy him that had the power of death, that is, the devil. [See Sermon #166, Volume 4&mdash;the destroyer destroyed.] By His own death, Christ broke that evil
+Forasmuch then as the children are partakers of flesh and blood, He also Himself likewise took part of the same, that through death He might destroy him that had the power of death, that is, the devil.  By His own death, Christ broke that evil
 
 power which brought death into the world with its long trail of woe! He did this, not by His example, not even by His life, but by His death! Therefore let those who speak slightingly of His atoning Sacrifice see their folly, for it is through death that Christ destroys "him that had the power of death, that is, the devil."
 
-16. And deliver them who through fear of death were all their lifetime subject to bondage. For verily He took not on Him the nature of angels, but He took on Him the seed of Abraham. [See Sermon #90, Volume 2&mdash;men chosen&mdash;fallen angels rejected.] Christ's great mission was not to save angels, but
+16. And deliver them who through fear of death were all their lifetime subject to bondage. For verily He took not on Him the nature of angels, but He took on Him the seed of Abraham.  Christ's great mission was not to save angels, but
 
 to save men. Therefore He came not in the nature of angels, but in the nature of men.
 
 17, 18. Therefore in all things it behooved Him to be made like unto His brethren, that He might be a merciful and faithful High Priest in things pertaining to God, to make reconciliation for the sins of the people. For in that He Himself has suffered being tempted, He is able to succor them that are tempted. "And this is the reason why He suf-fered&mdash;and why He became a man capable of suffering&mdash;that He might be able to succor the tempted. It was for this that Christ left Heaven, for this He was born of the virgin, for this He lived and for this He died, that He might be "able to
 
-succor them that are tempted." [See Sermons #487, Volume 9&mdash;a tempted savior&mdash;our best succor; #1974, Volume 33&mdash;the suffering savior's sympathy and #2885, Volume 50&mdash;Christ's sympathy with his people.]
+succor them that are tempted." 
 
 Hebrews 3:1. Therefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus. Think of Him, think how great He is, think what attention He deserves from all who believe in Him!
 
@@ -122,17 +122,15 @@ If we hold fast the confidence and the rejoicing of the hope firm unto the end. 
 
 11, 12. So I swore in My wrath, They shall not enter into My rest). Take heed, brethren, lest there be in any of you
 
-an evil heart of unbelief, in departing from the living God [See Sermon #2552, Volume 44&mdash;"take heed, brethren."] There was that "evil heart" in the Israelites&mdash;is there not a danger that it may be in you, also, who are partakers of the like nature?
+an evil heart of unbelief, in departing from the living God  There was that "evil heart" in the Israelites&mdash;is there not a danger that it may be in you, also, who are partakers of the like nature?
 
 But exhort one another daily, while it is called Today; lest any of you be hardened through the deceitfulness of
 
-sill. [See Sermon #620, Volume 116&mdash;a warning against hardness of heart.]
+sill. 
 
 If sin came to you openly proclaiming itself as sin, you would fight against it. But it is very cunning and deceitful and it gradually petrifies the heart and especially the heart of those who think that they will never provoke God by their sin. Pride has already begun to work in them&mdash;and where pride can work, every other sin finds elbowroom. God save us from the deceitfulness of sins!
 
-For we are made partakers of Christ if we hold the beginning of our confidence steadfast unto the end [See Sermon
-
-#1042, Volume 18&mdash;a persuasive to steadfastness.] You are to hold
+For we are made partakers of Christ if we hold the beginning of our confidence steadfast unto the end  You are to hold
 
 fast, to hold on and to hold out to the end&mdash;and the Grace you need in order to do this is waiting for you if you will but look for it and daily live under the power of it!
 

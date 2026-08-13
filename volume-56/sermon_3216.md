@@ -99,7 +99,7 @@ Hear, O My people, and I will speak, O Israel, and I will testify against you: I
 
 14, 15. Offer unto God thanksgiving; and pay your vows unto the most High; and call upon Me in the day of
 
-trouble: I will deliver you, and you shall glorify Me. [See Sermons #1505, Volume 25&mdash;prayer to god in trouble an acceptable sacrifice and #1876, Volume 31&mdash;robinson crusoe's text.] See the three ways of
+trouble: I will deliver you, and you shall glorify Me.  See the three ways of
 
 praising God? One is by giving Him your grateful thanksgiving. Banish your murmurings. Sweep away your mistrusts and let your mouth be filled with His praise all the daylong! Then the next way of praising God is by paying your vows unto Him&mdash;let your constant prayers and offerings to God prove the gratitude of your heart. And the last and sweetest way of praising God is to call upon Him in the day of trouble. There are many of you who are in trouble at this moment, therefore call upon God! Perhaps you say, "That will benefit me, but how will it glorify Him?" Why, God gets much honor out of hearts that dare to trust Him! If you can cast your burden upon the Lord, you will as much honor Him as angels do when, with veiled faces, they cry, "Holy, holy, holy, is the Lord of Hosts: the whole earth is full of His Glory." We adore His wisdom, His faithfulness, His love, His Grace, His Truth, His power when we believe that in the darkest night He can bring us sudden daylight and that in the ebb tide of our affairs He can bring the floods back again. Christian, honor your God by calling upon Him! With all your difficulties, doubts and fears, call upon God and He will deliver you, and you shall glorify Him! Now comes another change&mdash;
 

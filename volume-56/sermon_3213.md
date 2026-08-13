@@ -126,19 +126,15 @@ Omagnify the Lord with me. There is a sweet contagion about the praise of God. W
 
 3-4. Andlet us exalt His name together. Isought the Lord, andHe heardme, and deliveredme from allmy fears. There is nothing that is so effective as personal testimony to the Lord's saving power. How often is the skill of a physician commended by the grateful testimony of the patients who have been healed by him! So, shall not the prayer-hearing God be commended by those of us who have had our prayers answered by Him? Let us not be slow to say, "I sought the Lord and He heard me, and delivered me from all my fears."
 
-They looked unto Him and were lightened: and their faces were not ashamec. [See Sermon #195, Volume 4&mdash;looking unto
-
-Jesus.] "They looked unto Him"-a whole army of them, an
+They looked unto Him and were lightened: and their faces were not ashamec.  "They looked unto Him"-a whole army of them, an
 
 innumerable company&mdash;"They looked unto Him and were lightened: and their faces were not ashamed." There never was a face that was ashamed of being turned Christward and Godward!
 
-This poor man cried, and the Lord heard him, and saved him out of all his troubles. [See Sermon #2193, Volume 27&mdash;a
-
-poor man's cry&mdash;and what came of it.] Here David speaks of himself again, but he refers to himself in the third person&mdash;"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
+This poor man cried, and the Lord heard him, and saved him out of all his troubles.  Here David speaks of himself again, but he refers to himself in the third person&mdash;"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
 
 The angel of the Lord encamps round about them that fear Him, and delivers them. The great Angel of the Covenant, the Lord Jesus Christ, surrounds with His army the dwellings of the saints and takes care to have them in safe keeping.
 
-8-10. O taste and see that the Lord is good: blessed is the man that trusts in Him. O fear the Lord, you His saints. For there is no need to them that fear Him. The young lions do lack and suffer hunger: but they that seek the Lord shall not want any good thing.[See Sermon #65, Volume 2&mdash;lions lacking but the children satisfied.] We are often in need because we are not seeking the Lord, but are seeking what we think we need, whereas, if we sought Him and left the supply of our needs to Him, He would supply all our need according to His riches in Glory by Christ Jesus. Christ's command is, "Seek you first the Kingdom of God and His righteousness, and all these things shall be added unto you." Men think that they will not get what they want except they seek it, but if they seek God, He will give them what they really need even if He does not give them all that they want!
+8-10. O taste and see that the Lord is good: blessed is the man that trusts in Him. O fear the Lord, you His saints. For there is no need to them that fear Him. The young lions do lack and suffer hunger: but they that seek the Lord shall not want any good thing. We are often in need because we are not seeking the Lord, but are seeking what we think we need, whereas, if we sought Him and left the supply of our needs to Him, He would supply all our need according to His riches in Glory by Christ Jesus. Christ's command is, "Seek you first the Kingdom of God and His righteousness, and all these things shall be added unto you." Men think that they will not get what they want except they seek it, but if they seek God, He will give them what they really need even if He does not give them all that they want!
 
 Come, you children, hearken unto me. This man of God has made his confession to the saints and now he tells it to the children. There is nothing like working on material that will last&mdash;and those who are now children will, most of them, be alive when those who are now old men are dead and gone. So David says, "Come you children, hearken unto me"&mdash;
 

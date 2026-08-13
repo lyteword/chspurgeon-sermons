@@ -123,15 +123,13 @@ Though I might also have confidence in the flesh. "If any man might trust in out
 
 4-6. If anyone else thinks he may have confidence in the flesh, I more: circumcised the eight day, of the stock of Israel, of the tribe ofBenjamin, an Hebrew of the Hebrews; as touching the Law, a Pharisee; concerning zeal, persecuting the Church; touching the righteousness which is in the Law, blameless. So that if anybody could have boasted of what he was by birth, what he was by profession, what he was by the display of religious zeal&mdash;Paul could have boasted as boldly as anyone could, for in all those respects he was second to nobody! You know that it is a very easy thing, or it ought to be a very easy thing, for some people to be humble, for they have nothing to be proud of&mdash;but here is a man who had much of which he might have been proud! According to the letter of the Law, he was a diamond of the first water, yet see what a different verdict he gives after Divine Grace has opened his eyes!
 
-7-9. But what things were gain to me, those I counted loss for Christ Yes, indeed, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in Him, not having my own righteousness, which is of the Law, but that which is through the faith of Christ, the righteousness which is of God by faith. [See Sermon #1357, Volume 23&mdash;a businesslike account.] Everything else must go in order to secure that.
+7-9. But what things were gain to me, those I counted loss for Christ Yes, indeed, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in Him, not having my own righteousness, which is of the Law, but that which is through the faith of Christ, the righteousness which is of God by faith.  Everything else must go in order to secure that.
 
 Paul thinks that to be righteous by faith is infinitely better than all the righteousness that can come by works and ceremonies. He therefore utterly despises that which he once thought to be more precious that gold! And he takes possession of, as his greatest treasure, that which he once trampled in the mire. Now his great desire is&mdash;
 
 10-12. That I may know Him, and the power of His Resurrection, and the fellowship of His sufferings, being made comfortable unto His death; if by any means I might attain unto the resurrection of the dead. Not as though I had already attained, either were already perfect You, perhaps, suppose that Paul's present satisfaction arises out of a consciousness of personal perfection, but it is not so. He has not won the race yet&mdash;his joy arises from the fact that he is on the right course and that he is running in the right direction! "Not as though I had already attained, either were already perfect."
 
-But I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus. [See Sermon #2315,
-
-Volume 39&mdash;paul apprehended and apprehending.] "I want to lay
+But I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus.  "I want to lay
 
 hold of that for which Christ has laid hold of me. He has grasped me in order to make me perfect and I want to grasp that perfection. He has laid hold of me to rid me of my sin and I want to lay hold of a clean riddance of sin, apprehending that for which also I am apprehended of Christ Jesus."
 
@@ -141,10 +139,10 @@ hold of that for which Christ has laid hold of me. He has grasped me in order to
 
 Ofwhom Ihave toldyou often, andnow tellyou even weeping, that they are the enemies ofthe Cross ofChrist
 
-[See Sermons #102, Volume 2&mdash;false professors solemnly warned and #2553, Volume 44&mdash;the enemies of the cross of Christ.] The worst enemies that the Cross of Christ has are the enemies inside the professing Church of Christ!
+ The worst enemies that the Cross of Christ has are the enemies inside the professing Church of Christ!
 
 Whose endis destruction, whose Godis their belly, and whose glory is in their shame, who mind earthly things. They call themselves spiritual, yet they live for earthly things, indulging their appetites, living for self, yet pretending to be Christians, whereas selfishness is the very reverse of Christianity.
 
 20, 21. For our conversation is in Heaven; from where also we look for thee Savior, thee LordJesus Christ: who shall change our vile body, that it may be fashioned like unto His glorious body, according to the working whereby He is able
 
-even to subdue all things unto Himself [See Sermon #973, Volume 17&mdash;the power of Christ illustrated by THE resurrection.]
+even to subdue all things unto Himself 

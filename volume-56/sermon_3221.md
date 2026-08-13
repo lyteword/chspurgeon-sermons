@@ -2,7 +2,7 @@
 
 "And yet there is room." Luke 14:22.
 
-I reminded you, this morning, [See Sermon #485, Volume 8&mdash;no room for Christ in the inn.] that there was no room for Christ and His parents in the inn at Bethlehem&mdash;and also that there were then other places where, although there was no room for Christ, far inferior persons found a welcome and entertainment. I need, this evening, to convince you that although there are still many sinners who seem to have no room for Christ in their hearts and lives, yet there is plenty of room for sinners in the heart and love of Christ! And I am going to give them an earnest, tender, affectionate invitation to come to Christ while "yet there is room." You who have hitherto been strangers to the Grace of God. You who, as yet, have never feasted at the Gospel Banquet, you who have, until now, been content with this world's frothy dainties and have never tasted that which is substantial and satisfying for time and for eternity&mdash;to you, even to you&mdash;comes the message of our text, "yet there is room."
+I reminded you, this morning,  that there was no room for Christ and His parents in the inn at Bethlehem&mdash;and also that there were then other places where, although there was no room for Christ, far inferior persons found a welcome and entertainment. I need, this evening, to convince you that although there are still many sinners who seem to have no room for Christ in their hearts and lives, yet there is plenty of room for sinners in the heart and love of Christ! And I am going to give them an earnest, tender, affectionate invitation to come to Christ while "yet there is room." You who have hitherto been strangers to the Grace of God. You who, as yet, have never feasted at the Gospel Banquet, you who have, until now, been content with this world's frothy dainties and have never tasted that which is substantial and satisfying for time and for eternity&mdash;to you, even to you&mdash;comes the message of our text, "yet there is room."
 
 My first question concerning the text is, where is there room? And the answer is, there is room in the Fountain opened for sin and for uncleanness! There is room for you to be washed and to be made clean. Vast multitudes have gone into that Fountain black as the thickest night&mdash;and they have come up from the washing "whiter than snow." Innumerable offenses have there been washed away, but the Fountain has lost none of its cleansing power, nor will it until the last elect soul has been washed therein, as Cowper so confidently and so truly sings&mdash;
 
@@ -89,17 +89,15 @@ Then said He also to him that bade Him, When you make a dinner or a supper, call
 
 16, 17. A certain man made a great supper and bade many: and sent his servants at supper time to say to them that
 
-were bidden, Come, for all things are now ready. [See Sermon #1354, Volume 23&mdash;all things are ready, come.] They had accepted the invitation, so they were pledged to be present but, in the meantime, they had changed their minds with regard to their intended host&mdash;and they were unwilling to grace his feast.
+were bidden, Come, for all things are now ready.  They had accepted the invitation, so they were pledged to be present but, in the meantime, they had changed their minds with regard to their intended host&mdash;and they were unwilling to grace his feast.
 
-And they all with one consent began to make excuses. The first said unto him, I have bought a piece of ground, and I must go and see it I pray you have me excused. Yet it was supper time and people do not generally go to see pieces of ground at night! And if the man had bought the land, he ought to have seen it before he bought it! People do not generally buy land without looking at it. A bad excuse is worse than none. [See Sermon #578, Volume 10&mdash;a bad excuse is worse than
-
-none.] and this is one of those excuses which will not hold water
+And they all with one consent began to make excuses. The first said unto him, I have bought a piece of ground, and I must go and see it I pray you have me excused. Yet it was supper time and people do not generally go to see pieces of ground at night! And if the man had bought the land, he ought to have seen it before he bought it! People do not generally buy land without looking at it. A bad excuse is worse than none.  and this is one of those excuses which will not hold water
 
 for a minute!
 
 And another said, I have bought five yoke of oxen, and I go to inspect them: I pray you have me excused. He pretended that he had bought five yoke of oxen without inspecting them and that he wanted to inspect them after he had bought them, when, of course, he could not cancel the bargain! A likely story! But, when men want to make an excuse, and they have no truth to serve as the raw material, they can always make one out of a lie!
 
-And another said, I have married a wife, and therefore I cannot come. [See Sermon #2122, Volume 36&mdash;a straight talk.] This man did not ask to be excused&mdash;he had married a wife, so
+And another said, I have married a wife, and therefore I cannot come.  This man did not ask to be excused&mdash;he had married a wife, so
 
 that settled the matter! Of course he could not go to the feast.
 
@@ -113,6 +111,6 @@ And the servant said, Lord, it is done as you have commanded, and yet there is r
 
 And the lord said unto the servant, Go out into the highways and hedges, and compel them to come in, that my
 
-house may be filled. [See Sermon #227, Volume 5&mdash;compel them to come in.] "Bring in highwaymen and hedge-birds, those that have no place where to lay their heads&mdash;fetch them in by force if necessary, 'that my house may be filled.'"
+house may be filled.  "Bring in highwaymen and hedge-birds, those that have no place where to lay their heads&mdash;fetch them in by force if necessary, 'that my house may be filled.'"
 
 For I say unto you, That none of those men which were bidden shall taste of my supper. They were invited, yet they would not come. But others shall come and fill the tables and the great feast shall be furnished with guests! No provisions of mercy will ever be wasted. If you who are the sons and daughters of godly parents, or you who are the regular hearers of the Word will not have Christ, then others shall! If you hear, but hear in vain, then the rank outsiders shall be brought in and they shall feed upon the blessed provisions of the Infinite Mercy of God and God shall be glorified! But terrible will be your doom when the great Giver of the Gospel Feast says concerning you and those like you, "None of those men which were bidden shall taste of My supper."

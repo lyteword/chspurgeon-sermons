@@ -84,11 +84,11 @@ thank God for the Divine Grace which these Corinthians had! Yet how seldom do we
 
 5, 6. That in everything you are enriched by Him, in all utterance, and in all knowledge; even as the testimony of
 
-Christ was confirmed in you [See Sermon #2875, Volume 50&mdash;confirming the witness of Christ.] The Church at Corinth was an important Church, with more than the usual number of speaking men among the members. This led to mischief, but had they known how to use this talent aright, the Church at Corinth might have been of great service! Instead, it split itself up into little parties and became one of the worst churches that then existed, as certain communities which imitate them in this present day, have also done.
+Christ was confirmed in you  The Church at Corinth was an important Church, with more than the usual number of speaking men among the members. This led to mischief, but had they known how to use this talent aright, the Church at Corinth might have been of great service! Instead, it split itself up into little parties and became one of the worst churches that then existed, as certain communities which imitate them in this present day, have also done.
 
 7, 8. So that you come behind in no gift: waiting for the coming of our Lord Jesus Christ: who shall also confirm you unto the end, that we may be blameless in the day of our Lord Jesus Christ Paul continues to recognize the abundance of their endowments and to express for them the utmost of affection. And then he adds his full conviction that God would prove the power of His Grace by keeping them unto the end, and then presenting them "blameless in the day of our Lord Jesus Christ."
 
-God is faithful, by whom you were called unto the fellowship of His Son Jesus Christ our Lord [See Sermon #2580, Volume 44&mdash;partnership with Christ.] As Paul wrote to the Thessalo-
+God is faithful, by whom you were called unto the fellowship of His Son Jesus Christ our Lord  As Paul wrote to the Thessalo-
 
 nians, "Faithful is He that calls you, who also will do it." To be called by the faithful God is the guarantee of everlasting salvation!
 
@@ -114,8 +114,6 @@ And the Greeks seek after wisdom. They would believe nothing but what could be p
 
 23-25. But we preach Christ crucified, unto the Jews a stumbling block, and unto the Greeks foolishness; but unto them which are called, both Jews and Greeks, Christis thepower ofGod, and the wisdom ofGod. Because the foolishness of God is wiser than men; and the weakness of God is stronger than men They call it foolishness, but it is wiser than men's wisdom! God at His lowest (if we can imagine such a thing) is wiser than man at his highest "and the weakness of God (if such a thing could be) is stronger than men."
 
-26-28. For you see your calling, brethren, how that not many wise men after the flesh, not many mighty, not many noble are called: but God has chosen the foolish things of the world to confound the wise; and God has chosen the weak things of this world to confound the things which are mighty; and base things of the world, and things which are despised, has God chosen, yes, and things which are not, to bring to nothing things that are. [See Sermon #587, Volume io&mdash;god's
-
-strange choice.] Those that do not even seem to have an existence&mdash;those that are so despicable that men do not deign to take any account of them&mdash;these are the very ones with which God shall break in pieces the many mighty errors of all the ages!
+26-28. For you see your calling, brethren, how that not many wise men after the flesh, not many mighty, not many noble are called: but God has chosen the foolish things of the world to confound the wise; and God has chosen the weak things of this world to confound the things which are mighty; and base things of the world, and things which are despised, has God chosen, yes, and things which are not, to bring to nothing things that are.  Those that do not even seem to have an existence&mdash;those that are so despicable that men do not deign to take any account of them&mdash;these are the very ones with which God shall break in pieces the many mighty errors of all the ages!
 
 29-31 That no flesh should glory in His Presence. But of Him are you in Christ Jesus, who ofGod is made unto us wisdom, and righteousness, and sanctifcation, and redemption: that, according as it is written, He that gloried, let him glory in the Lord.

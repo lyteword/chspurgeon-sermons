@@ -58,7 +58,7 @@ Since then, it ought always to have been with us, "a time to love" our Lord but,
 
 you. I can never forget that night in the Surrey Gardens Music Hall when such a terrible calamity happened while I was preaching to an immense congregation. I was blamed by many as though I had caused the catastrophe. For a time, it seemed as though my brain could not recover from the dreadful shock that it received when I realized what had taken place! My spirit had sunk to the very lowest depths of despair, but one day, as I was walking in the garden to which I had been taken for seclusion and quiet, all of a sudden this passage came to my mind&mdash;"Therefore God also has highly exalted Him and given Him a name which is above every name; that at the name of Jesus every knee should bow, of things in Heaven, and things in earth, and things under the earth; and that every tongue should confess that Jesus Christ is Lord,
 
-to the glory of God the Father." [See Sermon #101, Volume 2&mdash;the exaltation of Christ.] In a moment, the thought came to me that as long as Christ was exalted, it did not matter what became of me! If my King was crowned. If my Captain gained the victory, it did not matter even if He allowed me to be flung upon the dunghill as worthless and permitted my name to be slandered by every tongue and every pen! Then was my soul quieted and my heart found rest and, it was, indeed, to me, "a time to love" my Lord more than ever as I thought of His present exaltation and His future universal triumph!
+to the glory of God the Father."  In a moment, the thought came to me that as long as Christ was exalted, it did not matter what became of me! If my King was crowned. If my Captain gained the victory, it did not matter even if He allowed me to be flung upon the dunghill as worthless and permitted my name to be slandered by every tongue and every pen! Then was my soul quieted and my heart found rest and, it was, indeed, to me, "a time to love" my Lord more than ever as I thought of His present exaltation and His future universal triumph!
 
 Beloved, you have sometimes had a sense of sin that has made you thoroughly wretched. But you have gone again to the&mdash;
 
@@ -145,7 +145,7 @@ My sister, My spouse, you have ravished My heart with one of your eyes, with one
 
 Oh, what a miracle of mercy it is that Christ, Himself, should be unhearted by such foul and loathsome creatures as we were! Yet He loved us so that He would have us and, having determined to do so, He put a beauty upon us that is really now worthy of His love! I speak advisedly, for the righteousness of Christ and the sanctification of the Spirit have in them something so fair that Christ does not now love that which is unworthy of His love&mdash;that righteousness which He has Himself worked in us now rightly claims His affection.
 
-How fair is Your love, My sister, My spousef. [See Sermon #282, Volume 5&mdash;Christ's estimate of his people.] Hear that, O Spouse of Christ? Your love is often very cold, very feeble and, even at its best, it is not what you would have it to be, nor what it ought to be. Yet Jesus values it highly and says, "How fair is your love, My sister, My spouse!"
+How fair is Your love, My sister, My spousef.  Hear that, O Spouse of Christ? Your love is often very cold, very feeble and, even at its best, it is not what you would have it to be, nor what it ought to be. Yet Jesus values it highly and says, "How fair is your love, My sister, My spouse!"
 
 How much better is your love than wine! Yet He knows what the best wine is like, for He is one day to drink it new with us in His Father's Kingdom, yet He says that the love of His people is much better than wine, yes, even than that wine.
 
@@ -153,7 +153,7 @@ And the smell of your ointments than all spices! You know that He has the smell 
 
 11, 12. Your lips, O My spouse, drop as the honeycomb: honey and milk are under your tongue; and the smell of your garments is like the smell of Lebanon. A garden enclosed is My sister, My spouse; a spring shut up, a fountain
 
-sealed. [See Sermons #431, Volume 8&mdash;a secret and yet no secret and #1957, Volume 33&mdash;the Lord's own view of his church and people.] Oh, that my heart were like that at this moment! Jesus, shut the gates and shut out the world, and every wandering, wayward, sinful thought! Then shut Yourself in my heart and walk in it as in a garden that is walled around into which no intruders dare enter!
+sealed.  Oh, that my heart were like that at this moment! Jesus, shut the gates and shut out the world, and every wandering, wayward, sinful thought! Then shut Yourself in my heart and walk in it as in a garden that is walled around into which no intruders dare enter!
 
 13, 14. Your plants are an orchard of pomegranates, with pleasant fruits; camphire, with spikenard, spikenard and saffron; calamus and cinnamon, with all trees of frankincense; myrrh and aloes, with all the chief spices. Oh, that this were fully true of us&mdash;that all our thoughts, words, and actions, which are like the fruits of the garden, were as full of spices of heavenly fragrance as Jesus here declares that He thinks them to be! Yet, alas, how little we do for Him, though He sets such store by our little that He regards it as much!
 

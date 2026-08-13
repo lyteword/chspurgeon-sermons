@@ -111,13 +111,11 @@ And the people spoke against God, and against Moses, Why have you brought us up 
 
 And the Lord sent fiery serpents among the people, and they bit the people; and many people of Israel died. Therefore the people came to Moses and said, We have sinned, for we have spoken against the Lord, and against you; pray unto the Lord, that He take away the serpents from us. And Moses prayed for the people. Like a true mediator, he was always ready&mdash;even when they had most insulted him and grieved his meek and quiet spirit&mdash;still to bow the knee and intercede with the Lord on their behalf. The people implored him to ask that the serpents might be taken away from them, but apparently they still continued to trouble them. However, if God does not answer prayer in one way, He does in another. The fervent prayer of a righteous man may not prevail in the particular direction in which it is offered, but it "avails much" in some direction or other! Just as when the mists ascend, they may not fall upon the very spot from which they rose, but they fall somewhere. And true prayer is never lost&mdash;it comes back in blessing, if not according to our mind, yet according to Another mind that is kinder and wiser than our own!
 
-8, 9. And the Lord said unto Moses, Make you a fiery serpent, and set it upon a pole: and it shall come to pass, that everyone that is bitten, when he looks upon it, shall live. And Moses made a serpent of brass and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived. [See Sermons #285, Volume 5&mdash;
-
-man's ruin and God's remedy and #1500, Volume 25&mdash;number 1500&mdash;or, "lifting up the bronze serpent."]
+8, 9. And the Lord said unto Moses, Make you a fiery serpent, and set it upon a pole: and it shall come to pass, that everyone that is bitten, when he looks upon it, shall live. And Moses made a serpent of brass and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived. 
 
 John 3:1-3. There was a man of the Pharisees named Nicodemus, a ruler of the Jews: the same came to Jesus by night, and said unto Him, Rabbi, we know that You are a teacher come from God: for no man can do these miracles that You do, except God is with him. Jesus answered and said unto him, Verily, verily I say unto you, Except a man is born-
 
-again, he cannot see the Kingdom of God. [See Sermon #130, Volume 3&mdash;regeneration.] There must be a new birth because a new nature is absolutely necessary for the discernment of spiritual things. The natural man cannot comprehend spiritual things&mdash;they must be spiritually discerned. The new birth is therefore necessary that we may have a Spirit within us which can see or understand the Kingdom of God. But until a man is born-again, "he cannot see the Kingdom of God."
+again, he cannot see the Kingdom of God.  There must be a new birth because a new nature is absolutely necessary for the discernment of spiritual things. The natural man cannot comprehend spiritual things&mdash;they must be spiritually discerned. The new birth is therefore necessary that we may have a Spirit within us which can see or understand the Kingdom of God. But until a man is born-again, "he cannot see the Kingdom of God."
 
 4, 5. Nicodemus said unto Him, how can a man be born when he is old, can he enter the second time into his mother's womb, and be born? Jesus answered, Verily, verily, Isay unto you, Except a man is born of water and of the Spirit, he cannot enter the Kingdom of God. We understand the passage to mean, "Water, that is, the Spirit," but it may refer to the purifying influence of the Word as symbolized by water. I do not think that Baptism is referred to here at all.
 
@@ -125,9 +123,7 @@ That which is born of the flesh is flesh. Parents may be the most devout people 
 
 And that which is born of the Spirit is spirit It is only then, as we are born of the Spirit of God that there is any spiritual life in us whatever.
 
-7, 8. Marvel not that I said unto you, You must be born-again. The wind blows where it wills, and you hear the sound thereof, but cannot tell from where it comes and where it goes: so is everyone that is born of the Spirit [See Sermon
-
-#1356, Volume 23&mdash;the heavenly wind.] He undergoes a mysterious
+7, 8. Marvel not that I said unto you, You must be born-again. The wind blows where it wills, and you hear the sound thereof, but cannot tell from where it comes and where it goes: so is everyone that is born of the Spirit  He undergoes a mysterious
 
 change. He becomes a new man and he enters into a new life which others cannot comprehend. Though they hear the sound of it, they cannot tell from where this man's new life comes, or where it goes. He has become a spiritual person, not comprehended of natural men.
 
@@ -135,4 +131,4 @@ change. He becomes a new man and he enters into a new life which others cannot c
 
 11, 12. Verily verily I say unto you, We speak what We know, and testify what We have seen; and you receive not Our witness. IfIhave toldyou earthly things, and you believe not, howshallyou believe ifI tell you of heavenly things? "If, at the very entrance to the Kingdom of Heaven, you say, 'How can these things be?' what will you say if I take you into the central metropolis of the Truth of God and introduce you to the great King, Himself?"
 
-13-15. And no man has ascended up to Heaven, but He that came down from Heaven, even the Son of Man which is in Heaven. And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whoever believes in Him should not perish, but have eternal life. [See Sermon #153, Volume 3&mdash;the mysteries of the bronze serpent.]
+13-15. And no man has ascended up to Heaven, but He that came down from Heaven, even the Son of Man which is in Heaven. And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whoever believes in Him should not perish, but have eternal life. 

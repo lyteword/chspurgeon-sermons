@@ -16,7 +16,7 @@ Now, Christian, you too, are of a timid disposition and every now and then, your
 
 The clouds you so much dread
 
-Are big [yes, black] with mercy, and shall break
+Are big  with mercy, and shall break
 
 Li blessings on your head"?
 

@@ -2,7 +2,7 @@
 
 "We have found Him." John 1:45.
 
-[Another Sermon by Mr. Spurgeon on verses 43 to 45 is #2375, Volume 40&mdash;found by Jesus&mdash;and finding Jesus.]
+
 
 I hope there are many here who are seeking Christ, but I feel sure that there are with us many more who can truthfully say, "We have passed beyond that stage, for we have found Him." Others may declare that there never was such a Person as Jesus of Nazareth, but we know there was and still is, for, "we have found Him," and we are living in happy daily fellowship with Him! We bear our glad testimony to what the Grace of God has done for us and we say with Philip, "We have found Him, of whom Moses in the Law and the Prophets, did write, Jesus of Nazareth, the son of Joseph," whom we also worship as the Son of God.
 
@@ -79,9 +79,9 @@ And there is no need for anybody to go out of town in order to be a missionary t
 
 Exposition by C. H. Spurgeon: Acts2:1-21.
 
-[The following Exposition is the earlier portion of the one published with Sermon #3224, Volume 56&mdash;"repentance and remission".]
 
-Verses 1-8. And when the day of Pentecost [See Sermons #511, Volume 9&mdash;pentecost and #1783, Volume 30, also named pentecost.] was fully come, they were all with one accord in one place. And
+
+Verses 1-8. And when the day of Pentecost  was fully come, they were all with one accord in one place. And
 
 suddenly there came a sound from Heaven as of a rushing mighty wind, andit filledall the house where they were sitting. And there appeared unto them cloven tongues like as of fire, and it sat upon each of them. And they were all filed with the Holy Spirit and began to speak with other tongues, as the Spirit gave them utterance. And there were dwelling at Jerusalem, Jews, devout men out of every nation under Heaven. Now when this was told abroad, the multitude came together and were confounded because every man heard them speak in his own language. And they were all amazed and marveled, saying, one to another, Behold, are not all these which speak, Galileans? And how hear we every man in our own tongue, wherein we were born? These men, so far from being able to speak many languages, could not, by themselves, speak even one correctly! The Galileans dialect was a base degradation of the true Jewish tongue, so that the Galileans were always the subject of sneers and scoffing on account of their mispronunciation. There are several stories in the old Rabbinical writings, all intended to ridicule the Galileans&mdash;yet these men had now been taught to speak their own language perfectly and, what was still more marvelous&mdash;languages that they had never heard now came pouring forth
 

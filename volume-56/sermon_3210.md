@@ -2,7 +2,7 @@
 
 "Then Jesus said unto the twelve, Will you also go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life." John 6:67, 68.
 
-[See Sermons #2914, Volume 50&mdash;a mournful defection and #1646, Volume 28&mdash;a home question and a right answer.]
+
 
 without any preface, we will proceed at once to consider the first division of our subject, which is that the preaching of the doctrines of truth is often the means of separating the precious from the vile.
 

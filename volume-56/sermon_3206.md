@@ -64,7 +64,7 @@ Exposition by C. H. Spurgeon: Hebrews 12.
 
 After giving a long list of the heroes of faith, the Apostle adds&mdash;
 
-Verses 1-3. Therefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which does so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the Author and Finisher of our faith; who for the joy that was set before Him endured the Cross, despising the shame, and is set down at the right hand on the Throne of God. For consider Him&mdash;[See Sermon #1073, Volume 18&mdash;a honeyCOMB.] Look to Him, look at Him! Study Him-know all you
+Verses 1-3. Therefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which does so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the Author and Finisher of our faith; who for the joy that was set before Him endured the Cross, despising the shame, and is set down at the right hand on the Throne of God. For consider Him&mdash; Look to Him, look at Him! Study Him-know all you
 
 can about Him&mdash;meditate upon Him&mdash;
 
@@ -86,23 +86,19 @@ For they verily for a few days chastened us after their ownpleasure; but He for 
 
 Now no chastening for the present seems to be joyous,How could it be? It would lose the very nature of chastening if there were joy in it.
 
-But grievous: nevertheless afterward&mdash;[See Sermon #528, Volume 9&mdash;chastisement&mdash;now and afterwards.] These are truly blessed words, "nevertheless afterward"&mdash;
+But grievous: nevertheless afterward&mdash; These are truly blessed words, "nevertheless afterward"&mdash;
 
 11-13. It yields the peaceable fruit of righteousness unto them who are exercised thereby. Therefore lift up the hands which hang down, and the feeble knees; and make straight paths for your feet, lest that which is lame be turned out of the
 
-way; but let it rather be healed. [See Sermon #2543, Volume 49&mdash;lame sheep.] Come, children of God, do not be despondent because of your tribulations. You are in a race, so run even while you are smarting from your chastisements! Still run, and keep on running until you win the prize!
+way; but let it rather be healed.  Come, children of God, do not be despondent because of your tribulations. You are in a race, so run even while you are smarting from your chastisements! Still run, and keep on running until you win the prize!
 
-Follow peace with all men, and holiness, without which no man shall see the Lord. [See Sermon #2902, Volume 50&mdash;
-
-holiness demanded.] The holy God can only be seen by holy eyes.
+Follow peace with all men, and holiness, without which no man shall see the Lord.  The holy God can only be seen by holy eyes.
 
 He must make us like Himself before we can see Him.
 
 Looking diligently lest any man fail of the Grace of God. Seeming to have Divine Grace and yet not really having it.
 
-Lest any root of bitterness springing up trouble you, and thereby many are defiled. [See Sermon #940, Volume 16&mdash;the
-
-winnowing fan.] Sin is a bitter thing and a defiling thing and
+Lest any root of bitterness springing up trouble you, and thereby many are defiled.  Sin is a bitter thing and a defiling thing and
 
 unless we look diligently, it will grow in our hearts like the weeds grow in our gardens after a heavy rain&mdash;it will spring up before we are aware of it.
 
@@ -114,9 +110,7 @@ For you know how that afterward, when he would have inherited the blessing, he w
 
 18-21. For you are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest, and the sound of a trumpet, and the Voice of words; which Voice they that heard entreated that the word should not be spoken to them any more: (for they could not endure that which was commanded, and if so much as a beast touch the mountain, it shall be stoned, or thrust through with a dart: and so terrible was the sight, that Moses said, I exceedingly fear and quake). We have not come to that mount of terror, for we are not under the Law but under Grace&mdash;we have come to a very different place from that.
 
-22-24. But you are come unto Mount Zion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and Church of the First-Born, which are written in Heaven, and to God, the Judge of all, and to the spirits of just men made perfect. And to Jesus, the Mediator of the New Covenant, and to the blood of sprinkling that speaks better things than that of Abel. [See Sermons #211, Volume 4&mdash;the voice of the
-
-blood of Christ; #708, Volume12&mdash;the blood of able and the blood of Jesus; #1888, Volume 32&mdash;the blood of sprinkling (first sermon) and #1889, Volume 32&mdash;the blood of sprinkling (second sermon).] We are
+22-24. But you are come unto Mount Zion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and Church of the First-Born, which are written in Heaven, and to God, the Judge of all, and to the spirits of just men made perfect. And to Jesus, the Mediator of the New Covenant, and to the blood of sprinkling that speaks better things than that of Abel.  We are
 
 come to that blood, and it is that blood which has made such a change in us! We may rejoice together, now, and we ought to do so if we are all one in Christ Jesus.
 

@@ -2,7 +2,7 @@
 
 "Behold the Lamb of God, which takes away the sin of the world." John 1:29.
 
-[Two other Sermons by Mr. Spurgeon upon the same text are #1987, Volume 33&mdash;"behold the lamb of God" and #2646, Volume 45&mdash; the baptist's message.]
+
 
 Before we plunge into our main subject, it is necessary to notice what is implied in our text, which is that "the world" was lost through sin and that all mankind had become guilty before God. You, therefore, my dear Hearer, are one of those who are thus guilty. Though you may never have broken the laws of your country, nor even the rules of propriety. Though you may be both amiable and admirable in your general deportment, yet, for all this, as "there is none righteous, no, not one," you, also, are included among the unrighteous! It matters not what religious professions you may have made, or what outward forms of godliness you may have observed&mdash;unless you have a better righteousness than your own, you are a lost sinner! I believe there is now present a Brother who, when he was first convicted of sin, tried hard to make himself a better man under the mistaken idea that this was the way of salvation. And when, one Sabbath night, he heard me say that all the reforms you could ever make upon your old nature would be useless as to the matter of salvation, but that, "you must be born-again," he felt very angry and made a vow that he would never be found listening to me again! Yet here he is, rejoicing that the Lord has taught him to see himself as a lost, ruined sinner and to put his heart's trust in Jesus Christ, the sinner's Savior!
 
@@ -54,9 +54,7 @@ Let me also, dear Friend, warn you against the notion that your prayers can save
 
 "None but Jesus, none but Jesus, Can do helpless sinners good!" This great Truth of God, that believingis the Divinely appointed means of salvation, may be illustrated by the old
 
-story of the children of Israel and the serpent of brass. [Other Sermons by Mr. Spurgeon upon this subject, are as follows&mdash;#153, Volume 3&mdash;the mysteries of the bronze serpent; #285, Volume 5&mdash;man's ruin and God's remedy and #1500, Volume 25&mdash;number 1500&mdash;or, lifting up the
-
-bronze serpent.] You have heard it scores of times, yet I beg you
+story of the children of Israel and the serpent of brass.  You have heard it scores of times, yet I beg you
 
 to listen to it once more! When the people were bitten by the fiery serpents in the wilderness, they were commanded to look at the serpent of brass that was lifted upon a pole&mdash;and whoever looked, lived. They had nothing to do but look! Moses lifted up the serpent and pointed to it and cried, "Look! Look! Look! And be healed." Possibly there were some who said they were bitten too badly to look. Well, if they could not or did not look, they would die. They might think it was a proof of their humility to say, "We are too sick to be cured," but if they did so, they would die whether they were humble or not! O my Hearer, do not be lost through a mock humility which is really abominable pride! You are not too great a sinner to be saved! I will venture to say that you will dishonor Christ if you ever think such a thing! So let not that sinful thought destroy you!
 
@@ -94,9 +92,7 @@ As many as received Him, to them gave He power to become the sons of God, even t
 
 worked in them to make them different from the rest of their countrymen. And truly there was, for these were twice-born men&mdash;
 
-Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God [See Sermon #2259,
-
-Volume 38&mdash;the simplicity and sublimity of salvation.] So that those
+Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God  So that those
 
 who receive Christ, those who truly believe on Christ, are people who have been born, as others have notbeen born, by a new birth from Heaven&mdash;a supernatural birth, so that they are a people set apart by themselves as those who have been created twice&mdash;first as human beings just like others, and then as new creatures in Christ Jesus!
 
@@ -116,4 +112,4 @@ Him"&mdash;
 
 31-34. But that He should be made manifest to Israel, therefore am I come baptizing with water. And John bore record, saying, I saw the Spirit descending from Heaven like a dove, and it abode upon Him. And I knew Him not: but He that sent me to baptize with water, the same said unto me, Upon whom you shall see the Spirit descending, and remaining on Him, the same is He which baptizes with the Holy Spirit. And I saw, and bare record that this is the Son of God. Since John's time, many others have borne similar testimony. We, also, have received Him and rejoice to say that He has baptized us with the Holy Spirit. All that John said of Him is true&mdash;and much more than John said is also true. He is the Lamb of God who has taken upon Himself the sin of all who believe in Him and, therefore, He is able to save unto the uttermost all that come unto God by Him. Oh, that all men would receive the testimony concerning Him which we find in this blessed Book&mdash;and which we delight to repeat in His name!
 
-[See Sermons #858, Volume 15&mdash;the fullness of Jesus THE treasury of saints and #1169, Volume 20&mdash;THE fullness of Christ.]
+
