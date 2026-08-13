@@ -86,7 +86,7 @@ disciples, very much cast down, so their Divine Master, full of infinite tendern
 
 In My Father's house are many mansions: if it were not so, I would have told you. "You have all My heart, so I have no secrets from you. 'If it were not so, I would have told you.' Even in going away from you, I am going away for your good."
 
-I go to prepare a place for you [See Sermon #2751, Volume 47&mdash;"A PREPARED PLACE FOR a PREPARED PEOPLE"] "I am all yours, and always yours, and everywhere yours&mdash;and I am doing everything for you."
+I go to prepare a place for you  "I am all yours, and always yours, and everywhere yours&mdash;and I am doing everything for you."
 
 And if I go and prepare a place for you, I will come again, and receive you unto Myself "I will not send an angel to fetch you, but I will Myself come for you. If you die, I will come for you in that way. But if you live on until my Second Advent, 'I will come again, and receive you unto Myself.'"
 
@@ -98,7 +98,7 @@ Thomas said unto Him, Lord, we know not where You go; and how can we know the wa
 
 Sometimes to put your trouble down in black and white is a quick way to get rid of it&mdash;but to bring it to your Lord in prayer is a still better plan!
 
-Jesus said unto him, Iam the way, the truth, and the life: no man comes unto the Father, but byMe. [See Sermons #245,Volume 5&mdash;THE WAY TO GOD and #942, Volume 16&mdash;THE WAY.] How
+Jesus said unto him, Iam the way, the truth, and the life: no man comes unto the Father, but byMe.  How
 
 impossible it is to fully describe our Lord in human language! He is going away, yet He is, Himself, the way! And He is, Himself, the beginning and the end&mdash;He is everything to His people&mdash;"the way, the truth, and the life." We are obliged to have mixed metaphors when we talk of Christ, for He is the mixture of everything that is delightful and precious. All over glorious is our Lord&mdash;there is no way of setting Him forth to the full in our poor halting speech.
 
@@ -114,9 +114,7 @@ If you had known Me, you would have known My Father also: and from henceforth yo
 
 15, 16. If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter, that He may abide with you forever. There was the One who would enable the disciples to meet every trial&mdash;
 
-that other Comforter [See Sermons #4, Volume 1&mdash;THE PERSONALITY OF THE HOLY SPIRIT; #5, Volume 1&mdash;THE COMFORTER; #1074, Volume 18&mdash;THE
-
-PARACLETE and #2074, Volume 35&mdash;INTIMATE KNOWLEDGE OF THE HOLY SPIRIT.] whom Christ promised to them! Their trouble was that their Lord was going away from them. That other Comforter made amends for that and He will make amends to you, Believer, for every form of trial to which you may be exposed. Is it bodily weakness? Is it the infirmity of old age? Is it depression of spirit? Is it losses and crosses at home? Is it crooked things that cannot be made straight? Well, Christ's promise still stands good, "I will pray the Father, and He shall give you another Comforter, that He may abide with you forever."
+that other Comforter  whom Christ promised to them! Their trouble was that their Lord was going away from them. That other Comforter made amends for that and He will make amends to you, Believer, for every form of trial to which you may be exposed. Is it bodily weakness? Is it the infirmity of old age? Is it depression of spirit? Is it losses and crosses at home? Is it crooked things that cannot be made straight? Well, Christ's promise still stands good, "I will pray the Father, and He shall give you another Comforter, that He may abide with you forever."
 
 Even the Spirit of Truth: whom the world cannot receive, because it sees Him not, neither knows Him: but you know Him."You are on familiar terms with Him. You are intimate with Him. You know Him."
 
@@ -128,7 +126,7 @@ Even the Spirit of Truth: whom the world cannot receive, because it sees Him not
 
 which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, whatever I have said unto you. Peace I leave with you, My peace I give unto
 
-you. [See Sermons #247, Volume 5&mdash;THE BEST OF MASTERS and #300, Volume 6&mdash;SPIRITUAL PEACE.] He had given them peace while He was with them. His Divine Presence had been their continual comfort. But now, although He was going away from them, He would leave His peace behind Him as the most precious legacy that He could bequeath to them&mdash;"Peace I leave with you, My peace I give unto you."
+you.  He had given them peace while He was with them. His Divine Presence had been their continual comfort. But now, although He was going away from them, He would leave His peace behind Him as the most precious legacy that He could bequeath to them&mdash;"Peace I leave with you, My peace I give unto you."
 
 27, 28. Not as the world gives, give I unto you. Let not your heart be troubled, neither let it be afraid. You have heard how I said unto you, I go away, and come again unto you. If you loved Me, you would rejoice&mdash;. "I know that you do love Me, but if you really acted as if you loved Me, you would rejoice."
 

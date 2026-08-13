@@ -101,19 +101,19 @@ By faith Abel offered unto God a more excellent sacrifice than Cain, by which he
 
 By faith Enoch was translated that he should not see death: and was not found, because God had translated him: for before his translation he had this testimony, that he pleased God. It was by faith, not by works, that this truly gracious man, "was translated that he should not see death." We never read of any unbeliever, "that he pleased God,"
 
-but this is the Inspired testimony concerning Enoch. [See Sermons #1307, Volume 22&mdash;ENOCH; #107, Volume 3&mdash;FAITH; #2100, Volume 35&mdash; FAITH ESSENTIAL TO PLEASING GOD; #2513, Volume 43&mdash;HOW TO PLEASE GOD and #2740, Volume 47&mdash;WHAT IS ESSENTIAL IN COMING TO GOD]
+but this is the Inspired testimony concerning Enoch. 
 
 But without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him. No one can come to God if he does not believe that there is a God and that He justly dispenses rewards and punishments.
 
 By faith Noah, being warned of God of things not seen as yet, moved with fear, prepared an ark to the saving of
 
-his house. [See Sermon #2147, Volume 36&mdash;NOAH's FAITH, FEAR, OBEDIENCE AND SALVATION] By which he condemned the world, and became heir of the righteousness which is by faith. There is an unholy fear which is cast out by perfect love, but there is a holy fear, a filial fear, which dwells most happily with faith. So was it with Noah, who, "by faith...moved with fear, prepared an ark to the saving of his house."
+his house.  By which he condemned the world, and became heir of the righteousness which is by faith. There is an unholy fear which is cast out by perfect love, but there is a holy fear, a filial fear, which dwells most happily with faith. So was it with Noah, who, "by faith...moved with fear, prepared an ark to the saving of his house."
 
 By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed: and he went out, not knowing where he went Though Abraham did not know where he was going, God knew, and that was quite sufficient for the Patriarch. As a little child is willing to be led by his parent, so Abraham was willing to be led by God, even though that meant leaving his own country and his own people and going to the distant land which God intended to give him.
 
 10. By faith he sojournedin the land ofpromise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker
 
-is God. [See Sermon #2292, Volume 39&mdash;ABRAHAM, a PATTERN TO BELIEVERS.]
+is God. 
 
 He was only a sojourner in the land of promise, he knew that even the promised land was only a tenting-ground for him and his descendants, but he also knew that he was on his way to a Divinely planned and Divinely built city&mdash;not like the temporary cities of earth, which shall all perish and pass away, but a city with everlasting foundations, a city that will last as long as God, Himself, exists.
 

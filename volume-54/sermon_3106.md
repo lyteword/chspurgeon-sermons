@@ -2,9 +2,9 @@
 
 "As for you also, by the blood of your covenant Have set forth your prisoners out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you." Zechariah 9:11,12.
 
-[Another Sermon by Mr. Spurgeon on the same text, is #2839 , Volume 49&mdash; "PRISONERS OF HOPE"]
 
-THIS morning, [See Sermon #1186, Volume 20&mdash;THE BLOOD OF THE COVENANT]. I tried to show that in consequence of the blood of the Covenant having been shed and the Covenant having so been fulfilled, Jesus Christ was brought back out of the prison of the grave, set at liberty and exalted to indescribable Glory in the highest Heaven. I then showed that Jesus Christ is the Representative of all His people&mdash; that when He was set free, they were virtually set free, and that when He returned into Glory, He went there as their Representative, taking possession of the heavenly places in their name, so that, in due time, where He is, there they may also be. I had not time, this morning, to make a fitting application of our subject. But happily for us, here stands another text, an older one, and yet most suitable to come after the other, so I will use it now.
+
+THIS morning, . I tried to show that in consequence of the blood of the Covenant having been shed and the Covenant having so been fulfilled, Jesus Christ was brought back out of the prison of the grave, set at liberty and exalted to indescribable Glory in the highest Heaven. I then showed that Jesus Christ is the Representative of all His people&mdash; that when He was set free, they were virtually set free, and that when He returned into Glory, He went there as their Representative, taking possession of the heavenly places in their name, so that, in due time, where He is, there they may also be. I had not time, this morning, to make a fitting application of our subject. But happily for us, here stands another text, an older one, and yet most suitable to come after the other, so I will use it now.
 
 Jesus Christ has been delivered from the bondage of the grave and I have to remind you, first, that there are other prisoners who have been set free through the blood of the Covenant. Secondly, that there are otherpersons yet to be set free through the blood of the Covenant. And then I shall close with a few words in honor of the secret reason of their liberation&mdash;the blood of the Covenant.
 
@@ -81,9 +81,7 @@ your own ransom, though you would like to do that, but you are to take the liber
 
 My last words&mdash;and they shall be very few&mdash;are to be IN HONOR OF THE BLOOD OF THE COVENANT.
 
-To you who have believed in Jesus and who are now coming to His table, let me say&mdash;As we come to the Communion, let us think of the blood of the Covenant. If we are free men and women in Christ Jesus, it is because the blood of Jesus ratified the Covenant of our liberty. It is because God saw the blood and delivered us. Let me remind you of that beautiful verse in the Book of Exodus, from which I have preached more than once. [See Sermon #228, Volume 5&mdash;the
-
-BLOOD and #1251, Volume 21&mdash;THE SACRED LOVE-TOKEN] The blood of the
+To you who have believed in Jesus and who are now coming to His table, let me say&mdash;As we come to the Communion, let us think of the blood of the Covenant. If we are free men and women in Christ Jesus, it is because the blood of Jesus ratified the Covenant of our liberty. It is because God saw the blood and delivered us. Let me remind you of that beautiful verse in the Book of Exodus, from which I have preached more than once.  The blood of the
 
 paschal lamb, as you know, was to be sprinkled on the lintel and the two side posts of the houses of all the children of Israel. And what did God say about it? Did He say, "When you stand outside your house and look up at the blood I will save you?" No, He did not say that, but, "When I see the blood, I will pass over you." It is God's sight of the blood of Christ which, at bottom, is the reason for the salvation of the redeemed! How I rejoice to think that although my faith-sight of the blood gives me peace, still, if that eye of mine ever gets dim, it does not imperil my salvation, for God's eye is not dim and it is always fixed on the blood of His Son! In sacred contemplation the Father surveys the Sacrifice of His Son with supreme satisfaction&mdash;and as He sees the blood, He spares us for His Son's sake!
 

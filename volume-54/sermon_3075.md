@@ -96,9 +96,7 @@ Then said Saul to his servant, Well said; come, let us go. Saul was willing to b
 
 1 Samuel 10:1, 2. And they arose early: and it came to pass about the spring of the day, that Samuel called Saul to
 
-the top of the house, saying, Up, that I may send you away. And Saul arose, and they went out, both of them, he and Samuel, abroad. And as they were going down to the end of the city, Samuel said to Saul, Bid the servant pass on before us, (and he passed on), but stand you still a while, that I may show you the Word of God [See Sermon #1547, Volume 26&mdash;samuel
-
-AND THE YOUNG MAN SAUL.] Then Samuel took a vial of oil, and
+the top of the house, saying, Up, that I may send you away. And Saul arose, and they went out, both of them, he and Samuel, abroad. And as they were going down to the end of the city, Samuel said to Saul, Bid the servant pass on before us, (and he passed on), but stand you still a while, that I may show you the Word of God  Then Samuel took a vial of oil, and
 
 poured it upon his head, and kissed him, and said, is it not because the LORD has anointed you to be captain over His inheritance? When you are departed from me today. He gave Saul some signs by which he could confirm the truth of all that he had spoken to him&mdash;"When you are departed from me today."
 

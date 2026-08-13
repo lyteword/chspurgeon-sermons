@@ -12,7 +12,7 @@ First, then, LET US WATCH THAT TERRIBLE STORM.
 
 And let us notice, first, the Victim upon whom it fell. According to the text, the sword was to awake against One who is called by God, "My Shepherd," and who is further described as "the Man that is My Fellow, says the Lord of Hosts." We gather, therefore, that Jesus, who suffered in our place, holds the office of a Shepherd, a Shepherd appointed by God, and sent by Him to take care of the sheep. It is not my objective, at this time, to speak at length upon this office
 
-of the Lord Jesus Christ, [Mr. Spurgeon preached many Sermons upon Christ's office as Shepherd, including the following&mdash; Sermons #995, Volume 17&mdash;THE SHEEP AND THEIR SHEPHERD; #1877, Volume 32&mdash;OUR OWN DEAR SHEPHERD; #2120, Volume 35&mdash;THE SECURITY OF BELIEVERS&mdash;OR, SHEEP WHO SHALL NEVER PERISH and #3006, Volume 52&mdash;"THE LORD IS MY SHEPHERD"] but
+of the Lord Jesus Christ,  but
 
 just to remind you that, as Jacob, when he was shepherd to Laban, was responsible for all the flocks under his care, so has God committed His own chosen flock into the hands of Jesus, "that great Shepherd of the sheep," and He has become responsible for them. They will pass again under the hand of Him that counts them, and He will say to His Father, "Here I am, and the sheep that You did give into My hand. Of all that You gave Me, I have lost none." It is Christ's office to keep His sheep even to the end, and to lead them at last to lie down upon the hilltops of Heaven, not one of them having been lost by the way. Dear Friend, let us exult in this relationship between Christ and His people! We are as weak and foolish and as full of needs as sheep can be, but we have a Shepherd who perfectly understands us, who so loves us that He will preserve to the end even the very least among us!
 
@@ -64,9 +64,7 @@ So I close by noticing what this mercy is which comes to the people of God&mdash
 
 Next, "I will turn My hand of gracious working upon the little ones," as if we were, like the potter's vessels upon the wheel, only half fashioned as yet. But God will turn His hand upon us. He has done something to us and He will keep on doing more and more till He has made us perfect. Already the image of Jesus Christ is, in a measure, set upon all His chosen, but the Lord will keep His hand at work upon us until He has made our likeness to Christ complete. "Beloved, now are we the sons of God, and it does not yet appear what we shall be. But we know that when He shall appear, we shall be like He," for God's own hand working continually upon us shall make us so, and then "we shall see Him as He is." Is there not much joy in this thought?
 
-I think I ought to add here that as after our Lord had been smitten on Calvary, the day of Pentecost came and thousands were gathered into the Church&mdash;and in that respect God's hand was turned upon the little ones to gather them in, so I bless His name that He still has a chosen people whom He means to gather with His almighty hand of gracious power because He has smitten Christ in their place. And my hope concerning every sinner here lies in this Truth of God, that Jesus Christ has a people purchased with His blood, many of whom do not yet know this and, ignorant of Him, are still lying outside the fold. But them also He will bring in, that there may be one flock [See Sermon #1713, Volume 29&mdash;
-
-OTHER SHEEP AND ONE FLOCK] and one Shepherd. We preach the
+I think I ought to add here that as after our Lord had been smitten on Calvary, the day of Pentecost came and thousands were gathered into the Church&mdash;and in that respect God's hand was turned upon the little ones to gather them in, so I bless His name that He still has a chosen people whom He means to gather with His almighty hand of gracious power because He has smitten Christ in their place. And my hope concerning every sinner here lies in this Truth of God, that Jesus Christ has a people purchased with His blood, many of whom do not yet know this and, ignorant of Him, are still lying outside the fold. But them also He will bring in, that there may be one flock  and one Shepherd. We preach the
 
 Gospel to you unconverted people for this reason, because God, having smitten Christ in the sinner's place, has promised to lay His hand upon the little ones! And we trust that you may be among those upon whom He will lay His hand of Omnipotent Grace, and bring you in, that you may be His forever.
 
@@ -88,7 +86,7 @@ Psalm is followed by the twenty-third, which begins, "The Lord is my Shepherd; I
 
 would never have had that sweet twenty-third Psalm to sing if our Divine Shepherd had not been made, with groans and tears, to
 
-weep out the twenty-second Psalm, which begins with our Savior's saddest cry from the Cross. [See Sermons #2133, Volume 36&mdash;"my god, my GOD, WHY HAVE YOU FORSAKEN ME?"; #2562, Volume 44&mdash;CRIES FROM THE CROSS and #2803, Volume 48&mdash;THE SADDEST CRY FROM THE CROSS]
+weep out the twenty-second Psalm, which begins with our Savior's saddest cry from the Cross. 
 
 My God, My God! Why have You forsaken Me? Every word here is emphatic. Take the first two words "My God, My God. "These reveal our Savior's claim upon God as His God. Why have You forsaken Me? I can understand that others should leave Me, but why have You done so?" Then lay the stress upon the last word&mdash;"'Why have You forsaken Me&mdash;Your only begotten Son, your ever-obedient Son, your well-beloved Son?"
 
@@ -96,7 +94,7 @@ My God, My God! Why have You forsaken Me? Every word here is emphatic. Take the 
 
 But You are holy, O You that inhabit the praises of Israel. He will not bring any charge against God, even though He has left Him. And, Beloved, in your bitterest griefs never lay any blame upon your God. Like Job, say, "Shall we receive good at the hand of God, and shall we not receive evil? The Lord gave, and the Lord has taken away; blessed be
 
-the name of the Lord." [See Sermon 3025, Volume 54&mdash;FIFTEEN YEARS AFTER!]
+the name of the Lord." 
 
 4-6. Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and no man.&mdash;So low did Christ stoop, for our sake, that He became less than man! There is a little crimson worm, to which this passage alludes, which seems to be made altogether of blood&mdash;and Christ felt as if He were nothing but a mass of suffering, a poor trodden "worm, and no man."
 
@@ -128,13 +126,13 @@ They part My garments among them, and cast lots upon My vesture. Now He returns 
 
 I will declare Your name unto My brethren. "I shall live again. I shall see Peter and James and John, and many more whom I have loved&mdash;and I will talk with them about My Father."
 
-In the midst of the congregation will I praise You.[See Sermon #799, Volume 14&mdash;JESUS, THE EXAMPLE OF HOLY PRAISE] He knew that He would rise from the dead and that He would
+In the midst of the congregation will I praise You. He knew that He would rise from the dead and that He would
 
 praise God in the midst of His brethren.
 
 23, 24. You that fear the LORD, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction ofthe afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. He is telling Himself, in the little quiet interval just before He breathed out His soul, what His testimony would be concerning God&mdash;how He did hear Him and help Him at the last.
 
-25, 26. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the LORD that seek Him. [See Sermon #1312, Volume 22&mdash;good news for seekers]. He is Still talking to Himself about what WOuld happen after
+25, 26. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the LORD that seek Him. . He is Still talking to Himself about what WOuld happen after
 
 His death and Resurrection&mdash;how gracious men would praise the Lord and how He, Himself, would live again to praise God among them! He so realizes the existence of those whom He has redeemed, that He seems to talk to them as if they were actually present. He says&mdash;
 

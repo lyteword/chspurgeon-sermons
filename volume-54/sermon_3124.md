@@ -80,7 +80,7 @@ Whoever you may be, my dear Friend, though you may be nothing but a poor "somebo
 
 EXPOSITION BY C. H. SPURGEON: JOHN3.1-21.
 
-[This Exposition belongs to Sermon #3121, Volume 54&mdash;THE NECESSITY OF REGENERATION, but there was no space available for it there.]
+
 
 Let us once more read together part of this blessed soul-saving chapter. I suppose that more souls have been saved through the reading of this chapter than through almost any other portion of Holy Writ.
 
@@ -98,7 +98,7 @@ Is spirit. Now, the flesh cannot enter into the spiritual Kingdom, only the spir
 
 7, 8. Marvel not that I said unto you, You must be born-again. The wind blows where it wishes, and you hear the sound thereof, but cannot tell where it comes, and where it goes: so is everyone that is born of the Spirit. He is a mystery. The effect of the work of the Spirit upon him is seen in him, but no man understands what the Spirit of God is, or how He
 
-works, any more than he knows from where the wind [See Sermons #630, Volume 11&mdash;THE HOLY SPIRIT COMPARED TO THE WIND and #1356, Volume 23&mdash;THE HEAVENLY WIND]
+works, any more than he knows from where the wind 
 
 comes, or where it goes.
 
@@ -106,7 +106,7 @@ comes, or where it goes.
 
 "Are you profound philosophers, students deeply learned in classic lore, or wise concerning many of the mysteries of nature&mdash;yet know you not these things? What will be the good of all your knowledge if you do not know how to gain admission into the Kingdom of Heaven? It would be better for a man to be ignorant of all other things, and to know this one thing, than to have all possible human learning, and yet to miss this knowledge which is the most essential of all!
 
-Verily, verily, I say unto you. [See Sermon #3053, Volume 53&mdash;JESUS CHRIST's IDIOM.] Christ speaks with an authority that no mere human teacher can ever possess.
+Verily, verily, I say unto you.  Christ speaks with an authority that no mere human teacher can ever possess.
 
 We speak what We know, and testify what We have seen; and you receive not Our witness. In a certain sense, every true minister of Christ and every true child of God can say this, for we know that there is a spiritual Kingdom. We have seen it, we have entered into it and we can testify that there is another life which is as much superior to the ordinary life of men as the life of men is superior to that of the brutes that perish! And we know that we have that superior life. We have other eyes than these eyes that are visible, and other ears than the ears of our flesh. There is a higher and better life to be enjoyed even now, and he that believes in Christ has that life. "We speak what we know and testify what we have seen," and yet, though our testimony would be believed if we gave it concerning anything else, we are not believed when we witness concerning this higher and better life!
 
@@ -116,7 +116,7 @@ And you believe not, how shall you believe if I tell you of heavenly things?'Chr
 
 And no man has ascended up to Heaven, but He that came down from Heaven, even the Son of Man which is in Heaven. There was a nut that Nicodemus could not crack&mdash;a riddle that he could not solve&mdash;and the Savior left him thus puzzled, for the time being, that he might learn that unless he was taught of the Spirit, he could not understand the teaching of Christ. You and I, who have been taught of the Spirit, understand the meaning of these words, but Nicodemus did not, though he was "a master of Israel." Now follows another passage of Scripture which I always rejoice to read in this Chapter. There are two great Truths revealed here&mdash;the one is that we must be born-again and the other is that whoever believes in Christ is saved. Sometimes those two Truths seem to come into conflict with one another. A man says, "You say to me, 'Only believe, and you shall be saved.' And then, by-and-by, you tell me that I must be born-again. Are both these statements true?" Yes, they are both true, and they are both in this Chapter. We have been reading about the necessity of regeneration, now comes the glorious freeness of the Gospel of Christ!
 
-15. And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whoever believes in Him should not perish but have eternal life. You must be born into a new life if you are to be saved! How are you to have that great blessing? There is life for a look at Jesus Christ lifted up upon the Cross and lifted up in the preaching of the Gospel. Look to Him, then, and as surely as those who were bitten by the serpents in the wilderness were healed the moment that they looked at the serpent of brass, [See Sermon #153, Volume 3&mdash;the mysteries of the bronze serpent.] so surely shall every son or daughter of Adam who gives a faith-
+15. And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whoever believes in Him should not perish but have eternal life. You must be born into a new life if you are to be saved! How are you to have that great blessing? There is life for a look at Jesus Christ lifted up upon the Cross and lifted up in the preaching of the Gospel. Look to Him, then, and as surely as those who were bitten by the serpents in the wilderness were healed the moment that they looked at the serpent of brass,  so surely shall every son or daughter of Adam who gives a faith-
 
 look at the Crucified Savior, be saved at once and forever!
 

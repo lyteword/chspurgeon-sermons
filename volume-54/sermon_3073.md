@@ -115,7 +115,7 @@ In the four and twentieth day of the ninth month, in the second year ofDarius, c
 
 11-14. Thus says the LORD of Hosts, Ask now the priests concerning the Law, saying, If one bears holy flesh in the skirt of his garment, and with his skirt touches bread, or pottage, or wine, or oil, or any meat, shall it be holy? And the priests answered and said, No. Then said Haggai, If one that is unclean by a dead body touches any of these, shall it be unclean? And the priests answered and said, It shall be unclean. Then answered Haggai, and said, So is this people, and so is this nation before Me, says the LORD, and so is every work of their hands; and that which they offer there is
 
-unclean. [See Sermon #2495, Volume 42, DEFILED AND DEFILING.] That
+unclean.  That
 
 which is ceremonially holy cannot communicate its holiness to that which is unclean. But that which is unclean in the
 

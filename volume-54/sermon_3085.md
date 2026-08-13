@@ -62,7 +62,7 @@ And when I speak of ignorance of Christ, I do not mean ignorance of His name and
 
 And who are these that are thus redeemed from among men? They are those who believe in Jesus Christ! This definition is not more simple than conclusive to those to whom the work of the Spirit of God is intelligible. If you put your trust in Him, it is evident that Christ died for you in a way and manner in which He never died for Judas. He died for you so vicariously that the offenses you have committed were imputed to Him and not to you and, therefore, your sins are forgiven. If you trust Him, you cannot be punished for your sins, for Christ was punished for them! How can debts be demanded of you that were paid originally by your Savior? You are clear. The Master said, "If you seek Me, let these go
 
-their way." [See Sermons #2368, Volume 40&mdash;THE LIVING CARE OF THE DYING CHRIST and #2616, Volume 45&mdash;CHRIST's CARE OF HIS DISCIPLES] And when they seized Jesus, they let His chosen people go. You
+their way."  And when they seized Jesus, they let His chosen people go. You
 
 are clear&mdash;before God's bar you are clear. Nobody can lay anything to your charge if you trust in Jesus Christ, for He suffered in your place. Ignorance of that great fundamental Truth of the whole Gospel keeps thousands in darkness! It is the great ball and chain upon the leg of many spiritual prisoners! And if they did but know that and could spell, "substitution," without a mistake, they would very soon come into perfect joy and liberty!
 
@@ -76,9 +76,7 @@ In Heaven they cry, "Worthy is the Lamb that was slain." The mightiest archangel
 
 Do you not care for angels? Then listen&mdash;do not sneer, for there are as wise men as you who have not sneered at Christ. You mention some great man who was a scoffer. Ah, well, so it may be, for great men are not always wise. But, on the other hand, what Newton believed in, what Locke trusted in, what Milton sang of, what a Bunyan could dream of in Bedford Jail cannot be quite such a contemptible thing after all. I might quote some names at which you could not and would not sneer. You would think yourself unknown and base, indeed, if you called them unknown and ignoble. The name which these men, great even in your esteem, thought worthy of their highest reverence, surely you need not be so fast to reproach! Come, my Friend, look also into this problem. Give your wit a little exercise upon this question, "Who is this?" Seek to know who and what Christ is and whether He is not a suitable Savior for you. Do not be contemptuous, for, after all, if you look after it, there is nothing to despise. What is the Gospel story? It is this&mdash;that though you are the enemy of Christ, Christ is no enemy of yours. Here is the story, that while we were yet His enemies, in due time Christ died for the ungodly. I could never despise a man who loved his enemy, and if I saw him come to die to save another, and that other his foe, I could not despise him. I might think him unwise, and think the price of his fair life too dear to buy the wretch for whom he died&mdash;but I could not despise his love!
 
-Oh, there is something so majestic in Christ's love that you cannot sneer at it! Uncurl that lip! He dies not for Himself in any sense! He bleeds for His friends&mdash;no, more, for His foes! His dying prayer is, [See Sermons #897, Volume 15&mdash;the
-
-FIRST CRY FROM THE CROSS; #2236, Volume 38&mdash;CHRIST's PLEA FOR IGNORANT SINNERS and #3068, Volume 53&mdash;UNKNOWN DEPTHS AND HEIGHTS] "Father, forgive them, for they know not what they do." And
+Oh, there is something so majestic in Christ's love that you cannot sneer at it! Uncurl that lip! He dies not for Himself in any sense! He bleeds for His friends&mdash;no, more, for His foes! His dying prayer is,  "Father, forgive them, for they know not what they do." And
 
 even when His friends forsook Him, His last thoughts were all for them. Though He was rich, yet for our sakes He became poor, that we, through His poverty, might be made rich! There is nothing to sneer at here! He casts aside His Glory, hangs His azure mantle on the sky, takes the rings from off His fingers to hang them up for stars and down He comes and is born a feeble Child! In His mother's lap He lies. He lives so poverty-stricken that He has nowhere to lay His head. And when the fox went to its burrow and the bird to its nest, He went to the lone mountain and His locks were wet with the dews of night. "Give Me a drink," He says, as He sits upon the well of Samaria. He is forsaken, despised and rejected of men. And when He dies, even God, Himself, leaves Him. Jesus cries, "Why have You forsaken Me?" And all this was because of His strong, all-conquering love for the sons of men! You cannot despise this Man! I would love the Savior even if He had not died for me. I could not help it! Such love as His must have my heart. Such disinterested giving up of all for the sake of those who hated Him must claim our heart's affections!
 
@@ -98,12 +96,10 @@ You have heard my voice: hide not your ear at my breathing, at my cry. Is not th
 
 Vocal sounds in prayer can be given forth by hypocrites. Our children have their dolls or their little animals that they press to make them squeak, but there is no life in them&mdash;so there may be a sound, yet no life. But I never heard of anything that really breathed and yet had not life. And when your soul breathes itself out before God in prayer, although it cannot utter any articulate sound by reason of the sorrow of your heart, there is spiritual life in you!
 
-You drew near in the day that I called upon You. [See Sermon #1812, Volume 30&mdash;a wonder explained by greater
-
-WONDERS] Oh, sweet experience! Cannot you, Beloved, say that
+You drew near in the day that I called upon You.  Oh, sweet experience! Cannot you, Beloved, say that
 
 these words suit you as much as they did Jeremiah? I am inclined to say to Him, "They are mine. Jeremiah, they certainly
 
 were yours, but I am sure that they are equally mine!"
 
-57, 58. You said, Fear not O Lord, You have pleaded the causes of my soul; You have redeemed my life. [See Sermon #579, Volume 10&mdash;GOD PLEADING FOR SAINTS AND SAINTS PLEADING FOR GOD] Blessed be His holy name forever and ever!
+57, 58. You said, Fear not O Lord, You have pleaded the causes of my soul; You have redeemed my life.  Blessed be His holy name forever and ever!

@@ -2,7 +2,7 @@
 
 "But I would not have you to be ignorant, brethren, concerning those who are asleep, that you sorrow not, even as others which have no hope." 1 Thessalonians 4:13.
 
-[On January 31, 1892, the Beloved preacher, "after he had served his own generation by the will of God, fell asleep." That verse was the text of the Sermon (#2243, Volume 38) published on the day of his funeral, to which Mrs. Spurgeon gave the title, "HIS OWN FUNERAL SERMON"]
+
 
 THERE may be some few extraordinary cases "where ignorance is bliss" and where "'tis folly to be wise." But for the most part, ignorance is the mother of misery&mdash;and if we had more knowledge, we would find it a tower of strength against many fears and alarms which beget sadness and sorrows in dark untutored minds. True it is that the utmost diligence of the student cannot shield his body or his mind from fatigue and distress. In guarding against one class of ills, we may become exposed to another&mdash;as Solomon testifies that "much study is a weariness of the flesh," and again, "in much wisdom is much grief: and he that increases knowledge, increases sorrow." Still, let it be remembered that "wisdom is a defense, and money is a defense"&mdash;in the increase of either we may augment our cares, yet in the increase of both we think there is a remunerative profit!
 

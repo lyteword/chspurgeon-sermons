@@ -2,7 +2,7 @@
 
 "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through Hispoverty, might be rich." 2 Corinthians 8:9.
 
-[Other Sermons by Mr. Spurgeon upon the same text are as follows&mdash;# 151, Volume 3&mdash;THE CONDESCENSION OF CHRIST; #2232, Volume 37&mdash; CHRIST's MOTIVE AND OURS; #2364, Volume 40&mdash;POVERTY AND RICHES and #2716, Volume 47&mdash;CHRIST's POVERTY, OUR RICHES]
+
 
 WE may, for once, dispense with a preface, and go straight to our subject. The text speaks, first, of something that we know. When we have, for a while, meditated upon that, we will speak of some things that are due because of this something that we know.
 

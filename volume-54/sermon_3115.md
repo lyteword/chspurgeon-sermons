@@ -2,7 +2,7 @@
 
 "Where sin abounded, Grace did much more abound." Romans 5:20.
 
-[Other Sermons by Mr. Spurgeon upon this text are as follows: Sermons #37, Volume 1&mdash;LAW AND GRACE and #2012, Volume 34&mdash; GRACE ABOUNDING OVER ABOUNDING SIN]
+
 
 THERE are two very powerful forces in the world which have been here ever since the time when Eve partook of the forbidden fruit in the Garden of Eden. Those two forces are sin and Divine Grace. A very great power is sin, a power dark, mysterious, baleful, but full of force. The sorrows of mankind&mdash;from where did they come but from sin? We would have known no war, nor pestilence, nor famine, nor would anything of sickness or sorrow ever have smitten the human race had not sin sown its evil seed in this earth! Sin is the Pandora's box from which all evil has come to mankind. See what ravages death has made&mdash;its hillocks are everywhere! Its mighty scythe mows men down as the mower cuts down the grass of the field&mdash;but death came by sin and after death comes judgment and, to the ungodly, the doom that never can be described, the eternal wrath whose blackness the wildest tempest cannot imitate! Who dug this pit? It was the Justice of God on account of sin and sin must, therefore, be charged with the authorship of sorrow, disease, death and Hell. This is no mean power with which we have come into conflict&mdash;it is a veritable Goliath&mdash;stalking along and defying the whole race of mankind!
 
@@ -62,27 +62,9 @@ One practical remark I want to make before I close. It is this&mdash;if you have
 
 EXPOSITION BY C. H. SPURGEON: ROMANS5.
 
-Verse 1. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ [See Sermon #1456,
+Verse 1. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ  What a blessed thing t is that when troubles are shed abroad outside us, the love of God is shed abroad inside us&mdash;when we are tried without, we are comforted within&mdash;and so we are made strong and we have no cause to fear!
 
-Volume 25&mdash;PEACE&mdash;a FACT AND a FEELING&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.orgQ This verse deserves to be
-
-printed in letters of gold. If you can truthfully say this. If it is indeed true of you, you are the happiest people under Heaven. Let us read the verse again&mdash;"Therefore being justified by faith, we have peace with God through our Lord Jesus Christ."
-
-By whom also we have access by faith into this Grace wherein we stand and rejoice in hope of the Glory of God. We are not only at peace with God, but we are permitted to draw near to Him, have access to Him, have access to His favor, to His Grace. We may come to God when we will, for He is reconciled to us, and we are reconciled to Him, so we may now think of Him with joy and gladness.
-
-And not only so, but we glory in tribulations also. Somebody seemed to say to the Apostle, "You talk about peace with God, and access to God; but you are troubled in mind, you are sickly in body, you are poor in estate, just as other people are." So Paul replies, "Yes, we know that it is so, 'but we glory in tribulations also.'"
-
-Knowing that tribulation works patience. It is sent for our good. We accept our trials as a part of our estate and in some respects, the very richest part of our estate! We get more good out of our adversity than out of our prosperity. Our troubles have made men of us, whereas our joys might have unmanned us. Trials have braced us up and we glory in them, "knowing that tribulation works patience."
-
-And patience, experience; and experience, hope. The longer we wait, the brighter do our eyes get. Our very trials, when they have passed over us, leave us stronger and happier than we were before. Our experience works in us hope.
-
-And hope makes us not ashamed; because the love of God is shed abroad in our hearts by the Holy Spirit which is
-
-given unto us. [See Sermon #829, Volume 14&mdash;THE PERFUMING OF THE HEART] What a blessed thing t is that when troubles are shed abroad outside us, the love of God is shed abroad inside us&mdash;when we are tried without, we are comforted within&mdash;and so we are made strong and we have no cause to fear!
-
-For when we were yet without strength, in due time Christ died for the ungodly. [See Sermons #1191, Volume 20&mdash;for whom
-
-DID CHRIST DIE?; #13345, Volume 23&mdash;FOR WHOM IS THE GOSPEL MEANT? and #2341, Volume 39&mdash;THE UNDYING GOSPEL FOR THE DYING YEAR] And as He died for us when we were ungodly, what will He not
+For when we were yet without strength, in due time Christ died for the ungodly.  And as He died for us when we were ungodly, what will He not
 
 do for us now that He has sought us as His own? He gave the highest proof of His love to us when we were most unworthy of it, so will He leave us now? God forbid!
 
@@ -92,27 +74,25 @@ For a righteous man will one die. However "just" Aristides might be, nobody woul
 
 Yet perhaps for a good man some would even dare to die. There might possibly be some who would die for a John Howard, or a man of that ilk.
 
-But God commends [See Sermon #104, Volume 2&mdash;LOVE's COMMENDATION] His love toward us, in that, while we were yet sinners, Christ died for us. When we were not even just, much less good, "Christ died for us."
+But God commends  His love toward us, in that, while we were yet sinners, Christ died for us. When we were not even just, much less good, "Christ died for us."
 
 Much more then, being now justified by His blood, we shall be saved from wrath through Him. As He died for us, He will certainly save us. He who died for the ungodly will never cast away those whom He has justified. The death of Christ for His own people is the guarantee that He will love them even to the end!
 
 For if, when we were enemies, we were reconciled to God by the death of His Son, much more, being reconciled, we shall be saved by His life. Did He love us when we were His enemies? Then most assuredly He will love us now that we are His friends. Did His death save us? Then, will not His life also save us? As He took such pains to reconcile us to His
 
-Father, will He not take equal pains-no, "much more [See Sermon #2587, Volume 44&mdash;"MUCH MORE"] to preserve us safe to the end?
+Father, will He not take equal pains-no, "much more  to preserve us safe to the end?
 
 And not only so. Paul seems to go up a ladder and when he gets to the top of it, he sets up another on the top of that one and proceeds to mount that! This is the second time that we have read, "And not only so."
 
 But we also joy in God through our Lord Jesus Christ, by whom we have now received the Atonement. Christ has made Atonements for us, and God has accepted that Atonement on our behalf. We also have received it ourselves and now we are glad in God&mdash;glad that there is a God, glad that there is such a God, and glad that He is our God and
 
-Father in Christ Jesus! [See Sermons #1045, Volume 18&mdash;JOY IN a RECONCILED GOD and #2550, Volume 44&mdash;JOY IN GOD]
+Father in Christ Jesus! 
 
 Therefore, as by one man sin entered into the world, and death by sin; and so death passed upon all men, for that all have sinned. It was by one man's sin that we all fell through the first Adam. Does anyone object to the justice of that? I pray you, do not object to what is your only hope! If you and I had each one sinned for himself or herself apart from Adam, our case would probably have been hopeless, like the case of the fallen angels who sinned individually and fell, never to be set up again! But inasmuch as we fell representatively in Adam, it prepared the way for us to rise representatively in the Second Adam, Christ Jesus our Lord and Savior! As I fell by another, I can rise by another! As my ruin was caused by the first man, Adam, my restoration can be brought about by the Second Man, the Lord from Heaven! 13, 14. (For until the Law, sin was in the world: but sin is not imputed when there is no Law. Nevertheless death reigned from Adam to Moses, even over them that hadnot sinnedafter the similitude of Adam's transgression, who is the figure of Him that was to come. Infants die, although they have never sinned. They die because death is the penalty of sin&mdash;and as they die for faults not their own, so are they saved by righteousness not their own. They die, for Adam sinned. They live, for Jesus died.
 
 15-17. But not as the offense, so also is the free gift. For if through the offense of one many are dead, much more the Grace of God, and the gift by Grace which is by one Man, Jesus Christ, have abounded unto many. And not as it was by one that sinned, so is the gift: for the judgment was by one to condemnation, but the free gift is of many offenses unto justification. For if by one man's offense death reigned by one; much more they which receive abundance of Grace and of
 
-the gift of righteousness shall reign in life by One,[See Sermons #2544, Volume 43&mdash;THE ONE AND THE MANY and #2744, Volume 47&mdash;LOST
-
-THROUGH ONE&mdash;SAVED THROUGH ONE] Jesus Christ). Adam's fall
+the gift of righteousness shall reign in life by One, Jesus Christ). Adam's fall
 
 was terribly effectual&mdash;it has brought death upon the human race, age after age. And Christ's death is wonderfully effectual, for on behalf of all those for whom He died, His Atonement so prevails as to put their sins away forever!
 

@@ -58,7 +58,7 @@ Then, supposing the house is already started, I have this advice to give. If you
 
 And let me entreat you, dear Friends, to be much in prayer for those who are not converted.' 'Yes," says the mother, "my unconverted boy is gone away from home." Well, but your prayers can follow him! See the case of Philemon and
 
-Onesimus. [See Sermon #1268, Volume 21&mdash;THE STORY OF a RUNAWAY SLAVE]
+Onesimus. 
 
 Onesimus had run away with some of his master's money, but his master sent his prayers after him and, by-and-by, there came a sheriff's officer to arrest him&mdash;not one of Caesar's officers, but one of God's. It was the Apostle Paul who, in the preaching of the Word of God, arrested the runaway servant and he went back to his master saved! How do you know but that your son will come home converted? How do you know, Mother, but that you will yet see your daughter rejoicing in Christ? Never cease praying for them till the breath is out of their bodies, but continue in supplication till they are brought into the Church in your house!
 
