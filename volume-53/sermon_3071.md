@@ -101,7 +101,7 @@ cleansing water unless he equally values the atoning blood. It is said by some t
 
 7, 8. For there are three that bear record in Heaven, the Father, the Word, and the Holy Spirit and these three are one. And there are three that bear witness in earth, the spirit, and the water, and the blood: and these three agree in one. What a blessing it is for us to get the witness of these three even here on earth in the new life which is created within our souls by the Holy Spirit&mdash;the daily cleansing of our life by that same blessed Spirit through the Word, and the continual application by the Spirit of that precious blood by which peace is given to the conscience and sin is put away from the
 
-heart. [See Sermon #1187, Volume 20&mdash;THE THREE WITNESSES, for a fuller explanation of this subject.]
+heart. 
 
 9, 10. If we receive the witness of men, the witness of God is greater: for this is the witness of God which He has testified of His Son. He that believes on the Son of God has the witness in himself. That very faith becomes to him the best witness and he is able to confirm the witness of his faith that he is a partaker of the salvation of Christ.
 

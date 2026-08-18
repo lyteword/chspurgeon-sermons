@@ -2,7 +2,7 @@
 
 "The LORD is my shepherd; I shall not want." Psalm 23:1.
 
-[See Sermon #3006, Volume 52&mdash;"THE LORD IS MY SHEPHERD." Sermons on the Parable of the Good Shepherd are as follows&mdash;#1877, Volume 32&mdash;OUR OWN DEAR SHEPHERD; #1713, Volume 29&mdash;OTHER SHEEP AND ONE FLOCK; #995, Volume 17&mdash;THE SHEEP AND THEIR SHEPHERD and #2120, Volume 35&mdash;THE SECURITY OF BELIEVERS&mdash;OR, SHEEP WHO SHALL NEVER PERISH.]
+
 
 DOES not this sound just like poetry or like singing? If you read the entire Psalm through, it is written in such poetic prose that though it is not translated into meter, as it should have been, it reads just like it. "The Lord is my Shepherd; I shall not want. He makes me to lie down in green pastures; He leads me beside the still waters. He restores my soul: He leads me in the paths of righteousness for His name's sake." It sounds like music for this, among other reasons, because it came from David's heart. That which comes from the heart always has melody in it. When men speak of what they know and from the depths of their souls testify to what they have seen, they speak with what we call, eloquence, for true eloquence is speaking from the soul. Thus David spoke of what he knew&mdash;what he had verified all his life&mdash;and this rendered him truly eloquent.
 

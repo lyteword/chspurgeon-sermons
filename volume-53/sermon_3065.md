@@ -2,7 +2,7 @@
 
 "Blessed are the meek: for they shall inherit the earth." Matthew 5:5.
 
-[Other Sermons by Mr. Spurgeon upon the Beatitudes are as follows&mdash;#422, Volume 7&mdash;THE PEACEMAKER and #2103, Volume 35&mdash;THE HUNGER AND THIRST WHICH ARE BLESSED.]
+
 
 I HAVE often reminded you that the Beatitudes in this chapter rise one above the other and spring out of one another and that those which come before are always necessary to those that follow after. This third Beatitude, "Blessed are the meek," could not have stood first&mdash;it would have been quite out of place there. When a man is converted, the first operation of the Grace of God within his soul is to give him true poverty of spirit, so the first Beatitude is, "Blessed are the poor in spirit." The Lord first makes us know our emptiness and so humbles us. Then next He makes us mourn over the deficiencies that are so manifest in us. Then comes the second Beatitude, "Blessed are they that mourn." First, then, is a true knowledge of ourselves and then a sacred grief arising out of that knowledge. Now, no man ever becomes truly meek, in the Christian sense of that word, until he first knows himself and then begins to mourn and lament that he is so far short of what he ought to be. Self-righteousness is never meek. The man who is proud of himself will be quite sure to be hard-hearted in his dealings with others. To reach this rung of the ladder of the Light of God he must first set his feet upon the other two. There must be poverty of spirit and mourning of heart before there will come that gracious meekness of which our text speaks.
 

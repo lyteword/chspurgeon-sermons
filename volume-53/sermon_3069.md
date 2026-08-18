@@ -2,7 +2,7 @@
 
 "If I wash myself with snow water, and make my hands ever so clean; yet shall You plunge me in the ditch, and my own clothes shall abhor me." Job 9:30,31.
 
-[Another Sermon by Mr. Spurgeon on the same text is #1908, Volume 32&mdash;WASHED TO GREATER FOULNESS.]
+
 
 WE are all, by nature and by practice, unclean in the sight of God. However excellent or virtuous we may seem before man, we have all broken God's Law, for that Law requires perfection and we have been far from it. The Law demands spotless holiness towards God and perfect rectitude towards man and, in some point or other, we have all transgressed that Law&mdash;and we have therefore become polluted before the thrice-holy Jehovah. The great question which ought to arise in the mind of every one of us is this&mdash;"How can I be cleansed before God?"
 
@@ -12,7 +12,7 @@ Job speaks of washing himself with snow water and trying to make himself clean. 
 
 And, dear Friends, we must be clean in the sight of God. We must desire to be clean in the sight of God for, if not, we are the objects of His continual displeasure. ' 'God is angry with the wicked every day." This is a solemn Truth of God which is far too much forgotten in the present day. Many have tried to put the thought of it right on one side and held forth only the Doctrine of the Divine Benevolence. But while that Doctrine is blessedly true, these solemn declarations are equally true, "The wicked shall be turned into Hell, and all the nations that forget God." And, "He that believes not, is condemned already, because he has not believed in the name of the only begotten Son of God." Now, if we were right-hearted towards God, this would seem to us to be a very dreadful thing. We little know how exceedingly hateful sin is to
 
-God. [See Sermon #3068, Volume 53&mdash;UNTOLD DEPTHS AND HEIGHTS.] You
+God.  You
 
 know that there are some things which you and I sometimes see which are very disgusting and loathsome to us. I went into a railway station in Italy once, where I saw a man who had lost his arm and who by way of begging, exposed to us the stump of it and also a horrible ulcer from which he was suffering. I turned away sick at the sight and dreaded to go to that station again, for fear that I should be met inside the door of the waiting room by that horrible spectacle! But, depend upon it, no mutilation and no disease of man's body was ever so sickening to the most delicate taste as sin is sickening to God! He loves purity and, therefore, He must loathe impurity. He delights in those who are just and true and upright&mdash;and He cannot endure those who are unjust, false, or unrighteous. His holy soul abhors them as that strong expression of His in the prophecy of Zechariah proves&mdash;"My soul loathed them and their soul also abhorred Me." The sinner does not dislike God more than God dislikes him as a sinner. The sinless God cannot look with complacency upon him who is sinful&mdash;he is loathsome to the holy mind of God. So, surely, if we are right-hearted, we shall feel that anything and everything that we can do in order to get right with God and to become clean in His sight, we ought to do at once!
 
