@@ -10,7 +10,7 @@ Psalm 31:5.
 
 Acts 7:59.
 
-THIS morning, dear Friends, I spoke upon the first recorded words of our Lord Jesus [Sermon #1666, Volume 28&mdash;The First Recorded Words of Jesus] when He said to His mother and to Joseph, "How is it that you sought Me? Did you not know that I must be about My Father's business?" Now, by the help of the blessed Spirit, we will consider the last words of our Lord Jesus before He gave up the ghost. And with them we will examine two other passages in which similar expressions are used.
+THIS morning, dear Friends, I spoke upon the first recorded words of our Lord Jesus  when He said to His mother and to Joseph, "How is it that you sought Me? Did you not know that I must be about My Father's business?" Now, by the help of the blessed Spirit, we will consider the last words of our Lord Jesus before He gave up the ghost. And with them we will examine two other passages in which similar expressions are used.
 
 The words, "Father, into Your hands I commend My spirit," if we judge them to be the last which our Savior uttered before His death, ought to be coupled with those other words, "It is finished," which some have thought were actually the last He used. I think it was not so, but, anyway, these utterances must have followed each other very quickly and we may blend them together. And then we shall see how very similar they are to His first words as we explained them this morning. There is the cry, "It is finished," which you may read in connection with our Authorized Version&mdash;"Did you not know that I must be about My Father's business?" That business was all finished&mdash;He had been about it all His life and now that He had come to the end of His days, there was nothing left undone&mdash;and He could say to His Father, "I have finished the work which You gave Me to do."
 
@@ -106,7 +106,7 @@ Every branch in Me that bears not fruit He takes away. There are many such branc
 
 And every branch that bears fruit, He purges it, that it may bring forth more fruit There is some work, then, for the knife upon all the branches&mdash;cutting off for those that are fruitless&mdash;cutting for those that are bearing some fruit that they may bring forth yet more.
 
-Now you are clean [purged] through the word which I have spoken unto you. The Word is often the knife with which the great Vinedresser prunes the vine. And, Brothers and Sisters, if we were more willing to feel the edge of the Word, and to let it cut away even something that may be very dear to us, we would not need so much pruning by affliction. It is because that first knife does not always produce the desired result that another sharp tool is used by which we are effectually pruned.
+Now you are clean  through the word which I have spoken unto you. The Word is often the knife with which the great Vinedresser prunes the vine. And, Brothers and Sisters, if we were more willing to feel the edge of the Word, and to let it cut away even something that may be very dear to us, we would not need so much pruning by affliction. It is because that first knife does not always produce the desired result that another sharp tool is used by which we are effectually pruned.
 
 Abide in Me, and I in you.1 'Do not merely find a temporary shelter in Me, as a ship runs into harbor in stormy weather and then comes out again when the gale is over, but cast anchor in Me, as the vessel does when it reaches its desired haven. Be not as branches that are tied on and so can be taken off, but be livingly joined to Me. 'Abide in Me.'"
 
