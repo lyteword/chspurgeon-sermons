@@ -2,7 +2,7 @@
 
 "For with the heart, man believes unto righteousness, and with the mouth, confession is made unto salvation." Romans 10:10.
 
-[For two other sermons on this text, see Numbers 519 and 520, Volume 9&mdash;BELIEVING WITH THE HEART and CONFESSION WITH THE MOUTH]
+
 
 IN speaking of this important matter&mdash;confessing with the mouth what we have believed with the heart, I call your attention, first of all, to the order of the two things. Believing with the heart must come first. Confession with the mouth must and should come afterwards. To confess with the mouth what I do not believe with the heart would be hypocrisy instead of being an acceptable sacrifice. It would be an abomination in the sight of God. How dare I profess to have faith if I do not possess it? How dare I assume a form of godliness unless I have proven its power in my spirit? So first comes the heart's believing and then follows the mouth's confession. Do not reverse the Scriptural order, but take care that you do all things in their due course. Among the last words of the Lord Jesus Christ to His disciples are these, "He that believes and is baptized shall be saved." Note the order&mdash;not Baptism first and believing afterwards&mdash;but he who first believes and then is baptized upon profession of his faith, is the servant of Christ who obeys his Master's commands in their right order&mdash;and he it is who "shall be saved."
 
@@ -32,7 +32,7 @@ imperfect apprehension to be less important than another, remember the wise word
 
 at the wedding in Cana of Galilee, "Whatever HE says unto you, do it"&mdash;and do it conscientiously, gladly, promptly,
 
-because He commanded it, even though you cannot see any other reason for doing it. [For two other sermons upon this subject, see Number 2275, Volume 38&mdash;BLIEF, BAPTISM, BLESSING&mdash;and Number 2339, Volume 39&mdash;BAPTISM ESSENTIAL TO OBEDIENCE]
+because He commanded it, even though you cannot see any other reason for doing it. 
 
 We have, on this occasion, to consider the lesser duty of the two, which is, nevertheless, most certainly enjoined upon all Believers in the Lord Jesus Christ. In talking of it, I still have to speak of four things. First, what it is that we are to confess? Secondly, when are we to confess it? Thirdly, why we should confess it? And, fourthly, how and in what spirit should we confess it?
 

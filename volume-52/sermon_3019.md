@@ -69,7 +69,7 @@ And, mark you, it is an awful thing to be sent away from the Gospel. And it is a
 > While we can call one mite our own,   
 > We have no full discharge.   
 
-We know what happened to the two debtors. [See sermon Number 3015, Volume 52&mdash;THE TWO DEBTORS] "When they had nothing to pay, he frankly forgave them both." But if they had had anything with which they could pay, there would have been no forgiveness vouchsafed to them. Oh, for such an emptying that you may afterwards be filled with good things!
+We know what happened to the two debtors.  "When they had nothing to pay, he frankly forgave them both." But if they had had anything with which they could pay, there would have been no forgiveness vouchsafed to them. Oh, for such an emptying that you may afterwards be filled with good things!
 
 But there are some who are sent away from hearing the Gospel with the same conceit of fullness as they had before&mdash; and they are allowed to remain empty without discovering their true condition. This is a dreadful state for anyone to be in&mdash;to go on deceiving one's self and thinking all is well for time and eternity&mdash;and only to find out one's fatal mistake where the discovery will come too late! "Woe is me," cries the self-righteous professor, when he wakes up in the world to come and finds that he is shut out of Heaven&mdash;"Woe is me that I should ever have fancied that I had a sufficient store of good things for eternity, yet now I have not so much as a drop of water to coat my tongue and I am tormented in this
 
