@@ -2,7 +2,7 @@
 
 "And a man shall be as a hiding place from the wind, and a cover from the tempest." Isaiah 32:2.
 
-[When the Tabernacle was thrown open to all comers.]
+
 
 ONE who is really worthy to be called "a man" is a rare creature. There are great numbers of human beings who come under the generic name, "men," who do not possess those noble, manly characteristics which would entitle us truly to speak of any one of them as "a man." When God gives "a man" to any nation, it is a grand gift. There are many names in history which remind us how much blessing may be conferred upon a race and upon an age by the raising up of one
 

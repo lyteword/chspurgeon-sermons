@@ -101,7 +101,7 @@ The passages which we are about to read from three of the Evangelists, make up a
 
 First, John gives us an account of our Savior's appearance before Annas, of which I need not say much, as I recently
 
-preached upon it. [Sermon #2820, Volume 49&mdash;CHRIST BEFORE ANNAS]
+preached upon it. 
 
 John 18:12-14. Then the band and the captain and officers of the Jews took Jesus, and bound Him, and led Him away to Annas first; for he was father-in-law to Caiaphas, which was the high priest that same year Now Caiaphas was he which gave counsel to the Jews, that it was expedient that one man should die for the people.
 
