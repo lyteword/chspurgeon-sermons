@@ -66,10 +66,10 @@ What is your view of Christ, dear Friend! Is He your Master as well as your Savi
 
 sage to you is, "Whatever He says to you, do it." Did you come into the world merely that you might get saved? Is that all? Oh, poor, mean wretch! The Lord save you from being so selfish! How can you even get to Heaven when your sole ambition is, somehow or other, to save your own skin? To get inside the pearly gates and enjoy yourself&mdash;that is your notion of Heaven! But that is the very thing from which you have to be saved! I hope you will come to have quite another idea. I live not to save myself, but to glorify Him who has saved me. I work not because I hope to escape from Hell by what I do, or to get to Heaven by what I do, but because Christ has saved me and now, out of gratitude to Him, if there is anything He wishes me to do, I do it without a question, saying to Him&mdash;
 
-> Have You a lamb in all Your flock   
-> I would disdain to feed?   
-> Have You a foe, before whose face   
-> I fear Your cause to plead?   
+> Have You a lamb in all Your flock 
+> I would disdain to feed? 
+> Have You a foe, before whose face 
+> I fear Your cause to plead? 
 
 Get rid of selfishness, or else you cannot truthfully say that you love Christ! You are only loving yourself and baptizing selfishness with the name of Christianity.
 

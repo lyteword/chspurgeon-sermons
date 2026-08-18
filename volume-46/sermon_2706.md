@@ -52,10 +52,10 @@ sketched for you the process by which we get our bread&mdash;it is very signific
 
 Then comes the cup. Here, the grape has been crushed in the winepress till its ruddiest juice has been poured forth, its very heart's blood being shed beneath the extreme pressure. This is another picture of Christ's suffering&mdash;of His suffering even unto death. So the one picture has two panels and many subdivisions, as if the Lord would say to us, "If you want to feed your soul upon Christ, you must think a great deal about Him. You must not merely say, by faith, 'Yes, Christ is my Savior.' That is well, so far as it goes. That Truth will give you life, but you must see who He was, and what He was, and what He did, and why He did it, and what He is doing now, and what He has yet to do. And so, by taking it in detail, you will feed your soul very wonderfully." Look at many half-starved Christians. Why you can see each rib, you may tell each bone in their spiritual anatomy. They have scarcely enough life to be able to sing in a whisper&mdash;
 
-> 'Tis a point I long to know,   
-> Oft it causes anxious thought,   
-> Do I love the Lord, or no?   
-> Am IHis, or am Inot?'   
+> 'Tis a point I long to know, 
+> Oft it causes anxious thought, 
+> Do I love the Lord, or no? 
+> Am IHis, or am Inot?' 
 
 Now, if they thought more of Christ&mdash;if they broke up the Truth about Him more than they do&mdash;if they looked more into His passion&mdash;if they studied His wondrous Person&mdash;if they relied upon His promises&mdash;if they rested in His work more in detail by contemplation, they would grow to be spiritual giants&mdash;they would be "strong in the Lord, and in the power of His might."
 

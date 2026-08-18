@@ -26,10 +26,10 @@ themselves with mankind." Would God that this accursed vice had been swept off t
 
 Next to these great sinners, whom the Apostle mentions, come "thieves." There are still far too many of them in the world&mdash;not merely those who are brought before the magistrates for having broken into a house, or having robbed a person in the street. But those who steal little things&mdash;peculators, servants in the house who take what is not their own! And men who do dishonest things in trade, calling an article in their shop by a name that is not its proper description&mdash; and so cheating their customers and getting their living by their lies. These are also among those who "shall not inherit the Kingdom of God." You do not like to hear me talk about such matters? Then do not continue to sin in this fashion. I shall cease to rebuke the sin when it has been abandoned, but, as long as such evils abound, it is my duty, as the servant of the living God, to declare plainly that the continuance in dishonest actions is not consistent with being in the Kingdom of God's Grace and it will effectually close the gate of the Kingdom of His Glory. Dr. Watts was right when he wrote&mdash;
 
-> Not the malicious or profane,   
-> The wanton or the proud,   
-> Nor thieves, nor slanderers shall obtain   
-> The Kingdom of our God.   
+> Not the malicious or profane, 
+> The wanton or the proud, 
+> Nor thieves, nor slanderers shall obtain 
+> The Kingdom of our God. 
 
 Then, next, the Apostle says, "nor covetous." It is a strange thing that hardly anybody ever admits that he is covetous. Such a person calls himself, "Mr. Prudent Thrifty." Mr. Covetous tries to make us believe that he is only thrifty and prudent, both excellent qualities which are not to be condemned! But he is really greedy and grasping, which are quite different. He denies help to the poor and help to the work of God&mdash;all he cares for is himself, that he may be rich. It is very significant that the covetous are put in the same list with fornicators and adulterers. Oh, dear, how quickly Mr. Covetous would move out of the seat if he thought that there were any such people as those about! But, my dear Sir, you need not be so particular, or think so much of yourself, for, in the sight of God, you are in the same condition as they are and you, also, are among those who "shall not inherit the Kingdom of God" unless you repent of your sin!
 
@@ -71,7 +71,7 @@ There was good ground for that man's conclusion and many other people have argue
 
 me?"
 
-You know how Bunyan relates that when he was converted and began to preach, people said, "What? Is that tinker saved?" And they gathered together to hear what he had to say&mdash;and then he preached to them, Jesus the Savior, and there were more tinkers that got tinkered that day! No, not tinkered, but made new creaturesin Christ Jesus! Christ finds it easier work to make us anew than to mend us&mdash;and that is what we really need to have done to us. If any of you are thinking of being mended tonight by signing the pledge, [This sermon was delivered at the service in the Tabernacle which was followed by a public meeting in connection with the Gospel Temperance Mission held there in September, 1882] well, I am glad to see old kettles repaired, but, for all that, I would rather that you were made new kettles altogether!
+You know how Bunyan relates that when he was converted and began to preach, people said, "What? Is that tinker saved?" And they gathered together to hear what he had to say&mdash;and then he preached to them, Jesus the Savior, and there were more tinkers that got tinkered that day! No, not tinkered, but made new creaturesin Christ Jesus! Christ finds it easier work to make us anew than to mend us&mdash;and that is what we really need to have done to us. If any of you are thinking of being mended tonight by signing the pledge, well, I am glad to see old kettles repaired, but, for all that, I would rather that you were made new kettles altogether!
 
 That is to say, I pray God to take you in hand and make you new creatures in Christ Jesus, for that is what we are aiming at in all these Gospel Temperance services&mdash;and we shall not be satisfied unless that great work is accomplished!
 
@@ -89,23 +89,23 @@ Oh, that I knew how to preach upon this theme! I never feel my own weakness so m
 
 Now, turning to this last part of our text&mdash;"and such were some of you: but you are washed, but you are sanctified, but you are justified in the name of the Lord Jesus, and by the Spirit of our God." I will endeavor briefly to set all these things before you as best I can. The Lord knows how much better I would do it if it were in my power to do it. But, after all, it is not my language which is the important matter&mdash;it is the power of the Truth of God I utter on which I rest. Nor yet even upon that, but on the wonder-working Spirit of God who can effectually apply that Truth of God to the heart, and make it anew by His Omnipotent Grace&mdash;
 
-> Come, Holy Spirit, (for, moved by You,   
-> The Prophets wrote and spoke)   
-> Unlock the Truth, Yourself the Key   
-> Unseal the sacred Book!   
-> God, through Himself, we then shall know,   
-> If You within us shine   
-> And sound, with all Your saints below,   
-> The depths of love Divine.   
+> Come, Holy Spirit, (for, moved by You, 
+> The Prophets wrote and spoke) 
+> Unlock the Truth, Yourself the Key 
+> Unseal the sacred Book! 
+> God, through Himself, we then shall know, 
+> If You within us shine 
+> And sound, with all Your saints below, 
+> The depths of love Divine. 
 
 "And such were some of you." Where are you&mdash;dear members of this church, or of other churches of whom this is true&mdash;"and such were some of you?" "But you are washed." The High Churchman says that this means Baptism. Does it? I have seen some people washed by Baptism&mdash;I do not mean sprinkled, for I never could see how anyone could be washed in that way. But when we have immersed them, know this &mdash;that an unregenerate person, even after immersion is unre-generate still! And that a man who is not a Believer in the Lord Jesus Christ before he is baptized, has need to be baptized again, for it is not really Scriptural Baptism to him&mdash;and it cannot be a means of blessing to him. It may be a piece of hypocrisy on his part and of no value to those who practice it. No, no! That is notthe washing of which Paul writes! And Baptism, repeated ten thousand times, can do you no good whatever unless, first of all, you are washed in another fountain of which we often sing. Let us sing about it, now, all of us who know the verse&mdash;
 
-> There is a fountain filled with blood,   
-> Drawn from Immanuel's veins   
-> And sinners, plunged beneath that flood,   
-> Lose all their guilty stains.   
+> There is a fountain filled with blood, 
+> Drawn from Immanuel's veins 
+> And sinners, plunged beneath that flood, 
+> Lose all their guilty stains. 
 
-[This verse was accordingly sung by the congregation, and then MR. SPURGEON resumed and concluded his sermon.] That is the washing of which the Apostle says, "but you are washed," and after that washing comes the sanctifying, that is, the changing of the heart and the making of the whole nature holy! And that is the work of the Spirit of God, by the application of the Word of Christ.
+ That is the washing of which the Apostle says, "but you are washed," and after that washing comes the sanctifying, that is, the changing of the heart and the making of the whole nature holy! And that is the work of the Spirit of God, by the application of the Word of Christ.
 
 And then follows the justification. Pardon washes away our sin. Justification makes us righteous in the sight of God and sanctification gives us true holiness. Justification gives us imputed holiness, so that we stand before God, first in the righteousness which Christ has worked out for us&mdash;and next in the righteousness which the Spirit of God has worked in us. Oh, what a marvelous change is worked as the result of that one act of blessed washing!
 

@@ -24,8 +24,8 @@ The Psalmist furnishes us with some divisions of this subject, all of which illu
 
 Now, Christian, when you speak of the Glory of your Master's Kingdom, you must tell something of His great victories&mdash;how He routed Pharaoh, cut the Egyptian Rahab and wounded the dragon of the Nile. How He slew all the firstborn in one night. How, at His command, the Red Sea was divided. How the children of Israel crossed over in safety and the army of Egypt was drowned in the flood. Talk also of how God overcame Amalek and smote Moab. How He utterly cut off those nations that warred against Israel and caused them to pass away forever. Tell how Babylon and Nineveh were made to rue the day when God smote them with His iron hand. Tell to the world how God has crushed great nations and overcome proud monarchs. How Sennacherib's hosts were left dead within their camp and how those that have risen up in rebellion against God have found His arm too mighty for their strength and prowess. Tell of the terrible acts of our Savior's Kingdom! Record His victories in this world. But don't stop there! Tell how our Savior routed the devil in the wilderness when he came to tempt Him. Tell how He&mdash;
 
-> All His foes to ruin hurled,   
-> Sin, Satan, earth, death, Hell, the world.   
+> All His foes to ruin hurled, 
+> Sin, Satan, earth, death, Hell, the world. 
 
 Tell how He has bruised the head of Satan. Tell how death has lost his prey. Tell how Hell's deepest dungeons have been visited and the power of the Prince of Darkness utterly cut off. Tell how antichrist himself shall sink like a millstone in the flood. Tell how false systems of superstition shall flee away like birds of night when the sun rises too brightly for their dim sight to bear. Tell all this, tell it in Askelon and in Gath! Tell it the wide world over that the Lord of Hosts is the God of battles! He is the conqueror of men and of devils. He is Master in His own dominions. Tell the Glory of His Kingdom and rehearse "His mighty acts." Christian, exhaust that theme if you can!
 
@@ -45,10 +45,10 @@ But I must not forget to briefly hint at the other subject of the saints' conver
 
 First, the Christian should speak of Christ's upholding power What a strange expression this is, "The Lord upholds all that fall!" Yet remember John Bunyan's quaint old saying&mdash;
 
-> He that is down needs fear no fall;   
-> He that is low, no pride;   
-> He that is humble, ever shall   
-> Have God to be his guide.   
+> He that is down needs fear no fall; 
+> He that is low, no pride; 
+> He that is humble, ever shall 
+> Have God to be his guide. 
 
 So David Says, "The Lord upholds all that fall." What a singular expression! How can He hold up those that fall? Yet those that fall, in this sense, are the only persons that stand! It is a remarkable paradox, but it is true. The man who stands on his feet and says, "I am mighty&mdash;I am strong enough to stand alone"&mdash;down he will go! But he who falls into Christ's arms, he who says&mdash;
 

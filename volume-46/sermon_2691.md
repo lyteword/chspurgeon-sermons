@@ -106,10 +106,10 @@ And then say&mdash;
 
 "till I knew what they cost You&mdash;till I knew Your great love to me&mdash;till I knew my sins were all forgiven! But now they are forgiven, they torture me with a sweet grief of which I would gladly die."&mdash;
 
-> Lord, let me weep for nothing but sin,   
-> And after none but Thee;   
-> And then I would&mdash;oh, that I might!   
-> A constant weeper be.   
+> Lord, let me weep for nothing but sin, 
+> And after none but Thee; 
+> And then I would&mdash;oh, that I might! 
+> A constant weeper be. 
 
 This is joy, rest, patience, bliss&mdash;just to lie there and weep, and wash with tears the feet that came upon that errand of love and mercy for us! And still look, and love, and long, and weep, and look, and love, and long, and weep again, and kiss again and again the blessed feet of Him who has redeemed us unto God by His blood!
 

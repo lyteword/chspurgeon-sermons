@@ -36,10 +36,10 @@ Oft paused, and wondered how at last
 
 The scene of love would end." At that notable time when He was tempted in the wilderness, and was with the wild beasts, when the devil had left Him, angels came and ministered to Him. They were always near Him while He was here&mdash;always invisibly attendant upon His footsteps. You remember how there appeared unto Him an angel strengthening Him when He was in His agony in the Garden of Gethsemane&mdash;it was a wondrous thing that the Son of God should have strength infused into Him by an angelic messenger! With what awestruck interest the angels must have watched our Lord upon the Cross!&mdash;
 
-> As on the tottering tree He hung,   
-> And darkness veiled the sky,   
-> They saw, aghast, that awful sight,   
-> The LordofGlory die!   
+> As on the tottering tree He hung, 
+> And darkness veiled the sky, 
+> They saw, aghast, that awful sight, 
+> The LordofGlory die! 
 
 But glad were they to descend to His empty sepulcher, and to enter it, and guard the place where, for a while, the sacred casket of His body had lain. They spoke to His disciples and comforted them by telling them that He had risen from the dead and, all along, they took such interest in everything relating to Him because they recognized in Him the Savior of sinful men&mdash;
 

@@ -2,7 +2,7 @@
 
 "I pray not that You should take them out of the world, but that You should keep them from the evil." John 17:15.
 
-THE text, as we observed on a former occasion, [Sermon #47, Volume 1&mdash;CHRIST's PRAYER FOR HIS PEOPLE contains two prayers&mdash;a negative prayer and a positive prayer. First, there is the negative prayer&mdash;"I pray not that You should take them out of the world." There are wise ends to be observed by their remaining here. It will ultimately increase their happiness in Heaven. It will give glory to God. It shall be the means of the conversion of others&mdash;therefore, "I pray not that you should take them out of the world," but I do pray&mdash;and here comes the positive prayer&mdash;"that, while they are in it, 'you should keep them from the evil.'"
+THE text, as we observed on a former occasion, Sermon #47, Volume 1&mdash;CHRIST's PRAYER FOR HIS PEOPLE contains two prayers&mdash;a negative prayer and a positive prayer. First, there is the negative prayer&mdash;"I pray not that You should take them out of the world." There are wise ends to be observed by their remaining here. It will ultimately increase their happiness in Heaven. It will give glory to God. It shall be the means of the conversion of others&mdash;therefore, "I pray not that you should take them out of the world," but I do pray&mdash;and here comes the positive prayer&mdash;"that, while they are in it, 'you should keep them from the evil.'"
 
 Let us first, then, CONSIDER THE EVIL FROM WHICH CHRIST PRAYS THAT HIS PEOPLE MAY BE KEPT.
 
@@ -30,10 +30,10 @@ some of you old blasphemers recollect that some in Hell were damned by your mean
 
 Once more, sin is a most pestilent evil because it brings every other evil with it I think the worst evil sin has ever done to me is this&mdash;it has sometimes robbed me of the Presence of my blessed Master. There have been seasons when the Spirit has been withdrawn from me. There have been times when I have sought my Beloved, but have not found Him&mdash; when I have ardently desired His Presence, but could not find it, and my only song was&mdash;
 
-> What peaceful hours I once enjoyed,   
-> How sweet their memory still!   
-> But now I find an aching void   
-> The world can never fill.   
+> What peaceful hours I once enjoyed, 
+> How sweet their memory still! 
+> But now I find an aching void 
+> The world can never fill. 
 
 Sin was that veil that came between me and my Lord. Dear old Joseph Irons used to say, "Christ often hides His face behind the clouds of dust His own children kick up." So we make dust by our sins and Christ hides behind it. We build a wall by our transgressions and our Beloved hides behind that wall. Ah, Sin, you are, indeed, an evil, for you have robbed me of His sweet society, and taken away His blessed company! You have been sitting on the throne of my heart and He will not tolerate such an insult&mdash;He will not stay where sin is. You have entered into my soul and Jesus has said, "I will not tarry where there is sin. My Presence shall drive out sin, or sin shall drive out My Presence." "O Sin, how much misery I experience through you!" the Christian can say. Ah, Sin, how many poor and fettered Believers have had their fetters first forged by you? Sin, you are the anvil on which our doubts are welded. Sin, you are the fire in which our spirits are often molten down to grief. We could do all things were it not for you. O Sin&mdash;you clip the wings of faith, you dampen the flame of love, you destroy the energy of zeal&mdash;you are "the evil." My Master calls you so, and such you are. You need not to be renamed&mdash;that name once given you shall bear forever&mdash;and throughout eternity you shall be pointed at, in the pillory of scorn, by all the saints, as, "the evil." Well might Christ ask His Father that while He did not wish His children to be taken out of the world, He did wish that they might be kept from the evil!
 

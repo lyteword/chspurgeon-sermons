@@ -52,8 +52,8 @@ Moreover, Jesus bids us observe this ordinance in remembrance of Him. Now, a man
 
 These are some very plain and simple questions which I beg you to put to yourselves. And if you do not know Christ, if you do not love Him, if you do not love His people, if you are not trusting in His blood, if you have never been born again, if you have nothing of the Grace of God in you, get far away from His Table, I pray you, for you would only be eating and drinking condemnation to yourselves if you partook of the emblems of Christ's broken body and shed blood! But if you have the least evidence of a work of Grace within your soul. If you have the feeblest faith&mdash;as long as it is true faith&mdash;if you are really resting in Jesus for salvation, come and welcome to His Table&mdash;
 
-> How happy are Your servants, Lord,   
-> Who thus remember You!   
+> How happy are Your servants, Lord, 
+> Who thus remember You! 
 
 This brings me to the third head, which is THE DUTY AFTER THE EXAMINATION&mdash;"Let a man examine himself, and so let him eat of that bread, and drink of that cup."
 

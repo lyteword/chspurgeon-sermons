@@ -54,10 +54,10 @@ That is good ground for you to stand upon! That is solid rock. But some men seem
 
 Do not look anywhere else for anyone or anything that can save you, but look to Christ, and to Christ alone! Are you too proud to do that? You will have to humble yourself beneath the mighty hand of God&mdash;and the sooner you do so, the better will it be for you. "Oh, but I, I&mdash;I must surely do something!" Listen&mdash;
 
-> Till to Jesus' work you cling   
-> By a simple faith,   
-> 'Doing'is a deadly thing,   
-> 'Doing'ends in death! Cast your deadly 'doing' down, Down at Jesus' feet, Stand in Him, in Him alone, Gloriously complete!   
+> Till to Jesus' work you cling 
+> By a simple faith, 
+> 'Doing'is a deadly thing, 
+> 'Doing'ends in death! Cast your deadly 'doing' down, Down at Jesus' feet, Stand in Him, in Him alone, Gloriously complete! 
 
 This is the Gospel&mdash;"Believe on the Lord Jesus Christ, and you shall be saved." You will never see up in Heaven a sign bearing the names ,"Christ, and Co." No, it is Christ, and Christ alone, who is the sinner's Savior! He claims this for Himself&mdash;"I am Alpha and Omega." That is, "I am a, and I am Z. I am the first letter of the alphabet, and I am the last letter, and I am every other letter from the first down to the last." Will you make Him to be so to you, dear Friend? Will you take Him to be your Savior now? "He that believes on the Son has everlasting life." A friend told us, at one of our Prayer Meetings, that "H-a-Sspells, "got it." "He that believes on the Son is a saved sinner, he has got that everlasting life that can never die and can never be taken away from him. Therefore, Beloved Friends, believe in Jesus and you, too, shall have this eternal life! You shall have pardon, you shall have peace, you shall have God, and you shall have Heaven, itself, to enjoy before long! God do so unto you, for His great mercy's sake in Christ Jesus! Amen and Amen.
 

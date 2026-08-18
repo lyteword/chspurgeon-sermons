@@ -76,22 +76,22 @@ Now I close by giving you some INSTANCES TO BE EXPECTED to which the rule of the
 
 Let all who are of the family of Christ remember that God will soon take away from us everything that we have here below. He will take us away from it, which is the same thing as taking it away from us. But, as you anticipate this great change, do not look forward to it with sorrow! Do not shed a single tear of regret at the thought of parting with anything that you now possess. Regret not the dear old home, notwithstanding all its happy associations. Mourn not that you must leave your beloved country, of which you say that, wherever you wander, it is still the joy of your heart! You will have to leave your native land and to leave your happy home&mdash;but you may be comforted by the assurance of the text, "He takes away the first, that He may establish the second," for there is a better country, that is, the heavenly land! We, who believe in Jesus, are citizens of the New Jerusalem and, as all earthly cities and the fair prospects of the country shall melt away from our eyes, we shall look upon a fairer land and a more glorious city, where no fog or blight shall ever come, but where&mdash;
 
-> Rocks and hills, and brooks and vales,   
-> With milk and honey flow.   
-> All over those wide extended plains,   
-> Shines one eternal day.   
-> There God the Sun forever reigns,   
-> And scatters night away.   
-> No chilling winds, or poisonous breath,   
-> Can reach that healthful shore&mdash;   
-> Sickness and sorrow, pain and death,   
-> Are felt and feared no more.   
+> Rocks and hills, and brooks and vales, 
+> With milk and honey flow. 
+> All over those wide extended plains, 
+> Shines one eternal day. 
+> There God the Sun forever reigns, 
+> And scatters night away. 
+> No chilling winds, or poisonous breath, 
+> Can reach that healthful shore&mdash; 
+> Sickness and sorrow, pain and death, 
+> Are felt and feared no more. 
 
 God will take away our home on earth, but in our Father's House above there are many mansions. Therefore you may go, cheerful fireside! You may go, happy home! All that was loved, all that was delighted in may melt away, as I sing&mdash;
 
-> My Father's House on high,   
-> Home of my soul! How near,   
-> At times, to faith's foreseeing eyes, Your golden gates appear!   
+> My Father's House on high, 
+> Home of my soul! How near, 
+> At times, to faith's foreseeing eyes, Your golden gates appear! 
 
 If Moses, from the top of Pisgah, was glad to die with the earthly Canaan in sight, how much more may we be happy to die with the heavenly Canaan just before us, into which we are to enter! "He takes away the first, that He may establish the second."
 

@@ -72,8 +72,8 @@ getting on very well.' And as soon as the devil said that, you thought, 'Tom is 
 
 That is what I desire to know myself, for if I know nothing but the power which comes from on high. I can never be less powerful at one time than at another and I can glory in my infirmity because it makes room for Christ's power to rest upon me&mdash;
 
-> I glory in infirmity,   
-> That Christ's own power may rest on me: When I am weak, then am I strong, Grace is my shield, and Christ my song.   
+> I glory in infirmity, 
+> That Christ's own power may rest on me: When I am weak, then am I strong, Grace is my shield, and Christ my song. 
 
 It would be a good resolution for you, Brothers, and for myself, to determine to know nothing about ourselves and nothing about our own doings. Now friend John, begin to think nothing about yourself and to know nothing but Jesus Christ. Let John go where he likes and be you relying not upon John's strength, but upon Christ's. And you, Peter, know nothing about Peter at all, and do not boast, "Though all men should deny You, yet will I never deny You," but know that Peter's Lord Jesus is living inside Peter&mdash;and then you may go on comfortably enough.
 
