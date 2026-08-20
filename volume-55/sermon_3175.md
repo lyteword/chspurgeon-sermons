@@ -95,15 +95,15 @@ You and I are like Jacob. The Lord said to Him, "The land whereon you lie, to yo
 
 We must get this perfect peace of which we have now been singing and speaking. I admire in certain of the saints their self-command, their great quiet and deep restfulness of spirit. It is not everything, but it is a very great deal. It is all the more necessary just now because the world is in such a hurry. It is necessary to us when we are weak and suffering, and when we are surrounded by cares and sorrows. Yet it is quite as valuable when we are strong and young and comfort would tempt us aside. Oh, that the world may see that we have a peace that cannot be taken away from us by force or fraud! I do not quite like that saying of Addison, "Come here, young man, and see how a Christian can die." It looks too theatrical. But I should like it to be so with us that men might turn aside to see how a Christian can live! O Lord and Giver of peace, grant us Your peace, and Grace to keep it, even to the end!
 
-EXPOSITION BY C. H. SPURGEON: HOSEA 14.
+Exposition by C. H. Spurgeon: Hosea 14.
 
-Verse 1. O Israel, return unto the LORD your God,  Bless His name that He is still your Gil! However much you may have backslid-
+Verse 1. O Israel, return unto the Lord your God,  Bless His name that He is still your Gil! However much you may have backslid-
 
 den, you have not lost your right to claim Him as your God, for He is yours eternally by a fixed promise. And because He is still your God, let His everlasting kindness entice you to come back to Him."
 
 For you have fallen by your iniquity. "You have lost your comforts, you have become a poor despicable creature. You have fallen by your iniquity&mdash;this is the eve of all the mischief&mdash;your sin is the seed of all your ruin! Get rid of that and you shall soon have your comforts back again."
 
-Take with you words, and turn to the LORD: say unto Hi . See, He puts the words into your mouth, as if He felt persuaded that you would say, "Lord, I cannot pray an acceptable prayer," He makes one for you, so that you who have backslidden the most and have gone the farthest astray, may have no excuse&mdash;"Turn to the Lord: say unto Him."
+Take with you words, and turn to the Lord: say unto Hi . See, He puts the words into your mouth, as if He felt persuaded that you would say, "Lord, I cannot pray an acceptable prayer," He makes one for you, so that you who have backslidden the most and have gone the farthest astray, may have no excuse&mdash;"Turn to the Lord: say unto Him."
 
 Take away alliniquity andreceive us graciously: so will we render the calves ofour lips. "Our thankfulness shall give You such hearty praise that it shall not be like the Jew's slender sacrifice, when he offered the turtle-doves or the young pigeons, but we will give You of our praise as hearty a sacrifice as when the devout Israelite brought the young bullock, the very best of his beasts to be offered upon the altar of his God. So we will offer to You the calves of our lips."
 
@@ -149,6 +149,6 @@ I have heard him, and observed him: I am like a green fir tree. That is what Eph
 
 From Me is your fruit found  We are never so fruitful as when we get all our fruit from God! We always shine in borrowed light and we are always fruitful in borrowed fruitfulness.
 
-Who is wise, and he shall understand these things? Prudent, and he shall know them? For the ways of the LORD are righ. Did your murmuring spirit say that they were not right? Because you have had some sore trial, did your repining spirit say that they were not right? They are certainly right and you shall see that it is so one day! "The ways of the Lord are right."
+Who is wise, and he shall understand these things? Prudent, and he shall know them? For the ways of the Lord are righ. Did your murmuring spirit say that they were not right? Because you have had some sore trial, did your repining spirit say that they were not right? They are certainly right and you shall see that it is so one day! "The ways of the Lord are right."
 
 And the just shall walk in them: but the transgressors shall fall therein. Even in God's good ways, transgressors cannot stand&mdash;they fall even when they try to praise God, or to pray to Him&mdash;and this is a sad proof of man's deep depravity, that even when he is engaged in the worship of God, the thing which is, in itself, good, becomes obnoxious to God by reason of the sin which is certain to be mingled with it!
