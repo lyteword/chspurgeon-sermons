@@ -1,6 +1,6 @@
 # Sermon 2427 | "The Ark of His Covenant"
 
-"And the Temple of God was opened in Hea ven, and there was seen in His Temple the ark of His testament [covenant&mdash;R.V.] and there were lightning, and voices, and thundering, and an earthquake, and great hail." Revelation 11:19.
+"And the Temple of God was opened in Hea ven, and there was seen in His Temple the ark of His testament  and there were lightning, and voices, and thundering, and an earthquake, and great hail." Revelation 11:19.
 
 I shall take the passage quite by itself. I do not fully understand its context, whether it relates to that which goes before or to that which comes afterwards, and happily, it is not necessary for us to know this, for the passage stands complete in itself and is full of valuable instruction.
 

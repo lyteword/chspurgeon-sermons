@@ -24,7 +24,7 @@ Now, take the testimonies mentioned in our text to be God's Word, God's Covenant
 
 Secondly, I want you to proceed to TAKE POSSESSION OF THE ESTATE. What did David say? "Your testimonies have I taken." He had taken possession of them and our next enquiry must be, how can we take possession of them?
 
-I need not, this evening, repeat what I did this morning. You remember how I went to our friend, behind me, and offered him my hand and he took it? [Sermon #1964, Volume 33&mdash;Why Is Faith so Feeble?] Now, this blessed estate of Divine Grace is as free to any soul who is willing to have it as a shake of my hand was to my friend when he grasped it this morning! The Gospel of Grace is as free as the air you breathe&mdash;
+I need not, this evening, repeat what I did this morning. You remember how I went to our friend, behind me, and offered him my hand and he took it?  Now, this blessed estate of Divine Grace is as free to any soul who is willing to have it as a shake of my hand was to my friend when he grasped it this morning! The Gospel of Grace is as free as the air you breathe&mdash;
 
 > None are excluded hence but those   
 > Who do, themselves, exclude.   
