@@ -2,7 +2,7 @@
 
 "And for a helmet the hope of salvation." 1 Thessalonians 5:8.
 
-THE very mention of a helmet may well seem to REMIND EVERY CHRISTIAN HERE THAT HE IS a SOLDIER.
+THE very mention of a helmet may well seem to REMIND EVERY ChristIAN HERE THAT HE IS a SOLDIER.
 
 If you were not soldiers, you would not need armor. But being soldiers, you need to he clad from head to foot in armor of proof. I suppose every Christian here knows, as a matter of theory, that he is a Christian soldier and that he has been enlisted under the banner of the Cross to fight against the powers of darkness until he wins the victory. But we all need to have our memories refreshed upon this matter, for soldiering, in time of war, at any rate, is not a very pleasant occupation&mdash;and the flesh constantly attempts to give it over. That "we have no abiding city here," is a Truth of God which we all know and yet the most of us try to make the earth as comfortable for ourselves as if it were to be our abiding residence! We are all soldiers&mdash;we know that&mdash;but still, too many Christians act as if they could be the friends of the world and the friends of God at the same time. Now, Christian, remember once and for all that you are a soldier! Did you dream, young man, that as soon as you were baptized and added to the Church, the conflict was all over? Ah, it was then but just beginning! Like Caesar, you then crossed the Rubicon and declared war against your deadly enemy. You drew your sword&mdash;you did not sheathe it. Your proper note on joining the Church is not one of congratulation, as though the victory were won, but one of preparation&mdash;for now the trumpet sounds and the fight begins! You are a soldier at all times, Christian! You ought to sit even at your table as a soldier sits and you should go out especially into the world as a soldier goes out. Never take off your armor, for if you do, in some unguarded moment you may meet with serious wounds! But keep your armor always about you and be watchful, for you are always in the midst of enemies wherever you may be! And even when the persons who surround you are your friends, there are still evil spirits, unseen of men, who watch for your tripping&mdash;and you must not put up your sword, for you are to wrestle against principalities, powers and spiritual wickedness in high places&mdash;against whom you must always be on the watch. You are a soldier, Christian&mdash; remember that!
 
@@ -82,9 +82,9 @@ Ah, it is not very likely that any sword of mine will get at your head! Argument
 
 Oh, I wish you would take off that helmet! May God grant you Grace to unbuckle it tonight, never to put it on again! Do care. You are not a fool, my Friend, are you? It is only a fool who says, "What do I care?" Surely you care about your soul! Surely Heel is worth escaping from! Surely Heaven is worth winning! Surely that Cross on which our Savior died is worth thinking of Surely that poor soul of yours is worth caring about! Do, I pray you, think, and not go hastily on. Oh, may Jesus Christ, who died for such as you are, bring you to trust Him! And then, unbuckling all that evil armor of, "What do I care?" you will bow before His Cross and kiss His hands&mdash;and He will put upon you the golden helmet of a hope of salvation and you will rise, one of the Kings own soldiers, to fight His battles and win an immortal wreath of everlasting victory! May it is so with every one of us!
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-1THESSALONIANS 5:1-28.
+1Thessalonians 5:1-28.
 
 Verses 1, 2. But of the times and the seasons, brethren, you have no need that I write you. For you yourselves know perfectly that the day of the Lord comes as a thief in the night It will be a great surprise to the wicked. It will take them by surprise. Just at that moment when they least expect it, Christ will come, and as the thief comes to destroy and to kill, so will the coming of Christ be the death of their carnal ease&mdash;the destruction of their earthly hopes!
 
