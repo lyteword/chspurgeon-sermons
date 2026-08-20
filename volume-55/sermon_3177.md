@@ -2,9 +2,9 @@
 
 "My eyes have seen Your Salivation." Luke 2:30.
 
-THOUSANDS of times that song of Simeon has been sung by careless, thoughtless persons, but surely it is one of those songs that ought never to come except from believing lips. To make it merely a part of a liturgy and for shamelessly living men to say, "My eyes have seen Your Salvation," must be an atrocious sin before God! Let all who have ventured to use such words as these without having thought of their meaning, confess their sin before God and ask that He would make those words to be true which have up to now been so frivolously uttered and that before they close their eyes in death, they maysee God's Salvation!
+Thousands of times that song of Simeon has been sung by careless, thoughtless persons, but surely it is one of those songs that ought never to come except from believing lips. To make it merely a part of a liturgy and for shamelessly living men to say, "My eyes have seen Your Salvation," must be an atrocious sin before God! Let all who have ventured to use such words as these without having thought of their meaning, confess their sin before God and ask that He would make those words to be true which have up to now been so frivolously uttered and that before they close their eyes in death, they maysee God's Salvation!
 
-I shall, first of all, TAKE THE TEXT AS IT DROPS FROM SIMEON's LIPS and follow his leading.
+I shall, first of all, take the text as it drops from Simeon's lips and follow his leading.
 
 We will start with Simeon's main idea. He came into the Temple. He saw there a little Babe and he recognized, in that newly born Child, Jesus the promised Savior! And as he took up that Savior into his arms, he said, "Mine eyes have seen"&mdash;what? "Your Salvation," God's Salvation&mdash;not only the Worker of the Salvation, but the Salvation itself! From which I gather that wherever we see Jesus, we see God's Salvation, Wherever our eyes spiritually light upon the Christ of God, there we see God's Salvation! Whether in Bethlehem's manger, or on Calvary's Cross, or on yonder Throne of Glory from which He shall judge the quick and the dead&mdash;wherever we see Him, we see the Salvation of God!
 
@@ -36,7 +36,7 @@ they shall wing their triumphant way, for Jesus Christ shall be to them, as to u
 
 God.
 
-And now, in the second place, we shall TAKE SOME LEAVES OUT OF OUR OWN AUTOBIOGRAPHY.
+And now, in the second place, we shall take some leaves out of our own autobiography.
 
 The text says, "My eyes have seen Your Salvation." Simeon must not be allowed the monopoly of these words. I claim them, "My eyes have seen Your Salvation.''" Brothers and Sisters, many of you can, in a spiritual sense, use the same language as the Patriarch about to depart uses. You too, can say, "My eyes have seen Your Salvation." Will you turn over the book of your life awhile as I turn over mine?
 
@@ -72,7 +72,7 @@ And, Brothers and Sisters, (to put a better, a more pleasing light upon it)&mdas
 
 when I shall see Him&mdash;and see Him I shall, for I can say with Job, "Whom I shall see for myself and my eyes shall behold, and not another." When you and I shall cast our crowns at His feet, when we shall raise our voices with all the white-robed throng in the everlasting hallelujahs, then we shall say, "My God, my Father, 'My eyes have seen Your Salvation.'"
 
-Time fails me, so I must pass on to spend a few minutes in a third portion of my topic. It is this&mdash;THERE ARE SOME HERE WHO HAVE NEVER SEEN God's SALVATION.
+Time fails me, so I must pass on to spend a few minutes in a third portion of my topic. It is this&mdash;there are some here who have never seen God's salvation.
 
 The Gospel is hid from them. And if it is hid, it is not hid because we have used hard words to hide it. "If our Gospel is hid, it is hid from them who are lost; in whom the god of this world has blinded the minds of them which believe not." Blind Sinner, do you desire to see the Salvation of God? "Ah," you say, "If I know my own heart, I do." Why, then, can you not see it, Man? It is very plain. Ah, I see, your eyes are sealed up!
 
@@ -94,7 +94,7 @@ Verses 1-9. And it came to pass in those days, that there went out a decree from
 
 And this shall be a sign unto you&mdash;You shall find the Babe wrapped in swaddling clothes, lying in a manger [See
 
-Sermons #1026, Volume 17&mdash;JOY BORN AT BETHLEHEM and #1330, Volume 22&mdash;THE GREAT BIRTHDAY] Not in marble halls, wrapped in purple and fine linen and welcomed by the great and mighty of earth! No, this greatest of all princes is born amid the poverty of our ordinary manhood! He is One chosen out of the people, the people's Savior&mdash;and a manger receives the people's King.
+Sermons #1026, Volume 17&mdash;joy born at bethlehem and #1330, Volume 22&mdash;the great birthday] Not in marble halls, wrapped in purple and fine linen and welcomed by the great and mighty of earth! No, this greatest of all princes is born amid the poverty of our ordinary manhood! He is One chosen out of the people, the people's Savior&mdash;and a manger receives the people's King.
 
 And suddenly there was with the angel a multitude of the heavenly host praising Go . They could not stay behind! The news spread through Heaven that an angel had gone to announce the birth of Christ and the others flew through the pearly gates and hastened to overtake the herald&mdash;and reached him just as he had concluded his message&mdash; "Suddenly there was with the angel a multitude of the heavenly host." These cohorts of the Lord came riding post haste, Praising God.
 
