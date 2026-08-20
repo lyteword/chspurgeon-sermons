@@ -4,7 +4,7 @@
 
 
 
-BEARING in mind the objective of our Savior's discourse, which was to describe the saved, and not to declare the plan of salvation, we now come to consider the first of the Beatitudes&mdash;
+bearing in mind the objective of our Savior's discourse, which was to describe the saved, and not to declare the plan of salvation, we now come to consider the first of the Beatitudes&mdash;
 
 "Blessed are the poor in spirit: for theirs is the Kingdom of Heaven."
 
@@ -26,9 +26,9 @@ grafting in of the Word into our spirit, the bringing of the Truth of God into o
 
 The highest grade of outward religiousness is not blessed, but the very lowest form of spiritual Grace is endowed with the Kingdom of Heaven! Better to be spiritual, even though our highest attainment is to be poor in spirit, than to remain carnal, even though in that carnality we should brag of perfection in the flesh. The least in Grace is higher than the greatest in Nature! Poverty of spirit in the publican was better than fullness of external excellence in the Pharisee. As the weakest and poorest man is nobler than the strongest of all the beasts of the field, so is the meanest spiritual man more precious in the sight of the Lord than the most eminent of the self-sufficient children of men. The smallest diamond is worth more than the largest pebble, the lowest degree of Grace excels the loftiest attainment of Nature! What do you say to this, beloved Friend? Are you spiritual? At least, are you enough so to be poor in spirit? Does there exist for you a spiritual realm, or are you locked up in the narrow region of things seen and heard? If the Holy Spirit has broken a door for you into the spiritual and unseen, then you are blessed even though your only perception as yet is the painful discovery that you are poor in spirit! Jesus on the mountain blesses you, and blessed you are!
 
-Drawing still nearer to our text, we observe, first, that THE PERSON DESCRIBED HAS DISCOVERED a
+Drawing still nearer to our text, we observe, first, that the person described has discovered a
 
-FACT&mdash;he has ascertained his own spiritual poverty. And secondly, BY a FACT HE IS COMFORTED&mdash;for he possesses "the Kingdom of Heaven."
+fact&mdash;he has ascertained his own spiritual poverty. And secondly, by a fact he is comforted&mdash;for he possesses "the Kingdom of Heaven."
 
 The fact which he has ascertained is an old Truth of God, for the man was always spiritually poor. From his birth he was a pauper and at his best estate he is only a mendicant. "Naked, and poor, and miserable" is a fair summary of man's condition by nature. He lies covered with sores at the gates of Mercy, having nothing of his own but sin, unable to dig and unwilling to beg&mdash;and therefore perishing in a penury of the direst kind.
 
@@ -54,7 +54,7 @@ lest he should, in any measure, be a hypocrite in the desires which he perceives
 
 It may seem to some to be a small matter to be poor in spirit. Let such persons remember that our Lord so places this gracious condition of heart that it is the foundation stone of the celestial ascent of the Beatitudes&mdash;and who can deny that the steps which rise from it are sublime beyond measure? It is something inexpressibly desirable to be poor in spirit if this is the road to purity of heart and to the godlike character of the peacemaker! Who would not lay his head on Jacob's stone to enjoy Jacobs dream? Who would scorn the staff with which in poverty he crossed the Jordan if he might but see the Kingdom of Heaven opened as the Patriarch did? Welcome the poverty of Israel if it is a part of the conditions upon which we shall receive the blessing of Israel's God! Instead of despising the poor in spirit, we shall do well to regard them as possessing the dawn of spiritual life, the germ of all the Graces, the initiative of perfection, the evidence of blessedness!
 
-Having spoken thus much upon the character of those who are poor in spirit as being formed by the knowledge of a fact, we have now to note that IT IS BY a FACT THAT THEY ARE CHEERED AND RENDERED BLESSED&mdash; "For theirs is the Kingdom of Heaven."
+Having spoken thus much upon the character of those who are poor in spirit as being formed by the knowledge of a fact, we have now to note that it is by a fact that they are cheered and rendered blessed&mdash; "For theirs is the Kingdom of Heaven."
 
 It is not a promise as to the future, but a declaration as to the present&mdash;not theirs shall be, but "theirs is the Kingdom of Heaven." This Truth is clearly revealed in many Scriptures by necessary inference, for first, the King of the heavenly kingdom is constantly represented as reigning over the poor David says in the seventy-second Psalm, "He shall judge the poor of the people, He shall save the children of the needy...He shall spare the poor and needy and shall save the souls of the needy." As His virgin mother sang, "He has put down the mighty from their seats, and exalted them of low degree. He has filled the hungry with good things, and the rich He has sent away empty." Those who enlist beneath the banner of the Son of David are like those who of old came to the son of Jesse in the cave of Adullam&mdash;"Everyone that was in distress, and everyone that was in debt, and everyone that was discontented, gathered themselves unto him; and he became a captain over them." "This Man receives sinners and eats with them." His title was "A Friend of Publicans and Sinners." "Though He was rich, yet for our sakes He became poor," and it is therefore right that the poor should be gathered unto Him. Since Jesus has chosen the poor in spirit to be His subjects and said, "Fear not, little flock, for it is your Father's good pleasure to give you the Kingdom," we see how true it is that they are blessed.
 
@@ -70,7 +70,7 @@ The dominion awarded by this Beatitude to the poor in spirit is no common one. I
 
 "Poor in spirit." The words sound as if they described the owners of nothing, and yet they describe the inheritors of all things! Happy poverty! Millionaires sink into insignificance! The treasures of the Indies evaporate in smoke while to the poor in spirit remains a boundless, endless, faultless Kingdom which renders them blessed in the esteem of Him who is God over all, blessed forever! And all this is for the present life in which they mourn and need to be comforted, hunger and thirst and need to be filled. All this is for them while yet they are persecuted for righteousness' sake. What, then, must be their blessedness when they shall shine forth as the sun in the Kingdom of their Father and in them shall be fulfilled the promise of their Master and Lord, "to him that overcomes will I grant to sit with Me on My Throne, even as I also overcame, and am set down with My Father on His throne"?
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW5:31-42.
+Exposition by C. H. Spurgeon: Matthew5:31-42.
 
 
 
