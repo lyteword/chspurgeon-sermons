@@ -4,7 +4,7 @@
 
 
 
-HERE we see a Believer full of comfort cheering others. The words of good cheer now before us are from a man, but inasmuch as he does but repeat what the Lord had spoken to him, they are none the less precious. And they may be all the more profitable if they move us, by their example, to speak words of cheer to others.
+Here we see a Believer full of comfort cheering others. The words of good cheer now before us are from a man, but inasmuch as he does but repeat what the Lord had spoken to him, they are none the less precious. And they may be all the more profitable if they move us, by their example, to speak words of cheer to others.
 
 The Believer is sure to come to the front. He may be hidden away in the crowd and his condition and circumstances may put him in the rear rank for a time, but his light will by some means rise out of obscurity. Paul is nothing but a prisoner all the time the ship sails safely. He is courteously entreated, yet he holds rank among others who are being carried to Rome for trial. But the storm comes on and the ship is driven before the tempest&mdash;and he who was only a prisoner becomes practically the chief man in the ship! The owner, the captain, the centurion&mdash;these are very small figures in the picture. You scarcely notice them in the group huddled together in the laboring boat. Paul is the center of the whole company, the observed of all. He is as much the master of the ship as Caesar was when, in the tempest, he encouraged the mariners with the words, "Fear not, you carry Caesar and all his fortunes." Paul is greater than Caesar, for he says less of himself and more of the Eternal God. He is evidently reverenced and esteemed even by those who hold him in chains.
 
@@ -14,7 +14,7 @@ among men as prophets, priests and kings! Are not the saints the twice-born of a
 
 Let us think for a while of the Apostle's character as set forth in his cheery speech and view him under three aspects. First, let us see in him the avowed believer Secondly, let us consider him as the bold prophet. Thirdly, as the sympathetic comforter. May we, by God's good Spirit, be made to bear each of these characters!
 
-First, as we read our text, the Apostle will be seen as THE AVOWED BELIEVER. Hear him as he says, "I believe God, that it shall be even as it was told me."
+First, as we read our text, the Apostle will be seen as the avowed believer. Hear him as he says, "I believe God, that it shall be even as it was told me."
 
 He commences his statement of his faith by saying that he believed God. We cannot have a better basis of faith than that! We must settle in our minds that there is a God, that the Word of God must certainly be true, absolutely infallible, and beyond all question. "I believe God"&mdash;if a man can say no more than this, it means, in the very mildest sense of it, he is on the way towards faith. But he who can say, "I believe God," in such a sense as the Apostle intended has reached to an eminent height of faith and has obtained the elements of spiritual strength.
 
@@ -38,9 +38,9 @@ Before we leave this point we ought to notice that while Paul thus believed God,
 
 Nowadays, people are so dreadfully modest that they are afraid to glorify God. God save us from such cowardice! Infidelity brawls in every street&mdash;shall faith be dumb? If you believe, there is at this time a grave necessity that you should declare your faith, for unbelief is rampant. Look at the high-class reviews, look at popular literature&mdash;these things reek with unbelief of the worst kind! Alas that it should ever come to this&mdash;that men who call themselves Christians should lend their pens to suggest and spread infidel principles and even enter into pulpits to insinuate mistrust of the Truths of God which they were ordained to preach! Honesty seems to have fled from the earth and men have lost all conscience. Let us who believe in God speak out at once, though men will call us narrow-minded, destitute of culture, incapable of enlarged views and other pretty things! What does it matter what they say? All that they say or insinuate should only make us the more vehemently declare, "I believe God." Why it has become a rare thing to meet a man who believes anythingnow, for the reputed wise man of the period is he who says, "I do not believe in anything in particular. I hold certain views, but I am quite prepared to change them, for there is a great deal to be said on the other side." This is not after the manner of Christ, nor according to the ways of the faithful in the olden time, who held fast the form of sound words and were ready to die for the Truths of God which had taken possession of their souls. It is time now, if ever in the world's history, for those who are Believers to speak with all confidence. Fear nothing! Can there be anything to fear in believing God? Can there be any shame in avowing an implicit faith in the God of Truth? For my own part, I had rather be ridiculed for bigotry than be applauded for "advanced and liberal views." I would sooner be despised with the orthodox than reign with "the intellectual."
 
-We have thus gone over Paul's words as an avowed Believer. And now we may turn to look at him AS a BOLD
+We have thus gone over Paul's words as an avowed Believer. And now we may turn to look at him as a bold
 
-PROPHET.
+prophet.
 
 Far be it from any one of us to set ourselves up as prophets, for thereunto we are not called. Yet every truly instructed Christian is in some sense a prophet and may prophesy according to the proportion of faith, if he will follow the true method. Paul was not rash in his prophecies. He confined himself to revelation. He said, "It shall be." But what shall be? "It shall be as it was told me." You may always go that length&mdash;and you will be to many men a wonderful personage. If you go only as far as that, they will marvel that you dare say, "It shall be even as it was told me." We speak positively where they can only guess and dream. We cannot see behind that veil which hides the future, but we know what is to come as to some matters, for God has told us and we can, therefore, prophesy that it shall be according to His declaration. Learn from Paul not to be a presumptuous dreamer, but a prudent speaker.
 
@@ -60,17 +60,17 @@ lent spirits to sit down by the side of some poor half-starved woman who is full
 
 May God make you to be so far a prophet that you may be prophetic on several points! In the first place, always declaring that God will hear believing prayer and, next, that a wrong thing cannot have the Divine blessing resting upon it. Be prophet enough to say these two things and act upon them as downright matters of fact. You can also foretell that if the Gospel is faithfully and simply preached, with the Holy Spirit sent down from Heaven, it will win souls. You may prophesy that and never fail! And you may prophesy, also, that if the biggest sinner in the world will come to Christ, he shall be forgiven! That if the vilest heart will yield itself to the Savior, it shall be renewed! That if the most rebellious and obstinate man that ever lived is touched by the finger of God and is led to repentance and faith, he is capable of becoming one of the brightest of the sons of God! No one shall ever shame you by proving that you spoke falsely if you speak for God in this fashion! Speak out, then, and banish guilty silence.
 
-The Apostle may be viewed in a third character, as a SYMPATHETIC COMFORTER.
+The Apostle may be viewed in a third character, as a sympathetic comforter.
 
 They were all in trouble, for they were all in danger of drowning. The ship was going to pieces, death stared them in the face, dismay was written on every countenance, but Paul says to them, "Sirs, be of good cheer." Doubtless, his cheerful tones and manly voice helped to banish their fears and to prevent a panic. Beloved Christian Friend, should it not be our effort, wherever we are, to make troubled ones happy? Next to loving God, the first duty of a Christian is to spread peace on earth and goodwill to men. Whenever we meet with a person in trouble&mdash;I do not mean only spiritual trouble&mdash;we should administer relief. Even when we meet with a child who has lost a penny, or has broken a jug, we should take pleasure in soothing its grief. His mother will scold him, so buy him another jug, if you can, and try and cheer his little heart. What a mass of happiness you can buy for a few pence, if you will spend them on poor children.
 
 Where money is not needed, you may give sympathy and consolation, and these will be much valued. Do not reply that you are unable to act as a comforter. Learn the art. If you cannot speak well, there is a better way than speech. A little child once said to her mother, "Mother, I stopped with Widow Brown, for she said that I comforted her so." "Well, I daresay you did, my Dear," the mother replied. "But, Mother, I do not see that I am of any use to her, for I cannot tell her anything&mdash;but I put my cheek against hers and when she cries, I cry too&mdash;and she says that it comforts her." Exactly so. This little child shall lead us. Herein is wisdom. "Weep with them that weep." You cannot more effectually console them. Comfort others with the comfort with which you yourself are comforted of God, for Paul said, "Be of good cheer. I believe God, that it shall be even as it was told me." He had been comforted of the Lord and with this consolation he could cheer others. The Lord grant us Grace to be looking out for those who are in any sort of affliction, that we may cheer their hearts. But let us be doubly watchful over those in spiritual distress. Let no one in our neighborhood ever complain, "No man cares for my soul." Comfort God's people and labor at the same time to win sinners to Jesus&mdash;and the love of your heart shall bring untold blessings into your own bosom! Happiness is contagious and the cheerfulness of your piety will be so attractive that the careless and indifferent will be allured to the ways of piety. Do not run about with ill news, but make your communications joyous by mixing up the glad tidings of salvation with your cheerful daily talk! So shall you imitate your Lord and His Apostle by saying "Be of good cheer."
 
-EXPOSITION BY C. H. SPURGEON: PSALM 90; ACTS27:1-26.
+Exposition by C. H. Spurgeon: Psalm 90; Acts27:1-26.
 
 Psalm 90 is entitled "A Prayer of Moses, the man of God," and it furnishes a suitable prayer for every man of God. Any men of God who have had experience as deep, trying and varied as that of Moses will be the better able to enter into the spirit of the Psalm.
 
-Psalm 90:1. LORD You have been our dwelling place in all generations.  "This world in which we live is no home for our immortal
+Psalm 90:1. Lord You have been our dwelling place in all generations.  "This world in which we live is no home for our immortal
 
 spirits. You give us habitations for our bodies, but there are no dwelling places for our spirits that are of a nobler order. We dwell in You, O Lord; You are our home. Beneath Your wide wings we find blessed shelter and in communion with
 
@@ -80,7 +80,7 @@ Before the mountains were brought forth, or ever You had formed the earth and th
 
 You turn man to destruction; and say, Return, you children of men. Man is mortal, conspicuously so. As we walk about our streets, how we miss our old companions, one by one! They have returned to the bosom of mother earth from where they first sprang. The inhabitants of this world seem to pass in procession before our eyes&mdash;those who were here a few minutes ago are gone and another rank has come, and another, and another and they will soon all be gone&mdash;and we shall be gone too. He, then, who hopes to find a home among the sons of men will miss it, but he who makes the eternal God his habitation shall still be at home in the Lord even when wife, and child, and brother, and friend all sleep in the silence of the sepulcher.
 
-For a thousand years in Your sight are but as yesterday when it is past, and as a watch in the night. Our measurements of time are nothing to God. There is nothing past and nothing future with Him&mdash;all things are present in the eternal NOW of God. What a wonderful Truth this is of the eternal existence of God&mdash;and what boundless comfort it brings to the man who feels that this God is his God, his Father, his Friend and his All-in-All!
+For a thousand years in Your sight are but as yesterday when it is past, and as a watch in the night. Our measurements of time are nothing to God. There is nothing past and nothing future with Him&mdash;all things are present in the eternal now of God. What a wonderful Truth this is of the eternal existence of God&mdash;and what boundless comfort it brings to the man who feels that this God is his God, his Father, his Friend and his All-in-All!
 
 6. You carry them away as with a flood; they are as a sleep in the morning; they are like grass which grows up. In the morning it flourishes and grows up; in the evening it is cut down, and withers. Such is the best estate of man&mdash;a field bedecked with daisies, kingcups and other frail flowers, but the mower's scythe is near&mdash;you may hear him sharpening it! And soon along the sward, all the sons of men shall fall&mdash;and you who have found your hope, your Heaven, your confidence here&mdash;how poor will you be in the end thereof! But O you who have sent all your heart's desires upwards to your God, you who are living in the future, living in the infinite, how secure are you, for no rust shall fret your gold, no moth consume your garments! You are blessed indeed.
 
@@ -94,7 +94,7 @@ possible to exaggerate here&mdash;the power of God's anger is immeasurable, and 
 
 So teach us to number our days, that we may apply our hearts unto wisdom. That is the great matter, after all, to get the heart applied to wisdom, to learn what is the right way and to walk in it in the practical actions of daily life. It is of little use for us to learn to number our days if it merely enables us to sit down in self-confidence and carnal security! But if our hearts are applied to true wisdom, the Lord's teaching has been effectual.
 
-13, 14. Return, O LORD, how long? And let it repent You concerning Your servants. O satisfy us early with Your
+13, 14. Return, O Lord, how long? And let it repent You concerning Your servants. O satisfy us early with Your
 
 mercy; that we may rejoice and be glad all our days.  Dear young people, here is a suitable
 
@@ -106,13 +106,13 @@ And each one of us may pray this prayer. "Lord, now give us Your mercy! If we ar
 
 Make us glad according to the days wherein You have afflicted us, and the years wherein we have seen evi. [See
 
-Sermon #1701, Volume 29&mdash;GLADNESS FOR SADNESS.] It is right, then, to
+Sermon #1701, Volume 29&mdash;gladness for sadness.] It is right, then, to
 
 pray for joy. Indeed, joy is so conspicuous a blessing to a Christian&mdash;it is so closely connected with the healthfulness of all his virtues that he should seek after it until he finds it!
 
 Let Your work appear unto Your servants, and Your glory unto their children. "Lord, let us see Your work here! Oh, for Your name's sake, take Your right hand and work mightily in our midst! Withdraw not the working of the Holy Spirit from us, Your people! Let Your work of conversion, Your work of edification, Your work of the conquest of the world appear unto Your servants!"
 
-And let the beauty of the LORD our God be upon us: and establish the work of our hands for us; yes, establish the work of our hand. "Let not what we do for You fall to the ground like a badly built wall! Let not our work be consumed in the great testing fire, 'but establish the work of our hands!'"
+And let the beauty of the Lord our God be upon us: and establish the work of our hands for us; yes, establish the work of our hand. "Let not what we do for You fall to the ground like a badly built wall! Let not our work be consumed in the great testing fire, 'but establish the work of our hands!'"
 
 Acts 27:1-3. And when it was determined that we should sail into Italy, they delivered Paul and certain other prisoners unto one named Julius, a centurion of Augustus' band. And entering into a ship of Adramyttium, we launched, meaning to sail by the coasts of Asia; one Aristarchus, a Macedonian of Thessalonica, being with us. And the next day we touched at Sidon. And Julius courteously entreated Paul, and gave him liberty to go unto his friends to refresh himself Even a Roman centurion could see that Paul was no ordinary prisoner and that it was quite safe to allow him privileges which others might have abused.
 
