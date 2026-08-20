@@ -2,11 +2,11 @@
 
 "Therefore that disciple whom Jesus loved said unto Peter, It is the Lord." John 21:7.
 
-I AM going to speak, on this occasion, to my Brothers and Sisters who are workers for Christ. When our Lord met His Apostles by the lake and provided for them that memorable meal, He did not think it out of place to say to Peter, "Feed My lambs; feed My sheep." These practical exhortations were regarded by Him as quite in keeping with holy fellowship and so, though we are coming to the Communion Table at the close of this service, I feel that I am only right in speaking upon practical matters to you, my fellow laborers and fellow soldiers in the work and warfare of Christ. And I pray that God will, through me, speak to all here who love our Lord and Savior Jesus Christ.
+I am going to speak, on this occasion, to my Brothers and Sisters who are workers for Christ. When our Lord met His Apostles by the lake and provided for them that memorable meal, He did not think it out of place to say to Peter, "Feed My lambs; feed My sheep." These practical exhortations were regarded by Him as quite in keeping with holy fellowship and so, though we are coming to the Communion Table at the close of this service, I feel that I am only right in speaking upon practical matters to you, my fellow laborers and fellow soldiers in the work and warfare of Christ. And I pray that God will, through me, speak to all here who love our Lord and Savior Jesus Christ.
 
 You know that we read in the Gospels according to Luke and John, of two miraculous draughts of fishes. [See Sermon
 
-#443, Volume 8&mdash;THE TWO DRAUGHTS OF FISHES.] The one that is recorded in this Chapter from which our text is taken was, in several respects, similar to that which was worked at an earlier period of our Lord's history.
+#443, Volume 8&mdash;the two draughts of fishes.] The one that is recorded in this Chapter from which our text is taken was, in several respects, similar to that which was worked at an earlier period of our Lord's history.
 
 Before He called His Apostles, He worked the miracle of giving them a great haul of fish after they had toiled all the night and had taken nothing. And then, after He had died upon the Cross and risen from the grave, He repeated the miracle in almost identical fashion. I think there was a great lesson which our Savior intended His disciples to learn from that repetition. The miracle was a picture&mdash;and He wanted them to look upon it and catch the idea it was meant to convey&mdash;and as they had probably not all caught it the first time, He held the picture up before them again, that they might have another opportunity of learning the lesson which He had intended it to teach them.
 
@@ -16,7 +16,7 @@ This teaches us that we may work for Christ and try to win souls for Him&mdash;a
 
 come into our midst&mdash;and this point I shall try to drive home with all my might, praying God the Holy Spirit to stir up the hearts of His people so that they may have a great longing to be useful in the winning of souls and realize that this can only be achieved by those who enjoy true fellowship with Christ!
 
-I want, first, to show THE DISSIMILARITY AND THE SIMILARITY OF OUR POSITION TO THAT OF THE APOSTLES UPON THIS OCCASION.
+I want, first, to show the dissimilarity and the similarity of our position to that of THE apostles upon this occasion.
 
 First, there was a dissimilarity in which the advantage is altogether on our side. The Apostle Peter and his brethren had been fishing unsuccessfully, but they had not been commanded to fish. They may or may not have been right in fishing at that time, but at any rate, they were doing it on their own account. Peter said, "I am going fishing." It was his own work, done entirely in accordance with his own will&mdash;Christ had not bidden him go fishing. But in our case, Brothers and Sisters in Christ, we have our Lord's commission, "Go you into all the world and preach the Gospel to every creature." We have received this Divine commission, so that when we preach the Gospel, we are not fishing as amateurs or self-sent volunteers, but as those who are sent by the Most High to do His bidding. When He commissions anyone, there is a sort of implied guarantee that He will give him success. At any rate, He will not send His servant upon a fool's errand, but by some means or other, He who gives the authority will be sure to give the power that is needed to go with it. "Wisdom is justified of all her children." You, dear Brothers and Sisters, in trying to serve God, each of you in your proper sphere, have done what you were sent to do, for Jesus has said to you as He said to His disciples, "As My Father has sent Me, even so send I you." Remember that passage almost at the end of the Revelation, "Let him that hears, say, Come." Having heard the Gospel, you have tried to say, "Come," to the people and you have not gone beyond your commission in doing so, for you were commanded to do it! Every Believer is a priest&mdash;under the Christian dispensation there is no other priesthood save that of our Lord Jesus Christ and that which is common to every Believer in Him. So when you, having believed on Him, have gone to speak of Him to others, you have only exercised that royal priesthood which is rightly yours, for He "has made us kings and priests unto God." So, first, the Apostles went fishing without having any commission to fish and, therefore, they were unsuccessful. But we have an advantage over them because in the Gopelfishery, every true child of God who casts the net is commissioned by his Master to do so!
 
@@ -39,7 +39,7 @@ And even now, Brothers and Sisters, our success is wonderfully like the non-succ
 > Lord, revive us,   
 > All our help must come from You!   
 
-Now, secondly, I have to speak upon THE MEANS WHICH WE ARE TO USE SO AS TO GAIN OUR MASTER's PRESENCE. I have tried to show you that all our success must come from Him and all that He gives us must be ascribed to Him. So how can we secure His Presence? We have it in a measure&mdash;how can we have it more fully?
+Now, secondly, I have to speak upon the means which we are to use so as to gain our master's presence. I have tried to show you that all our success must come from Him and all that He gives us must be ascribed to Him. So how can we secure His Presence? We have it in a measure&mdash;how can we have it more fully?
 
 Well, let us always remember that He comes just where He wills to come. There is absolute Sovereignty about the work of Christ in the Kingdom of His Grace. As the wind blows where it wishes, so does the Spirit of God work wherever He pleases. I do not think that we can always account for the great success of one preacher and the non-success of another by anything that we can see. We have to fall back upon the Sovereignty of God and say, "God wills it and, therefore, it is." He will have us know that Sovereignty is His Divine prerogative. He has the key of David&mdash;He opens and no man shuts. He shuts and no man opens. If He wills it, the rain shall descend steadily to make fat the fields. But if He wills it, He can restrain the dew of Heaven until the most fertile Church shall become barren as the mountains of Gilboa! He exercises His power not according to ourwill, but according to His own will&mdash;we must never forget that.
 
@@ -69,7 +69,7 @@ Have you ever heard the story of the poor man, in deep distress of mind, who one
 
 And, Brothers and Sisters, that is the company to which you and I belong! And when we enter Heaven, they will welcome us just as heartily as they did the martyrs, the Prophets and the Apostles! Jesus Christ came into the world to save sinners&mdash;and when sinners repent, there is joy in the presence of the angels of God, and joy in the heart of God, Himself, because they have sought His pardoning mercy! If any of you are not saved, it is not because there is any lack of mercy in the heart of God! If you perish, it is not for want of an open door set before you! So come in while you may!
 
-EXPOSITION BY C. H. SPURGEON: JOHN21.
+Exposition by C. H. Spurgeon: John21.
 
 Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself. May every one of you, my fellow disciples, realize that Jesus is showing Himself to you! He is only to be seen in His own Light. He must show Himself to us, or else we shall never see Him.
 
@@ -101,19 +101,19 @@ And none of the disciples dared ask Him, Who are You? knowing that it was the Lo
 
 He said unto Him, Yes, Lord; You know that Ilove You. He said unto him, FeedMylambs. [See Sermon #1684, Volume
 
-28&mdash;"FEED MY LAMBS"&mdash;a SUNDAY SCHOOL SERMON.] "Do not go after
+28&mdash;"feed my lambs"&mdash;a sunday school sermon.] "Do not go after
 
 fish any more, but attend to My business&mdash;'feed My lambs.' The proof of your greater love to Me than to all worldly things will be found in your doing of the work which I have committed to your charge."
 
 He said to him again the second time, Simon, son of Jonas, Do you love Me?[See Sermons #117, Volume 3&mdash;do you love
 
-ME? And #1281, Volume 22&mdash;"DO YOU LOVE ME?"] He said unto Him, Yes,
+me? And #1281, Volume 22&mdash;"do you love me?"] He said unto Him, Yes,
 
 Lord; You know that I love You. He said unto him, Feed My sheep. "Quit the sea. I am giving you no more business there&mdash;come now and be a pastor to My blood-bought sheep."
 
 He said unto him the third time, Simon, son of Jonas, Do you love Me? Peter was grieved because He said unto him the third time, Do you love Me? And he said unto Him, Lord, You know all things; You know that Ilove You. [See
 
-Sermon #2669, Volume 46&mdash;COMFORT FROM CHRIST's OMNISCIENCE.] Thrice
+Sermon #2669, Volume 46&mdash;comfort from Christ's omniscience.] Thrice
 
 he had denied his Lord, so thrice he must be questioned concerning his love to the Lord whom he said he did not even know. And then for the third time he was re-commissioned by his Lord.
 
@@ -121,7 +121,7 @@ he had denied his Lord, so thrice he must be questioned concerning his love to t
 
 20, 21. Then Peter, turning about, saw the disciple whom Jesus loved [See Sermon #1539, Volume 26&mdash;"the disciple whom Jesus
 
-LOVED".] following; which also leaned on His breast at supper,
+loved".] following; which also leaned on His breast at supper,
 
 and said, Lord, which is he that betrays you? Peter seeing him said to Jesus, Lord, and what shall this man do? Our Lord never answered such a foolish, inquisitive question as this! And therefore&mdash;
 
