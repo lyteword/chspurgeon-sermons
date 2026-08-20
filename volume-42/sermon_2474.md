@@ -140,10 +140,10 @@ O taste and see that the LORD is good: blessed is the man that trusts in Him. Tr
 
 Him."&mdash;
 
-> Oh, make but trial of His love!   
-> Experience will decide   
-> How blest are they, and only they,   
-> Who in His truth confide!   
+> Oh, make but trial of His love! 
+> Experience will decide 
+> How blest are they, and only they, 
+> Who in His truth confide! 
 
 O fear the LORD, you His saints: for there is no want to them that fear Him. He will supply all their wants. You need not fear for anything else when you once fear God.
 

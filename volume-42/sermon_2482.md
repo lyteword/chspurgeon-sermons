@@ -32,10 +32,10 @@ The parallel of this poor man's case, if we take the miracle and spiritualize it
 
 But then, perhaps, it is worse to be deaf, and this dumb man was also deaf so that he could not hear Jesus speak. It is a great deprivation to be unable to tell the Master our trouble, but it is a greater deprivation not to be able to hear that dear Voice which can wake the dead, which can heal the sick, which can change the nature, which can speak Grace into the soul! There are some in our midst who seem as if they could not hear. They come to the place of worship, but they say&mdash;
 
-> I hear, but seem to hear in vain,   
-> Insensible as steel.   
-> If anything is felt, 'tis only pain   
-> To find I cannot feel.   
+> I hear, but seem to hear in vain, 
+> Insensible as steel. 
+> If anything is felt, 'tis only pain 
+> To find I cannot feel. 
 
 I am glad when they get as far as that last line, but they are deaf until the voice of God goes with the voice of the ministry. If they read the Bible, it does not have that effect upon their conscience and their heart which it does when it is accompanied by the mighty working of the Holy Spirit.
 
@@ -51,10 +51,10 @@ Then, next, the dumb man spoke. That, also, was a wonderful thing. Deaf and dumb
 
 I wonder, however, what the man did say. I do not know, but I can imagine what I would have said if I had been in his place. I would have said, "Blessed be the Lord God who has delivered me from the power of the devil!" I would also have said, "O Lord Jesus, I love You! Let me follow You wherever You go!" I would not have known what I did notwant to say under such circumstances, but if there had been some great unusual word to express intense gratitude, I would have wanted to use that&mdash;
 
-> Oh, for this love, let rocks and hills   
-> Their lasting silence break,   
-> And all harmonious human tongues   
-> The Savior's praises speak!   
+> Oh, for this love, let rocks and hills 
+> Their lasting silence break, 
+> And all harmonious human tongues 
+> The Savior's praises speak! 
 
 It is always amazing to me, but I have often seen it&mdash;some foul blasphemer, or some other great sinner has been converted and almost immediately he has spoken the language of Canaan as sweetly as if he had been an old saint! I have known a woman rescued from the streets, foul with vice, yet as soon as ever she has been truly penitent at the Savior's feet, the tears with which she has washed those precious feet have been as pure as ever fell from a godly matron's eyes! The Grace of God makes marvelous changes where it comes into the soul, for the devil is cast out and a holy tongue is put in!
 
@@ -96,8 +96,8 @@ When He His people's cause defends
 
 Who, who shall stop His hand?" Almighty Grace can cast Satan out and keep him out, too. "Oh, but Sir, I do not feel as if I could pray. Oh, that I could pray!" But you have prayed&mdash;that was a prayer that you uttered. "I cannot pray, Sir, I wish I could." You have prayed, already, that very wish is a prayer. "Sir, I cannot pray. I scarcely dare look up to Heaven." That confession that you dare not look up has in it the very essence of prayer! "But I cannot pray." Well then, groan. "But I can scarcely groan." Then, desire. "But I can hardly get to a desire." Then be wretched because you cannot desire! I do not exhort you to act like that&mdash;I only want to lead you away from your feelings or lack of feelings. If you wish to be saved, look to Jesus Christ right now, whatever you feel or do not feel! Whether you can groan, or pray, or do anything else, or cannot do anything else, look to Jesus! The only hope of a poor sinner is in Christ Jesus and Him crucified. As I have said already, He is the devil's Master and He, alone, can be your Savior. Cast yourself at His feet and He will not let you go! Lie before Him just as you are, in all the horror of your condition, and say, "Lord, look on me, for I look alone to You." Look, look, look to Jesus! Look and live!&mdash;
 
-> There is life for a look at the Crucified One!   
-> There is life at this moment for you.   
+> There is life for a look at the Crucified One! 
+> There is life at this moment for you. 
 
 EXPOSITION BY C. H. SPURGEON: MATTHEW 9.
 

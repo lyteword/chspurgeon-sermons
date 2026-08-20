@@ -78,7 +78,7 @@ You, O Solomon, must have a thousand, and those that keep the fruit thereof two 
 
 You that dwells in the gardens, the companions hearken to Your voice: cause me to hear it.''For to hear that voice will be far better than the 'two hundred' which shall be my share of the fruit! If I may have You with me, O my Lord, I will be better pleased, though my portion of fruit should be very small, indeed, for in having You, my portion will be great, indeed! I hear, my Lord, that some of Your people live with You until they are called Your companions. There are some whom You call Your friends. There are disciples whom Jesus loves. These 'hearken to Your voice: cause me to hear it.' Unstop my deaf ears, give me a sensitive spirit, let my soul thrill and my heart throb, and my whole being delight to obey every syllable that falls from Your blessed lips. 'You that dwell in the gardens, the companions hearken to Your voice: cause me to hear it.'"
 
-Make haste, my Beloved. "Do not let me have to wait long for You, O my Beloved! Even at the beginning of this service, cause me to realize Your presence." [The exposition was always the first part of the service.&mdash;EOD.]
+Make haste, my Beloved. "Do not let me have to wait long for You, O my Beloved! Even at the beginning of this service, cause me to realize Your presence." 
 
 And be like a roe or a young hart upon the mountains of spices.' 'Are there mountains that divide me from You? Come and leap over them, for You are swift of foot and sure of standing&mdash;'Be You like a roe or a young hart,' and when You come, the mountains of division shall change into mountains of spices, and all around me shall be sweet."
 

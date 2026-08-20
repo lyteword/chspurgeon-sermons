@@ -8,8 +8,8 @@ If this important personal enquiry has had its due weight upon our minds, it may
 
 Perhaps they who love the Master best are the very people who will be the most likely to have such a high opinion of the love which He deserves that they will often chide themselves that they do not love Him at all, when they see how little their love is compared with that perfection of affection which He deserves. We must not affirm that the question of anxiety is sinful&mdash;it is painful&mdash;and anxiety, if it is not Divinely removed, will become sinful, but the anxiety is not so in itself. Yet, Beloved, I beseech you to press on beyond this stage of your pilgrim journey. Do not be content to live on hopes, fears, perhapses and surmises. You would not like to think that, perhaps, you loved your child, or your husband, or your friend. You would not care to say, "I hopeI love virtue, I hopeI love honesty"&mdash;but it is a baser thing, still, for us to allow a question to exist as to whether we love Him who is dearer than our own kindred and who is better than any one moral excellence, seeing that He is the combination of all excellences! O Beloved, seek to reach the blessed heights of full assurance, that each one of you may be able to say of Christ, "This is my Beloved and this is my Friend&mdash;I would as soon doubt my own existence as doubt the love that burns within my heart towards Him who has bought me with His precious blood." Sing, as we have often done&mdash;
 
-> My Jesus, I love You, I know You are mine,   
-> For You all the follies of sin I resign. My gracious Redeemer, my Savior are Thou, If ever Iloved You, my Jesus, 'tis now.   
+> My Jesus, I love You, I know You are mine, 
+> For You all the follies of sin I resign. My gracious Redeemer, my Savior are Thou, If ever Iloved You, my Jesus, 'tis now. 
 
 If we have reached that stage in our journey heavenwards, it will be well if we go on a step further. Loving our Lord and Savior in our heart and being assured of that love in our inmost conscience after earnest heart-searching, it will be well if we have the courage to never hesitate in the avowal of that love. Our love to Christ is so sacred a passion that it is not to be talked of in all companies. We must not cast our pearls before swine, but, on the other hand, it is so ennobling a passion that we need never blush to acknowledge it in any company. If we are ever ashamed of loving Christ, we have good reason to be ashamed of such shameful shame! When you have heard His dear name reviled, did you ever start for fear lest you should be called upon to share His reproach? Did you ever sit silent when you ought to have spoken because Christ was being blasphemed? Did you ever try to make it out to yourself that it was a prudent retirement that shunned the conflict when, in very truth, it was a hatefulcowardice that turned its back upon the Crucified in the hour of His need? I fear that the charge might be brought against the most of us! If so, let us humbly confess it on our knees, alone, and blush before the Presence of our blessed Master. Remember what we sang just now?&mdash;
 
@@ -145,8 +145,8 @@ And they shall build the old wastes, they shall raise up the former desolations 
 
 For your shame you shall have double; and for confusion they shall rejoice in their portion. That is a sweet state of heart for any of us to be in&mdash;to rejoice in our portion! Oh, what a wonderful portion we have to rejoice in! How blessed is the lot of God's chosen people! However small a part of our portion may be visible to the eyes here below, yet we can sing&mdash;
 
-> All things are ours, the gift of God,   
-> The purchase of a Savior's blood! While the good Spirit shows us how To use and to improve them too.   
+> All things are ours, the gift of God, 
+> The purchase of a Savior's blood! While the good Spirit shows us how To use and to improve them too. 
 
 Instead of confusion such as once was the lot of the righteous, "they shall rejoice in their portion."
 

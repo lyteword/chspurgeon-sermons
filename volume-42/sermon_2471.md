@@ -60,10 +60,10 @@ The Lord is not far from any of us&mdash;a cry will fetch Him&mdash;He will hear
 
 And remember, also, how the Lord takes the mother's part as well as the father's and says, "As one whom his mother comforts, so will I comfort you, and you shall be comforted in Jerusalem." These are cheering Truths of God for those who raise the question! I wish they could enable you to get rid of that question and to know assuredly that the Lord is with you. I remember how Mr. Joseph Irons used to say of some who were always hoping, "It is all very well to have hope, but do not keep on hoping and hoping, or hopping and hopping, but put both feet down and begin to run." I trust you may do the same and get beyond the "hoping" and the "hopping" to the full assurance of faith&mdash;
 
-> And are You with us, gracious Lord,   
-> To dissipate our fear?   
-> Do You proclaim Yourself our God,   
-> Our God forever near?   
+> And are You with us, gracious Lord, 
+> To dissipate our fear? 
+> Do You proclaim Yourself our God, 
+> Our God forever near? 
 
 Then, as Doddridge continues to sing&mdash;
 

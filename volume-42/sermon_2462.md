@@ -14,10 +14,10 @@ The first subject of consideration in our text is OUR LIFE WHICH WE KNOW&mdash;"
 
 We know something about our present life and what we know about it should humble us in the Presence of God, for, first, it is very short. Observe that Solomon, here, says nothing about the "years" of our life&mdash;he only counts it by "days." He looks at our earthly existence as of so short a duration that if he were to reckon it by years, he could scarcely mention it! But if he only counts it by days, he may use the word, "all"&mdash;"all the days of his vain life." And, my Brothers and Sisters, we only live by the day and scarcely as much as that! We are at least taught by our great Master to pray for daily bread, as if the nourishment was for a daily life which is always to be reckoned by the day. Yet is a day more than you and I can be sure of, for who knows what even a day may bring forth?&mdash;
 
-> The rising morning can't assure   
-> That we shall end the day,   
-> For death stands ready at the door   
-> To take our lives away.   
+> The rising morning can't assure 
+> That we shall end the day, 
+> For death stands ready at the door 
+> To take our lives away. 
 
 At the very best, we can only count our lives by days. I know that we are often tempted to reckon that we shall live to a ripe old age, but, suppose we should he spared 70 or 80 years&mdash;what a short time the longest life is! Suppose we could live even as long as Methuselah did&mdash;which we cannot&mdash;yet how soon it would be all over and when we came to the end of it, we should say, with old Jacob, "Few and evil have the days of the years of my life been." The fact is, the older a man grows, the shorter his life seems to be. And it was because Jacob was so old and had seen so many days, that he called them few and evil. Children and youths appear to have lived a long while&mdash;men seem to have lived only a short time, older men an even shorter period&mdash;but the oldest man reckons his days the shortest of all! The calculations about time are very singular, for length seems to turn to shortness! Well, then, since I am such an ephemeral creature, the insect of an hour, an aphid creeping on the bay leaf of existence, how dare I think of contending with You, my God, who Was long before the mountains were brought out and who will Be when mountains are gone forever?
 
@@ -65,10 +65,10 @@ As for you who have no God with whom you can leave either the present or the fut
 
 But it is mainly to His children that I have been speaking. And to you who believe, I hope I need no longer say, "Let us joy in our Father's love and care, and not want to know what is before us, but be content to believe! Let us not want to judge, but be satisfied to leave all with Him." Thus, while we live, we shall praise His name, and when we die, we shall still go on praising His name forever and ever! I feel as if I could not help ending my discourse with that verse which I have often quoted before&mdash;
 
-> All that remains for me   
-> Is but to love and sing,   
-> And wait until the angels come   
-> To bear me to the King.   
+> All that remains for me 
+> Is but to love and sing, 
+> And wait until the angels come 
+> To bear me to the King. 
 
 God bless you, for Jesus Christ's sake! Amen.
 

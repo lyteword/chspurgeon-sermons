@@ -4,8 +4,8 @@
 
 THE time of flowers has come and as they are in some faint degree, emblems of our Lord, it is well, when God thus calls, that we should seek to learn what He desires to teach us by them. If nature now spreads out her roses and her lilies, or prepares to do so, let us try not only to see them, but to see Christ as He is shadowed forth in them. "I am the rose of Sharon, and the lily of the valleys." If these are the words of the Well-Beloved&mdash;and I have no doubt that they are&mdash;then it may be suggested by some that here we have the Savior praising Himself&mdash;and it is true&mdash;but in no unworthy sense, for well may He praise Himself since no one else can do it as it should be done! There is no human language that can ever set forth His beauties as they deserve to be told. As good John Berridge says&mdash;
 
-> Living tongues are dumb at best,   
-> We must die to speak of Christ   
+> Living tongues are dumb at best, 
+> We must die to speak of Christ 
 
 as He should be spoken of. He will never fully be described unless He shall describe Himself. For certain, we should never have known God if He had not revealed Himself&mdash;and every good thing that you or I know of Him, He, Himself, has told us. We make no discoveries of God except as God discovers Himself to us. If, then, any quibblers were to find fault with the Christ of God because He commends Himself, I would answer, Does not God commend Himself and must not His well-beloved Son do the same? Who else is there that can possibly reveal Him to us unless He unveils His own face to our admiring gaze?
 
@@ -37,10 +37,10 @@ The exceeding delightfulness of Christ is suggested to our mind by His declarati
 
 I do not think, Brothers and Sisters, that there is anything about Christ but what should make His people glad. There are dark Truths of God concerning Him, such as His bearing our sin, but what a joy it is to us that He did bear it and put it away forever! It makes us weep to look at Jesus dying on the Cross, but there is more real joy in the tears of repentance than there is in the smiles of worldly mirth. I would choose my Heaven to be a Heaven of everlasting weeping for sin sooner than have a Heaven&mdash;if such a Heaven could be&mdash;consisting of perpetual laughing at the mirth of fools! There is more true pleasure in mourning before God than in dancing before the devil! Christ is, then, all beauty&mdash;even the dark parts in Him are the Light of God&mdash;and the bitter parts are sweet. He has only to be seen by you and you must perceive that, whether it is His Godhead or His Manhood. Whether it is His priesthood, His royalty, or His prophetic office. Whether it is on the Cross or on the Throne. Whether it is on earth, or in Heaven, or in the Glory of His Second Coming, every way&mdash;
 
-> All over glorious is my Lord,   
-> Must be beloved, and yet adored.   
-> His worth, if all the nations knew,   
-> Sure the whole earth would love Him too.   
+> All over glorious is my Lord, 
+> Must be beloved, and yet adored. 
+> His worth, if all the nations knew, 
+> Sure the whole earth would love Him too. 
 
 But, next, our Lord is exceedingly delightful to the eyes of faith. He not only tells us of what delight is in Himself&mdash;"I am the rose, and I am the lily"&mdash;but He thereby tells us that there is something to see in Him, for the rose is very pleasing to look upon. Is there a more beautiful sight than a rose that is in bud, or even one that is full blown? And the lily&mdash; what a charming thing it is! It seems to be more a flower of Heaven than of earth! Well now, Christ is delightful to the eyes of faith. I remember the first time I ever saw Him&mdash;I shall never forget that sight&mdash;and, by His Grace, I have seen Him many times since, but my grief is that I ever take my eyes off Him, for it is to look away from the sun into blackness! It is to look away from bliss into misery! To you who look at Christ by faith, a sight of Him brings such peace, such rest, such hope, as no other sight can ever afford&mdash;it so sweetens everything, so entirely takes away the bitterness of life and brings us to anticipate the glory of the life that is to come, that I am sure you say&mdash;"Yes, yes, the figure in the text is quite correct, there is a beauty in Jesus to the eyes of faith! He is, indeed, red as the rose and white as the lily."
 
@@ -60,14 +60,14 @@ He is not only full ofjoy, pleasure and delight to our hearts, but He is full of
 
 "I am the rose." That is the emblem of majesty. The rose is the very queen of flowers. In the judgment of all who know what to admire, it is enthroned above all the rest of the beauties of the garden. But the lily&mdash;what is that? That is the emblem of love. The Psalmist hints at this in the title of the forty-fifth Psalm. "Upon Shoshannim, a Song of love." Sho-shannim signifies lilies, so the Lily Psalm is the love song, for the lilies, with their beauty, their purity, their delicacy, are a very choice emblem of love! Are you not delighted when you put these two things together, majesty and love? A King upon a throne of love! A Prince, whose very eyes beam with love to those who put their trust in Him, a real Head, united by living bonds of love to all His members&mdash;such is our dear Lord and Savior! A rose and yet a lily. I do not know in which of the two I take the greater delight&mdash;I prefer to have the two together. When I think that my Savior is King of Kings and Lord of Lords, I shout, "Hallelujah!" But when I remember that He loved me and gave Himself for me and that He still loves me, and that He will keep on loving me forever and ever, there is such a charm in this thought that nothing can excel it! Look at the lily and sing&mdash;
 
-> Jesus, lover of my soul,   
-> Let me to Your bosom fly,   
-> While the nearer waters roll,   
-> While the tempest still is high!   
-> Hide me, O my Savior, hide,   
-> Till the storm of life are past.   
-> Safe into the ha ven guide   
-> Oh receive my soul at last!   
+> Jesus, lover of my soul, 
+> Let me to Your bosom fly, 
+> While the nearer waters roll, 
+> While the tempest still is high! 
+> Hide me, O my Savior, hide, 
+> Till the storm of life are past. 
+> Safe into the ha ven guide 
+> Oh receive my soul at last! 
 
 Then look at the rose and sing&mdash;
 
@@ -79,8 +79,8 @@ Then put the rose and the lily together and let them remind you of Christ's maje
 
 Red with the blood He shed for me." The rose, with its thorn, reminds us of His suffering, His bleeding love to us, His death on our behalf, His bearing of the thorns which our sin created. Christ is a royal rose beset with thorns, but the lily shows that&mdash;
 
-> For sins not His own   
-> He died to atone.   
+> For sins not His own 
+> He died to atone. 
 
 Jesus, when on earth, could say, "The prince of this world comes, and has nothing on Me." The devil himself could not see a spot or speck in that lovely lily! Jesus Christ is perfection, itself! He is all purity, so you must put the two together, the rose and the lily, to show Christ's suffering and perfection, the infinitely pure, infinitely suffering. In which of the two do you take the greater delight? Surely, in neither, but in the combination of both! What would be the value of
 

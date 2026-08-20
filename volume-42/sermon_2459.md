@@ -72,19 +72,19 @@ Beloved, there are other forms of Christ's love yet to be manifested to you. Do 
 
 And then&mdash;but perhaps I had better be silent upon such a theme&mdash;when the veil is drawn and the spirit has left the body, what will be the bliss of Christ's love to the spirits gathered with Him in Glory?&mdash;
 
-> Oh, for the bliss of flying,   
-> My risen Lord to meet!   
-> Oh, for the rest of lying   
-> Forever at His feet!   
-> Oh, for the hour of seeing   
-> My Savior face to face!   
-> The hope of always being   
-> In that sweet meeting place!   
+> Oh, for the bliss of flying, 
+> My risen Lord to meet! 
+> Oh, for the rest of lying 
+> Forever at His feet! 
+> Oh, for the hour of seeing 
+> My Savior face to face! 
+> The hope of always being 
+> In that sweet meeting place! 
 
 Or, as Dr. Watts puts it&mdash;
 
-> Millions of years my wondering eyes Shall over Your beauties rove   
-> And endless ages I'll adore The glories of Your love.   
+> Millions of years my wondering eyes Shall over Your beauties rove 
+> And endless ages I'll adore The glories of Your love. 
 
 Then think of the love of the day of our resurrection, for Christ loves our bodies as well as our souls and, arrayed in glory, these mortal bodies shall rise from the tomb! Oh, the bliss of being like our Lord and being with Him when He comes in all the splendor of the Second Advent&mdash;sitting as assessors with Him to judge the world and to judge even the angels! And then to be in His triumphal procession when He shall ascend to God and deliver up the Kingdom to the Father and the Mediatorial system shall be ended, and God shall be All in All! And then to be forever, forever, forever, "forever with the Lord," with no fear of the soul dying out, with no dread of the false doctrine of annihilation, like a grim specter always crossing our blissful pathway! With a life coeval with the life of God and an immortality divinely given, we shall outlast the sun! And when the moon grows pale and wanes forever, and this old earth and all that is therein shall be burned up, yet shall we be forever with Him! Truly, His love is better than wine! It is the very essence of Heaven! It is better than anything that we can conceive!
 
