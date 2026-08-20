@@ -52,7 +52,7 @@ I fear, however, that I may be addressing some whose lives are not a sweet perfu
 
 It will be so with you, Sirs! It must be so with many of you unless you lay hold, now, upon the great salvation! Jesus Christ can drive away those wolves, can stop the ill savor of your sins! If you will trust Him, if you will yield your hearts to Him, He will deliver you! But if you will not, on your own heads be your blood!
 
-EXPOSITION BY C. H. SPURGEON: JOHN12:1-43.
+Exposition by C. H. Spurgeon: John12:1-43.
 
 Verse 1. Then Jesus, six days before the Passover, came to Bethany, where Lazarus was which had been dead, whom He raised from the dead. The days Christ was to spend upon the earth were getting to be very few so He paid another visit to that Bethany home where He was always so welcome&mdash;and more so than ever since He had raised Lazarus from the dead!
 
