@@ -4,7 +4,7 @@
 
 
 
-I AM certain that I would fail if I were to attempt to preach a sermon that should be worthy of such a text as this. I shall make no such attempt but, during the few minutes available for the address of this evening, I shall try to set forth our Lord and Master, Jesus Christ, as He was when&mdash;
+I am certain that I would fail if I were to attempt to preach a sermon that should be worthy of such a text as this. I shall make no such attempt but, during the few minutes available for the address of this evening, I shall try to set forth our Lord and Master, Jesus Christ, as He was when&mdash;
 
 "Sinnersin derision crowned Him." I pray the Holy Spirit to enable me to do this, for unless He shall do so, my words will be of no avail.
 
@@ -14,7 +14,7 @@ But what an enthronement was accorded to Him! See that scarlet robe? It is a con
 
 There are three things upon which I am going to speak. There are many other things to be seen in this strange exhibition of Majesty in misery, but these three things will suffice to occupy our thoughts at this time.
 
-The first is this. I see in our Savior thus mocked and put to shame, THE EMBLEM OF WHAT OUR SIN HAS DONE.
+The first is this. I see in our Savior thus mocked and put to shame, the emblem of what our sin has done.
 
 Remember that Jesus Christ stood in the sinner's place. This is an old Truth of God with which you are very familiar, but of which you are never tired of hearing. Having been "made in the likeness of men, and being found in fashion as a Man," and having agreed to stand in the place of sinners as if He had been, Himself, a sinner, you see in Jesus Christ the full result of epitomized sin. Man wanted to be a king, or to be more than a king. "You shall be as gods," said the serpent
 
@@ -28,7 +28,7 @@ My dear Hearers, do not think that I am speaking too strongly. I am not, for the
 
 Jesus Christ there, as an object of shame and scorn, is only a picture and emblem of what every sinner is and what every sinner will be unless renewed by Grace&mdash;he will be an object of everlasting shame and contempt! How the very devils in Hell will mock him throughout eternity! He shall wear his mock crown&mdash;it will not even be a crown of thorns&mdash;it will be a circle of flames of fire! But how terrible will be the laughter of the fiends in the Pit as they gather around him and cry, "You would be your own master, would you not? You would be a king, would you not? You would not kiss the Son, you would not yield to His sway, you would have your own way! Now see what it has all come to&mdash;a crown of fire that cannot be quenched! You said that you could save yourself&mdash;why did you not do so? You said that you could make yourself fit for Heaven any day without a Savior&mdash;why did you not do so?" Such mocking as these, which will come as much from the man, himself, as from his companions in misery, will make him realize that the fruit of sin is shame&mdash;and that it is bitter beyond all description or imagination!
 
-Now, secondly, our Savior thus mocked, despised and rejected of men, gives us a PICTURE OF THE WORLD's ESTIMATE OF HIM.
+Now, secondly, our Savior thus mocked, despised and rejected of men, gives us a picture of the world's estimate of him.
 
 Jesus Christ, the Son of God, came to this earth as the Savior sent from God, not, "to condemn the world, but that the world through Him might be saved." What does the world think of Him? He has lived upon the earth 33 years and all that time He has done nothing but deeds of kindness to all with whom He has come into contact. And now the world is about to give its verdict concerning Him. What eulogy will it pass upon this great Lover of humanity? What will it say to this grandest of all philanthropists? What are the rewards with which it will seek to ennoble Him? There they are! There they are! Coarse laughter and cruel mockery in the common room of the Praetorian guards! That is what the world thinks of Christ&mdash;it thinks nothingof Him! It ridicules and despises Him!
 
@@ -46,7 +46,7 @@ You think that I am speaking severely and so I am, for I sometimes feel almost b
 
 while there are dishonest professors, while there are unforgiving and unchaste professors who dare even to come to the Table of the Lord! May God preserve all of us from ever mocking Christ in such a way as this!
 
-Time fails me, or it would do so if I lingered over this theme as I might and, therefore, my last point shall be this. The Lord Jesus, thus mocked and despised, is THE MODEL TO US OF WHAT OUR CONDUCT SHOULD BE.
+Time fails me, or it would do so if I lingered over this theme as I might and, therefore, my last point shall be this. The Lord Jesus, thus mocked and despised, is the model to us of what our conduct should be.
 
 Oh, how He loved us! Oh, how He loved us! I cannot find any other sentence coming to my tongue but that same one a third time as I look at Him&mdash;oh, how He loved us! This is He whose "eyes are as the eyes of doves by the rivers of waters, washed with milk and fitly set," whose "lips are like lilies, dropping sweet smelling myrrh," whose "head is as the most fine gold and His locks are bushy and black as a raven." He is the Altogether Lovely One, yet He was most shamefully treated&mdash;and He willingly endured it for our sake! There is a famous picture which represents the Savior wearing the crown of thorns. And at the bottom of it are these words, written in German, "I suffered this for you; what have you done for Me?" Count Zinzendorf, then frivolous and worldly, walked into the picture gallery and read those words. He stopped a while and then he went out a new man in Christ&mdash;to be a most devoted servant of the Lord for the rest of his days! I wish I could paint that picture now by my words so that Christ might be visibly set forth before you and that you might then hear Him say, "I suffered this for you; what have you done for Me?" What actions can ever be worthy of such self-sacrificing love? What gifts can ever be equal to such unparalleled affection? What high and fervent thoughts shall ever rise to the height of this great argument? What consecration shall ever be worthy of Him? What all-consuming zeal, eating us up for His sake, shall ever approach the ardor of His love for us? I ask you that say that you love Him, to judge for yourselves how you ought to act towards Him who was willingly put into the place of scorn for you!
 
@@ -60,7 +60,7 @@ Before I close, I just want to say that I think such a text as this ought to sti
 
 When once we have seen Christ and His crown of thorns, there ought to be such enthusiasm as would make us capable of any deed of daring for Him! As I look at my Master's head environed with thorns, I feel that any man who loves the Savior must grow heroic at the sight if the Spirit of God will but help him to see it as he should. But, my Brothers and Sisters in Christ, it is not for me to suggest what you should do, but for each one of you to suggest it to yourselves. But I would ask each one of you whether you cannot do something for Jesus which you have never done before. Make some sacrifice, wear a crown of thorns&mdash;I mean spiritually&mdash;for His sake. Go a step farther than you have ever gone before, plunge deeper into the waters of consecration, give yourselves up to Christ more completely from this night forward! I pray that you may. I pray the Spirit of God to enable you to do it and unto the Lord Jesus shall be honor and glory in compensation for His shame&mdash;and surely He richly deserves that compensation! May He have it now, for His own dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ACTS28.
+Exposition by C. H. Spurgeon: Acts28.
 
 Verses 1-3. And when they were escaped, then they knew that the island was called Melita. And the barbarous people showed us no little kindness: for they kindled a fire, and received us, every one, because of the present rain and
 
@@ -100,7 +100,7 @@ speak against it, they will be likely to come and hear it&mdash;and some of them
 
 And when theey had appointed him a day, there came many to him into his lodging; to whom he expounded and testified of the Kingdom of God, persuading them concerning Jesus,  both out of the law of Moses, and out of the Prophets, from morning till evening. It was a long and blessed day, a grand opportunity for Paul thus to be able, hour after hour, to expound the Gospel. But see the result&mdash;the result which always seems to follow the faithful preaching of the Truth.
 
-STOCK-TAKING&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.org.] And when they agreed not among themselves,
+stock-taking&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.org.] And when they agreed not among themselves,
 
 they departed, after Paul had spoken one word, Well spoke the Holy Spirit by Isaiah the Prophet unto our fathers, saying, go unto this people and say, Hearing you shall hear, and shall not understand; and seeing you shall see, and not perceive: for the heart of this people is waxed gross, and their ears are dull of hearing, and their eyes have they closed; lest they should see with their eyes, and hear with their ears, and understand with their heart, andshould be converted, and I should heal them. Be it known therefore unto you, that the salvation of God is sent unto the Gentiles, and that they will hear it. Oh, blessed confidence of the Apostle! If some reject the Gospel, others will receive it!
 
