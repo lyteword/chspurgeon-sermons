@@ -1,10 +1,10 @@
 # Sermon 3141 | Women's Rights&mdash;a Parable
 
-"And Moses brought their cause before the LORD." Numbers 17:5.
+"And Moses brought their cause before the Lord." Numbers 17:5.
 
-BY the help of God the Holy Spirit, I want to use this incident which forms a kind of episode in the rehearsal of the history of Israel's 40 years' wanderings in the wilderness, for a twofold purpose. First, let me indicate its general teach-ingand, secondly, let me take it as a ground of appeal to certain special classes.
+By the help of God the Holy Spirit, I want to use this incident which forms a kind of episode in the rehearsal of the history of Israel's 40 years' wanderings in the wilderness, for a twofold purpose. First, let me indicate its general teach-ingand, secondly, let me take it as a ground of appeal to certain special classes.
 
-First, I will try to indicate ITS GENERAL TEACHING.
+First, I will try to indicate its general teaching.
 
 I would ask your attention and exhibit for your imitation, the faith which these five young women, the daughters of Zelophehad, possessed with regard to the promised inheritance. You must remember that the children of Israel were still in the wilderness. They had not seen the promised land, but God had made a Covenant with them that they should possess it. He had declared that He would bring them into a land which flowed with milk and honey and there plant them. And that that land should belong to them and to their descendants by a Covenant of salt forever. Now, these women believed in this heritage. They were not like Esau, who thought so little of the inheritance which was his birthright that he sold it to his brother Jacob for a mess of pottage&mdash;they believed it to be really worth having. They regarded it, though they had never beheld it, as being something exceedingly substantial and so, thinking about it, they were afraid lest they should be left out when the land was divided. And though they had never seen it, yet, being persuaded that it was somewhere and that the children of Israel would have it in due time, their anxiety was they, having no brothers, would be forgotten in the distribution and so would lose their rights. They were anxious about an inheritance which they had never seen with their eyes and, therein, I hold them up to the imitation of this present assembly.
 
@@ -63,9 +63,9 @@ I wish I had power to press this matter more immediately home upon you. Many of 
 
 God make that a matter of concern with us, first, and then may we come to Jesus and receive the sprinkling of precious blood! And thus may He make it a matter of confidence with us that we are saved through Him and shall be partakers with them that are sanctified!
 
-Secondly, I am going to use the whole incident as a GROUND OF APPEAL TO CERTAIN SPECIAL
+Secondly, I am going to use the whole incident as a ground of appeal to certain special
 
-CLASSES.
+classes.
 
 Does it not strike you that there is here a special lesson for our unconverted sisters Here are five daughters, I suppose young women, certainly unmarried women, and these five were unanimous in seeking to have a portion where God had promised it to His people. Have I any young women here who have not acted like that? I am afraid I have! Blessed be God for the many who come in among us who become solemnly impressed and give their young days to Jesus! But there
 
@@ -75,7 +75,7 @@ The subject bears another way. Has it not a voice, and a loud voice too, to the 
 
 And does not this text also speak to another class&mdash;to orphans These good girls had lost their parents, or otherwise the question would not have arisen. Father and mother had passed away and, therefore, they had to go to Moses for themselves. When the parents could not come to Moses for them, they came for themselves. Think of the skies a moment, some of you. Perhaps this morning you were in a very different place, but think of the skies a minute. No, I do not mean the meteoric stones! I do not mean the stars, nor yon bright moon&mdash;but I want you to think of your mother, who is yonder. Do you remember when she gave you the last kiss, bade you farewell and said, "Follow me, my children. Follow me to the skies?" Think of a father who is there. His voice, doubtless, helping to swell the everlasting hallelujah! Does he not beckon you from the battlements of Heaven and cry, "Children of my loins, follow me, as I followed Christ?" Some of us have an honored grandfather there, an honored grandmother there. Many of you have little infants there, young angels whom God lent you for a little time and then took them to Heaven to show you the way, to lure you to go upwards too! You all have some dear friends there with whom you walked to God's House in company. They have gone, but I charge you, by the living God, to follow them! Break not your households in two! Let no solemn rifts come into the family, but, as they have gone to their rest, God grant unto you by the same road to come and rest eternally too. Jesus Christ is ready to receive sinners! He is ready to receive you! And if you trust Him, the joy and bliss which your friends now partake of shall also be yours! Daughters of godly parents, children of those who have gone before to eternal Glory, I entreat you, look to Jesus! Go and present your suit to Him now. It shall surely prosper. If the question was once doubtful, it has now become "a statute of judgment." The Lord has commanded it! May God bless these counsels and exhortations to you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: GENESIS 1.
+Exposition by C. H. Spurgeon: Genesis 1.
 
 Genesis 1:1. In the beginning God created the Heaven and the earth. When that "beginning" was, we cannot tell. It may have been long ages before God fitted up this world for the abode of man, but it was not self-existent&mdash;it was created by God, it sprang from the will and the word of the all-wise Creator!
 
