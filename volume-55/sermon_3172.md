@@ -20,7 +20,7 @@ as that, the Sun of Righteousness will arise with healing in His wings and the t
 
 But I do not intend to dwell tonight upon any of these three probable fulfillments of the prophecy. I want rather to talk about matters which more nearly concern us just now and to put a few practical soul-matters before this entire congregation, hoping that God may press them home upon some&mdash;so that they may find healing beneath the wings of Christ tonight!
 
-The text speaks, you will observe, of a certain class of persons&mdash;THOSE WHO FEAR GOD's NAME.
+The text speaks, you will observe, of a certain class of persons&mdash;THOSE WHO FEAR God's NAME.
 
 The great multitude of people in the world do notfear the name of God. They do not care whether there is a God or not. If there were no God, their conduct would not be very different from what it is now. God is not in all their thoughts&mdash;they live as if they were their own creators and sustainers&mdash;and practically join in the language of Pharaoh, "Who is Jehovah that I should obey His voice?" Now, for such people, the Bible contains no blessing&mdash;why should it when they reject both it and the God who wrote it?
 
@@ -32,7 +32,7 @@ This fear in some, however, has happily advanced still further. They have come t
 
 I know there are some of you here who could do wonderfully well without a God. Indeed, you would be much happier than you now are if it could be proved that there is no God, for the thought of God is a bugbear to some of you and you try as much as possible to shut the ears of your soul against the cry of conscience when it tells you that there is a God&mdash;a God who will bring you into judgment for all your actions! Well, the promise in the text is not for you, but it is for those who realize that there is a God and who have respect unto His Word&mdash;who tremble before Him and yet who rejoice in Him, having been brought near to Him by the precious blood of Jesus&mdash;and having been reconciled to Him by Christ Jesus, the Mediator between God and man. Dear Friend, if you do but fear God, take the text and live upon it! It is a precious hive of honey and you may extract the utmost sweetness from it! Let us go to it, now, and feed upon it as it is here given to us as food from Heaven for our souls.
 
-Having found out the persons to whom the text is addressed, let us next notice that according to this verse, SOME OF THOSE WHO FEAR GOD ARE IN THE DARK.
+Having found out the persons to whom the text is addressed, let us next notice that according to this verse, SOME OF THOSE WHO FEAR God ARE IN THE DARK.
 
 They fear God, but they have not any happiness. They are doubtful, timid and possibly they are constitutionally dull and sad. Besides that, they are diseased and need the "healing" of which the text speaks. They are not what they want to be&mdash;they have a bad temper to struggle against, or some besetting sin to mourn over.
 
@@ -108,7 +108,7 @@ Now I have to say this to you who fear the Lord and who are seeking to have Chri
 
 May God grant us this blessing now! Let the prayer be breathed, "Arise upon us, Sun of Righteousness," and then let the other prayer follow, "Make us to go forth and to grow up like calves of the stall, and may we serve You, O God, and receive Your blessing world without end! Amen."
 
-EXPOSITION BY C. H. SPURGEON: LUKE10:25-42.
+Exposition by C. H. Spurgeon: Luke10:25-42.
 
 Verses 25-28. And, behold, a certain lawyer stood up and tempted Him, saying, Master, what shall I do to inherit eternal life? He said unto him, What is written in the La w? How do you read it? And he answering, said, You shall love the Lord your God with all your heart, and with all your soul, and with all your strength, and with all your mind; and your neighbor as yourself And He said unto him, You have answered right this do and you shall live. Do any of you want to live by the Law? There is the Law. Does any man here pretend that he has kept it? Let me ask any man here who would justify himself by his own works&mdash;have you thought of God today? How much time have you spent with God? Or yesterday, how much of your time did you give Him&mdash;how many minutes? Would you venture to say that you spent a quarter of an hour in prayer? No. Perhaps if it comes to the truth, you did not spend five minutes. Now, if you loved God with all your heart and all your soul, and all your strength, and all your mind, do you think that five minutes would satisfy such a love as that? Oh, no, Sirs! You that are unconverted give God no love at all&mdash;and how can you think, therefore, that you are keeping His Law which puts it so strongly, "You shall love the Lord your God with all your heart? And with all your soul, and with all your strength, and with all your mind, and your neighbor as yourself? Have you ever done that? Neither the first nor the second table have you kept intact!
 
