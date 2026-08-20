@@ -4,11 +4,11 @@
 
 
 
-IT would be a waste of time and would tend to mar our fellowship with Christ, were I to attempt an enumeration of the errors and misapprehensions into which men have fallen concerning the objective of the Lord's Supper. There are some communities of men among us&mdash;and they seem to be multiplying&mdash;who turn the Communion Table into an altar and convert the bread and wine, which are but a memorial, into the semblance of a sacrifice. I will only say that into their secret may we never enter and with their confederacy may we never be united, for their table is the table of idolatry, and their altar is little better than a sacrifice unto devils! Such offerings cannot be acceptable unto God, for those who observe them turn aside altogether from the simplicity of the Truth of God unto the cabalistic devices of Antichrist.
+It would be a waste of time and would tend to mar our fellowship with Christ, were I to attempt an enumeration of the errors and misapprehensions into which men have fallen concerning the objective of the Lord's Supper. There are some communities of men among us&mdash;and they seem to be multiplying&mdash;who turn the Communion Table into an altar and convert the bread and wine, which are but a memorial, into the semblance of a sacrifice. I will only say that into their secret may we never enter and with their confederacy may we never be united, for their table is the table of idolatry, and their altar is little better than a sacrifice unto devils! Such offerings cannot be acceptable unto God, for those who observe them turn aside altogether from the simplicity of the Truth of God unto the cabalistic devices of Antichrist.
 
 This simple feast of the Lord's Supper, consisting of the breaking and eating of bread, and the pouring forth and drinking of wine, has two objectives upon its very surface. It is intended as a memorial of Christ, and it is intended as a shouting or a manifestation of our faith in Christ, and of Christ's death, to others. These are the two objectives&mdash;"This do you in remembrance of Me"&mdash;and "Thus you proclaim the Lord's death till He comes."
 
-First, then, WE VIEW THE SUPPER OF OUR LORD AS BEING a MEMORIAL OF HIM. And as such, it is simple and very significant.
+First, then, we view the supper of our Lord as being a memorial of him. And as such, it is simple and very significant.
 
 How plainly it sets forth Christ's Incarnation! We take the bread. That bread, upon which we feed and which becomes assimilated with our flesh, is the type of the Incarnation of the Savior who veiled His Glory in our human clay. The same bread broken becomes the type of that body of the Savior rent and torn with anguish. We have there the nails, the scourge, the Cross&mdash;all set forth by that simple act of breaking the bread. And when the wine is poured out, there is no mystification, but rather the disclosure of a mystery. It represents the blood of Him who took blood in order that He might become one blood with us, His incarnate people and who, "being found in fashion as a Man," "became obedient unto death, even the death of the Cross." So that just as the wine is pressed from the cluster and is poured forth into the cup, so was His blood pressed from Him in the winepress of Divine Wrath and poured forth that He might make Atonement for the sin of men. A child, standing by the Communion Table, and asking the question of his father, "What does this ordinance mean?" might very soon be told, "My Child, we break this bread to show how Jesus Christ's body suffered. And we pour out this wine in token that Jesus Christ poured forth his heart's blood for the sins of men." It is marvelous that men should have added so many things of their own invention to screen and veil this very simple and, therefore, very sublime ordinance! Brothers and Sisters, let us come to those two symbols and here discern Christ's body broken for our sin and view His blood streaming forth for our redemption!
 
@@ -37,7 +37,7 @@ Well now, Brothers and Sisters, if to remember Christ is the objective of the Lo
 
 and let them know it as they sit here and remember Him!
 
-The second objective of this Communion Supper is THE SHOWING OF CHRIST's DEATH TILL HE COMES.
+The second objective of this Communion Supper is the showing of Christ's death till he comes.
 
 "Till He comes." I must not say anything about that except that He will come! And I think that ought to be enough for Christians. To my great sorrow, I had sent to me this last week, two or three copies of a tract purporting, according to the title page to have been written by myself, prophesying the coming of the Lord in the year 1866. Now, you may expect to hear of me being in Bedlam  whenever by my tongue or my pen, I give countenance to such rubbish! The Lord may come in 1866, and I shall be glad to see Him, but I do not believe He will. And one reason why I don't believe He will, I have told you before&mdash;it is because all these false two-penny-halfpenny prophets say that He will. If they said He would not, I would begin to think He would, but inasmuch as they are all crying as one man that He will come in 1866, or 1867, I am inclined to think He will not come at any such time! It seems to me that there are a very great many prophecies which must be fulfilled before the coming of Christ&mdash;which will not be fulfilled in the next 12 months. And I prefer, Beloved, to stand in the position of a man who knows neither the day nor the hour in which the Son of Man comes&mdash;always looking for His appearing, but never interfering with those dates and figures which seem to me to be proper amusement for young ladies who have nothing to do, and who take to them instead of reading novels. And for certain divines who have exhausted their stock of knowledge about sound Doctrine and, therefore, make up and gain a little ephemeral popularity by shuffling texts of Scripture as the Norwood gypsies shuffled cards in days gone by! Leave the prophets to divide the profits which they get from simpletons&mdash;and as for you, watch for Christ's coming, whether it shall be today, or tomorrow&mdash;and set no limits, and no dates, and no times! Only work while it is called today. Work so that when He comes, He may find you, as faithful servants, ready to come in to the wedding with Him. "Till He comes," then, the Lord's Supper is to be a showing forth of His death!
 
@@ -59,7 +59,7 @@ Well, dear Friends, as we come together at the Table, we will be remembering any
 
 Well, now, may we accomplish these two designs&mdash;to remember Christ and to show His death. We can only do it by His Spirit. Let us, with bowed head, ask for that Spirit. Let us seek that we may worship Christ in spirit and in truth while we receive the outward symbols of His suffering.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 17; 18:1-9.
+Exposition by C. H. Spurgeon: John 17; 18:1-9.
 
 Chapter 17:1. These words spoke Jesus, andlifted up His eyes to Heaven, andsaid, Father, the hour is come; glorify Your Son; that Your Son also may glorify You. Christ's great intercessory prayer begins with His appeal to His Father to glorify His Son. Christ knew all that He would have to suffer during that "hour" to which He had looked forward to from eternity, but His eyes could see beyond the gross with all its shame, the crown with all its glory! The Son being glorified, He would also glorify His Father and there is a wondrous Glory that comes to the Father through the death of His Son upon the Cross.
 
@@ -71,7 +71,7 @@ seem unable to see that there is perfect harmony between the general and the par
 
 And this is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sen [See
 
-Sermon #2396, Volume 41&mdash;ETERNAL LIFE!] So that the only way to obtain eternal life is to know God the Father and God the Son&mdash;and the best way to know them is to ask God the Holy Spirit to teach us what is revealed concerning them in the Sacred Scriptures which He inspired holy men of old to write.
+Sermon #2396, Volume 41&mdash;eternal life!] So that the only way to obtain eternal life is to know God the Father and God the Son&mdash;and the best way to know them is to ask God the Holy Spirit to teach us what is revealed concerning them in the Sacred Scriptures which He inspired holy men of old to write.
 
 5. I have glorified You on the earth: I have finished the work which You gave Me to do. And now, O Father, glorify You Me with Yourself with the Glory which I had with You before the world wa. As Christ had carried out His Father's will and done the work He had been sent to do, it was but right that He should go back to the Glory which He had, for a season, voluntarily laid aside. You notice that although He had not then died upon the Cross, He was so certain that He would there complete His great mediatorial work that He spoke of it as being already "finished."
 
@@ -81,7 +81,7 @@ I have manifested Your name unto the men which You gave Me out of the world: You
 
 9, 10. I pray for them: I pray not for the world, but for them which You have given Me; for they are Yours. And all Mine are Yours, and Yours are Mine; andIam glorifedin thei. . [See Sermon #2331, Volume 39&mdash;christ's pastoral prayer for his
 
-PEOPLE.] See what perfect union there is between the Father and
+people.] See what perfect union there is between the Father and
 
 the Son, and note their mutual relationship to the chosen people, "They are Yours. And all Mine are Yours, and Yours are Mine."
 
@@ -93,7 +93,7 @@ And now come I to You Christ looked beyond all that was to happen to Him before 
 
 I pray not that You should take them out of the world, but that You should keep them from evil. [See Sermons #47,
 
-Volume 1&mdash;CHRIST's PRAYER FOR HIS PEOPLE; #2355, Volume 40&mdash;CHRIST's NEGATIVE AND POSITIVE PRAYER and #2703, Volume 46&mdash;THE PRESERVATION OF CHRISTIANS IN THE WORLD.] Christ did not pray that there might
+Volume 1&mdash;Christ's prayer for his people; #2355, Volume 40&mdash;Christ's negative and positive prayer and #2703, Volume 46&mdash;the preservation of ChristIANS in the world.] Christ did not pray that there might
 
 be monasteries and nunneries where His servants might be shut away from the world, nor even that His followers might die in early youth and go home to Heaven! He prayed that, remaining in the world for gracious purposes&mdash;to be its salt and its light&mdash;they might themselves be kept from the evil that is in the world. It would be a dreadful thing, indeed, if the chosen people of God were to be overcome by the world. So Christ prayed that His Father would keep them from the evil, for He well knew that they could not be kept from it by any power that was not Divine. There is no less power needed for the preservation of a Believer than for his regeneration. The sustaining of a Saint is a constant miracle which can only be worked by God Himself.
 
@@ -111,19 +111,19 @@ But for them also which shall believe on Me through their wort. And so His bless
 
 word," and indeed, it is His Word that leads sinners to repent and to believe! Yet Christ puts this honor upon those who speak His Word out of the fullness of their hearts. They have by experience made it their own, so He calls it theirs and gives them this honorable position as the messengers of the Gospel of salvation.
 
-That they all may be one, as You, Father, are in Me, and I in You that they also may be one in Us; that the world may believe that You have sent MM. I wish that we could see more of this blessed unity, yet it does exist, even if we cannot see it. Wherever there is any true spiritual life&mdash;it matters not how much it may be marred by denominational divisions&mdash;there is and there always will be, an essential unity. All Christians are one family in Christ. I do not mean all who call themselves Christians, but all who really are Believers in Christ. The inner life is one, the source of that life is one, the nourishment of that life is one and the end of that life is one&mdash;so that all who possess it must be one&mdash;one in Christ and one with one another, even as Christ is One with the Father.
+That they all may be one, as You, Father, are in Me, and I in You that they also may be one in Us; that the world may believe that You have sent Me. I wish that we could see more of this blessed unity, yet it does exist, even if we cannot see it. Wherever there is any true spiritual life&mdash;it matters not how much it may be marred by denominational divisions&mdash;there is and there always will be, an essential unity. All Christians are one family in Christ. I do not mean all who call themselves Christians, but all who really are Believers in Christ. The inner life is one, the source of that life is one, the nourishment of that life is one and the end of that life is one&mdash;so that all who possess it must be one&mdash;one in Christ and one with one another, even as Christ is One with the Father.
 
 23. And the Glory which You gave Me I have given them; that they may be one, even as We are One: I in them, and You in Me, that they may be made perfect in one. That is the real secret of the saints' unity&mdash;"I in them," together with the everlasting Union of Christ Jesus with the Father&mdash;"and You in Me, that they may be made perfect in one."
 
 And that the world may know that You have sent Me, andhave loved them as You have lovedMt. [See Sermon #1472,
 
-Volume 25&mdash;THE GLORY, UNITY AND TRIUMPH OF THE CHURCH.] This is a
+Volume 25&mdash;the glory, unity and triumph of THE church.] This is a
 
 great deep&mdash;the words are very simple and clear&mdash;but their meaning is unfathomable. Is it really true that the Father has loved His chosen ones as He has loved His only begotten Son? It is such a wondrous thing that one might be willing to lie awake at night to meditate upon the amazing Truth here revealed in our Savior's words&mdash;"You have sent Me, and have loved them as You have loved Me."
 
 Father, I will that they also whom You have given Me, be with Me where I am; that they may behold My Glory, which You have given Me: for You loved Me before the foundation of the world. [See Sermons #188, Volume 4&mdash;the redeemers
 
-PRAYER and #1892, Volume 32&mdash;WHY THEY LEAVE US.] Some foolish folk
+prayer and #1892, Volume 32&mdash;why they leave us.] Some foolish folk
 
 talk about the saints being put away for a while into some purgatorial "limbo" in order that they may be made ready for Heaven but Christ speaks not so! He says, "I will that they...be with Me where I am." We care not to answer curious questions about the disembodied state&mdash;it is enough for us that Christ knows all and that we shall be with Him forever!
 
@@ -137,7 +137,7 @@ never did any human poem match this peerless prose of the Divine Teacher! And no
 
 John 18:1, 2. When Jesus had spoken these words, He went forth with His disciples over the Brook Kidron, where was a garden, into the which He entered, and His disciples. And Judas also, which betrayed Him, knew the place. [See Sermon
 
-#2767, Volume 48&mdash;JESUS IN GETHSEMANE.] He was familiar with the
+#2767, Volume 48&mdash;Jesus in gethsemane.] He was familiar with the
 
 Master's place of retirement for private prayer and he had, doubtless, heard the Master pray there. Yes, and many a Judas knows the place where the saints meet for worship and knows the Communion Table, too, and knows some of the most hallowed gatherings of God's people where they pour out their hearts in private prayer. And the pity is that knowing all that&mdash;the ancient Judas and the modern one do not savingly know the Master Himself!
 
