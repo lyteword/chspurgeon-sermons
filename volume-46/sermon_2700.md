@@ -60,17 +60,17 @@ Grace at all except as we know Christ! And there can be no growth in Grace excep
 
 With regard to love, s ome of us say, "How little we love Christ!" Many of you sing&mdash;
 
-> 'Tis a point I long to know,   
-> Oft it causes anxious thought&mdash;   
-> Do I love the Lord, or no?   
-> Am I His, or am I not?   
+> 'Tis a point I long to know, 
+> Oft it causes anxious thought&mdash; 
+> Do I love the Lord, or no? 
+> Am I His, or am I not? 
 
 That is a very good hymn&mdash;I find no fault with it&mdash;but please do not sing it too often! Now and then, you are welcome to it, but get through it as quickly as you can. I would far rather hear you sing that grand hymn of Toplady's&mdash;
 
-> A debtor to mercy alone,   
-> Of Covenant mercy I sing!   
-> Nor fear, with Your righteousness on,   
-> My person and offering to bring.   
+> A debtor to mercy alone, 
+> Of Covenant mercy I sing! 
+> Nor fear, with Your righteousness on, 
+> My person and offering to bring. 
 
 "Oh!" you say, "I long to grow in love. I want to know that I love Jesus. I want to feel my heart going out after Him, and my soul knit to Him." Well, the way to grow in love is to know more of Christ. The more you know of the Savior, the better you must love Him. The more you discover of His beauties, of His excellences, of His virtues, of His perfections, and of His glories, the more your soul will be drawn towards Him. I tell you who do not love Christ at all, it is because you do not know Him, for if you knew anything of Him, you would love Him in proportion to your knowledge! The more you know of my Master, the more you will love Him. You have only lifted one corner of the veil that shrouds His forehead, you have seen but one portion of His visage, so you love Him&mdash;but if you had faith to lift the veil entirely, to see all of His blessed Countenance, to mark the majestic sweetness which sits enthroned upon His lofty brow. If you could focus on His eyes, which are "like the fish pools in Heshbon, by the gate of Bath-Rabbim"&mdash;if you could describe Him as being "altogether lovely," ah, you would love Him more!
 
@@ -104,10 +104,10 @@ You may remember a story I have told you before. An old Scotch elder had been di
 
 Lastly, there is another Grace in which we need to grow. That is, the Grace of humility. I am sure we would increase in that Grace if we lived nearer to Christ. O Humility, most precious thing, you are most rare! He who talks most of it has least of it. He who preaches of it best, full often is least the subject of its power! O Humility, I have sometimes thought that you were a phantom, and that pride was the reality! Humility, where are you? The depths of poverty say, "You are not in me," for the poor are often proud. The heights of riches say, "You are not here," for the rich are often proud, too. O Humility, you are not to be found in science, for philosophy puffs up. You are not to be found in ignorance, for that is the mother of pride. O Humility, where can I find you? Where are you? Nowhere can I see you, or know what you are&mdash;unless I sit at the feet of Jesus and behold myself a lost, ruined sinner purchased by Divine Love. If you, dear Friend, would be truly humble, you must look at your Savior, for then you will say&mdash;
 
-> Alas, and did my Savor bleed?   
-> And did my Sovereign die?   
-> Would He devote that sacred head   
-> For such a worm as I?   
+> Alas, and did my Savor bleed? 
+> And did my Sovereign die? 
+> Would He devote that sacred head 
+> For such a worm as I? 
 
 You will never feel yourself such a worm as when, by faith, you see your Savior dying for you! You will never know your own nothingness so well as when you see your Savior's greatness. When you grow in the Grace and knowledge of our Lord and Savior Jesus Christ, you will be sure to grow in humility!
 

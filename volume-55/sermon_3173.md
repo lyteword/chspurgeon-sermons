@@ -2,7 +2,7 @@
 
 "As you have therefore received Christ Jesus the Lord, so walk you in Him." Colossians 2:6.
 
-[Two other Sermons by Mr. Spurgeon upon the same text are Sermons #483, Volume 8&mdash;LIFE AND WALK OF FAITH and #3030, Volume 53&mdash; a CONSISTENT WALK FOR TIME TO COME]
+
 
 THIS is a very simple text, yet no human being has ever discovered its full meaning. It is a great deep&mdash;happy are they who know how to dive into its depths and to swim at ease in its lengths and breadths! Blessed are they who continually obey the exhortation which it contains, "As you have therefore received Christ Jesus the Lord, so walk you in Him." The text divides itself into faith and practice. "You have received Christ Jesus the Lord," there is your faith. "Walk you in Him," that is to be your daily practice!
 
@@ -106,7 +106,7 @@ PROVED BY LOVE] He that loves not his brother abides in death.
 
 Whoever hates his brother is a murderer: and you know that no murderer has eternal life abiding in him. Hereby perceive
 
-we the love of God, because He laid down His life for uS [See Sermons #2656, Volume 46&mdash;THE DEATH OF CHRIST FOR HIS PEOPLE and #2959, Volume 51&mdash;GOD's LOVE TO THE SAINTS] and we ought to lay down our
+we the love of God, because He laid down His life for uS  and we ought to lay down our
 
 lives for the brethren. Such self-sacrifice as this is the very highest form of love to the brethren and is a following of the example of Christ, who "laid down his life for us."
 

@@ -2,11 +2,11 @@
 
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 
-I HAVE often preached from this text. [Sermon #265, Volume 5, THE MEEK AND LOWLY ONE; #969, Volume 17, REST, REST; #1322, Volume 22, REST FOR THE LABORING; #1691, Volume 28, CHRIST's WORD WITH YOU; #2298, Volume 39, THE CHRIST-GIVEN REST and #2708, Volume 47, THE OLD GOSPEL FOR THE NEW CENTURY] I hope, if I am Spared, to often preach from
+I HAVE often preached from this text.  I hope, if I am Spared, to often preach from
 
 it in the future. It is one of those great constellation texts which, like certain stars which shine so brightly in the sky, have served as a guide to mariners&mdash;they have helped to direct many a poor tempest-tossed seaman into the harbor he wanted to reach&mdash;and these texts have guided many into the haven of everlasting peace. Among the many stars up yonder in the heavens, there are some that are so conspicuously set and so peculiarly brilliant, that they are sure to be observed. And amidst the many precious promises in God's Word, this is one of the very brightest&mdash;it has gladdened thousands of weary eyes and cheered untold myriads of burdened souls.
 
-This morning we were meditating upon the thirst of Christ while hanging on the Cross [Sermon #1409, Volume 24, the SHORTEST OF THE SEVEN CRIES] and I tried to show you the mystic
+This morning we were meditating upon the thirst of Christ while hanging on the Cross  and I tried to show you the mystic
 
 meaning hidden within the letter meaning of His short but suggestive cry, "I thirst." Our Lord Jesus Christ still thirsts for the souls of men. He thirsts for our salvation and here is one of His thirst-cries&mdash;"Come unto Me, all you that labor and are heavy laden, and I will give you rest."
 

@@ -2,7 +2,7 @@
 
 "What is your Beloved more than another beloved, O you fairest among women? What is your Beloved more than another beloved, that you so charge us?" Song of Solomon 5:9.
 
-THIS morning, [See sermon # 694, Volume 12, "Sin Laid on Jesus."] we had the great privilege of preaching the doctrine of Substitution and of directing the minds of God's people to the solid rock of the meritorious Sacrifice of Christ whereon all their hopes of Heaven must be built. What we have to say, tonight, is less doctrinal and more practical&mdash;therefore let us guard ourselves at the outset. If we should, with very much earnestness, urge Believers to good works, let nobody suppose that, therefore, we imagine that men are saved by works! Let no one, for a moment, dream that in urging the Believer to bring forth fruit to righteousness, we are at all teaching that salvation is the work of man! I have no doubt that all of us who know anything of true religion are of the same opinion as that celebrated Scotch Divine, old David Dickson, who was asked, when dying, what was the principal subject on which his thoughts were engaged. He answered, "I am gathering up all my good works and all my bad works, tying them into one bundle and throwing them all, alike, down at the foot of the Cross and am resting alone upon the finished work of Jesus."
+THIS morning, we had the great privilege of preaching the doctrine of Substitution and of directing the minds of God's people to the solid rock of the meritorious Sacrifice of Christ whereon all their hopes of Heaven must be built. What we have to say, tonight, is less doctrinal and more practical&mdash;therefore let us guard ourselves at the outset. If we should, with very much earnestness, urge Believers to good works, let nobody suppose that, therefore, we imagine that men are saved by works! Let no one, for a moment, dream that in urging the Believer to bring forth fruit to righteousness, we are at all teaching that salvation is the work of man! I have no doubt that all of us who know anything of true religion are of the same opinion as that celebrated Scotch Divine, old David Dickson, who was asked, when dying, what was the principal subject on which his thoughts were engaged. He answered, "I am gathering up all my good works and all my bad works, tying them into one bundle and throwing them all, alike, down at the foot of the Cross and am resting alone upon the finished work of Jesus."
 
 It is related of that mighty master in Israel, James Durham, that his experience at the last was very much akin to that of his friend, Dickson, for he said, "Notwithstanding all my preaching and all my spiritual experiences, I do not know that I have anything to hang upon excepting this one sentence spoken by Christ, 'Him that comes to Me I will in no wise cast out.'" "Ah," replied someone who stood by Mr. Durham at the time, "you might well hazard a thousand souls, if you had them, upon the strength of that one precious text."
 
@@ -138,7 +138,7 @@ Till we behold Him face to face." 16. Behold, you are fair, My love; behold, you
 
 16, 17. Behold, You are fair, my Beloved, yes, pleasant: also our bed is green. The beams of our house are cedar, and our rafters of fir. We have the word, "rafters," here, but it should be, "galleries." The "bed" expresses the near fellowship which Christ has with His people. The "house" is a larger expression and, perhaps, denotes the whole Church. And the "galleries" signify the ordinances of Grace. You notice that these are made of strong wood, the one of cedar and the other of fir and truly, dear Friends, in closing our reading, we can say to our Lord&mdash;
 
-> No beams of cedar or of fir   
-> Can with Your courts on earth compare!   
-> And here we wait, until Your love   
+> No beams of cedar or of fir 
+> Can with Your courts on earth compare! 
+> And here we wait, until Your love 
 > Raise us to nobler seats above.

@@ -2,7 +2,7 @@
 
 "We who have believed do enter into rest." Hebrews 4:3.
 
-[Other Sermons by Mr. Spurgeon upon the same text are Sermons #866, Volume 15&mdash;REST and #2090, Volume 35&mdash; a DELICIOUS EXPERIENCE.]
+
 
 THE text does not say that we who have believed shall enter into rest. That is a very great Truth, but it is not the Truth that is taught here. We "do enter into rest," even in this present life! All who are Believers in the Lord Jesus Christ are already enjoying rest of heart and, in proportion as faith possesses their souls, in that proportion they enjoy perfect rest. It is not a future privilege&mdash;it is a matter of present enjoyment. And I pray my Brothers and Sisters in Christ not to impoverish themselves by making the text apply to the future, but to seek for the spiritual enrichment which God has given them by accepting the text just as the Apostle wrote it and so realizing that "we who have believed do enter into
 
@@ -70,13 +70,13 @@ But have renounced the hidden things of dishonesty, not walking in craftiness, n
 
 3, 4. But if our Gospel is hid, it is hid to them that are lost: in whom the god of this world has blinded the minds of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine unto them.
 
-[The following Sermons by Mr. Spurgeon upon parts of these two verses, are #2304, Volume 39&mdash;BLINDED BY SATAN; #2077, Volume 35&mdash;THE GOSPEL OF THE GLORY OF CHRIST and #1663, Volume 28&mdash;THE TRUE GOSPEL IS NO HIDDEN GOSPEL.]
+
 
 Without light from above, no man can perceive the beauties either of the Gospel or of Christ Himself. Until God the Holy Spirit sheds a spiritual light upon the Person, offices and work of Christ, men grope in the dark as blind men do. They see not the Truth of God. They are not persuaded of its excellence. Our ministry is to them a veiled ministry, they do not comprehend it. Let those who receive not the Gospel see what a miserable state theirs is&mdash;they are blinded by "the god of this world." He has such supremacy over their intellects that he has utterly perverted and ruined them!
 
 For we preach not ourselves but Christ Jesus the Lord, and ourselves your servants for Jesus' sake. Hence we learn that anything like priestcraft is altogether foreign to the Bible. The "priest" preaches up himself, the extraordinary value of his ordination, the occult influences which flow from his touch, the mysterious power which dwells in baptismal water and in "consecrated" wafers and poured-out wine. This is preaching themselves with a vengeance! But Christ's Apostles preached not themselves&mdash;they preached up Christ and Him crucified. Paul wrote, "God forbid that I should glory save in the Cross of our Lord Jesus Christ." And this was the constant theme of all the Apostles. If they mentioned themselves at all, they simply said, as Paul does here, "Ourselves your servants for Jesus' sake."
 
-For God, who commanded the light to shine out of darkness, has shined in our heart, to give the light of the knowledge of the Glory of God in the face of Jesus Christ. [See Sermon #1493, Volume 25&mdash;the glory of god in the face of jesus chrIST.] There is the very Glory of God in the face of Jesus Christ,
+For God, who commanded the light to shine out of darkness, has shined in our heart, to give the light of the knowledge of the Glory of God in the face of Jesus Christ.  There is the very Glory of God in the face of Jesus Christ,
 
 for He is, "very God of very God," and he who will but think of the wondrous mystery of the Incarnate Deity and the simple but marvelous plan of salvation through Christ's atoning Sacrifice will see infinitely more Glory, there, than in all God's works in Creation or Providence. Well does Watts say&mdash;
 
@@ -109,4 +109,4 @@ While we look not at the things which are seei.. Alas for us if we did!
 
 But at the things which are not seen: for the things which are seen are temporal Temporal and temporary! See how they melt away, one after another!
 
-But the things which are not seen are eternal. [See Sermon #1380, Volume 23&mdash;VANITIES AND VERITIES.] The substance is beyond the river. The shadows are here. God help us to look for the substance and to claim it as our own&mdash;and let none of us try to grasp the shadows which would be worthless if we could ever hold them in our hands!
+But the things which are not seen are eternal.  The substance is beyond the river. The shadows are here. God help us to look for the substance and to claim it as our own&mdash;and let none of us try to grasp the shadows which would be worthless if we could ever hold them in our hands!

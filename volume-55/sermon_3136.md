@@ -82,7 +82,7 @@ a Sabbath without a conversion in this place. I do not think there has been a se
 
 Thus have I used a very simple incident to set forth very important Truths of God. But, alas, there are some in this place to whom this subject may have seemed very uninteresting, for they are not themselves saved&mdash;they are not themselves converted. I would not have them go out of this building without reminding them that the Gospel is to be preached to every creature in all the world and, therefore, it is to be preached to them! And this is the Gospel&mdash;"He that believes and is baptized shall be saved." You will observe that I have not left out half of it. It is more than I dare to do to play with Christ's Gospel, or to clip one of its wings. Christ's own words are, "He that believes and is baptized shall be saved; but he that believes not shall be damned." To believe is simply to trust Christ. To be baptized is to be immersed in water upon profession of your faith in Jesus Christ. May God grant to all of you Grace, first to believe in His Son, Jesus Christ, and then to confess that faith in His own appointed way, by being baptized in His name, and to Him be all the glory forever and ever. Amen.
 
-[Mr. Spurgeon's Exposition of Acts 28 was too long for insertion here. It must be used with a shorter sermon. The Exposition here given belongs to Sermon #3127, Volume 55&mdash;a PROMISE AND a PRECEDENT.]
+
 
 EXPOSITION BY C. H. SPURGEON: JOHN16:1-14.
 

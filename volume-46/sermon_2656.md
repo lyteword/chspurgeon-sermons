@@ -60,8 +60,8 @@ And oh, my Soul, with wonder view,
 
 For sins to come, here's pardon too!" This is all I need to know&mdash;did the Savior die for me? Then I will not continue in sin that Grace may abound, but nothing shall stop me of thus glorying, in all the Churches of the Lord Jesus, that my sins are entirely removed from me and, in God's sight, I may sing, as Hart did sing&mdash;
 
-> With Christ's spotless vesture on,   
-> Holy as the Holy One!   
+> With Christ's spotless vesture on, 
+> Holy as the Holy One! 
 
 O marvelous death of Christ, how securely do You set the feet of God's people on the rocks of eternal love! And how securely do You keep them there! Come, dear Brothers and Sisters, let us suck a little honey out of this honeycomb! Was there ever anything so luscious and so sweet to the Believer's taste as this all-glorious Truth that we are complete in Him? That in and through His death and merits, we are accepted in the Beloved? Oh, was there ever anything more sublime than this fact that He has already raised us up together and made us sit together in heavenly places in Christ Jesus, far above all principalities and powers, just where He sits? Surely there is nothing more sublime than that, except it be that a master-thought stamps all these things with more than their own value&mdash;that master-thought that, though the mountains may depart and the hills be removed, the Covenant of His love shall never depart from us! "For," says Jehovah, "I will never forget you, O Zion." "I have engraved you upon the palms of My hands; your walls are continually before
 
@@ -105,17 +105,17 @@ But that the works of God should be made manifest in him. What a very blessed wa
 
 10, 11. Therefore said they unto him, How were your eyes opened? He answered and said, a Man that is called Jesus made clay, and anointed my eyes, and said unto me, Go to the pool of Siloam and wash And I went and washed, and I received sight. A very plain story, very well told. It is the story of every soul that gets the eternal light. "Christ told me to believe in Him. I did believe in Him and I received the blessing." There are not many incidents in the narrative and there is nothing very romantic&mdash;it is a simple and plain declaration of what Christ had done for him. And, blessed be God, just as sight was given to the blind man, Christ still gives salvation to all who trust Him!&mdash;
 
-> There is life for a look at the Crucified One!   
-> There is life at this moment for thee.   
-> Then look, sinner&mdash;look unto Him and be saved&mdash;   
-> Unto Him who was nailed to the tree!   
-> It is not your tears of repentance or prayers,   
-> But the blood that atones for the soul.   
-> On Him, then, who shed it, believing at once,   
-> Your weight of iniquities roll.   
-> But take, with rejoicing, from Jesus at once   
-> The life everlasting He gives:   
-> And know, with assurance, you never can die, Since Jesus, your righteousness, lives.   
+> There is life for a look at the Crucified One! 
+> There is life at this moment for thee. 
+> Then look, sinner&mdash;look unto Him and be saved&mdash; 
+> Unto Him who was nailed to the tree! 
+> It is not your tears of repentance or prayers, 
+> But the blood that atones for the soul. 
+> On Him, then, who shed it, believing at once, 
+> Your weight of iniquities roll. 
+> But take, with rejoicing, from Jesus at once 
+> The life everlasting He gives: 
+> And know, with assurance, you never can die, Since Jesus, your righteousness, lives. 
 
 12-14. Then said they unto him, Where is He? He said, I know not They brought to the Pharisees him that aforetime was blind. And it was the Sabbath day when Jesus made the clay and opened his eyes. Oh, that He would do the same thing, in a spiritual sense, this Sabbath day! On another occasion, when He had worked a miracle on the Sabbath and the Jews, therefore, sought to persecute Him and slay Him, He said to them, "My Father works hitherto, and I work." The Sabbath day was often Christ's chief working day&mdash;may He make it to be so again now!
 

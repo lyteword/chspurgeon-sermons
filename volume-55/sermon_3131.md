@@ -67,11 +67,11 @@ Trust in the LORD, and do good. These are two good things to go together&mdash;f
 
 So shall you dwell in the land Not merely on earth, but in the land of promise, the land which God has promised to His people. We dwell there by faith even now. Everywhere we find our God and wherever we find Him, it is Emmanuel's land to us.
 
-So and verily you shall be fed. "Verily, verily," is Christ's most solemn affirmation. [See Sermon #3053, Volume 53&mdash;jesus CHRIST's IDIOM] David here says, "verily," because the statement
+So and verily you shall be fed. "Verily, verily," is Christ's most solemn affirmation.  David here says, "verily," because the statement
 
 he makes is absolutely true&mdash;"Trust in the Lord, and do good; so shall you dwell in the land, and verily you shall be fed."
 
-Delight yourself also in the LORD; and He shall give you the desires of your heart. [See Sermon #454, Volume 8&mdash;sunshine IN THE HEART] When all your heart's desires are fixed upon Him
+Delight yourself also in the LORD; and He shall give you the desires of your heart.  When all your heart's desires are fixed upon Him
 
 because He is your heart's delight, then you may give a loose rein to those desires without any fear that they will run away! When your heart's desires are of this sort, you shall have them, be they what they may! It is not every man who shall have the desires of his heart given to him, but only that man whose heart's delight is in his God. There is much in connection with the person praying which will help to decide whether he shall or shall not have his desires granted. What is the condition of the heart out of which the desires come? When the heart is full of delight in the Lord, its desires shall be pleasing in His sight and shall be granted.
 

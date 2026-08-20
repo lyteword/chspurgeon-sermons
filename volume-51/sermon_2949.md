@@ -2,7 +2,7 @@
 
 "And He led them out as far as to Bethany, and He lifted up His hands, and blessed them. And it came to pass, while He blessed them, He was parted from them, and carried up into Heaven. And they worshipped Him, and returned to Jerusalem with great joy: and were continually in the temple, praising and blessing God." Luke 24:50-53.
 
-[This sermon was originally titled "Our Lord's Attitude in Ascension."]
+
 
 OUR Lord Jesus, having spoiled the grave and so proved His power over things that are under the earth, tarried for 40 days among men and so claimed His power over the earth, itself, and then ascended through the air to show that the dominion of the Prince of the power of the air was broken and, finally, entered into the Heaven of Heavens to claim sovereignty there, so that, from the lowest depths up to the extreme heights, He might take possession of His vast domains. I like to think of Him as traversing His dominions from end to end, like a conqueror looking over the provinces which have been subdued by his might. Our Lord did not make a rapid passage through the world. He might have gone, on the Resurrection morning, straight from the grave, as soon as it was opened, into His Glory but He had reasons for tarrying a while, and of those reasons I will briefly speak before I come to the main theme of my discourse&mdash;our Lord's posture in Ascension.
 

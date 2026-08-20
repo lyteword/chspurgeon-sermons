@@ -91,7 +91,7 @@ And He asked the scribes, What are you discussing with them? The circumstances o
 
 them?"
 
-And one of the multitude answered. One who had a peculiar reason for answering, just as, I trust there will be one in this multitude before me who will have a peculiar reason for listening to my message and a peculiar reason for remembering it after it is delivered&mdash;"One of the multitude answered." [Remember the Exposition was always before the sermon.]
+And one of the multitude answered. One who had a peculiar reason for answering, just as, I trust there will be one in this multitude before me who will have a peculiar reason for listening to my message and a peculiar reason for remembering it after it is delivered&mdash;"One of the multitude answered." 
 
 17-19. And said, Master, I have brought unto You my son who has a dumb spirit; and wherever he takes him, he convulses him: and he foams, and gnashes with his teeth, andpines away. And I spoke to Your disciples that they should cast him out; and they could not. He answered him, and said, O faithless generation, how long shall I be with you? How long shall I bear with you? Bring him unto Me. I suppose our Lord's rebuke was meant specially for His disciples. It was something like the speech of a schoolmaster who, having taught his pupils the same lesson a great many times, and labored hard with them, from year to year, yet finds them failing in the very elements of knowledge. Christ does not speak as if He were tired of His life and wished to get away from His disciples&mdash;but this is His way of saying how disappointed He is that these learners have learned so little.
 

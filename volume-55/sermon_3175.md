@@ -2,9 +2,9 @@
 
 "You will keep him in perfect peace (Margin: peace, peace), whose mind is stayed on You: because he trusts in You." Isaiah 26:3.
 
-[This Address is an interesting souvenir of an afternoon visit paid by Mr. Spurgeon to an invalid at Mentone, the late Giles Shaw, Esq., of Bewdley&mdash;brother-in-law of Miss Frances Ridley Havergal. The Address was delivered without preparation and followed immediately the singing of the hymn upon which it is based.]
 
-[a Sermon by Mr. Spurgeon upon Isaiah 26:3 is #1818, Volume 31&mdash;THE SONG OF a CITY AND THE PEARL OF PEACE. Expositions of the whole Chapter are included with Sermons #2430, Volume 41&mdash;CHRISTIANS AND THEIR COMMUNION WITH GOD and #2713, Volume 47&mdash;WALKING IN THE LIGHT OF THE LORD]
+
+
 
 
 "Peace! Perfect peace! In this dark world of sin?
@@ -97,7 +97,7 @@ We must get this perfect peace of which we have now been singing and speaking. I
 
 EXPOSITION BY C. H. SPURGEON: HOSEA 14.
 
-Verse 1. O Israel, return unto the LORD your God, [See Sermon #2192, Volume 37&mdash;THE JOYOUS RETURN] Bless His name that He is still your Gil! However much you may have backslid-
+Verse 1. O Israel, return unto the LORD your God,  Bless His name that He is still your Gil! However much you may have backslid-
 
 den, you have not lost your right to claim Him as your God, for He is yours eternally by a fixed promise. And because He is still your God, let His everlasting kindness entice you to come back to Him."
 
@@ -115,7 +115,7 @@ Neither wiil we say anymore to the work ofour hands, You are our gods. Happy is 
 
 3, 4. For in You the fatherless finds mercy. I will heal their backsliding I will love them freely: for My anger is
 
-turned away from him.[See Sermons #501, Volume 9&mdash;GRACE ABOUNDING and #920, Volume 16&mdash;BACKSLIDING HEALED] Everlastingly turned away through the complete and satisfactory Atonement of Jesus Christ!
+turned away from him. Everlastingly turned away through the complete and satisfactory Atonement of Jesus Christ!
 
 I will be as the dew unto Israee. The dew is God's gift and so is Divine Grace! The dew falls silently, yet copiously, and bedews both the leaf and the root sufficiently. "I will be as the dew unto Israel," is a promise to the man of faith, the man of prayer, the man who can endure trial&mdash;"I will be as the dew unto Israel."
 
@@ -139,7 +139,7 @@ And grow as the vine. The branches shall in their turn become fruitful.
 
 The scent thereof shall be as the wine of Lebanon. Our families and households should be so well-ordered that not only we ourselves, personally, but all in our household should have a heavenly influence, a blessed savor upon all around us.
 
-Ephraim shall say, WVhat have I to do anymore with idols?'[See Sermons #1339, Volume 23&mdash;IDOLS ABOLISHED and #2474, Volume 42&mdash;THE GREAT CHANGE] Let that question also go round our
+Ephraim shall say, WVhat have I to do anymore with idols?' Let that question also go round our
 
 ranks, "What have I to do anymore with idols? I, who am bought with the precious blood of Jesus? I, who am named by the name of Jesus? I, who have been baptized into the Sacred Trinity&mdash;what have I to do anymore with idols?" You may make an idol of that boy or girl of yours. You may make an idol of that house or garden of yours. You may make an idol of that business or profession of yours. Do not do it, I entreat you, but rather say, "What have I to do anymore with
 
@@ -147,7 +147,7 @@ idols?"
 
 I have heard him, and observed him: I am like a green fir tree. That is what Ephraim says, and this is what God says.
 
-From Me is your fruit found [See Sermon #557, Volume 10&mdash;WHERE TO FIND FRUIT] We are never so fruitful as when we get all our fruit from God! We always shine in borrowed light and we are always fruitful in borrowed fruitfulness.
+From Me is your fruit found  We are never so fruitful as when we get all our fruit from God! We always shine in borrowed light and we are always fruitful in borrowed fruitfulness.
 
 Who is wise, and he shall understand these things? Prudent, and he shall know them? For the ways of the LORD are righ. Did your murmuring spirit say that they were not right? Because you have had some sore trial, did your repining spirit say that they were not right? They are certainly right and you shall see that it is so one day! "The ways of the Lord are right."
 

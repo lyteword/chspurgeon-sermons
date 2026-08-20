@@ -66,9 +66,9 @@ Oh, remember that to have made a profession of religion and yet to be deceived i
 
 Do you, my Friend, put away the question of the text and say you know that you are all right? You are the very person who ought to let the question come home to you! Are you sure that all is well with you? Then perhaps you have no right to be sure. Do you never doubt? Have you never had any fear about the future? Then, remember what the poet Cowper so wisely said&mdash;
 
-> He has no hope who never hada fear   
-> And he that never doubted of his state,   
-> He may perhaps&mdash;perhaps he may&mdash;too late.   
+> He has no hope who never hada fear 
+> And he that never doubted of his state, 
+> He may perhaps&mdash;perhaps he may&mdash;too late. 
 
 Does your confidence stand so firm that nothing can shake it? Perhaps, then, it is not built upon a rock. There are things that stand very firm for a time that, after all, will not endure forever. The great mountains stand fast, but they shall be removed and be carried into the midst of the sea. And your hope may seem to have a firm foundation, yet you may find yourself swallowed up in a fearful whirlpool of horrible destruction. I appeal to some men who think that they need not heed my earnest words&mdash;men who are not members of Christian Churches, but who are reputed to be Christians. There are some among us who are generally reputed to be children of God&mdash;their conversation is full of weighty religious matters&mdash;no one better understands the Truth of God than they do. Yet they have one master vice, one evil propensity that leads them astray everyday. In the name of God, I have warned them of the consequences of continuing in sin. As they must stand before Jehovah's bar and as I, who have warned them, must stand there with them, I do entreat them to let the voice of warning reach them!
 

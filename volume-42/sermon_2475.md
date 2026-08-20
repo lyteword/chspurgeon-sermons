@@ -34,8 +34,8 @@ He may, perhaps&mdash;perhaps he may&mdash;too late.
 
 I have sung and I expect that I may ha ve to sing again&mdash;
 
-> 'Tis a point I long to know.   
-> Oft it causes anxious thought&mdash; Do I love the Lord or no? Am I His, or am I not?   
+> 'Tis a point I long to know. 
+> Oft it causes anxious thought&mdash; Do I love the Lord or no? Am I His, or am I not? 
 
 I cannot bear to get into that condition and I cannot bear to keep in it when I am in it, but still, there must be anxious thought about this all-important matter. Because you happened to be excited on a certain occasion and thought you were converted and were sure of Heaven, you had better look well to the evidence on which you are relying. You may be mistaken, after all, and while I would not preach up little faith, I would preach down great presumption! No man can have a faith too strong and no assurance can be too full if it really comes from God, the Holy Spirit. But if it comes merely out of your fancying that it is so and, therefore, will not examine yourself, whether you are in the faith, I begin to make up my mind that it is not so because you are afraid to look into the matter! "I know that I am getting rich," says a merchant. "I never keep any books and I do not need any books, but I know that I am getting on well in my business." If, my dear Sir, I do not soon see your name in the Gazette, I shall be rather surprised!
 

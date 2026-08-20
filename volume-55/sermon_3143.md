@@ -90,13 +90,13 @@ And your feet shod with the preparation of the Gospel of Peace. Rough roads grow
 
 Above all. Over all, covering all from head to foot.
 
-Taking the shield of faith. [See Sermon #416, Volume 7&mdash;SHIELD OF FAITH.] For you need this shield to protect both your armor and yourself.
+Taking the shield of faith.  For you need this shield to protect both your armor and yourself.
 
 Therewith you shall be able to quench all the fiery darts of the wicked. Not only the fiery darts of the Wicked One, but those, also, of wicked men and wicked women who may throw at you afar, darts that are all ablaze which would burn as well as pierce you if you were not well guarded against them. Nothing can quench these fiery darts but the shield of faith!
 
 And take the helmet of salvatioi.. You used to wear the helmet of pride with its fine nodding plumes, but that has been taken off of you long ago. Now put on "the helmet of Salvation." This will effectually defend your head and no sword will be able to cleave through it to injure you. Your brain and everything that is connected with your mental powers will be right when you know that you are saved&mdash;and when the power of God's salvation is working within you!
 
-And the sword of the Spirit, which is the Word of God. [See Sermon #2201, Volume 37&mdash;the sword of the spirit.] There is no sword like that! It pierces even to the dividing
+And the sword of the Spirit, which is the Word of God.  There is no sword like that! It pierces even to the dividing
 
 asunder of soul and spirit, of joints and marrow and is a discerner of the thoughts and intents of the heart. Nothing can resist the Word of God if it is only wielded aright. There is one more weapon in the heavenly armory.
 

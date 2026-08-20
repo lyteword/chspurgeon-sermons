@@ -108,7 +108,7 @@ labor of the ages! And now, all of us who have believed in Him have all the bene
 
 From henceforth expecting till His enemies be made His footstool "Expecting. " That was the subject of this
 
-morning's sermon. [Sermon #1616, Volume 27&mdash;Saved in Hope] We
+morning's sermon. We
 
 are expecting something better than we have yet seen. "We were saved in hope." We are expecting that which is yet to be revealed and our Covenant Head is expecting, too! This is the age of expectancy. We have not yet come to the fullness of the blessing that is ours in Christ Jesus. The mercy of God is, at present, only in the bud&mdash;the fully developed flower has yet to be seen. Christ is expecting. His saints are expecting. The whole creation is expecting!
 

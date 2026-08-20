@@ -88,7 +88,7 @@ So may it be with you all, for Christ's sake! Amen.
 
 EXPOSITIONS BY C. H. SPURGEON: LUKE 4:16-30; JOHN8:37-59. (R. V.)
 
-We will read, from the Revised Version, two passages which record attempts made to kill our Lord before His time had come. You will see, from the sermon, why we read them. [Sermon came after the exposition.&mdash;eod.]
+We will read, from the Revised Version, two passages which record attempts made to kill our Lord before His time had come. You will see, from the sermon, why we read them.  
 
 Luke 4:16-21. And He came to Nazareth, where He had been brought up: and He entered, as His custom was, into the synagogue on the Sabbath day, and stood up to read. And there was delivered unto Him the book of the Prophet Isaiah. And He opened the book and found the place where it was written, The Spirit of the Lord is upon Me, because He anointed Me to preach good tidings to the poor: He has sent Me to proclaim release to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to proclaim the acceptable year of the Lord. And He closed the book, and gave it back to the attendant, and sat down: and the eyes of all in the synagogue were fastened on Him. And He began to say unto them, Today has this Scripture been fulfilled in your ears. Alas, not in their hearts They had heard Christ read the prophecy that related to Himself, but they had not accepted its message.
 

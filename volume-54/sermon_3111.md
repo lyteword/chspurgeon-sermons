@@ -2,7 +2,7 @@
 
 "And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept." Genesis 27:38.
 
-You know the story of Esau and Jacob. [See Sermons #239, Volume 5&mdash;JACOB AND ESAU and #1718, Volume 29&mdash;CERTAIN SINGULAR SUBJECTS] Esau Was the elder of the twin sons of Isaac and
+You know the story of Esau and Jacob.  Esau Was the elder of the twin sons of Isaac and
 
 Rebekah. The birthright was his by right, but he despised it. He was a profane person who did not prize the hereditary privilege which was really his. He actually sold his right to it to his younger brother, Jacob, for a mess of "pottage of lentils." Time rolled on and Isaac, feeling the infirmities of age creeping upon him, determined to give to Esau the blessing to which, as his elder son, he was entitled. Rebekah wanted the blessing to be given to her younger son and, therefore, resorted to a stratagem in order to make the poor blind father believe that Jacob was Esau&mdash;and in that way Jacob gained the blessing by fraud. When Esau came in and found that the blessing was given to Jacob&mdash;and that it could not be revoked&mdash;he cried bitterly and besought his father to give him "but one blessing."
 
@@ -44,11 +44,9 @@ It should encourage you to seek God's blessing when you think of the plenitude t
 
 You ought also to be encouraged to seek God's blessing by the plenitude and power of the Holy Spirit. He is able to soften the hardest heart and to subdue the most stubborn will. There is no sinful habit that He cannot overcome. He can give you the Grace to enable you to resist the strongest temptation and to conquer the fiercest besetting sin. There is almighty power in the ever-blessed Spirit, so that there is no limit to His regenerating and sanctifying work!
 
-Well, then, with the Infinite Father, the Infinite Redeemer and the Infinite Spirit, you need not say, "Have you but one blessing?" but you may open your mouth wide so that God may fill it! We are still authorized by the Giver of the great Gospel feast to cry, "Yet there is room." The provisions of that royal banquet are not merely for the few who belong to some insignificant little sect and who reckon themselves to be all of the Lord's elect! I can, by faith, see enormous tables laden with the oxen and the fatlings that have been killed, for the great King has made a great supper in honor of His Son's marriage&mdash;and He has bidden many to come to it! I know that Heaven is not meant for a small, select company of saints, for John saw there "a great multitude, which no man could number, of all nations, and kindreds, and people, and tongues," who "stood before the Throne, and before the Lamb, clothed with white robes, and palms in their hands; and cried with a loud voice, saying, "Salvation to our God who sits upon the Throne, and unto the Lamb." [Mr.
+Well, then, with the Infinite Father, the Infinite Redeemer and the Infinite Spirit, you need not say, "Have you but one blessing?" but you may open your mouth wide so that God may fill it! We are still authorized by the Giver of the great Gospel feast to cry, "Yet there is room." The provisions of that royal banquet are not merely for the few who belong to some insignificant little sect and who reckon themselves to be all of the Lord's elect! I can, by faith, see enormous tables laden with the oxen and the fatlings that have been killed, for the great King has made a great supper in honor of His Son's marriage&mdash;and He has bidden many to come to it! I know that Heaven is not meant for a small, select company of saints, for John saw there "a great multitude, which no man could number, of all nations, and kindreds, and people, and tongues," who "stood before the Throne, and before the Lamb, clothed with white robes, and palms in their hands; and cried with a loud voice, saying, "Salvation to our God who sits upon the Throne, and unto the Lamb."  Then why should you not be among them? Ask yourself that
 
-Spurgeon's Exposition on this passage and the remaining verses of Revelation 7, is given in Sermon #2704, Volume 46&mdash;"FLEE FROM THE WRATH TO COME"] Then why should you not be among them? Ask yourself that
-
-question on your knees before God. If I were ill and there was only one physician in the whole of London, I would try to seek him out, but I could not be very hopeful of being healed by him. But the Hospital of Grace has room in it for all the patients who ever come to it! And never did the porters have to shut the door and say, "There is no room for any more." That can never be the case! God "delights in mercy." There is such a fullness of Grace in Christ Jesus that whoever comes to Him, He will in no wise cast out. [See Sermon #3000, Volume 52&mdash;NO. 3000&mdash;OR, COME AND WELCOME] Then should not this encourage each one of you to believe in Jesus Christ and so to live forever, for "he that believes on the Son has everlasting life"?
+question on your knees before God. If I were ill and there was only one physician in the whole of London, I would try to seek him out, but I could not be very hopeful of being healed by him. But the Hospital of Grace has room in it for all the patients who ever come to it! And never did the porters have to shut the door and say, "There is no room for any more." That can never be the case! God "delights in mercy." There is such a fullness of Grace in Christ Jesus that whoever comes to Him, He will in no wise cast out.  Then should not this encourage each one of you to believe in Jesus Christ and so to live forever, for "he that believes on the Son has everlasting life"?
 
 Further, dear Friends, are there any valid reasons why you should not be blessed? Do you really want to be blessed by God? Someone says, "Oh, that my sins were pardoned! Oh, that I had a new heart and a right spirit! I gladly would find the Savior if I could." Is there any reason why you cannot find Him? "I have been a very great sinner." That is no reason, for many great sinners have found Christ! So why should not you? "But I have a very hard heart." That is no reason why you should not be saved, for many very hard hearts have been softened by the Holy Spirit! And when you have a redemption which is of Infinite value and a Holy Spirit with Infinite Power to renew the heart, the greatness of past sin or the deepness of present depravity cannot be a reason why Infinite Mercy should not be shown to you! Can you find me any text in the Bible where it is written that you cannot be saved? I have heard an anxious soul sometimes say, "I know I never shall be saved." But how do you know that? I believe that it is not so! Christ Himself said that "all manner of sin and blasphemy shall be forgiven unto men." And even under the old dispensation, God said, by the mouth of the Prophet Isaiah, "Come now, and let us reason together...though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." You cannot put your finger upon a single passage of Scripture which proves that you will be lost, so do not believe that it must be so till you have it from God's own mouth! Never imagine that you are excluded from His pardoning mercy till He, Himself, says that you are&mdash;and He has never said that yet.
 
@@ -72,21 +70,17 @@ Again I quote Paul's words to the jailer at Philippi, "Believe on the Lord Jesus
 
 EXPOSITION BY C. H. SPURGEON: HEBREWS 12.
 
-The Apostle, having described the heroes of the faith, represents them as witnesses of the great race [See Sermon #2037,
-
-Volume 34&mdash;THE RULES OF THE RACE] which Christians in all ages have
+The Apostle, having described the heroes of the faith, represents them as witnesses of the great race  which Christians in all ages have
 
 to run. All through the chapter he keeps up the idea of the great Olympic games and represents the saints as occupied with spiritual athletics in the Presence of God, the angels and glorified men.
 
 Verse 1. Therefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which does so easily beset us, and let us run with patience the race that is set before us. In those games, those who ran and wrestled wore very little clothing, or often nothing at all. A runner might lose the race through being entangled by his scarf, so he laid aside everything that might hinder or hamper him. Oh, for that blessed consecration to our heavenly calling, by which everything that would hinder us shall be put aside, that we may give ourselves, disentangled, to the great Gospel to race!
 
-Looking unto Jesus the Author and Finisher of our faith; who for the joy that was set before Him endured the Cross, despising the shame, and is set down at the right hand of the Throne of God. His race is complete. His wrestling is over, so He sits down with the great Judge of All as the One who has won His crown forever. Let us look to Him. [See Sermon
-
-#1073, Volume 18&mdash;a HONEYCOMB]
+Looking unto Jesus the Author and Finisher of our faith; who for the joy that was set before Him endured the Cross, despising the shame, and is set down at the right hand of the Throne of God. His race is complete. His wrestling is over, so He sits down with the great Judge of All as the One who has won His crown forever. Let us look to Him. 
 
 For consider Him that endured such contradiction of sinners against Himself lest you be wearied and faint in your
 
-minds. [See Sermon #236, Volume 5&mdash;THE SHAMEFUL SUFFERER]
+minds. 
 
 .1 Think how He wrestled. Think how He ran and let your consideration of Him nerve you for your struggle, and brace up every muscle of your spirit so that you will be determined that, as He won, so will you by the Divine help of Him who is "the Author and Finisher of our faith."
 
@@ -96,7 +90,7 @@ You have not yet resisted unto blood, striving against sin. Paul reminds you tha
 
 God, and that is the reason why you are admitted to the arena where this sacred struggling takes place, and as you are
 
-the sons of God, you must endure the chastening rod [See Sermon #48, Volume 1 &mdash;CHASTISEMENT] as a part of your training." Dear Brothers and Sisters in Christ, will not each one of you thankfully accept it and say, "As this is one of the evidences of my sonship, I will thank God for every cut of the rod and bless His holy name for every twig of it."
+the sons of God, you must endure the chastening rod  as a part of your training." Dear Brothers and Sisters in Christ, will not each one of you thankfully accept it and say, "As this is one of the evidences of my sonship, I will thank God for every cut of the rod and bless His holy name for every twig of it."
 
 But if you are without chastisement, whereof all are partakers, then are you bastards, and not sons. A man may neglect such a child as that, for he is not his legitimate child. And God does not care for professors who, though they seem to be His children, are not His true sons, so they are pampered, indulged, spoiled and left to enjoy themselves while they are here, as the Lord well knows that they will have nothing but sorrow and misery hereafter.
 
@@ -104,13 +98,13 @@ But if you are without chastisement, whereof all are partakers, then are you bas
 
 Now no chastening for the present seem to be joyous, but grievous. It would not be chastening if it were a joy to us! It is necessary, in order that it may be chastening, that it should be grievous.
 
-Nevertheless afterwards. [See Sermon #528, Volume 9&mdash;CHASTISEMENT&mdash;NOW AND AFTERWARDS] Oh, what melodious music there is in those two words to ears and hearts that are Divinely taught to appreciate it! "Nevertheless afterwards"&mdash;
+Nevertheless afterwards.  Oh, what melodious music there is in those two words to ears and hearts that are Divinely taught to appreciate it! "Nevertheless afterwards"&mdash;
 
 11-14. It yields the peaceable fruit of righteousness unto those who are exercised thereby. Therefore lift up the hands which hang down, and the feeble knees; and make straight paths for your feet, lest that which is lame be turned out of the way; but let it rather be healed. Follow peace with all men. Run after it. It will often seem to run away from you, so you must pursue it and capture it. "Follow peace with all men."
 
 14, 16. And holiness, without which no man shall see the Lord: looking diligently lest any man fail of the Grace of
 
-God [See Sermon #940, Volume 16&mdash;THE WINNOWING FAN] "Lest he should
+God  "Lest he should
 
 come short of the Grace of God and, as it were, fall back. Paul is still keeping to his illustration drawn from the wrestling at the Olympic games. Sometimes the wrestler gave his opponent a back fall and down he went, and so lost the crown. Beware lest such a fall should happen to you in your spiritual wrestling!
 
@@ -120,11 +114,11 @@ come short of the Grace of God and, as it were, fall back. Paul is still keeping
 
 18-21. For you are not come unto the Mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest, and the sound of a trumpet, and the voice of words; which voice they that heard entreated that the word should not be spoken to them any more: (for they could not endure that which was commanded. And if so much as a beast touched the mountain, it shall be stoned, or thrust through with a dart: and so terrible was the sight, that Moses said, I exceedingly fear and quake)."You have come to something very different from that mountain of terror&mdash;even to a great gathering of holy beings in the midst of whom you should exceedingly rejoice."
 
-22-27. But you are come unto Mount Zion, [See Sermon #1689, Volume 29&mdash;THE GENERAL CONVOCATION AROUND MOUNT ZION] and unto the city of the living God, the heavenly Jerusalem, and
+22-27. But you are come unto Mount Zion,  and unto the city of the living God, the heavenly Jerusalem, and
 
 to an innumerable company of angels, to the general assembly and Church of the first-born, which are written in Heaven, and to God, the Judge of All, and to the spirits of just men made perfect, and to Jesus, the Mediator of the New Covenant, and to the blood of sprinkling, that speaks better things than that of Abel See that you refuse not Him that speaks. For if they escaped not who refused Him that spoke on earth, much more shall not we escape, if we turn away from Him that speaks from Heaven: whose voice then shook the earth: but now He has promised, saying, Yet once more I
 
-shake not the earth only, but also Heaven. And this word, Yet once more, signifies the removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain. All that is eternal must, of course, endure forever. The Everlasting Covenant, "the glorious Gospel of the blessed God," the purchase of the Savior's blood, the work of the Holy Spirit&mdash;all these shall stand fast forever, they can never be shaken." [See Sermon #690, Volume 12&mdash;a LESSON FROM THE GREAT PANIC] The Immutable Word spoken by
+shake not the earth only, but also Heaven. And this word, Yet once more, signifies the removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain. All that is eternal must, of course, endure forever. The Everlasting Covenant, "the glorious Gospel of the blessed God," the purchase of the Savior's blood, the work of the Holy Spirit&mdash;all these shall stand fast forever, they can never be shaken."  The Immutable Word spoken by
 
 the mouth of the unchanging God lives and abides forever!
 

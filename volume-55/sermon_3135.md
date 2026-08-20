@@ -2,7 +2,7 @@
 
 "Jesus said unto them, My meat is to do the will of HHim that sent Me, and to finish His work." John 4:34.
 
-[Another Sermon by Mr. Spurgeon, upon the same text, is Sermon #302, Volume 6&mdash;JESUS ABOUT HIS FATHER's BUSINESS and another, upon verses31 to 38, is#1902, Volume 32&mdash;MYSTERIOUS MEAT.]
+
 
 THIS text contains in it much consolation for those who are desirous of salvation, more of example to those who are saved and most of all of matter for praise concerning our Lord Himself, who is its Spokesman.
 
@@ -56,7 +56,7 @@ Verses 1-3. When therefore the Lord knew how the Pharisees had heard that Jesus 
 
 4-7. And He must go through Samaria. There came He to a city of Samaria, which is called Sychar, near to the parcel of ground that Jacob gave to his son, Joseph. Now Jacob's well was there. Jesus therefore, being wearied with His journey, sat thus on the well, and it was about the sixth hour There came a woman of Samaria to draw water: Jesus said
 
-unto her, give Me a drink. [See Sermons #2570, Volume 44&mdash;JESUS SITTING ON THE WELL and #2423, Volume 41&mdash;THE MODEL SOUL-WINNER.] The "sixth hour" means noonday, and that was a very unusual
+unto her, give Me a drink.  The "sixth hour" means noonday, and that was a very unusual
 
 time for a Samaritan woman to draw water. But the reason why she went at that unusual hour was because she was one whom other women shunned so that if she went to the well at all, she must go alone, for they would not be seen in her company. What a wonderful thing it is that this woman who was not thought to be fit company for her fellow creatures was nevertheless thought by Christ to be worth looking after and saving! But those who are the castaways of men are often among those who are the sought-out and chosen ones of Christ.
 
@@ -64,7 +64,7 @@ time for a Samaritan woman to draw water. But the reason why she went at that un
 
 10. Then said the woman of Samaria unto Him, How is it that You, being a Jew, ask drink of me, which am a woman of Samaria? For the Jews have no dealings with the Samaritans. Jesus answered and said unto her, If You knew
 
-the gift of God [See Sermons #782, Volume 13&mdash;SAVING KNOWLEDGE and #2277, Volume 38&mdash;SYCHAR's SINNER SAVED.] How much we lose through ignorance! Ignorance is often like a great stone laid upon the well so that the flocks cannot be watered&mdash;blessed is everyone who helps to roll away that stone! It is a great thing to know the gift of God&mdash;"If you knew the gift of God."
+the gift of God  How much we lose through ignorance! Ignorance is often like a great stone laid upon the well so that the flocks cannot be watered&mdash;blessed is everyone who helps to roll away that stone! It is a great thing to know the gift of God&mdash;"If you knew the gift of God."
 
 And who it is that says to you, give Me a drink; you would have asked of Him, and He would have given you living watei. There are two things worth knowing&mdash;what Grace is and Who it is that gives it. Lack of this knowledge often leads to lack of prayer&mdash;and lack of prayer leads to lack of receiving. Perhaps someone asks, "Why does not God give without prayer?" Because it is not His will to do so! His will is that we should pray about everything. Did you ever notice that even when the harvest is ripe, it cannot be gathered in without prayer? Jesus said to His disciples, "The harvest is truly plenteous, but the laborers are few. Pray you, therefore, the Lord of the harvest, that He will send forth laborers into His harvest." Prayer seems indispensable! It is part of God's necessary machinery. He has pleased to make it so. But what condescension of love it is that the prayer of man should be necessary to effect the purposes of God! God
 
@@ -72,7 +72,7 @@ even says to Christ, Himself, "Ask of Me and I shall give You the heathen for Yo
 
 The woman said unto Him, Sir, You have nothing to draw with, and the well is deep: from where, then, have
 
-You that living water?[See Sermon #2897, Volume 50&mdash;THE SOURCE] You
+You that living water? You
 
 who reverence the majesty of Christ's Deity, the perfection of His Humanity, the glory of His atoning Sacrifice, the splendor of His Resurrection power&mdash;you who know from where He has this Living Water, the power to save and to bless&mdash;worship and adore Him with all your heart and soul!
 
@@ -98,7 +98,7 @@ of. Therefore said the disciples one to another, Has any man brought Him somethi
 
 34, 36. Jesus said unto them, My meat is to do the will of Him that sent Me, and to finish His work. Say not you, there are yet four months, and then comes harvest? Behold, I say unto you, Lift up your eyes and look on the fields; for
 
-they are white already to harvest. [See Sermon #707, Volume 12&mdash;FIELDS WHITE FOR HARVEST.] "Look at those Samaritans trooping out of the city, drawn by that woman's testimony concerning Me. They are coming, at her invitation, to learn more about the Christ."
+they are white already to harvest.  "Look at those Samaritans trooping out of the city, drawn by that woman's testimony concerning Me. They are coming, at her invitation, to learn more about the Christ."
 
 36-38. AndHe that reaps receives wages, andgathers fruit unto life eternal: that both he that sows andhe that reaps may rejoice together. And herein is that saying true, One sows and another reaps. I sent you to reap that whereon you bestowed no labor: other men labored, and you are entered into their labors. The Prophets had spoken and written concerning the Messiah. Their words had prepared the minds of the Jews and also of the Samaritans, to receive the Gospel. So the great success of the Apostles must not be traced merely to their teaching, but also to the preparatory work of the other laborers who had gone before&mdash;"Other men labored, and you are entered into their labors." The Church is always ready to praise her reapers, but let her not forget her sowers. There are some of us who bring many souls to Christ, who are greatly indebted to the work which was done by other men who preceded us. There are some who, perhaps, have few conversions although they preach the Gospel faithfully&mdash;they are sowing and there shall come others, by-and-by, who shall reap bounteous harvests as the result of their sowing the Good Seed of the Kingdom! No matter who sows, or who reaps, the glory of the harvest shall be unto the Most High.
 

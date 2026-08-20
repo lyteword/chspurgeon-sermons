@@ -2,7 +2,7 @@
 
 "Do you believe on the Son of God?" John 9:35.
 
-[Other Sermons by Mr. Spurgeon upon this question are as follows&mdash;Sermons #1088, Volume 18&mdash;THE ESSENCE OF SIMPLICITY; #2141, Volume 36&mdash; THE QUESTION OF QUESTIONS; #2667, Volume 46&mdash;a PRESSED MAN YIELDING TO CHRIST and #3008, Volume 52&mdash; AN ALL-IMPORTANT QUESTION]
+
 
 THIS blind man, whose eyes Christ had opened, was a very shrewd fellow and wonderfully straightforward and determined. What he did know could not be beaten out of him, neither could he be led to draw unfair inferences from what he knew. He would hold to what he clearly saw to be the fact. He believed Jesus to be a Prophet sent of God and he stuck to his belief whatever the Pharisees might say. Now I believe that is the kind of man to learn more of. The man who knows something and yet trifles with it, is not likely to be further instructed of God. Nothing is more displeasing to Him than trifling with what you have already learned, tampering with your conscience, not following the guidance of the Light of God which you have already received. But to him that has, and that uses aright what he has, more shall be given&mdash;and he shall have abundance. The honest and good ground was the sort of soil in which Jesus loved to sow the Good Seed of the Kingdom, so He thought it was worth His while to search for this man whom the Pharisees had excommunicated, that He might still further instruct him in Divine Truth. O dear Hearers, as far as ever you have received the Light, act up to it and praise God for the Light that He has given you! If you value the moonlight, He will give you sunlight before long. But be upright, straight, honest and sincere before the Lord, for He looks with hopefulness to the true and the upright, for these are the people whom He is most likely to bless.
 
@@ -70,7 +70,7 @@ And His disciples asked Him, saying, Master, who did sin, this man, or his paren
 
 Jesus answered, Neither has this man sinned, nor his parents. That is to say, sin on their part was not the cause of his blindness.
 
-But that the works of God should be made manifest in him. [See Sermon #2309, Volume 39&mdash;god's works made manifest] Human nature is a platform for the manifestation of Div ie
+But that the works of God should be made manifest in him.  Human nature is a platform for the manifestation of Div ie
 
 work. The more in need you are, dear Friend, the more room there is for God's mercy to operate upon you.
 
@@ -94,7 +94,7 @@ He said unto them, He put clay upon my eyes, and I washed, and do see. That is s
 
 17. Therefore said some of the Pharisees, This Man is not of God because He keeps not the Sabbath day. Others said, How can a Man that is a sinner do such miracles? And there was a division among them. They said unto the blind man again, What say you of Him, that He has opened your eyes! He said, He is a Prophet. He was a brave man, who dared to say what he believed whether he offended or pleased! He did not know much, but what he did know he did know, and he was quite certain about it. There are some men whose breadth of knowledge is as remarkable as its shallowness! It is like water upon the meadows when a river overflows its banks, and covers a wide area, but there is scarcely an inch of depth. Give us the narrower river that is deep and that can bear onwards to the ocean a noble fleet, rather than the wide expanse of useless, shallow water!
 
-18-21. But the Jews didnot believe concerning him, that he had been blind, and received his sight, until they called the parents of him that had received his sight. And they asked them, saying, Is this your son, who you say was born blind? How then does he now see? His parents answered them and said, We know that this is our son, and that he was born blind: but by what means he now sees, we know not; or who has opened his eyes, we know not: he is of age; ask him: he shall speak for himself.[See Sermon #1393, Volume 24&mdash;SPEAK FOR YOURSELF&mdash;a CHALLENGE!] They were timid, but they were also shrewd enough to let their son speak for himself, as he was quite able to do.
+18-21. But the Jews didnot believe concerning him, that he had been blind, and received his sight, until they called the parents of him that had received his sight. And they asked them, saying, Is this your son, who you say was born blind? How then does he now see? His parents answered them and said, We know that this is our son, and that he was born blind: but by what means he now sees, we know not; or who has opened his eyes, we know not: he is of age; ask him: he shall speak for himself. They were timid, but they were also shrewd enough to let their son speak for himself, as he was quite able to do.
 
 22-24. These words spoke his parents, because they feared the Jews: for the Jews had already agreed that if any man did confess that He was Christ, he should be put out of the synagogue. Therefore said his parents, he is of age, ask him. Then again called they the man that was blind, and said unto him, Give God the praise: we know that this Man is a sinnei. They thought they could get over him by giving him a little of what they called good advice&mdash;"Praise God, but be quiet concerning this Man; depend upon it, He is a sinner."
 

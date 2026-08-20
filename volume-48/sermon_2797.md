@@ -2,7 +2,7 @@
 
 "Let the wicked forsake his ways, and the unrighteous man his thoughts: and let him return to the LORRD, and He will have mercy upon him; and to our God, for He will abundantly pardon." Isaiah 55:7.
 
-SOME years ago [Sermon #1195, Volume 20&mdash;ABUNDANT PARDON] I
+SOME years ago  I
 
 preached from the last four words of this verse, laying special stress upon the abundant pardon which is given to repenting sinners through the rich mercy of our God. On this occasion, I am going to put the emphasis upon the first part of the verse, speaking more upon the necessity of the sinner forsaking his evil ways and of the unrighteous man abandoning his evil thoughts. There is urgent necessity for us to continually insist upon this course of action. This Chapter, as we noticed in our reading, is full of Gospel teaching and it expresses, under the most striking and cheering metaphors, both the fullness and the freeness of the Gospel. But the Prophet also insists most clearly that the wicked man must forsake his ways and the unrighteous man must turn from his thoughts and return to the Lord that he may obtain the mercy and pardon that God is waiting and willing to bestow.
 

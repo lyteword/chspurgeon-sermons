@@ -88,4 +88,4 @@ Acts 1:1-3. The former treatise have Imade, O Theophilus, ofall that Jesus began
 
 11-12. Which also said, You men of Galilee, why do you stand gazing up into Heaven? This same Jesus, which is taken up from you into Heaven, shall so come in like manner as you have seen Him go into Heaven. Then they returned unto Jerusalem from the mountain called Olivet which is from Jerusalem a Sabbath day's journey.
 
-*[This Exposition belongs to last week's Sermon [#2949, Volume 51&mdash;OUR LORD's POSTURE IN ASCENSION] but there was no space available for its insertion there, and no Exposition appears to have been given before the preceding discourse.]
+*

@@ -2,7 +2,7 @@
 
 "This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." 1 Timothy 1:15.
 
-[Other Sermons by Mr. Spurgeon, upon the same text, are as follows&mdash;Sermon #184, Volume 4&mdash;THE GLORIOUS GOSPEL; #1345, Volume 23&mdash;FOR WHOM IS THE GOSPEL MEANT?; #1416, Volume 24&mdash;THE FAITHFUL SAYING; #1837, Volume 31&mdash;a GREAT GOSPEL FOR GREAT SINNERS and #2300, Volume 39&mdash;THE WHOLE GOSPEL IN a SINGLE VERSE]
+
 
 YOU will observe that Paul wrote this verse immediately after he had given a little outline of his own personal history. He had, he said, been "a blasphemer, and a persecutor, and injurious." And then he added this priceless Gospel verse, as if he inferred it from God's Grace to him, as well as received it by Inspiration, "This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." It was an experimental text, then, one which the Apostle fetched out of the deeps of his own soul, as divers bring pearls from the ocean bed. He dipped his pen into his own heart when he wrote these words. No preaching or teaching can equal that which is experimental. If we would impress the Gospel upon others, we must have first received it ourselves. Vainly do you attempt to guide a child in the pathway which you have never trodden, or to speak to adults of benefits of Divine Grace which you have never enjoyed. Happy is that preacher who can truly say he speaks what he does know and testifies what he has seen.
 
@@ -78,7 +78,7 @@ go up and down those steps. "No," you say, "I am not quite as foolish as that." 
 
 EXPOSITION BY C. H. SPURGEON: 2 CHRONICLES 33:1-19.
 
-Verses 1, 2. Manasseh [Manasseh is the subject of the following sermons by Mr. Spurgeon&mdash;#105, Volume 2&mdash;MANASSEH; #2378, Volume 40&mdash;PARDON FOR THE GREATEST GUILT and #2385, Volume 40&mdash;ANOTHER LESSON FROM MANASSEH's LIFE] was twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem: but
+Verses 1, 2. Manasseh  was twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem: but
 
 did that which was evil in the sight of the Lord. Yet who could have had a better father than Manasseh had? He was given to Hezekiah during those 15 years which God graciously added to that good king's life. Manasseh was, therefore, doubtless carefully trained and looked upon as being one who would maintain God's worship and the honor of his father's name. But Grace does not run in the blood&mdash;and the best of parents may have the worst of children. Thus Manasseh, though he was the son of Hezekiah, "did that which was evil in the sight of the Lord."
 

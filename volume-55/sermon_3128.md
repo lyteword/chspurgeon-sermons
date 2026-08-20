@@ -96,7 +96,7 @@ And in the fourth watch of the night Jesus went unto them, walking on the sea. J
 
 And when the disciples saw Him walking on the sea, they were troubled, saying, It is a spirit, and they cried out
 
-for fear [See Sermon #957, Volume 16&mdash;JESUS NO PHANTOM] Yes, the
+for fear  Yes, the
 
 disciples saw Him&mdash;saw Jesus, their Lord&mdash;and derived no comfort from the sight! Poor human nature's sight is a blind thing compared with the vision of a spiritual faith. They saw, but knew not what they saw. What could it be but a phantom? How could a real man walk on those foaming billows? How could he stand in the teeth of such a hurricane? They were already at their wits' end and the apparition put an end to their courage. We seem to hear their shriek of alarm&mdash;" they cried out for fear'" We read not that " they were troubled"before. They were old sailors and had no dread of natural forces. But a spirit&mdash;ah, that was too much of a terror! They were at their worst now and yet, if they had known it, they were on the verge of their best! It is noteworthy that the nearer Jesus was to them, the greater was their fear. Want of discernment blinds the soul to its richest consolations. Lord, be near, and let me know You! Let me not have to say with Jacob, "Surely God was in this place; and I knew it not!"
 

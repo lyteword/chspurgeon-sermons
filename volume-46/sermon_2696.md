@@ -34,8 +34,8 @@ This is an urgent necessity, for it touches a vital point a man can exist withou
 
 Do I address one in whom this vital necessity has become an agonizing thirst? I think that I shall speak your experience when I say that I have sometimes known what it was to feel that I would sacrifice my eyes, and be blind, if I might but again get near my God. What difference does it make if you have to lie in bed and suffer, if you might but know that God's Countenance was lifted up upon your soul, and that joy and gladness were in your spirit? They who have never lost the consciousness of fellowship with God are to be envied. May there be many such here! But, if any have once known it and have lost it, I hope that they will be consumed by a vehement desire to have it back again, that they may once more drink of the Water which is infinitely better than that in "the well of Bethlehem, which is by the gate." It were worthwhile that our blood were shed to get a drink of that Living Water again! It is truly sad when any child of God has sorrowfully to say&mdash;
 
-> Where is the blessedness I knew When first I saw the Lord?   
-> Where is the soul-refreshing view Of Jesus and His Word? What peaceful hours I then enjoyed&mdash; How sweet their memory still. But now I find an aching void The world can never fill.   
+> Where is the blessedness I knew When first I saw the Lord? 
+> Where is the soul-refreshing view Of Jesus and His Word? What peaceful hours I then enjoyed&mdash; How sweet their memory still. But now I find an aching void The world can never fill. 
 
 Thank God that the void does ache and that the world cannot fill it! If you, dear Friend, have an agonizing desire to drink the Water of Life, you are the person to whom my text applies&mdash;"When the poor and needy seek water."
 

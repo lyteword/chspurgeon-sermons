@@ -104,8 +104,8 @@ Here we have a dialogue of love between the Lord Jesus and His people.
 
 Song of Solomon 2:1. I am the rose of Sharon and the lily of the valleys. Among all flowers, there is none that can be compared with Him&mdash;
 
-> White is His soul, from blemish free,   
-> Red with the blood He shed for me.   
+> White is His soul, from blemish free, 
+> Red with the blood He shed for me. 
 
 As the lily among thorns, so is My love among the daughters. The child of God cannot long be mistaken for a worldling. The lily rises up above its thorny companions, but everybody knows that it is not a thorn&mdash;and quickly do the eyes of the Lord Jesus discern His people wherever they may be found. You, dear Friend, may, perhaps, come of a graceless family, or you may live in a house where God is all but unknown&mdash;yet Christ always knows His pure lilies, even if they grow among the cruel piercing thorns.
 

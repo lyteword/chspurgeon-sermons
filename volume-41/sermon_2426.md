@@ -12,7 +12,7 @@ To come at once to the text, let us ask, WHAT IS THE TIME FOR SUCH a PRAYER AS T
 
 We shall have to look at the Psalm, itself, to help us in the answer. What is the time for offering such a prayer as this? It is, dear Friends, when we can remember some gracious acts of God in the past. Read&mdash;"Lord, You have been favorable unto Your land. You have brought back the captivity of Jacob...Will You not revive us again that Your people may rejoice in You?" Ah, now, some of you can remember grand times, when you were younger than you now are, when the Lord was present with His people in a very glorious fashion&mdash;when He laid bare His arm and the people were made to feel His Divine Presence in the preaching of the Word. Do you remember it? The forty-fourth Psalm begins, "We have heard with our ears, O God, our fathers have told us what work You did in their days, in the times of old." None of us can remember the early Methodist days&mdash;they were over before we were born&mdash;but they were very wonderful times when the preaching of the Word of God was like fire in the midst of the people!
 
-[Our friends need not be troubled by the flying of a dove. It will soon go out of the window, no doubt. Let us believe that it has come as a messenger of good. Oh, that the blessed Dove would, Himself, come from Heaven and bring salvation in His wings!]
+
 
 Well, I was saying that those first Methodist times were brave days, so our fathers have told us, though we cannot remember them. But some of you can remember when you were members of a happy congregation, all united, all earnest, all pleading with God and there were grand Sabbaths, then! You can never forget those days of the Son of Man upon the earth, when conversions were numerous and all the people of God rejoiced and were ready to shout for joy. If you have any recollection of such days as those, pray this prayer, "Lord, what You have done, You can do! Will You not revive us again? You can outdo all we have yet seen of Your work. Come, now, we beseech You, and repeat Your mercies in the eyes of Your people."
 
@@ -98,7 +98,7 @@ And may the Grace of our Lord Jesus Christ, and the love of God, and the fellows
 
 EXPOSITION BY C. H. SPURGEON: ISAIAH43:22-28; 44:1-8; PSALM85.
 
-We will read two passages of Scripture this evening, both of which will have a bearing upon the subject we are afterwards to consider from our text. Let us first read a few verses from Isaiah's prophecy, beginning at chapter 43:22. [The publishers chose to put the exposition after the sermon, but Brother Spurgeon always did the exposition first.&mdash;eo]
+We will read two passages of Scripture this evening, both of which will have a bearing upon the subject we are afterwards to consider from our text. Let us first read a few verses from Isaiah's prophecy, beginning at chapter 43:22. 
 
 Isaiah 43:22. But you have not called upon Me, O Jacob; but you have been weary of Me, O Israel. This was a sad charge for God to bring against His chosen people. They had grown weary of their God and yet, truly, this charge may well be brought against some of us, for we have grown weary of God, we have forgotten Him in our daily walk and con-versation&mdash;and have grown cold in our love towards Him.
 

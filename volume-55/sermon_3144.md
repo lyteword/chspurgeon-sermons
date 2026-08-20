@@ -12,7 +12,7 @@ The next true saying was this, that Jesus Christ, the Lamb of God&mdash;so calle
 
 Volume 35&mdash;"THE MARRIAGE OF THE LAMB.] is come, and His wife has
 
-made herself ready...Blessed are they which are called unto the marriage supper [See Sermon #2428, Volume 41&mdash;the marriage supper OF THE LAMB.] Jesus Christ came into this world to find His
+made herself ready...Blessed are they which are called unto the marriage supper  Jesus Christ came into this world to find His
 
 beloved ones. And He found them in bondage&mdash;and having taken upon Himself their nature, He became their next of kin&mdash;and then, according to the ancient Law, He redeemed them and bought them unto Himself&mdash;and He has espoused unto Himself all those that trust in Him. All who believe in Him, in whatever visible Church they may be, make up the one Church of Jesus Christ which He has redeemed from among men with His precious blood. And in the latter days He will have that Church to be His reward. At present, Christ has but a poor reward for all His sufferings. Comparatively few reverence Him. His people are a feeble and scattered folk, but there are days coming in which the Lord Jesus Christ shall have all whom He bought with His blood. He shall have for Himself all whom He came to save. He shall not be disappointed&mdash;"He shall not fail, nor be discouraged." The Lord shall abundantly reward Him for all His agonies. "He shall see of the travail of His soul and shall be satisfied." This also is one of "the true sayings of God."
 

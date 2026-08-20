@@ -67,9 +67,7 @@ EXPOSITION BY C. H. SPURGEON: HEBREWS9:24-28; 10.
 
 Hebrews 9:24. For Christ is not entered into the Holy Place made with hands, which are the figure of the true; but into Heaven itself now to appear in the Presence of God for us. He has gone within the veil&mdash;not the veil of "blue, and purple, and scarlet, and fine twined linen of cunning work," but within the veil that hides "Heaven itself from our eyes. And there He is&mdash;"in the Presence of God for us."
 
-25, 26. Nor yet that He should offer Himself often, as the high priest enters into the Holy Place every year with blood of others; for then must He often have suffered since the foundation of the world: but now once in the end of the world has He appeared to put away sin by the Sacrifice of Himself The high priest brought the blood of the animals that were slain for a sin-offering, and hence he came often. He could not bring his own blood, or he would only have come once, but our Savior has come only once, "to put away sin by the Sacrifice of Himself." [See Sermons #759, Volume 13&mdash;jesus
-
-PUTTING AWAY SIN; #911, Volume 16&mdash;THE PUTTING AWAY OF SIN and #2283, Volume 38&mdash;CHRIST's ONE SACRIFICE FOR SIN]
+25, 26. Nor yet that He should offer Himself often, as the high priest enters into the Holy Place every year with blood of others; for then must He often have suffered since the foundation of the world: but now once in the end of the world has He appeared to put away sin by the Sacrifice of Himself The high priest brought the blood of the animals that were slain for a sin-offering, and hence he came often. He could not bring his own blood, or he would only have come once, but our Savior has come only once, "to put away sin by the Sacrifice of Himself." 
 
 27, 28. And as it is appointed unto men once to die, that after this the judgment: so Christ was once offered to bear the sins of many; and unto them that look for Him shall He appear the second time without sin unto salvation. He had to suffer because of sin once, but He will never again have to do that! His Sacrifice will never need to be repeated and never can be repeated.
 
@@ -81,23 +79,17 @@ Because that the worshippers once purged should have had no more conscience of s
 
 He said, Sacrifice and offering You would not, but a body have You prepared Me. By the work of the Holy Spirit within the Virgin Mary, the blessed body of Christ was "prepared" so that He might be God and Man in one Person and so might bring an offering acceptable unto God.
 
-6-9. In burnt offerings and sacrifices for sin You have had no pleasure. Then said I, Lo, I come (in the volume of the Book it is written ofMe), to do Your wiil, O God. Above when He said, Sacrifice and offering and burnt offerings and offering for sin You would not, neither had pleasure therein; which are offered by the Law; then said He, Lo, I come to do Your will, O God. He takes away the first, that He may establish the second [See Sermon #2698, Volume 46&mdash;the first and the
-
-SECOND] That He may bring in the real Sacrifice of which the
+6-9. In burnt offerings and sacrifices for sin You have had no pleasure. Then said I, Lo, I come (in the volume of the Book it is written ofMe), to do Your wiil, O God. Above when He said, Sacrifice and offering and burnt offerings and offering for sin You would not, neither had pleasure therein; which are offered by the Law; then said He, Lo, I come to do Your will, O God. He takes away the first, that He may establish the second  That He may bring in the real Sacrifice of which the
 
 others were but types and prefigurations.
 
 By that will. The will which Christ fulfilled in life and in death&mdash;"By that will."
 
-We are sanctified through the offering of the body of Jesus Christ once. [See Sermon #1527, Volume 26&mdash;perfect
-
-SANCTIFICATION] Only one Sacrifice was required. The key-word
+We are sanctified through the offering of the body of Jesus Christ once.  Only one Sacrifice was required. The key-word
 
 here is that little word, "once." Let it not only sound in your ears, but be written in your hearts! Jesus Christ died once. He brought His Sacrifice once. He put away our sins once.
 
-11, 12. And every priest stands daily ministering and offering oftentimes the same sacrifices, which can never take away sins: but this Man, after He had offered one Sacrifice for sins forever, sat down at the right hand of God. Christ stands no longer to minister as a sacrificing priest. He is sitting down at the right hand of God. That is the posture of one whose work is done and who is taking his rest&mdash;"He sat down at the right hand of God." [See Sermon #91, Volume 2&mdash;christ
-
-EXALTED]
+11, 12. And every priest stands daily ministering and offering oftentimes the same sacrifices, which can never take away sins: but this Man, after He had offered one Sacrifice for sins forever, sat down at the right hand of God. Christ stands no longer to minister as a sacrificing priest. He is sitting down at the right hand of God. That is the posture of one whose work is done and who is taking his rest&mdash;"He sat down at the right hand of God." 
 
 13-18. From henceforth expecting till His enemies be made His footstool. For by one offering He has perfected forever them that are sanctified. Whereof the Holy Spirit also is a witness to us: for after that He had said before, This is the Covenant that I will make with them after those days, says the Lord, I will put My Laws into their hearts, and in their
 
@@ -107,7 +99,7 @@ Him!
 
 19-22. Having therefore, brethren, boldness to enter into the Holiest by the blood of Jesus, by a new and living way, which He has consecrated for us, through the veil, that is to say, His flesh; and having an High Priest over the house of God; let us draw near with a true heart in full assurance offaith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water The Jew could not personally go up to the Mercy Seat. He had to go there through his representative, the high priest, and we have Christ as our "High Priest over the house of God," so we come to God through Him. The Israelite could not pass through the veil which hid from public gaze the glory of the Shekinah, and Jesus Christ's Humanity was a veil which somewhat concealed the glory of His Deity. But the flesh of Christ having been crucified, the veil has been torn and now we may come right up to the Throne of God without trembling. No, we may come even with holy boldness and familiarity and speak to God without alarm. Having such a privilege as this, let us not neglect it. It was denied to Prophets and kings in the olden time, but now that it is vouchsafed to us, let us avail ourselves of it and constantly, "let us draw near" unto God "with a true heart in full assurance of faith."
 
-Let us hold fast the profession [See Sermon #1897, Volume 32&mdash;HOLDING FAST OUR PROFESSION] of our faith without wavering, (for He is faithful that promised). As He is faithful, let us also be faithful and hold, as with a death grip, the faith which has been revealed to us and worked within us by the Holy Spirit. Yes, and the profession of that faith, too, never being ashamed to acknowledge that we are followers of the Nazarene. And let us while we are thus faithful, ourselves, endeavor to strengthen others.
+Let us hold fast the profession  of our faith without wavering, (for He is faithful that promised). As He is faithful, let us also be faithful and hold, as with a death grip, the faith which has been revealed to us and worked within us by the Holy Spirit. Yes, and the profession of that faith, too, never being ashamed to acknowledge that we are followers of the Nazarene. And let us while we are thus faithful, ourselves, endeavor to strengthen others.
 
 And let us consider one another to provoke into love and to good works. The Greek is "to stir each other up to a fit of love. There is no fear that we shall ever go too far in our love to God! Though it would cast us into a state of blessed excitement, yet would it be healthy for us to so live and to so work.
 
@@ -119,9 +111,7 @@ But exhorting one another: and so much the more, as you see the day approaching.
 
 28, 29. He that despised Moses' Law died without mercy under two or three witnesses: of how much sorer punishment. Can there be any sorer punishment than to die without mercy? Yes, there is, for there is eternal punishment&mdash;"of how much sorer punishment"&mdash;
 
-29-31. Suppose you, shall he be thought worthy who has trodden underfoot the Son of God, and has counted the blood ofthe Covenant, wherewith He was sanctified, an unholy thing, andhas done despite unto the Spirit ofGrace? For we know Him who has said, Vengeance belongs unto Me, I will recompense, says the Lord. And again, The Lord shall judge His people. It is a fearful thing to fall into the hands ofthe living God [See Sermon #682, Volume 12&mdash;future punishment a
-
-FEARFUL THING] With what terrible sentences does Paul hedge up
+29-31. Suppose you, shall he be thought worthy who has trodden underfoot the Son of God, and has counted the blood ofthe Covenant, wherewith He was sanctified, an unholy thing, andhas done despite unto the Spirit ofGrace? For we know Him who has said, Vengeance belongs unto Me, I will recompense, says the Lord. And again, The Lord shall judge His people. It is a fearful thing to fall into the hands ofthe living God  With what terrible sentences does Paul hedge up
 
 the way of the Believer! Leave that way and there is nothing for you but destruction. Reject your Savior, give up your hope in Him and there cannot be another name by which you can be saved, or another sacrifice by which you can be cleansed from sin.
 
@@ -129,7 +119,7 @@ the way of the Believer! Leave that way and there is nothing for you but destruc
 
 33-35. And partly, while you became companions of them that were so used. For you had compassion of me in my bonds, and took joyfully the spoiling of your goods, knowing in yourselves that you have in Heaven a better and an
 
-enduring substance. Cast not away therefore, your confidence, [See Sermon #1263, Volume 21&mdash;HOLD FAST YOUR SHIELD] which has great recompense of reward. You must push on! You have already defied the foe&mdash;to turn back is certain destruction, for you have no armor for your back. 36. For you have need of patience. Or, endurance&mdash;
+enduring substance. Cast not away therefore, your confidence,  which has great recompense of reward. You must push on! You have already defied the foe&mdash;to turn back is certain destruction, for you have no armor for your back. 36. For you have need of patience. Or, endurance&mdash;
 
 That, after you have done the will of God, you might receive the promise. To hold on, to continue to do God's will&mdash;this is the task. To start and to make a spurt now and then, is easy enough&mdash;but to keep on is trying to every spiritual muscle. And only God can enable you to do so.
 

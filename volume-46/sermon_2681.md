@@ -58,9 +58,9 @@ My joy, my Heaven on earth, be this,
 
 To hear the Bridegroom's voice.'" He prayed that he might have Mary's part and always sit at the feet of Jesus. But, by-and-by, the good man's fervor increased and in his prayer he said, "No, my Master, I have not asked enough of You. Mary's place is too low for me, if I may have a better one. Lift me up higher, Lord! Give me John's place&mdash;
 
-> 'Oh, that I might, with favored John,   
-> Forever lean my head upon   
-> The bosom of my Lord!'   
+> 'Oh, that I might, with favored John, 
+> Forever lean my head upon 
+> The bosom of my Lord!' 
 
 As he pleaded for that higher degree of communion between his soul and Christ, I thought, "Surely, now you have asked enough." But, suddenly rising another flight on the wings of communion, like the eagle taking its last soar into the skies, he said, "No, Lord, John's place does not suffice me. You have lifted me from Your feet to Your bosom, now lift me from Your bosom to Your lips." Then, quoting the words of the spouse, "Let Him kiss me with the kisses of His mouth: for Your love is better than wine," he sweetly paraphrased it thus, "Let the lips of my petitioning meet the lips of Your benediction. Let the lips of my praise meet the lips of Your acceptance&mdash;so shall the kiss of love be consummated and my joy be complete."
 

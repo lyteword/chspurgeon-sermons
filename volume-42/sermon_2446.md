@@ -64,14 +64,14 @@ Now I finish by asking another question. Suppose this blank check to be given to
 
 Next, I think that if we had this said to each one of us&mdash;"Be it unto you even as you will," we should first will our own salvation. Pray, as we sang just now&mdash;
 
-> With my burden I begin Lord,   
-> Remo ve this load of sin!   
-> Let Your blood, for sinners spilt,   
-> Let my conscience free from guilt.   
-> Lord! I come to You for rest,   
-> Take possession of my breast.   
-> There Your blood-bought right maintain,   
-> And without a rival reign.   
+> With my burden I begin Lord, 
+> Remo ve this load of sin! 
+> Let Your blood, for sinners spilt, 
+> Let my conscience free from guilt. 
+> Lord! I come to You for rest, 
+> Take possession of my breast. 
+> There Your blood-bought right maintain, 
+> And without a rival reign. 
 
 Let each one of us pray, "Lord, save me! Lord, make sure work of it! Save me from sin, save me from self, save me from everything that dishonors You."
 
@@ -123,7 +123,7 @@ Then came she and worshipped Him, saying, Lord, help me. She takes a humbler att
 
 27. But He answered and said, It is not meet to take the children's bread, and to cast it to dogs. And she said, Truth,
 
-Lord. You remember the sermon that we had upon this text not long ago. [Sermon #2129, Volume 36&mdash;"Pleading, Not Contradiction"] The woman did not contradict the Savior, she did not enter into any controversy with Him, but she said, "Truth, Lord." Whatever He says&mdash;however black the words may look to her&mdash;she accepts them as true and says, "Truth, Lord."
+Lord. You remember the sermon that we had upon this text not long ago. The woman did not contradict the Savior, she did not enter into any controversy with Him, but she said, "Truth, Lord." Whatever He says&mdash;however black the words may look to her&mdash;she accepts them as true and says, "Truth, Lord."
 
 Yet the dogs eat of the crumbs which fall from their masters' table. When the children drop crumbs. then the little dogs which have been fondled by the children feed on the crumbs which fall, not from "the" master's table, but from "their masters' table"&mdash;that is, from the table of the children.
 

@@ -81,15 +81,13 @@ Verse 1. But now thus says the LORD that created you, O Jacob, and He that forme
 
 Fear not: for I have redeemed you, I have called you by your name; you are Mine. Redemption is a deep well of comfort. If the Lord has indeed bought us with His blood, He will not think lightly of us. And if He has called us by name and declared that we belong to Him, we may rest assured that He will not lose His own property, but that He will preserve it to the end.
 
-When you pass through the waters, I will be with you; and through the rivers, they shall not overpower you: when you walk through the fire, you shall not be burned; neither shall the flame kindle upon you [See Sermon #397, Volume 7&mdash;fire! FIRE! FIRE] The Lord does not promise us immunity from trial
+When you pass through the waters, I will be with you; and through the rivers, they shall not overpower you: when you walk through the fire, you shall not be burned; neither shall the flame kindle upon you  The Lord does not promise us immunity from trial
 
 and trouble&mdash;we shall have to go through waters and rivers, and shall have to pass through fires and flames&mdash;it is
 
 through much tribulation that we must enter the Kingdom of God. But He does promise that no harm shall come to us from it all. "We know that all things work together for good to them that love God"&mdash;that waters, rivers, fires and flames bring us benefits and blessings&mdash;and that they shall none of them bring a curse upon us.
 
-3, 4. For I am the LORD your God, the Holy One of Israel, your Savior I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable. [See Sermon #917, Volume 16&mdash;precious,
-
-HONORABLE, BELOVED] God puts honor upon His beloved ones.
+3, 4. For I am the LORD your God, the Holy One of Israel, your Savior I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable.  God puts honor upon His beloved ones.
 
 They were in themselves dishonorable, for they had nothing of goodness about them until the Lord imparted it to them.
 
@@ -97,9 +95,7 @@ And I have loved you. God loved His ancient people Israel. He has always loved H
 
 4, 5. Therefore will I give men for you, and people for your life. Fear not: for I am with you. It is enough for a child that his mother is near him, or that his father is with him&mdash;then is it not enough for you, O child of God, that God is with you? Israel was scattered when Isaiah wrote this prophecy, and would be afterwards scattered far and wide over the face of the earth. So God gave this comforting assurance, "fear not: for I am with you."
 
-5, 6. I will bring your seed from the east, and gather you from the west; I will say to the north, Give up; and to the south, Keep not back: bring My sons from far, and My daughters from the ends of the earh. [See Sermon #2799, Volume 48&mdash;the
-
-CHURCH ENCOURAGED AND EXHORTED] God's chosen ones have
+5, 6. I will bring your seed from the east, and gather you from the west; I will say to the north, Give up; and to the south, Keep not back: bring My sons from far, and My daughters from the ends of the earh.  God's chosen ones have
 
 wandered very far away from Him, but the Great Shepherd of the sheep, who bought them with His blood, will gather them and there shall be one flock and one Shepherd.
 
@@ -113,7 +109,7 @@ Who among them can declare this, and show us former things? Let them bring forth
 
 You are My witness, says the LORD. The chosen people of God have become witnesses for Jehovah that He, and He alone, is the true God. That He, and He alone has truly foretold the future. Let the heathen prove that their gods have done the same if they can&mdash;we know that they cannot. "You are My witnesses, says the Lord."
 
-And My servant whom Ihave chosen. [See Sermon #644, Volume 11&mdash;GOD's WITNESSES] That great Servant of God, you know His name, even Christ Jesus the faithful and true Witness, bears better witness for God than the whole nation of the Jews, or the Lord's chosen people in all ages can bear!
+And My servant whom Ihave chosen.  That great Servant of God, you know His name, even Christ Jesus the faithful and true Witness, bears better witness for God than the whole nation of the Jews, or the Lord's chosen people in all ages can bear!
 
 10, 11. That you may know and believe Me, and understand that I am He: before Me there was no God formed, neither shall there be after Me. I, even I, am the LORD; and beside Me there is no Savior. Look the whole world over and see where there is any Savior for sinners except Jesus Christ. Does any other religion even profess to have a Savior? Destroyers they have, but where is their Savior?
 

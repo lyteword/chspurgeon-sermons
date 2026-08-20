@@ -2,7 +2,7 @@
 
 "Cast your burden upon the Lord, and He shall sustain you: He shall never allow the righteous to be moved." Psalm 55:22.
 
-Those of you who were here last Thursday evening will recollect that the sermon was concerning those sons of Ger-shon who were burden-bearers in connection with the tabernacle in the wilderness. [Sermon #2829, Volume 49&mdash;lowly service] They were not appointed to preach. They were not ordained to
+Those of you who were here last Thursday evening will recollect that the sermon was concerning those sons of Ger-shon who were burden-bearers in connection with the tabernacle in the wilderness.  They were not appointed to preach. They were not ordained to
 
 fight&mdash;their service consisted in bearing burdens. There were some here, on that occasion, whom I had never known before who had been, by the space of 30 years, great sufferers. They were carried into this place last Thursday evening&mdash;I did not know of their presence until afterwards, when they told me that the sermon seemed to have been made for them and that it had given them great comfort.
 

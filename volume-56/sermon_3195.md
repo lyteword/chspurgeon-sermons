@@ -2,13 +2,13 @@
 
 "And, behold, there was a woman which hada spirit ofinfirmity eighteen years, and was bent over, and could in no wise lift herselfup. And when Jesus saw her, He called her to Him and said unto her, Woman, you are loosened from your infirmity And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:11-13.
 
-[See Sermons #1426, Volume 24&mdash;THE LIFTING UP OF THE BOWED DOWN and #2891, Volume 50&mdash;a SABBATH MIRACLE&mdash; for sermons on the same miracle.]
 
-OUR text commences with a "behold"&mdash;"behold, there was a woman." And as it was often remarked by the Puritan writers, whenever we see the word, "behold," in Scripture, we are to regard it as a nota bene, as a mark in the margin calling our particular attention to what follows. Where Christ worked wonders, we should have attentive eyes and ears. When Jesus is dispensing blessings, whether to ourselves or to others, we should never be in a state of indifference!
+
+Our text commences with a "behold"&mdash;"behold, there was a woman." And as it was often remarked by the Puritan writers, whenever we see the word, "behold," in Scripture, we are to regard it as a nota bene, as a mark in the margin calling our particular attention to what follows. Where Christ worked wonders, we should have attentive eyes and ears. When Jesus is dispensing blessings, whether to ourselves or to others, we should never be in a state of indifference!
 
 I shall use this miracle as a type, as it were, for doubtless the miracles of Christ were so intended. Our Lord was declared to be "a Prophet mighty in deed and word." He was to be a Prophet like unto Moses and He is the only one who was like unto Moses in these two respects. Many Prophets followed Moses who were mighty in "word"&mdash;such as Jeremiah, Ezekiel and Isaiah, but then they were not "mighty in deed." Many, on the other hand, were "mighty in deed"&mdash; like Elijah and Elisha, but they were not "mighty in word." Our Lord was mighty in both respects and a Prophet in both respects&mdash;"a Prophet mighty in deed and word." I take it, therefore, that His miraculous deeds are parts of His prophecies. They are the illustrations of His great life-sermon. The words which fell from His lips are as the text and the letter of the Book, but the miracles are the pictures from which our childlike minds may often learn more than from the words, themselves. We shall so use the picture before us now&mdash;may the Holy Spirit give us instruction!
 
-In the first place, THIS WOMAN, BOWED DOWN WITH a SPIRIT OF INFIRMITY, TYPIFIES TO US THE CASE OF VERY MANY&mdash;very many whom we have seen and some of whom are listening to these words. Oh, that the same miracle might be worked in them as in her! She typifies persons who are depressed in spirit, who cannot look up to Heaven and rejoice in the Lord Jesus Christ, persons who have a hope, a good hope, too, but not a strong one&mdash;a hope which enables them to hold on as the men did in Paul's shipwreck when, on boards and broken pieces of the ship they came safe to land, but not a hope which gives them an abundant entrance into the everlasting Kingdom of our Lord and Savior, Jesus Christ. They are saved, like this woman, who was a true daughter of Abraham, notwithstanding all her infirmities. She was truly of the promised seed, notwithstanding that she could not lift herself up, so these are genuine Christians, truly saved, and yet constantly subject to infirmity.
+In the first place, this woman, bowed down with a spirit of infirmity, typifies to us the case of very many&mdash;very many whom we have seen and some of whom are listening to these words. Oh, that the same miracle might be worked in them as in her! She typifies persons who are depressed in spirit, who cannot look up to Heaven and rejoice in the Lord Jesus Christ, persons who have a hope, a good hope, too, but not a strong one&mdash;a hope which enables them to hold on as the men did in Paul's shipwreck when, on boards and broken pieces of the ship they came safe to land, but not a hope which gives them an abundant entrance into the everlasting Kingdom of our Lord and Savior, Jesus Christ. They are saved, like this woman, who was a true daughter of Abraham, notwithstanding all her infirmities. She was truly of the promised seed, notwithstanding that she could not lift herself up, so these are genuine Christians, truly saved, and yet constantly subject to infirmity.
 
 In some, it takes this shape. They believe in Christ and rest on the precious blood, yet they are sometimes afraid that they have sinned the unpardonable sin. Though their better and more reasonable selves will do battle against the delusion, still they hug it to their hearts. Seeing that the blasphemy against the Holy Spirit is a sin which is unto death&mdash;and that when a man has committed it, his spirit dies&mdash;and repentance, the desire to be saved and all good emotions cease to be when that dreadful spiritual death is ours, I say that they can thus reason with themselves in their better moments and see that their fear is a delusion, but they soon fall back again into that dreadful slough. They see no signs of Grace, but they think they see signs of reprobation.
 
@@ -48,7 +48,7 @@ Yet for all this, this woman was a daughter of Abraham. The Lord Jesus knew her 
 
 crutches, is equally dear, and Mr. Fearing and Miss Much-Afraid, though they may lie in Doubting Castle till they are almost starved, shall surely be brought out, for they are true pilgrims and shall at length safely reach the Celestial City!
 
-But we must pass on to our second point, namely that THE EXAMPLE OF THIS WOMAN IS INSTRUCTIVE TO ALL IN HER CASE.
+But we must pass on to our second point, namely that the example of this woman is instructive to all in her case.
 
 Observe that she did not tamely yield to her infirmity without effort. The expression, "She could in no wise l ift herself up"&mdash;an old Saxon form of saying, "She could in no ways lift herself up"&mdash;shows, as I have said before, that she had tried her best. I believe some of you might stand upright if you liked. I am quite certain that in some cases, people get into the way of surrendering to depression until at last they become powerless against it. Some stimulant is given them in the form of a sick husband, or a dying child and they grow quite cheerful. Under some real trouble, they become patient, but when this real trouble is taken away, they begin manufacturing troubles of their own. They are never happy, I might almost say, except when they are miserable&mdash;and never cheerful except when they have something to cast them down! If they have a real trouble, they get strength to bear it, but at other times, they are morbidly troubled in spirit. Now, let us imitate this woman and shake off our doubts and our unbelief as much as possible. Let us strike up the hymn&mdash;
 
@@ -70,7 +70,7 @@ I was, this week, by the bedside of a dying man, an heir of Heaven, washed in th
 
 This woman glorified God. Brothers and Sisters, can we not do something more to glorify God than we have yet done? If we have done that which seemed to be our duty on certain occasions, may there not be yet more for us to do? There is very much land yet to be possessed for King Jesus! This wicked city is given over to sin and we are doing so little! Ah, some of you do what you can, but we who do what we can, might do more if we had more strength with which to do it&mdash;and more strength is to be had for the asking! Oh, that we could enlarge our desires for the glory of King Jesus! Oh, to set Him upon a glorious high throne and to crown Him with many crowns, to prostrate ourselves at His feet and to bring others, too, to lie prostrate at His feet, that He might be King in Jeshurun, King of kings and Lord of lords, reigning in our souls forever and ever! Imitate this woman. If you have been bowed down and yet restored to comfort! See that, like she did, you instantly fall to glorifying God.
 
-And this brings us to the last point&mdash;THE WOMAN's CURE IS EXCEEDINGLY INSTRUCTIVE TO PERSONS IN a LIKE CASE.
+And this brings us to the last point&mdash;the woman's cure is exceedingly instructive to persons in a like case.
 
 She went to the synagogue, but she did not get her cure alone by going there. Means and ordinances are nothing in themselves! They are to be used, but they are only dry skin bottles, without water, unless there is something more than these. This woman met with Christ in the synagogue&mdash;and then came the healing! May we, too, meet with Jesus! That great encounter is possible here, or anywhere, for&mdash;
 
@@ -102,7 +102,7 @@ Hangs my helpless soul on Thee." Look to the wounds of Christ, they will heal yo
 
 May God add His blessing and bring many of His bondaged ones out of prison! This shall be to His eternal praise! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 13:1-13.
+Exposition by C. H. Spurgeon: Luke 13:1-13.
 
 Verse 1. There were present at that season some that told Him of the Galileans, whose blood Pilate had mingled with their sacrifices. This was a matter of common town talk, so of course they brought the news to Jesus. Notice how wisely He used this shameful incident. You and I too often hear the news of what is happening, but we learn nothing from it&mdash;our Savior's gracious mind turned everything to good account&mdash;He was like the bee that gathers honey from every flower.
 
@@ -110,9 +110,7 @@ And Jesus answering said to them, Do you suppose that these Galileans were sinne
 
 I tell you, No, but except you repent, you shall all likewise perish. There would come upon them, also, because of their sin, a sudden and overwhelming calamity. When we read of the most dreadful things happening to men, we may conclude that something similar will happen to us if we are impenitent&mdash;if not in this world, yet in that which is to come!
 
-5. Or those eighteen, upon whom the tower in Siloam fell and slew them, do you think that they were sinners above all men that dwelt in Jerusalem? I tell you, No, but, except you repent, you shall all likewise perish^. [See Sermon #408,
-
-Volume 7&mdash;ACCIDENTS, NOT PUNISHMENTS.] This was a foreshadowing
+5. Or those eighteen, upon whom the tower in Siloam fell and slew them, do you think that they were sinners above all men that dwelt in Jerusalem? I tell you, No, but, except you repent, you shall all likewise perish^.  This was a foreshadowing
 
 of the overthrow of Jerusalem and the razing of its walls and towers to the ground which happened not long after. And even that overthrow of Jerusalem was but a rehearsal of the tremendous doom that shall come upon all who remain impenitent.
 
@@ -122,9 +120,7 @@ Then he said to the dresser of the vineyard, Behold, these three years I have be
 
 ground?'"
 
-8-9. And he answering said unto him, Sir, let it alone this year, also, till I shall dig about it, and fertilize it: and if it bears fruit, well: and ifnot, then after that you shall cut it down. [See Sermons #650, Volume 11&mdash;judgment threatening but mercy
-
-SPARING and #1451-a, Volume 25&mdash;"THIS YEAR ALSO."] He asks for a respite,
+8-9. And he answering said unto him, Sir, let it alone this year, also, till I shall dig about it, and fertilize it: and if it bears fruit, well: and ifnot, then after that you shall cut it down.  He asks for a respite,
 
 but only a limited one. "After that, you shall cut it down." If, after the trial of another year, it shall still be fruitless, then even the pleader will not ask for any further respite.
 

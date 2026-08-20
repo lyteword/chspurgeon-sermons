@@ -28,7 +28,7 @@ Our Savior was, however, led to make these remarks from the fact that the ignora
 
 While I am referring to this point, allow me to say just a few more words upon it, for Popery prevails in this day, and the doctrine that the bread and wine are turned into the body and blood of Christ is the bulwark of Popery. Dr. Carson, of Coleraine, son of Dr. Carson the eminent Baptist, has challenged Dr. Cahill in a remarkable way. He has challenged Dr. Cahill to prove that he can turn the bread and wine used in the sacrament into Christ's body and blood. He offers to give Dr. Cahill a hundred pounds if he will let him make a wafer for him and, if Dr. Cahill will then put it on his own tongue and swallow it in Mr. Carson's presence, "if the Doctor is not dead in an hour," says Dr. Carson, "I'll give him a hundred pounds." "No," says someone, "that is not fair." "Oh, but if he can turn it into the body and blood of Christ, it cannot hurt him, whatever it may contain." "But would you make it of poison, then?" "Yes, the deadliest I could find." "Would you give him poison?" "I would not give it to him&mdash;he would swallow it himself&mdash;he would do it of his own voluntary choice." Of course Dr. Cahill will not submit to that test! He knows that he cannot turn the wafer and the wine into the body and blood of Christ&mdash;if he could, Dr. Carson says it would not hurt him, for the body and blood of Christ would poison no one.
 
-But some wise Romanist says, "That is not a fair test. Dr. Cahill does not pretend to turn poison into the body and blood of Christ&mdash;it is only pure bread and wine that can thus be manipulated." "Very well," says Dr. Carson, "I'll try him another way. I will let him choose a youth from seven or eight Catholic boys. He shall take a quart of wine and turn this wine, in his own peculiar way, into the blood of Christ. The boy shall drink the quart of wine and if he is not drunk in six hours, I will pay the hundred pounds." "Now," says Dr. Carson, "if that liquid is really the blood of Christ, it will not make him drunk! He might drink a barrel of it and it would not make him intoxicated." But Dr. Cahill dares not accept such a trial as that, for it would very soon be found that the so-called "consecrated" wine would make the boy intoxicated as quickly as any other wine would! Therefore it cannot be turned, even by the great Doctor, himself, into the blood of Christ. [We assume Dr. Cahill is a priest.]
+But some wise Romanist says, "That is not a fair test. Dr. Cahill does not pretend to turn poison into the body and blood of Christ&mdash;it is only pure bread and wine that can thus be manipulated." "Very well," says Dr. Carson, "I'll try him another way. I will let him choose a youth from seven or eight Catholic boys. He shall take a quart of wine and turn this wine, in his own peculiar way, into the blood of Christ. The boy shall drink the quart of wine and if he is not drunk in six hours, I will pay the hundred pounds." "Now," says Dr. Carson, "if that liquid is really the blood of Christ, it will not make him drunk! He might drink a barrel of it and it would not make him intoxicated." But Dr. Cahill dares not accept such a trial as that, for it would very soon be found that the so-called "consecrated" wine would make the boy intoxicated as quickly as any other wine would! Therefore it cannot be turned, even by the great Doctor, himself, into the blood of Christ. 
 
 The fact is, the lie is so foolish, the delusion is so absurd, that any child of a reasonable age would as soon think of believing the cock and bull story which we used to read in our childish days, about what the bull said, and what the cock said, to be actual truth, as to imagine it to be a literal fact that any priest, or any man in the world, could ever turn bread and wine into flesh and blood! But even if they could, hear again the words of our text&mdash;"It is the spirit that quickens; the flesh profits nothing." So, then, after all, the Roman Catholic "sacrament," if it is actually a cannibal's feast upon the body and blood of Christ, is of no earthly use! But that Divinely appointed ordinance wherein we do spiritually receive the flesh and blood of Jesus and, in a spiritual way hold communion with Him, is that alone which quickens!
 
@@ -60,18 +60,18 @@ This, I believe, is the true meaning of the passage. But the common rendering of
 
 Our friend will excuse me when I say that it cannot mean that. You notice that the "s" in the word, "spirit," in the text has not a capital letter. If it meant the Holy Spirit, it would be so marked, to separate it from the spirit to which I have just referred&mdash;the inward spirit, the life of a thing. This word, "spirit," here does not mean the Holy Spirit. Still, almost every ordinary reader would make that mistake and say, "It is the Holy Spirit that quickens; the flesh profits nothing." Well, it is a mistake that will not do him any hurt, because if it does not say so here, it does say so somewhere else! And if it is not true in this one particular text, it is true all over the Bible! And it is true in a Christian's experience, so that a man may make a great many worse mistakes than that. Well, then, let us for once make that mistake, and then let us get the Truth of God out of it&mdash;"It is the Holy Spirit that quickens; the flesh profits nothing"&mdash;
 
-> Can anything beneath a power Divine   
-> The stubborn will subdue?   
-> 'Tis Yours, Eternal Spirit, Yours   
-> To form the heart anew.   
-> 'Tis Yours the passions to recall,   
-> And upwards bid them rise   
-> And make the scales of error fall   
-> From Reason's darkened eyes.   
-> To chase the shades of death away,   
-> And bid the sinner live&mdash;   
-> A beam of Heaven, a vital ray&mdash;   
-> 'Tis Yours alone to give.   
+> Can anything beneath a power Divine 
+> The stubborn will subdue? 
+> 'Tis Yours, Eternal Spirit, Yours 
+> To form the heart anew. 
+> 'Tis Yours the passions to recall, 
+> And upwards bid them rise 
+> And make the scales of error fall 
+> From Reason's darkened eyes. 
+> To chase the shades of death away, 
+> And bid the sinner live&mdash; 
+> A beam of Heaven, a vital ray&mdash; 
+> 'Tis Yours alone to give. 
 
 How often have I thought, when I have been preaching, "There is a young woman in the gallery and down there in that area is a young man&mdash;how interested they look during the sermon!" I have met with them, I have admired their characters. They have had an amiable carriage and deportment. There has been much in them that everybody would tell others to imitate and emulate. I have said, "Ah, I shall soon have them added to the Church&mdash;there is so much that is good about them, it will be such an easy transition for them&mdash;they are so moral and so excellent, surely it will be very easy for them to take a step into the Kingdom of Heaven." I don't say that I have said so much as that in words to my heart, but that has been about what I have thought. Well, there has been a very different sort of fellow, a strange looking object, certainly, who came running into the Chapel one Thursday evening, towards the end of the service. He was not even washed, nor in any way prepared for Divine worship&mdash;he only came to hear something that would make him laugh, as he thought. I did not expect to have him converted, but the next time I sat to see enquirers, in he came&mdash;cleaned and brushed up&mdash;but I recognized him, for all that, and I said to him, "Didn't you come into the Chapel, one Thursday night, after you had been hammering and tinkering away somewhere? I thought you looked a strange customer, certainly." "Yes," he said, "and the Lord met with me that night!"
 

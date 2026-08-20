@@ -36,10 +36,10 @@ Oftentimes, the greatest Truths of God lie in the shortest sentences. There is a
 
 But when the text says, "Men shall be blessed in Him," it implies great width of variety. "Men"&mdash;not merely kings or noblemen, but, "Men shall be blessed in Him." Men&mdash;not working men, or thinking men, or fighting men, or this sort of men, or the other sort of men, but men of all sorts&mdash;"Men shall be blessed in Him." It is a delightful thought that Christ is as much fitted to one rank and one class of persons as to another&mdash;
 
-> While Grace is offered to the prince,   
-> The poor may take their share.   
-> No mortal has a just pretense,   
-> To perish in despair.   
+> While Grace is offered to the prince, 
+> The poor may take their share. 
+> No mortal has a just pretense, 
+> To perish in despair. 
 
 Christ is the Christ of the multitude! His Father says of Him, "I have exalted One chosen out of the people," but He is equally the Christ of the most refined and eclectic. He comes with equal Grace to those who stand in the highest or the lowest earthly position. "Men shall be blessed in Him." Of course, the word, "men," includes women and children&mdash;it means the human race! "Men shall be blessed in Him." Do not, therefore, let anyone say, "I am a strange, odd person," for the text puts in this little-big word, "men," which takes you in, whoever you may be! If you come to Christ, you are included in this promise, "Men shall be blessed in Him." So that there is a width of variety implied here.
 

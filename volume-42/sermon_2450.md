@@ -90,10 +90,10 @@ They are forever blest." Oh, blissful hour! Oh, happy moment when&mdash;
 
 "We shall be near and like our God!" Brothers and Sisters, does it not make you long to be gone when you think of the perfection of redemption? The body will be redeemed! It will rise from the dead. This poor dishonored body will be made like unto Christ's glorious body and then body and soul, together, shall, like twin angels, glorify God throughout eternity!&mdash;
 
-> There shall I bathe my weary soul,   
-> In seas of heavenly rest!   
-> And not a wave of trouble roll   
-> Across my peaceful breast.   
+> There shall I bathe my weary soul, 
+> In seas of heavenly rest! 
+> And not a wave of trouble roll 
+> Across my peaceful breast. 
 
 Do you not wish you had wings to fly away? Well, it is but for a few minutes that you are detained here. "Minutes!" you say. "Why, they are months and years!" Yes, but what are they? When once they are gone, they shall be but as a watch in the night! You shall think of them then as God thinks of them, now, as but a very small moment. Courage! Wait with patience and you shall make all eternity sing because the Lord has redeemed His people and glorified Himself in Israel.
 
@@ -141,7 +141,7 @@ And your labor for that which satisfies not? Listen diligently unto Me and eat t
 
 3, 4. Incline your ear and come unto Me: hear, and your soul shall live and I will make an Everlasting Covenant with you, even the sure mercies of David. Behold, I have given him for a witness to the people, a leader and commander to the people. These words refer not only to David, but to Jesus, great David's greater Son. The next verse is spoken especially to him, not to us, yet as we overhear it, we suck comfort for ourselves out of it.
 
-Behold, you shall call a nation that you know not, and nations that knew not you shall run unto you because of the LORD your God, and for the Holy One of Israel; for He has glorified you. Christ must have a people. He did not die in vain. God will give Him a following! He shall not be a Commander without troops. He shall not be a Leader without disciples. I shall preach, tonight, [The exposition was always before the sermon. For some reason, the publishers chose to place the exposition after the sermon.&mdash;EOD] in strong confidence that many will be saved in this place tonight. Where there is faith, God will respond to it. Pray, you who are the people of God, that this promise may be kept! It is a promise to Christ and the Father will keep His promise to His own Son! Be you sure of this, He will glorify Him, but He would have us pray for Him. Let every heart that knows how to pray be breathing out the petition, "Father, glorify Your Son."
+Behold, you shall call a nation that you know not, and nations that knew not you shall run unto you because of the LORD your God, and for the Holy One of Israel; for He has glorified you. Christ must have a people. He did not die in vain. God will give Him a following! He shall not be a Commander without troops. He shall not be a Leader without disciples. I shall preach, tonight, in strong confidence that many will be saved in this place tonight. Where there is faith, God will respond to it. Pray, you who are the people of God, that this promise may be kept! It is a promise to Christ and the Father will keep His promise to His own Son! Be you sure of this, He will glorify Him, but He would have us pray for Him. Let every heart that knows how to pray be breathing out the petition, "Father, glorify Your Son."
 
 Seek you the LORD while He may be found, call you upon Him while He is near. There may come a day when He cannot be found, a time when He will not be near. When the great Judge of All has once said, "Depart." When once the Master of the house has risen up and shut the door, in vain will be all your seeking, your praying and your knocking at the door that will never open again! Therefore, "Seek you Jehovah while He may be found, call you upon Him while He is near."
 

@@ -2,7 +2,7 @@
 
 "He shall glorify Me: for He shall receive ofMine, and shall show it unto you." John 16:14.
 
-[Other Sermons by Mr. Spurgeon upon this passage are as follows&mdash;#465, Volume 8&mdash;THE HOLY SPIRIT GLORIFYING CHRIST; #2213, Volume 37&mdash;"HONEY IN THE MOUTH"; #2382, Volume 40&mdash;THE HOLY SPIRIT's CHIEF OFFICE. An Exposition ofJohn 16:1-22, was published with #3052, Volume 53&mdash;CHRIST's LONELINESS AND OURS.]
+
 
 MANY persons are anxiously asking the question, "Are we partakers of the Holy Spirit?" With enlarged anxiety, they reason thus, "We have felt certain inward emotions. There has been in us, we trust, a change of life. Eager are our desires for God and His Grace. Do these come of the Spirit of God? When we find a suggestion which appears to be holy in our soul, does it come from Him? When we are at any time filled with earnestness and pray, or our soul has peculiar delight in considering Divine things, may we say with truth that we are under the operation of the Holy Spirit?" I do not intend to go thoroughly into the resolution of these scruples&mdash;that would be too wide a subject for a short evening's discourse&mdash;but there is one point which may often relieve your perplexities. It appears from the text that it is the work and office and custom of the Holy Spirit to glorify Christ. If, therefore, with much strength and fervor in your soul, you glorify Him, you may trust that it comes from the Spirit of God. But if there is anything in you which is derogatory to the Character or Person or Glory of the Lord Jesus, it may either come from Satan or from your own corrupt mind. But from the Spirit of God it never came and it would be blasphemy to impute it to Him. Whatever you feel which lifts Christ on high in your soul comes of the Spirit&mdash;but whatever there may be which exalts self or anything else in the place of Christ&mdash;no matter from where it comes&mdash;the Holy Spirit has nothing to do with it!
 
@@ -95,7 +95,7 @@ Galatians 3:1, 2. O foolish Galatians, who has bewitched you, that you should no
 
 Are you so foolish? Having begun in the Spirit, are you now made perfect by the flesh?"Is this work to be partly God's and partly your own? And if He has begun it with a basis of gold, are you to perfect it with your poor dust and
 
-clay? Are you so foolish as to attempt to do this?" [See Sermon #1534, Volume 26&mdash;Salvation by Works, a Criminal Doctrint.]
+clay? Are you so foolish as to attempt to do this?" 
 
 4, 5. Have you suffered so many things in vain? If it is yet in vain. He therefore that ministers to you the Spirit, and works miracles among you, does He it by the works of the Law, or by the hearing of faith? They knew very well that the miracles came as the result of faith and were an attestation and seal of the Gospel of Faith, and not of the works of the Law.
 
@@ -129,7 +129,7 @@ OF IT and #2402, Volume 41&mdash;UNDER ARREST.]
 
 22-24. That the promise by faith of Jesus Christ might be given to them that believe. But before faith came, we were kept under the Law, shut up unto the faith which should afterwards be revealed. Therefore the Law was our schoolmaster
 
-tO bring us unto Christ. [See Sermon 1196, Volume 20&mdash;THE STERN TEACHER.] It whipped us to Christ and taught us that we could not be saved except by Christ.
+tO bring us unto Christ.  It whipped us to Christ and taught us that we could not be saved except by Christ.
 
 24-28. That we might be justified by faith. But after that faith is come we are no longer under a schoolmaster. For you are all the children of God by faith in Christ Jesus. For as many of you as have been baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for you are all one in Christ Jesus. Yet some foolish people still talk about our Jewish origin! What would that matter even if it were true? "There is neither Jew nor Greek, there is neither bond nor free." All these distinctions are done away with and Christ is All&mdash;and Believers, whether Jews or Gentiles&mdash;"are all one in Christ Jesus."
 

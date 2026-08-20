@@ -2,7 +2,7 @@
 
 "Jesus answered them, Do you now believe? Behold, the hour comes, yes, is now come, that you shall be scattered, every man to his own, and shall leave Me alone: and yet I am not alone, because the Father is with Me." John 16:31,32.
 
-[Another sermon by Mr. Spurgeon upon the same text is #2271, Volume 38&mdash;ALONE , YET NOT ALONE.]
+
 
 "Do you now believe?" Then it seems that faith held them fast to Christ, but as soon as fear prevailed they were scattered and left their Master alone. Faith has an attracting and upholding power. It is the root of constancy and the source of perseverance under the power of God's Spirit. While we believe, we remain faithful to our Lord. When we are unbelieving, we are scattered, "every man to his own." While we trust, we follow closely. When we give way to fear, we ungratefully forsake our Lord. May the Holy Spirit maintain our faith in full vigor that it may nourish all our other Graces! Faith being strong, no faculty of the inner man will languish, but if faith declines, the energy of our spiritual nature speedily decays. If you believe not, you shall not be established, but "the just shall live by faith" to the fullest force oflife.
 
@@ -34,7 +34,7 @@ Mark too not only the constancy and the courageousness of our Savior, but His ma
 
 Inquire awhile the reason for this result Why was it that our Savior, in His loneliness, thus stood so constant, courageous and forgiving? Was it not because He fell back into the arms of His Father when He was forsaken by His friends? It was even so&mdash;"The Father is with Me." Look carefully at that word. As the Savior uttered it, it was true that the Father's Presence was with Him, but I beg you to remember that it was not true, in every sense, all the way through His passion. The Father was not with Him on the Cross in the sense of manifested personal favor. His cry, "My God, My God, why have You forsaken Me?" shows that our Savior did not, at that time, derive comfort from any present
 
-revelation of the love of God to Him as Man. [See Sermon #2133, Volume 36&mdash;"MY god, my god, why have YOU FORSAKEN ME?"] The conscious Presence and display of love were taken away.
+revelation of the love of God to Him as Man.  The conscious Presence and display of love were taken away.
 
 There is, therefore, another meaning in these words, "Because the Father is with Me" and surely it is this&mdash;the Father was always with Him in His design. The enterprise He had undertaken was the salvation of His people&mdash;and the Father was wholly and always with Him in that respect. In that sense He was with Him even where He deserted Him&mdash;it was but a form of the Father's being with Christ that He should be forsaken of God. I am not quite stating a paradox and if it should sound like one to any here, let me expound it. It was in pursuance of Their united great design that the Father forsook the Son. Both were resolved upon the same gracious purpose and, therefore, the Father must forsake the Son, that the Son's purpose and the Father's purpose in our redemption might be achieved! He was with Him when He forsook Him&mdash;with Him in design when He was not with Him in the smiles of His face.
 

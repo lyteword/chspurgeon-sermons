@@ -2,7 +2,7 @@
 
 "His beauty shall be as the olive tree." Hosea 14:6.
 
-[This Sermon was one of several preached by Mr. Spurgeon after various visits to the Riviera. He had intended to prepare a volume upon the olive, but illness and the pressure of other work prevented. He had revised nearly half of the manuscript of this discourse and the revision of the remainder has followed as closely as possible the lines laid down by him.]
+
 
 OUR present objective will be to bring out the resemblance in point of beauty between the godly man and the olive tree. But please note that the parallel does not hold good of all who profess and call themselves Christians&mdash;it is only true of those whose backsliding has been healed&mdash;to whom the Lord has been as a refreshing dew. It is the Believer in a healthy, growing and useful condition whose beauty is "as the olive tree."
 

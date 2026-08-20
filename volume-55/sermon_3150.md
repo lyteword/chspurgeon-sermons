@@ -2,7 +2,7 @@
 
 "Let your conversation be without covetousness: and be content with such things as you have. For He has said, I will never leave you, nor forsake you. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me." Hebrews 13:5, 6.
 
-[Other Sermons by Mr. Spurgeon upon the whole or parts of these two verses, are as follows&mdash;Sermons #477, Volume 8&mdash;NEVER! NEVER! NEVER! NEVER! NEVER!; #1449, Volume 24&mdash;a VILE WEED AND a FAIR FLOWER and #1880, Volume 32&mdash;a LESSON AND a FORTUNE FOR CHRISTIAN MEN OF BUSINESS&mdash;.]
+
 
 WHEN the Lord foretold, through the mouth of His servant, the Prophet Isaiah, that He would "make unto all people a feast of fat things, a feast of wines on the lees, of fat things full of marrow," surely He must have had in His mind such precious Truths of God as this one which we have in our text, "I will never leave you, nor forsake you." This is the very essence of consolation! I might truly say that it is the quintessence of delight! Here is solid spiritual food condensed into a very small space. Take these eight words and extract the marrow from them, or treat them as a honeycomb and get the sweetness out of them into your soul&mdash;and it will be full of content, no, more&mdash;it will be overflowing with sacred delight! "I will never leave you, nor forsake you."
 
@@ -108,9 +108,9 @@ We have an altar, of which they have no right to eat which serve the tabernacle.
 
 By Him therefore let us offer the sacrifice of praise to God continually, that is the fruit of our lips giving thanks
 
-to His name. [See Sermon #2048, Volume 34&mdash;a LIFE-LONG OCCUPATION.] If you are Believers in Christ, you are God's priests and this is the sacrifice that you are continually to offer&mdash;the fruit of your lips, giving thanks to God's name!
+to His name.  If you are Believers in Christ, you are God's priests and this is the sacrifice that you are continually to offer&mdash;the fruit of your lips, giving thanks to God's name!
 
-But to do good and to communicate forget not: for with such sacrifices God is well please . We are to do good to others, to communicate [give] of our own good things to those who need them and to do this at some sacrifice to ourselves, "for with such sacrifices God is well pleased."
+But to do good and to communicate forget not: for with such sacrifices God is well please . We are to do good to others, to communicate  of our own good things to those who need them and to do this at some sacrifice to ourselves, "for with such sacrifices God is well pleased."
 
 17-19. Obey them that have the rule over you, and submit yourselves: for they watch for your souls, as they that must give account, that they may do it with joy, and not with grief: for that is unprofitable for you. Pray for us: for we trust we have a good conscience, in all things willing to live honestly. But I beseech you the rather to do this, that Imay be restored to you the sooner. You must have noted how often the Apostle asks for the prayers of those to whom he is writing. So we are following a good example when we ask you to pray for us.
 

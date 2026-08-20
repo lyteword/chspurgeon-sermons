@@ -4,10 +4,10 @@
 
 THE Lord's people, in the time of their trouble, know where to go for comfort and relief. Being taught of God, they do not hew out for themselves broken cisterns which can hold no water, but they turn to the ever-flowing Fountain, they go to the Wellhead&mdash;even to God Himself&mdash;and there they cast themselves down and drink to the full. David, when he wrote this Psalm, was evidently in very great distress and, therefore, he says, "I have called upon You, for You will hear me, O God: incline Your ear unto me, and hear my speech." What he needed was his God, as Dr. Watts expresses it&mdash;
 
-> In darkest shades if He appears,   
-> My dawning is begun.   
-> He is my soul's sweet morning star,   
-> And He my rising sun.   
+> In darkest shades if He appears, 
+> My dawning is begun. 
+> He is my soul's sweet morning star, 
+> And He my rising sun. 
 
 Believers draw comfort both from God's ordinary and extraordinary dealings with them, for they regard God's loving kindness as being both an ordinary and an extraordinary thing. I have heard of a good Sister who, when a friend narrated to her some very gracious dealing of God, was asked the question, "Is it not very wonderful?" and she replied, "No, it is not wonderful, for it is just like Him." Begging her pardon and admitting the great Truth of God that she meant to convey, I think it is still more wonderful that it should be "just like Him." The wonder of extraordinary love is that God should make it such an ordinary thing, that He should give to us "marvelous loving kindness," and yet should give it so often that it becomes a daily blessing, and still remains marvelous! The marvels of men, after you have seen them a few times, cease to excite any wonder. I suppose there is scarcely a building, however costly its materials, and however rare its architecture, as to which, sooner or later, you will not feel that you have seen enough of it. But God's wonderful works never pall upon you. You could gaze upon Mont Blanc, or you could stand and watch Niagara Falls, yet never feel that you had exhausted all its marvels. And everyone knows how the ocean is never twice alike. They who live close to it and look upon it every hour of the day, still see God's wonders in the deep!
 
@@ -37,10 +37,10 @@ Or give the Creator delight?
 
 'Because it seemed good in Your sight. There is no other explanation of this wondrous mercy, this "marvelous loving kindness," than the poet gives&mdash;
 
-> His love, from eternity fixed upon you,   
-> Broke forth and discovered its flame,   
-> When each with the cords of His kindness He drew,   
-> And brought you to love His great name.   
+> His love, from eternity fixed upon you, 
+> Broke forth and discovered its flame, 
+> When each with the cords of His kindness He drew, 
+> And brought you to love His great name. 
 
 So, Beloved, think over the antiquity of God's loving kindness and then of the discriminating character of it&mdash;and surely you will be full of adoring wonder!
 
@@ -70,8 +70,8 @@ The next meaning I would give to this prayer would be, Lord, show Your loving ki
 
 Lord?"&mdash;
 
-> Why was I made to hear Your voice, And enter while there's room,   
-> When thousands make a wretched choice, And rather starve than come?   
+> Why was I made to hear Your voice, And enter while there's room, 
+> When thousands make a wretched choice, And rather starve than come? 
 
 Is this kindness, and this, and this, all meant for me? Can it really be intended for me? Such reflections as these will make me realize more than ever, how "marvelous" is God's "loving kindness" to me, and will fill my soul with adoring gratitude and thanksgiving.
 

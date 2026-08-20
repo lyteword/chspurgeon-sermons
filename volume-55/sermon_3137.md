@@ -2,7 +2,7 @@
 
 "Say unto my soul, I am your salvation." Psalm 35:3.
 
-[Another Sermon by Mr. Spurgeon upon the same text is Sermon #384, Volume 7&mdash;FULL ASSURANCE.]
+
 
 THIS text may very properly be understood as a request that God would teach the soul to rest upon Him in temporal difficulties, straits and distresses. We are all apt to try to work out our own deliverance. We would go back to Egypt, or we would climb the rock on our right hand, or we would, if it were possible, force a passage on the left, but when the Red Sea rolls in front of us, when Pharaoh is behind and there are frowning rocks on the right hand and on the left, this most delightful Truth of God is learned&mdash;and probably it is the only occasion when we can learn it&mdash;God is our salvation! If you are in trouble, Christian, ask who brought you there, for He shall bring you out again. If you are sorely vexed and deeply grieved, why should you look to a human arm for succor, or why should you turn your eyes to the horses and to the chariots of Pharaoh? Lift up your eyes to the hills, from where your help came, and in the solemn silence of your soul hear the soft and cheering word, "I am your salvation; I have been with you in six troubles, and no evil has touched you; now I have brought you into another trouble, but I will deliver you out of them all; call upon ME in the day of trouble, and I will deliver you." O Believer, the strongest sinew in an arm of flesh will crack and the strongest band of human strength will give way! But trust in the Lord forever, for in the Lord Jehovah is everlasting strength! Learn to stand still and to see the salvation of God, as He says to you, "I the Omnipotent, I the Omnipresent, I who have servants everywhere will work your rescue, for I am your salvation."
 
@@ -87,7 +87,7 @@ Let us ask Him to say to each of our souls tonight, "I am your salvation." Some 
 
 EXPOSITION BY C. H. SPURGEON: PHILIPPIANS 1:21-30; 2:1-11.
 
-Philippians 1:21. For to me to live is Christ, and to die is gain. [See Sermon #146, Volume 3&mdash;the good man's life and death.] "To me to live is Christ." If he lived, he lived to know more of
+Philippians 1:21. For to me to live is Christ, and to die is gain.  "To me to live is Christ." If he lived, he lived to know more of
 
 Christ studying His Person and learning by his happy experience so that he increased in his knowledge of his Lord and Savior. If he lived, he lived to imitate Christ more closely, becoming more and more conformed to His image. If he lived, he lived to make Christ more and more known to others and to enjoy Christ more himself. In these four senses, Paul might well say, "For to me to live is Christ"&mdash;to know Christ more, to imitate Christ more, to preach Christ more and to enjoy Christ more!
 
@@ -99,7 +99,7 @@ This is the fruit of my labor He lived to work for Christ and to see souls saved
 
 22, 23. Yet what I shall choose I know not For I am in a strait between two, having a desire to depart, and to be
 
-with Christ; which is far better [See Sermons #274, Volume 5&mdash;PAUL's DESIRE TO DEPART and #1136, Volume 19&mdash;"FOREVER WITH THE LORD."] There were the two currents flowing in opposite directions.
+with Christ; which is far better  There were the two currents flowing in opposite directions.
 
 The Apostle seemed to hear two voices speaking to him. One of them said, "Live, and you will gather the fruit of your labor. You will see sinners saved, Churches established and the Kingdom of Christ extended in the earth." The other said, "Die, and you will be with Christ!" So he knew not which to choose.
 
@@ -125,7 +125,7 @@ Let nothing be done through strife or vainglorj. This would be a good motto for 
 
 5-8. Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made Himself of no reputation, and took upon Himself the form of a Servant, and was made in the likeness of men: and being found in fashion as a man, He humbled Himself, and became obedient unto death, even the Sermon #3137
 
-death Of the CrOSS. [See Sermon #2281, Volume 38&mdash;OUR LORD IN THE VALLEY OF HUMILIATION.] He humbled Himself, so be you not unwilling to humble yourself. Lower than the Cross, Christ could not go, His death was one of such extreme ignominy that He could not have been more disgraced and degraded. Be you willing to take the lowest place in the Church of God and to render the most humble service! Count it an honor to be allowed to wash the saints' feet. Be humble in mind&mdash;nothing is lost by cherishing this spirit, for see how Jesus Christ was honored in the end.
+death Of the CrOSS.  He humbled Himself, so be you not unwilling to humble yourself. Lower than the Cross, Christ could not go, His death was one of such extreme ignominy that He could not have been more disgraced and degraded. Be you willing to take the lowest place in the Church of God and to render the most humble service! Count it an honor to be allowed to wash the saints' feet. Be humble in mind&mdash;nothing is lost by cherishing this spirit, for see how Jesus Christ was honored in the end.
 
 9-11. Therefore God also has highly exalted Him, and given Him a name which is above every name: that at the name of Jesus every knee should bow, of things in Heaven, and things in earth, and things under the earth; and that every
 

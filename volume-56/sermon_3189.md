@@ -2,7 +2,7 @@
 
 "As one whom his mother comforts, so will I comfort you; and you shall be comforted in Jerusalem." Isaiah 66:13.
 
-WE do not intend entering into a discussion of the context and its relationship literally to the Jewish people. We have never hesitated to assert our conviction that there are great blessings in store for God's ancient Israel and that the day shall come when her comfort shall abound, when the glory of the Gentiles shall flow to her like a flowing stream and she shall be comforted by her God as one whom his mother comforts. But we believe that these passages are applicable to all the servants of God, that the comfortable passages of Scriptures are theirs, that whether Jew or Gentile, bond or free, barbarian or Greek, we are all one in Christ Jesus&mdash;and all the promises are ours in Him&mdash;for in Him all the promises are, "yes," and, "amen." I believe, then, that this passage belongs to every child of God.
+We do not intend entering into a discussion of the context and its relationship literally to the Jewish people. We have never hesitated to assert our conviction that there are great blessings in store for God's ancient Israel and that the day shall come when her comfort shall abound, when the glory of the Gentiles shall flow to her like a flowing stream and she shall be comforted by her God as one whom his mother comforts. But we believe that these passages are applicable to all the servants of God, that the comfortable passages of Scriptures are theirs, that whether Jew or Gentile, bond or free, barbarian or Greek, we are all one in Christ Jesus&mdash;and all the promises are ours in Him&mdash;for in Him all the promises are, "yes," and, "amen." I believe, then, that this passage belongs to every child of God.
 
 It is well that there is such a promise as this on record, for Believers need comfort. They need comfort because they are men and, "man is born unto trouble, as the sparks fly upward." There has been a great necessity for consolation ever since the time when man was expelled from Eden. Men need comfort because they are but men. Although favored by God, elected by His Sovereignty and called by His Divine Grace into a peculiar state of acceptance, they are still in the body and they are made to feel it&mdash;being tempted in all points as other men are and in some points peculiarly tried. They are men and but men at the best! They need comfort, too, because they are Christians, for if others escape the rod, Christians must not, yes, shall not The Lord may be pleased to give to the sinner a long prosperity that he may be fattened as a bullock for the slaughter, but His promise to His people whom He calls by His Grace is, "You only have I known of all the families of the earth: therefore I will punish you for all your iniquities." "Whom the Lord loves He chastens, and scourges every son whom He receives." We must, therefore, have special consolation, since as men, as only men, and as Christians, we shall have constant occasions for comfort.
 
@@ -10,7 +10,7 @@ When I take a text like this, I know there are very many in the congregation who
 
 But coming at once to the text, I think we may very well talk of it under three points. First, who comforts? Secondly, how He comforts. And thirdly, where He comforts.
 
-With regard to the first point, WHO COMFORTS? "As one whom his mother comforts, so will I comfort you."
+With regard to the first point, who comforts? "As one whom his mother comforts, so will I comfort you."
 
 The work of comforting His saints is not too low for God to be engaged in. It is true that He sometimes uses instruments, but all real comfort to a broken heart must come directly from God, Himself. He does not say, "I will send an angel to comfort you," but, "I will comfort you." Nor in the text is it said that the Christian minister shall comfort you. Alas, dear Brothers and Sisters, often what are we who preach the Word but broken cisterns that hold no water? But God says, "I will comfort you." And when He undertakes the work, then we become as conduit pipes that are full, even to bursting, with the drink that you require! Your soul shall be satisfied even out of poor earthen vessels. But it must be
 
@@ -34,7 +34,7 @@ It would not be well to close this point without remarking that God has been ple
 
 In the great bunch of keys in that good old Book, there is a key for every lock! And if it were not so, there are one or two promises like master keys which will fit all. Such a promise is the one in Isaiah 41:10, "Fear you not, for I am with you: be not dismayed; for I am your God." It will suit the youth and the gray-head. It will be satisfactory to you if you have to overcome difficulties or if you have to endure sufferings. In the calm or in the storm, lying in the trench or climbing the scaling ladder, that text will still be precious&mdash;"Fear you not, for I am with you: be not dismayed; for I am your God." We will fall back, then, upon the consolatory Truth that with God are the consolations of His children, that He is Himself responsible for their comfort, having engaged to be their Father! And so we may suck marrow out of our text, "As one whom his mother comforts, so will I comfort you."
 
-But now the second head is to be HOW GOD COMFORTS. "As one whom his mother comforts."
+But now the second head is to be how God comforts. "As one whom his mother comforts."
 
 This is a peculiarly delightful metaphor. A father can comfort, but I think he is not much at home in the work. When God speaks about His pity, He compares Himself to the father. "Like as a father pities his children, so the Lord pities them that fear Him." But when He speaks about comfort, He selects the mother. When I have seen the little ones sick, I have felt all the pity in the world for them, but I did not know how to set to work to comfort them&mdash;but a mother knows by instinct how to do it! There is placed in the mother's tender heart a power of sympathy and very soon she finds the word or gives the touch that will meet her darling's case and cheer its troubled soul. The father is awkward at it&mdash;our rougher, sterner nature hardly shines in the matter of consolation. But the mother can do it to perfection. How, then, does the mother comfort her child?
 
@@ -54,7 +54,7 @@ But, once more, a mother comforts all her life. "A mother is a mother all her li
 
 God will not cease to comfort His people! Perhaps there is a Brother who is passing through a very severe trial and he thinks he shall never be comforted again. Well, but your mother will not forsake you&mdash;and do you think God will? "But," says one, "you do not know my difficulty. It is a crushing one." My dear Friend, I know I do not know it, but your heavenly Father knows it. And do you suppose if an earthly mother sticks fast by her child, that He will leave you? Go to Him! His heart is as near to you, now, as when you were on the mountain rejoicing in the full sunshine of His love. The very shadow of a change is unknown to Him. Go to Him with confidence and humble faith and you shall find the text, true, "As one whom his mother comforts, so will I comfort you."
 
-Now I have just a little to say upon the third point, that is, WHERE GOD COMFORTS His people. The text
+Now I have just a little to say upon the third point, that is, where God comforts His people. The text
 
 says, "in Jerusalem."
 
@@ -96,7 +96,7 @@ To that end, I pray the Master to help all His servants. Pray for your ministers
 
 May God add His blessing and bring troubled sinners to look to Christ, and Christ shall have the glory! Amen.
 
-EXPOSITION BY C. H. SPURGEON: COLOSSIANS2.
+Exposition by C. H. Spurgeon: Colossians2.
 
 Verse 1. For I would that you knew what great conflict Ihave for you and for them at Laodicea, and for as many as have not seen my face in the flesh. Paul had not met these Colossian Christians, but he had heard of their faith, hope, and love&mdash;and he so desired their good that he had a continual care for them in his heart. He carried that care to God in prayer, yet he still bore them in loving remembrance. They were always on his heart as a sick child is always on the heart of its mother.
 
@@ -124,13 +124,11 @@ Buried with Him in baptism, wherein also you are risen with Him through the fait
 
 And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven all your trespasses. "You do not need to go to a 'priest' for pardon, for Christ has forgiven you all your
 
-trespasses. [See Sermons #2101, Volume 35&mdash;LIFE AND PARDON and #2605, Volume 45&mdash;DEATH AND ITS SENTENCE ABOLISHED.] You are so complete in Christ that confession to man and priestly absolution from man would be of no use to you."
+trespasses.  You are so complete in Christ that confession to man and priestly absolution from man would be of no use to you."
 
 Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to His Cross. "All the Mosaic ceremonies from which you were shut out as Gentiles, are abolished! Christ has driven a nail through them and fastened them up to His Cross." As sometimes a banker stamps a check when it is paid, so has Christ cut through the very heart of all Jewish ordinances by what He has done for His people.
 
-And having spoiled principalities and powers, He made a show of them openly, triumphing over them in it [See
-
-Sermon #273, Volume 5&mdash;CHRIST TRIUMPHANT.] Exhibiting them as His
+And having spoiled principalities and powers, He made a show of them openly, triumphing over them in it  Exhibiting them as His
 
 prisoners in a triumphal procession, as the victorious Roman generals did when they returned from war!
 

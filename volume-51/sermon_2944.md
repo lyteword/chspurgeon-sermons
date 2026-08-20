@@ -2,7 +2,7 @@
 
 "When the morning arose, then the angels urged Lot" Genesis 19:15.
 
-[This sermon was originally titled "Hastening Lot."]
+
 
 I WILL not spend even a minute in considering whether these were Divine persons veiled in angelic form, or whether they were actually angels. In either case, I would make the same remark and lead to the same practical result. Let us learn from these angels how to do our work. "Unto the angels has He not put in subjection the world to come, whereof we speak?" As a rule, they are not sent to be the means of saving men. They are not called to be teachers, or preachers, or pastors, but, on this occasion, they were sent to bring Lot out of Sodom&mdash;and we may take them as exemplars in our endeavors to win souls for Christ.
 

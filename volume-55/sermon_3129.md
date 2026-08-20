@@ -86,7 +86,7 @@ true and faithfu. Once, the Lord might have said, "Behold, I make all things," b
 
 And He said unto me, It is done. I am Alpha and Omega, the Beginning and the End. I will give unto him that is
 
-thirsty of the fountain of the water of life freely. [See Sermon #1459, Volume 26&mdash;GOOD NEWS FOR THIRSTY SOULS] Probably John did not expect to hear that sweet Gospel message just then. The Lord Jesus Christ was speaking of lofty themes, of worlds newly made&mdash;and yet in the very middle of it all He puts this gracious promise! Let this be a pattern to all of you who are preachers or teachers&mdash;no matter what your subject may be, a Gospel promise or invitation is always in place and in season. You may put it among the most golden sentences like a precious stone in a setting of pure gold and it will never be out of order, come when it may. Men hate God without the slightest reason for doing so and God loves men without the slightest reason&mdash;there is every reason why men should love God, and not hate Him&mdash;yet they have hated Him without a cause. And there is every reason why God should hate man
+thirsty of the fountain of the water of life freely.  Probably John did not expect to hear that sweet Gospel message just then. The Lord Jesus Christ was speaking of lofty themes, of worlds newly made&mdash;and yet in the very middle of it all He puts this gracious promise! Let this be a pattern to all of you who are preachers or teachers&mdash;no matter what your subject may be, a Gospel promise or invitation is always in place and in season. You may put it among the most golden sentences like a precious stone in a setting of pure gold and it will never be out of order, come when it may. Men hate God without the slightest reason for doing so and God loves men without the slightest reason&mdash;there is every reason why men should love God, and not hate Him&mdash;yet they have hated Him without a cause. And there is every reason why God should hate man
 
 and not love him&mdash;yet He loves us so much that He gave His only begotten Son to die, that whoever believes in Him may live forever!
 
@@ -120,7 +120,7 @@ And the twelve gates were twelve pearls; each individual gate was of pearl: and 
 
 22, 23. And I saw no temple therein: for the Lord God Almighty and the Lamb are the Temple of it. And the city had no need of the sun, neither of the moon, to shine in it: for the Glory of God did lighten it, and the Lamb is the Light
 
-thereo. [See Sermon #583, Volume 10&mdash;THE LAMB&mdash;THE LIGHT] Yes, and
+thereo.  Yes, and
 
 the glorified Church, herself, because of this Light, sheds such a bright light on all within her that all the saints rejoice in her light!
 

@@ -2,7 +2,7 @@
 
 "All things were created by Him and for Him." Colossians 1:16.
 
-THERE can be no mistake as to the Person concerning whom Paul is writing under the Inspiration of the Holy Spirit&mdash;it is Jesus of Nazareth, the Incarnate Son of God who was crucified on Calvary for, writing concerning the same Person in the fourteenth verse, the Apostle says, "In whom we have redemption through His blood, even the forgiveness of sins." It is, therefore, that Savior whose blood was shed for His people's redemption who is here declared to be the Creator of all things and by whom all things consist!
+There can be no mistake as to the Person concerning whom Paul is writing under the Inspiration of the Holy Spirit&mdash;it is Jesus of Nazareth, the Incarnate Son of God who was crucified on Calvary for, writing concerning the same Person in the fourteenth verse, the Apostle says, "In whom we have redemption through His blood, even the forgiveness of sins." It is, therefore, that Savior whose blood was shed for His people's redemption who is here declared to be the Creator of all things and by whom all things consist!
 
 The first verse of the Book of Genesis tells us that, "in the beginning God created the heavens and the earth," so someone may ask, "How do you reconcile that statement with Paul's declaration that all things were created by Christ and for Him?" No reconciliation is needed, for the two statements are identical, as Jesus is God, and "in Him dwells all the fullness of the Godhead bodily." Jesus said, "I and My Father are One," and so they are! We know not how it is, but the Father, the Son and the Holy Spirit are distinct Personalities, yet there are not three Gods, but only one, as the Apostle John writes, "There are three that bear record in Heaven, the Father, the Word and the Holy Spirit; and these Three are One." The one God of Abraham, Isaac and Jacob is the Father, Son and Spirit&mdash;Three in One and One in Three!
 
@@ -12,7 +12,7 @@ All-in-All.
 
 The text tells us that all things were created by Christ and for Him, so we will, first, consider Paul's statement. And, secondly, we will review the rejections arising from it.
 
-First, then, let us CONSIDER PAUL's STATEMENT&mdash;"All things were created by Him and for Him." So, first of all, Heaven, itself was created by and for Christ Jesus. Then there is such a place, as well as such a state, and of that place Jesus is the center! There is such a place, for Enoch is there. "Enoch walked with God: and he was not, for God took him." God took him bodily to some place&mdash;and that place is Heaven. Elijah is also there&mdash;the horses of fire and the chariots of fire took not merely his spirit, but the entire Elijah&mdash;and he is in Heaven. Our Lord Jesus Christ, who has gone back to Heaven, went there in His own body. When He passed into the skies, He went up into the heavenly places, as well as into the heavenly state&mdash;and there He lives at the right hand of God, even the Father, enthroned in the New Jerusalem, the Holy City of God&mdash;
+First, then, let us consider Paul's statement&mdash;"All things were created by Him and for Him." So, first of all, Heaven, itself was created by and for Christ Jesus. Then there is such a place, as well as such a state, and of that place Jesus is the center! There is such a place, for Enoch is there. "Enoch walked with God: and he was not, for God took him." God took him bodily to some place&mdash;and that place is Heaven. Elijah is also there&mdash;the horses of fire and the chariots of fire took not merely his spirit, but the entire Elijah&mdash;and he is in Heaven. Our Lord Jesus Christ, who has gone back to Heaven, went there in His own body. When He passed into the skies, He went up into the heavenly places, as well as into the heavenly state&mdash;and there He lives at the right hand of God, even the Father, enthroned in the New Jerusalem, the Holy City of God&mdash;
 
 > See how the Conqueror mounts aloft,   
 > And to His Father flies!   
@@ -71,7 +71,7 @@ Fly to the shelter of His Cross
 
 And find salvation there!'
 
-Now I must pass on briefly to REVIEW THE REFLECTIONS ARISING FROM THIS STATEMENT&mdash;"All things were created by Him and for Him."
+Now I must pass on briefly to review the reflections arising from this statement&mdash;"All things were created by Him and for Him."
 
 And the first clear reflection from this declaration is, then, Jesus is God. If all things were made by Him and for Him, how is it possible for us to get away from the conviction that He is, indeed, God? I will not attempt to argue about the matter, but whatever others may say or do, as for me, Jesus of Nazareth is my Lord and my God&mdash;and I will love and adore, and worship Him forever and ever!
 
@@ -102,9 +102,9 @@ He must reign. What power is there that can stand against Him who created all th
 
 Happy is he who is the lowliest page in the retinue of such a King! Happy is he who shall be privileged to sprinkle a few drops of water to lay the dust in the road over which our conquering King shall ride! Blessed is he who shall spread his garments in the way, or wave a palm branch in honor of the royal Victor in His triumphal procession! Happy shall he be, then, who has been laughed to scorn for Christ's sake! Or who has been lying in a dungeon till the moss has grown on his eyelids! Or who has been burned at the stake and his ashes cast to the four winds of Heaven because he would not deny his Lord! Oh to be wholly on His side, now, that we may be among His faithful followers on that Day! Here we are, O glorious Son of David! Take us and all that we have, and make us more than ever Yours from this time forward, and unto You shall be the glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-COLOSSIANS1.
+Colossians1.
 
 Verses 1, 2. Paul, an Apostle of Jesus Christ by the will of God, and Timothy, our brother, to the saints and faithful brethren in Christ which are at Colosse: Grace be unto you, and peace from God our Father and the Lord Jesus Christ Kindness is the very breath of Christianity, so the Apostle will not begin the subject matter of his letter until first of all he has breathed out a benediction upon those to whom he writes.
 
@@ -114,7 +114,7 @@ We give thanks to God and the Father of our Lord Jesus Christ, praying always fo
 
 7, 8. As you also learned ofEpaphra our dear fellow servant, who is for you a faithful minister of Christ; who also declared unto us your love in the Spirit. Epaphras told them of Paul's prayers for them and when he came back from Colosse, he told Paul of their great love in the Spirit.
 
-For this cause we, also, since the day we heard it, do not cease to pray for you and to desire that you might be filled with the knowledge of His will in all wisdom and spiritual understanding. [See Sermon #1742, Volume 29&mdash;spiritual knowledge AND ITS PRACTICAL RESULTS.] See, the Apostle asks even more
+For this cause we, also, since the day we heard it, do not cease to pray for you and to desire that you might be filled with the knowledge of His will in all wisdom and spiritual understanding.  See, the Apostle asks even more
 
 for them than faith, hope and love&mdash;that they "might be filled with the knowledge of His will in all wisdom and spiritual understanding." This shows what a valuable thing it is to know and understand the will of God!
 
@@ -124,13 +124,11 @@ for them than faith, hope and love&mdash;that they "might be filled with the kno
 
 15-17. Who is the image of the invisible God, the first-born of every creature: for by Him were all things created that are in Heaven, and that are in earth, visible and invisible, whether they are thrones, or dominions, or principalities, or powers: all things were created by Him and for Him: and He is before all things, and by Him all things consist How can anyone ever read this passage and yet say that Christ Jesus is only a Man? By what twisting of words can such language as this be applied to the most eminent Prophet or Apostle who ever lived? Surely He must be God by whom all things were created, and by whom all things consist! But Paul's next sentence is, to us, the sweetest of all&mdash;
 
-And He is the head of the body, the Church. [See Sermon #839, Volume 14&mdash;THE HEAD OF THE CHURCH.] He is joined by an indissoluble union to His people and is the Head of their glory, their wisdom and their strength!
+And He is the head of the body, the Church.  He is joined by an indissoluble union to His people and is the Head of their glory, their wisdom and their strength!
 
 Who is the beginning, the first-born from the dead; that in all things He might have the preeminence. Are we giving Him the preeminence in all things? That theology must be false which puts Jesus in the second place, or even lower than that! And that experience is a wrong one which does not put Christ always in the front. He must in all things always stand first!
 
-For it pleased the Father that in Him should all fullness dwell [See Sermons #978, Volume 17&mdash;all fullness in christ and
-
-#1169, Volume 20&mdash;THE FULLNESS OF CHRIST THE TREASURY OF THE SAINTS.]
+For it pleased the Father that in Him should all fullness dwell 
 
 That we might have to go to Him for it, it pleased the Father to make errands for us so as to take us to Christ and to thus make our very emptiness to minister to the Glory of Christ!
 
@@ -140,12 +138,10 @@ That we might have to go to Him for it, it pleased the Father to make errands fo
 
 And fill up that which is behind of the afflictions of Christ in my flesh for His body's sake, which is the Church. There is nothing "behind" as to the atoning efficacy of the sufferings of Christ, but there is much yet to be endured in order that all the elect may be brought to Christ. Some must suffer through their extraordinary labors in preaching the Gospel, others through bearing reproach for the Truth of God's sake&mdash;and Paul was glad to take in his mortal body, his share of the sufferings to be endured for the sake of Christ's Church&mdash;which is His mystical body.
 
-25-27. Of which I became a minister according to the stewardship from God which was given to me for you, to fulfill the Word of God, the mystery which has been hid from ages and from generations, but now is made manifest to His saints: to whom God wouldmake known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory [See Sermon #1720, Volume 29&mdash;CHRIST IN YOU.] This is the most blessed of all mysteries! I trust that many of us understand it&mdash;may the Holy Spirit reveal it to any who know it not!
+25-27. Of which I became a minister according to the stewardship from God which was given to me for you, to fulfill the Word of God, the mystery which has been hid from ages and from generations, but now is made manifest to His saints: to whom God wouldmake known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory  This is the most blessed of all mysteries! I trust that many of us understand it&mdash;may the Holy Spirit reveal it to any who know it not!
 
 Whom we preach. That is, Christ. It is not so much what we preach as whom we preach. We preach the Person of Christ&mdash;"whom we preach"&mdash;
 
-28, 29. Warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus: whereunto I also labor, striving according to His working, which works in me mightily. [See Sermon #914, Volume 16&mdash;
-
-WORK IN US AND WORK BY US.] There will never be any mighty work
+28, 29. Warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus: whereunto I also labor, striving according to His working, which works in me mightily.  There will never be any mighty work
 
 come from us unless there is first a mighty work in us&mdash;no man truly labors for souls unless the Holy Spirit has first worked mightily in him.

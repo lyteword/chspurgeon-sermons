@@ -24,7 +24,7 @@ The disciples also had not their Master with them. All the night when they were 
 
 And so we have in another point&mdash;because the Master was not with them, they caught nothing&mdash;but it cannot be said of us that we have taken nothing. I do not know that it would be right for us to try to compute how many souls have professed to have found the Savior during the years in which we have worked together, but I believe, Brothers, we may say this to the Glory of God and to the honor of the simple Gospel that we have preached&mdash;the number who have joined this Church, alone, can only be spoken of by thousands. And if we were to speak of tens of thousands, yes, and many tens of thousands who here and elsewhere have found the Savior under the Word preached by us, we would not exaggerate in the least. We put the crown upon the head of our Master, but what joy we feel that it has been so! Suppose that He had left us? Vain would it have been for us to preach the Word, even with earnestness, for earnestness, alone, will not convert souls. There must be the Presence of Jesus to bless men&mdash;and it has been with us, year after year, even unto this day,
 
-glory be to His holy name! [The years referred to number approximately 20.]
+glory be to His holy name! 
 
 In these points, then, our case is dissimilar to that of the Apostles when they were toiling all the night and had taken nothing.
 
@@ -93,7 +93,7 @@ As soon, then, as they were come to land, they saw a fire of coals there, and fi
 
 10, 11. Jesus said unto them, Bring of the fish which you have now caught Simon Peter went up and drew the net to land full of great fishes, an hundred and fifty and three and for all there were so many, yet the net was not broken. And there lay those 153 big fishes on the beach. Christ had no need of them but perhaps He condescended to use some of them for that morning meal, as He said to Peter, "Bring of the fish which you have now caught."
 
-Jesus said unto them, Come and dine. [See Sermon #2072, Volume 35&mdash;BREAKFAST WITH JESUS.] Or, "Come and break your fast after your long night's toil." How they must have opened their eyes to see the fish ready cooked for them to eat!
+Jesus said unto them, Come and dine.  Or, "Come and break your fast after your long night's toil." How they must have opened their eyes to see the fish ready cooked for them to eat!
 
 And none of the disciples dared ask Him, Who are You? knowing that it was the Lord. "It was the Lord"&mdash;"the Lord" who had asked them if they had any food, "the Lord" who had filled the net which had previously been empty, "the Lord" who had given them His own fish from His own fire that they might have breakfast with Him! O good Master, if we have been toiling all week and have caught nothing, call us now to come and eat of that which You have, Yourself, prepared!
 

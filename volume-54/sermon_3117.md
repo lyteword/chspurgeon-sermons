@@ -2,7 +2,7 @@
 
 "And Elisha prayed, and said, LORD, I pray you, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire round about Elisha." 2 Kings 6:17.
 
-[Another Sermon by Mr. Spurgeon, on the same text, is #2215, Volume 37&mdash;YOUNG MAN! A PRAYER FOR YOU]
+
 
 THE Believer in Christ sees much more than any other man sees. There is a proverb which says, "Seeing is believing," but that is not true, for there are many things that we see, which, if we are sensible persons, we shall notbelieve, since our eyes are very apt, indeed, to be deceived, and optical illusions are very common. If you turn the proverb around the other way and say, "Believing is seeing," you will often find it come true. The man who has believed has "the evidence of things not seen" as yet. He is like Moses who is described as "seeing Him who is invisible." Faith is to a man like new eyes&mdash;eyes with a far wider range of vision than natural eyes ever have&mdash;eyes which see the Truths of God, which natural eyes often do not&mdash;eyes which wax not dim, but which, as age increases, grow yet more bright and farseeing! Blessed is the man who has the eyesight of faith! Elisha had it and, therefore, when he saw the hosts of Syria, with their horses and chariots encompassing the city of Dothan, he also saw the angelic hosts with their horses and chariots of fire which God had sent to guard him from the Syrians.
 
@@ -108,7 +108,7 @@ appointed by God as inspectors of weights and measures, their judgments upon us 
 
 We also need to have our eyes opened as to the great Doctrines of the Gospel. I meet with some who mix up the Covenant of Works with the Covenant of Grace in a most remarkable manner and talk to the children of the free woman as if they were children of the bondwoman and make salvation to depend partly upon self and partly upon Christ&mdash;which would be a salvation neither worth preaching nor believing! If we have begun in the Spirit, let us not seek to be made perfect in the flesh. If salvation is of Grace, then it is not of works&mdash;otherwise Grace is no more Grace! But if it is of works, let us say so, for then it cannot be of Grace&mdash;otherwise work is no more work. A clear line of distinction between merit and mercy, between desert and Sovereign Grace, must always be drawn&mdash;and he who has cried to the Lord, "Open You my eyes," until he has had his eyes opened concerning that distinction, has much reason to bless and thank God. Oh, for a clear testimony, throughout all our Churches, to the grand fundamental Doctrines of Grace! Pray that you may give it yourself and that you may hear it every day.
 
-We also need to have our eyes opened with regard to Providence. [See Sermon #3114, Volume 54&mdash;god's providence; What blind eyes we often have with regard to that! We cry,
+We also need to have our eyes opened with regard to Providence. 
 
 with poor old Jacob, "All these things are against me," at the very moment when they are all for us! We cannot see how a certain thing can be right though it would be impossible for us to prove that it was wrong! We are often unable to find any promise to sustain us even though there are thousands of promises stored up for us in God's Word!
 

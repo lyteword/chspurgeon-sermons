@@ -74,7 +74,7 @@ But, "hope," is the word for tonight, even for the nine! May God be pleased to g
 
 EXPOSITION BY C. H. SPURGEON:* ACTS27:11-44.
 
-*[This Exposition belongs to Sermon #2952, Volume 52&mdash;THE CHURCH&mdash;THE WORLD's HOPE.]
+*
 
 Paul had advised the captain not to set sail for a while.
 

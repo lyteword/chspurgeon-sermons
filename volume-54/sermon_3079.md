@@ -93,7 +93,7 @@ Verses 1, 2. And it came to pass, when David and his men were come to Ziklag on 
 
 6, Because the soul of all thepeople was grieved, every man for his sons and for his daughters: but David encouraged
 
-himself in the LORD his God [See Sermon #1606, Volume 27&mdash;ZIKLAG&mdash;OR, DAVID ENCOURAGING HIMSELF IN HIS GOD] Blessed faith that finds a secure shelter even amid the ashes of his burned home, and when even his own followers have turned against him!
+himself in the LORD his God  Blessed faith that finds a secure shelter even amid the ashes of his burned home, and when even his own followers have turned against him!
 
 7, 8. And David said to Abiathar the priest, Ahimelech's son, I pray you, bring me here the ephod. And Abiathar brought there the ephod to David. And David enquired of the LORD, saying, Shall I pursue after this troop? Shall I overtake them? And He answered him, Pursue: for you shall surely overtake them, and without fail recover all The Hebrew runs, "Pursue, for overtaking you shall overtake, and recovering you shall recover." That is to say, the work shall be done perfectly&mdash;and so it was.
 
@@ -101,7 +101,7 @@ himself in the LORD his God [See Sermon #1606, Volume 27&mdash;ZIKLAG&mdash;OR, 
 
 18-20. And David recovered all that the Amalekites had carried away: and David rescued his two wives. And there was nothing lacking to them, neither small nor great, neither sons nor daughters, neither spoil, nor anything that they had taken to them: David recovered all And David took all the flocks and the herds, which they drove before those other
 
-cattle, and said, This is David's spoil [See Sermon #2017, Volume 34&mdash;DAVID's SPOIL] That which was over and above what had been taken from Ziklag was very properly appropriated by David. I thought, as I read that, "David recovered all," how truly it can be said that the greater Son of David has recovered all. All that was lost by sin, our glorious and victorious Captain has recovered! What, then, shall be His spoil?
+cattle, and said, This is David's spoil  That which was over and above what had been taken from Ziklag was very properly appropriated by David. I thought, as I read that, "David recovered all," how truly it can be said that the greater Son of David has recovered all. All that was lost by sin, our glorious and victorious Captain has recovered! What, then, shall be His spoil?
 
 It was foretold that "He shall divide the spoil with the strong." Let your hearts and mine, and all we are, and all we have, be yielded up to Him&mdash;and let us say of it all, "This is Jesus' spoil, and to Him be Glory evermore!"
 

@@ -2,7 +2,7 @@
 
 "And the earth was without form, and void; and darkness was upon the face of the deep. And the Spirit of God moved upon the face of the waters." Genesis 1:2.
 
-[See Sermons #660, Volume 11&mdash;LIGHT, NATURAL AND SPIRITUAL and #1252, Volume 21&mdash;THE FIRST DAY OF CREATION.]
+
 
 WE cannot tell how the Spirit of God brooded over that vast watery mass. It is a mystery, but it is also a fact. And it is here revealed as having happened at the very commencement of the Creation, even before God had said, "Let there be light." The first Divine act in fitting up this planet for the habitation of man was for the Spirit of God to move upon the face of the waters. Till that time all was formless, empty, out of order and in confusion. In a word, it was chaos. And to make it into that thing of beauty which the world is at the present moment, even though it is a fallen world, it was necessary that the movement of the Spirit of God should take place upon it. How the Spirit works upon matter, we do not know, but we do know that God, who is a Spirit, created matter, fashioned matter and sustained matter&mdash;and that He will yet deliver matter from the stain of sin which is upon it. We shall see new heavens and a new earth in which materialism itself shall be lifted up from its present state of ruin and shall glorify God! But without the Spirit of God, the materialism of this world would have remained forever in chaos. Only as the Spirit came, did the work of Creation begin.
 
@@ -57,7 +57,7 @@ Has not the Spirit of God often dealt so with you experienced saints who know wh
 
 Do not despair, dear Friend&mdash;look again to the Cross&mdash;begin again where you began before! Remember the simple
 
-story that I told you long ago of poor Jack the Huckster, [See Sermon #47, Volume 1&mdash;CHRIST's PRAYER FOR HIS PEOPLE.] who used to sing&mdash;
+story that I told you long ago of poor Jack the Huckster,  who used to sing&mdash;
 
 "I'm a poor sinner, and nothing at all, But Jesus Christ is my All-in-All."
 

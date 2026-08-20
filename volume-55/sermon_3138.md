@@ -2,7 +2,7 @@
 
 "And they stripped Him, and put on Him a scarlet robe. And when they had platted a crown of thorns, they put it upon His head, and a reed in His right hand: and they bowed the knee before Him, and mocked Him, saying, Hail, King of the Jews! And they spit upon Him, and took the reed, and smote Him on the head." Matthew 27:28-30.
 
-[There are two other Sermons by Mr. Spurgeon on verse 29&mdash;Sermons #1168, Volume 20&mdash;THE CROWN OF THORNS and #2824, Volume 49&mdash; MOCKED OF THE SOLDIERS.]
+
 
 I AM certain that I would fail if I were to attempt to preach a sermon that should be worthy of such a text as this. I shall make no such attempt but, during the few minutes available for the address of this evening, I shall try to set forth our Lord and Master, Jesus Christ, as He was when&mdash;
 
@@ -64,7 +64,7 @@ EXPOSITION BY C. H. SPURGEON: ACTS28.
 
 Verses 1-3. And when they were escaped, then they knew that the island was called Melita. And the barbarous people showed us no little kindness: for they kindled a fire, and received us, every one, because of the present rain and
 
-because of the cold. [See Sermon #3136, Volume 55&mdash;LESSONS FROM THE MALTA FIRE.] And when Paul had gathered a bundle of sticks. It must have been a fine sight to see the great Apostle of the Gentiles gathering a bundle of sticks to put on the fire! But the men who can do great things are usually the men who do not disdain to do little things.
+because of the cold.  And when Paul had gathered a bundle of sticks. It must have been a fine sight to see the great Apostle of the Gentiles gathering a bundle of sticks to put on the fire! But the men who can do great things are usually the men who do not disdain to do little things.
 
 3-5. And laid them on the fire, there came a viper out of the heat and fastened on his hand. And when the barbarians saw the venomous beast hang on his hand, they said among themselves, No doubt this man is a murderer, whom, though he has escaped the sea, yet vengeance suffers not to live. And he shook off the beast into the fire, and felt no har . Was not this a fulfillment of the Master's words concerning the signs following faith in Him? "They shall take up serpents." Whether this viper had bitten Paul so as to really fill his veins with venom, we do not know&mdash;but it is an equal miracle whether it had done so or not. Whether the sting had already poisoned him or not, his life was preserved, and that was sufficient.
 
@@ -98,7 +98,7 @@ Paul called the chief of the Jews together. There are said to have been seven sy
 
 speak against it, they will be likely to come and hear it&mdash;and some of them will be almost certain to receive it. The Truth never spreads so fast as when men oppose it!
 
-And when theey had appointed him a day, there came many to him into his lodging; to whom he expounded and testified of the Kingdom of God, persuading them concerning Jesus, [See Sermon #1970, Volume 33&mdash;loving persuasion.] both out of the law of Moses, and out of the Prophets, from morning till evening. It was a long and blessed day, a grand opportunity for Paul thus to be able, hour after hour, to expound the Gospel. But see the result&mdash;the result which always seems to follow the faithful preaching of the Truth.
+And when theey had appointed him a day, there came many to him into his lodging; to whom he expounded and testified of the Kingdom of God, persuading them concerning Jesus,  both out of the law of Moses, and out of the Prophets, from morning till evening. It was a long and blessed day, a grand opportunity for Paul thus to be able, hour after hour, to expound the Gospel. But see the result&mdash;the result which always seems to follow the faithful preaching of the Truth.
 
 STOCK-TAKING&mdash;Read/download the entire sermon, free of charge, at http://www.spurgeongems.org.] And when they agreed not among themselves,
 

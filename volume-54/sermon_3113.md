@@ -12,11 +12,11 @@ You observe that it speaks of prisoners who are groaning and of those who are ap
 
 not appear to him that the preacher had much, if any sympathy with those who were of a sorrowful spirit, like Hannah,
 
-[See Sermon #1515, Volume 26&mdash;a WOMAN OF a SORROWFUL SPIRIT] or those
+ or those
 
 who were in an afflicted and depressed condition who could not rejoice as he could. I do not think that charge could be truthfully brought against me. If it could, I would be sorry, for where the Spirit of God rests upon any man at all after the manner in which it rested upon Christ, that man will repeat, in his measure, what his Lord could say in the fullest
 
-possible sense, "He has sent Me to heal the brokenhearted, [See Sermon #1604, Volume 27&mdash;HEART DISEASE CURABLE] to preach deliverance to the captives, [See Sermon #2371, Volume 40&mdash;FREEDOM AT ONCE AND FOREVER] and recovering of sight to the blind, to set at
+possible sense, "He has sent Me to heal the brokenhearted,  to preach deliverance to the captives,  and recovering of sight to the blind, to set at
 
 liberty they who are bruised, to preach the acceptable year of the Lord." The ministry that God sends, though it will be a ministry of warning and threats to the ungodly, will be a ministry of consolation to those who are sorrowing over their sins and seeking Divine deliverance from them! So you who are the sons and daughters of joy will pardon me if there should seem to be less than usual for you in my present discourse. When someone is sick, nobody blames the physician for giving his main attention to the invalid of the house, nor finds fault with the nurse for her assiduous attentions to the poor suffering one. There are many sorrows, Brothers and Sisters, in this world, and there are many sorrows even in the Church of God! And yet, for my part, I see much for which I can thank God, especially when I look upon the people of God. Then I say, with Moses, "Happy are you, O Israel: who is like unto you, O people saved by the Lord?" Yet there are still many sons and daughters of affliction and there are many trials and tribulations for each of us to pass through before we reach that land where sorrow is unknown.
 
@@ -89,11 +89,11 @@ But You, O LORD, shall endure forever; and Your remembrance unto all generations
 
 13,14. You shall arise, and have mercy upon Zion: for the time to favor her, yes, the set time is come. For Your
 
-servants take pleasure in her stones, and favor the dust thereof [See Sermon #2576, Volume 44&mdash;ZION's PROSPERITY] They delight in her so greatly that even her rubbish is dear to them. It was a good omen for Jerusalem when the captives began to feel a homesickness and began to sigh after her.
+servants take pleasure in her stones, and favor the dust thereof  They delight in her so greatly that even her rubbish is dear to them. It was a good omen for Jerusalem when the captives began to feel a homesickness and began to sigh after her.
 
 15-17. So the heathen shall fear the name of the LORD, and all the kings of the earth Your Glory. When the LORD shall build up Zion, He shall appear in His Glory. He will regard the prayer of the destitute, and not despise their prayer
 
-[See Sermon #1141, Volume 19&mdash;GOOD NEWS FOR THE DESTITUTE] He will not
+ He will not
 
 treat their pleas with contempt. He will incline His ears to hear, His heart to consider and His hands to help.
 

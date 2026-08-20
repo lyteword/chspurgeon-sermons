@@ -42,12 +42,12 @@ FORGIVENESS. Notice what they say&mdash;"That person has done me grievous wrong.
 
 It is the offended One, the grievously offended One, who comes to the offender and says, "Let us be friends. I will blot out this offense, I will remove this sin. Come to Me. Accept the reconciliation I am prepared to give." I feel half inclined to stop here and to say, "Let us sing, again, the last verse of that grand hymn that we sang before prayer, and roll out the refrain in full thunder of grateful thanksgiving&mdash;
 
-> 'Oh may this strange, this matchless Grace,   
-> This God-like miracle of love,   
-> Fill the wide earth with grateful praise,   
-> And all the angelic choirs abo ve!   
-> Who is pardoning God like Thee?   
-> Or who has Grace so rich and free?'   
+> 'Oh may this strange, this matchless Grace, 
+> This God-like miracle of love, 
+> Fill the wide earth with grateful praise, 
+> And all the angelic choirs abo ve! 
+> Who is pardoning God like Thee? 
+> Or who has Grace so rich and free?' 
 
 It is never the sinner who wants to be reconciled first. It is always God, in the freeness of His Grace, who comes to the sinner&mdash;no sinner can ever be premature with God! If you are anxious to be reconciled to God, it is He who has given you that anxiety. It is His own infinite Grace that has begun to work in you to will and to do of His own good pleasure, for here is seen the superiority of the Godhead to the highest and the kindest manhood&mdash;that the Lord begins the work of reconciliation by Himself&mdash;seeking out those who have offended against Him!
 

@@ -2,7 +2,7 @@
 
 "We love Him, because He first loved us." 1 John 4:19.
 
-THIS morning, [Sermon #1553, Volume 26&mdash;FAITH WORKING BY LOVE]
+THIS morning, 
 
 those of us who were here meditated upon the connection between faith and love, so I thought we had better pursue the same subject somewhat further, hoping that we might still receive Divine instruction upon that important theme.
 

@@ -70,7 +70,7 @@ EXPOSITION BY C. H. SPURGEON:
 
 JOHN 9.
 
-[Regular readers of the Sermons will probably notice that this Exposition was given by MR. SPURGEON before he delivered the discourse published last week [Sermon #2667, Volume 46].
+.
 
 John 9:1-2. And as Jesuspassed by, He saw a man who was blind from his birth, AndHis disciples askedHim, saying, Master, who did sin, this man, or his parents, that he was born blind? The procedure of these disciples is very much like that of many people in these days&mdash;they are much more ready to ask questions about sufferers than they are to sympathize with them. If the hearts of the disciples had been in a right condition when they saw this blind man, they would have said, "Lord, cannot this poor man's eyes be opened?" But, instead of talking like that, they were full of idle curiosity which prompted them to raise metaphysical difficulties and to ask foolish questions. So they wanted to know how it was that the man came to be born blind. Was it in consequence of some sin on the part of his parents, or through some sin of his own in a previous state of existence, (for some of them seem to have had even that foolish notion), or was it because of some sin of his which God foresaw that he would commit and, therefore, laid this affliction upon him from the hour of his birth?
 

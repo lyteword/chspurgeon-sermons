@@ -46,7 +46,7 @@ You lame ones, fear not&mdash;you will not be cast out! Two snails entered the a
 
 Again, backsliders are lame. There are Christians to be found who believe that it is possible to fall from a state of Grace. Here I would speak cautiously. God's people cannot fall finally&mdash;but they can fall a long way. When a Christian falls, it is no light matter. I hear some talking of falling and getting up again, as if it were nothing. But let them turn to
 
-Hebrews 6:4 -6. [See Sermon #75, Volume 2&mdash;FINAL PERSEVERANCE.] But
+Hebrews 6:4 -6.  But
 
 we will rejoice that&mdash;
 
@@ -76,7 +76,7 @@ This is what we ask you tonight to support. Jesus Christ stands at the door and 
 
 I have to appeal so often, and am followed so much by my own people, that I have not the face to ask you for anything tonight, so Christ shall ask, instead, and I will ask next time. Remember the poor! Take care of the blind! EXPOSITION BY C. H. SPURGEON: MATTHEW9:27-35;20:29-34.
 
-[The first page of the preceding Sermon shows that it was delivered in the year 1855, before the beloved preacher had come of age. The Expositions given by Mr. Spurgeon at that early period were not reported, as they were in the later years ofhis ministry. Consequently, two passages relating to Christ's healing of the blind have been selected from The Gospel of the Kingdom, the popular Exposition of the Gospel according to Matthew which was being prepared by Mr. Spurgeon almost up to the time of his Home-going in January, 1892. Readers will therefore have the opportunity of comparing the messages left on record by him near the beginning and near the close of his long and prosperous London pastorate.]
+
 
 Matthew 9:27. And when Jesus departed from there, two blind men followed Him, crying, and saying, You Son of David, have mercy on us! No sooner does Jesus move, than fresh candidates for His bounty appear! The blind seek sight from Him. Two sightless men had become companions in affliction&mdash;they may have been father and son. They were in downright earnest, for they "followed Him, crying, and saying, Have mercy on us." Persevering, vehement, yet intelligent was their appeal. They were of one mind in reference to Jesus and, therefore, they went one way and used one prayer, to one and the same Person. Our Lord is here called by His royal name&mdash;" You Son of David." Even the blind could see that He was a king's son! As Son of David, He is entreated to show mercy and act according to His royal nature. It is mercy which gives us our faculties and mercy alone can restore them. This prayer suits us when we perceive our own darkness of mind. When we cannot see our way into Truth, let us appeal to the Lord for gracious instruction, always remembering that we have no claim except that which originates in His mercy.
 

@@ -2,13 +2,13 @@
 
 "By the Grace of God I am what I am." 1 Corinthians 15:10.
 
-[Another Sermon by Mr. Spurgeon on the same passage is #2833, Volume 49&mdash;LESSONS ON DIVINE GRACE]
+
 
 IF you will read the context of this passage, you will find that these words occur in one of Paul's digressions, or parenthesis. He was a writer who very frequently went off at a tangent&mdash;he often left the subject on which he was writing, turned his thoughts in quite another direction&mdash;and then came back and went on with the subject which he had left for a while. In this respect, I have often, in my own mind, likened the Apostle Paul to Samson. When he was on the road to Timnah with his father and mother, he turned aside to slay the lion and afterwards to find the honey in the carcass. And each time he came back to his parents, just as if nothing had happened. So the Apostle Paul often turns aside from some grand argument upon which he is engaged and says something very valuable and important upon quite another topic&mdash;and then comes back again and calmly and deliberately goes on with his argument!
 
 There are some kinds of parenthesis which we can always excuse and, indeed, commend. For instance, the parenthesis of prayer. When we are engaged in any duty, it will not delay us&mdash;really we shall make all the better speed&mdash;if we pause for a while to pray. I like to think of the Apostle Paul, while he was writing that grand Epistle to the Ephesians, turning aside from his main argument to offer that great prayer, "For this cause I bow my knees unto the Father of our Lord Jesus Christ, of whom the whole family in Heaven and earth is named, that He would grant you, according to the riches of His Glory, to be strengthened with might by His Spirit in the inner man; that Christ may dwell in your hearts by faith; that you, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passes knowledge, that you might be filled with all the
 
-fullness of God." [See Sermon #707, Volume 12&mdash;HEAVENLY GEOMETRY] His
+fullness of God."  His
 
 argument would not suffer in the least&mdash;indeed it would be all the stronger for that little interval of prayer! At another time, it is very sweet to see how he pauses, after recording the Lord's abundant mercy to him, to write that notable doxology, "Now unto the King eternal, immortal, invisible, the only wise God, be honor and Glory forever and ever. Amen." Such parenthesis of prayer and praise must be acceptable to the Most High.
 
