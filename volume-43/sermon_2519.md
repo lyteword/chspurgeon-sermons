@@ -66,7 +66,7 @@ HYMNS FROM "OUR OWN HYMN BOOK" &mdash;145 (PART 1), 978, 977.
 
 EXPOSITION BY C. H. SPURGEON: PSALM145.
 
-I am going to preach about prayer, [the exposition was always at the beginning of the service] so we will read "David's Psalm of Praise." Thus we shall have two parts of true worship.
+I am going to preach about prayer,   so we will read "David's Psalm of Praise." Thus we shall have two parts of true worship.
 
 Verses 1, 2. I will extol You, my God, O king; and I will bless Your name forever and ever Every day will I bless You; and I will praise Your name forever and ever Notice how long David expected to praise God. He was going to praise God forever&mdash;and then after that, "forever and ever." "'Every day will I bless You'&mdash;that is, when I do not seem to be partaking of any choice temporal blessing, I will still bless You. When I sit like Job on the dunghill, 'every day will I bless You; and I will praise Your name'&mdash;Your Character, all that has to do with You, 'forever and ever.'" The first two verses are the preface of the Psalm. Now the Psalmist begins his music.
 
