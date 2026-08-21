@@ -83,7 +83,7 @@ Our Lord proved how He entered into the sorrowful state of things by first sayin
 
 When they stood quite still, there was a hush. The disciples stood around the Lord, the mourners surrounded the widow and the two crowds faced each other. There was a little space and Jesus and the dead man were in the center. The widow pushed away her veil and gazing through her tears wondered what was going on. The Jews who came out of the city halted as the bearers had done. Hush! Hush! What will HE do? In that deep silence the Lord heard the unspoken prayers of that widow woman. I doubt not that her soul began to whisper, half in hope and half in fear&mdash;"Oh, that He would raise my son!"
 
-At any rate, Jesus heard the flutter of the wings of desire if not of faith. Surely her eyes were speaking as she gazed on Jesus, who had so suddenly appeared. Here let us be as quiet as the scene before us. Let us be hushed for a minute and pray God to raise dead souls at this time. [Here followed a pause, much silent prayer and many tears.]
+At any rate, Jesus heard the flutter of the wings of desire if not of faith. Surely her eyes were speaking as she gazed on Jesus, who had so suddenly appeared. Here let us be as quiet as the scene before us. Let us be hushed for a minute and pray God to raise dead souls at this time. 
 
 That hush was not long, for speedily the Great Quickener entered upon His gracious work. This is our third point&mdash; JESUS IS ABLE TO WORK THE MIRACLE OF LIFE-GIVING.
 
