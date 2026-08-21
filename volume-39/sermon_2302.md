@@ -94,7 +94,7 @@ And He said unto them, Take heed, and beware of covetousness: for a man's life c
 
 18-20. And he said, This will I do: I will pull down my barns and build greater; and there will I bestow all my fruits and my goods. And I will say to my soul, Soul, you have much goods laid up for many years; take your ease, eat, drink, and be merry. But God said unto him, You fool. Other men said of him, "This is a wise man. He minds the main chance. He is a fellow plentifully endowed with good sense and prudence." But God said unto Him, "You fool."
 
-This night your soul shall be required of you. I should like you to set that up as the counter picture to the one that we had this morning, "Today shall you be with Me in Paradise." [Sermon #2078, Volume 35&mdash;The Believing Thief.] That was said by Christ to the penitent thief, but to this impenitent rich man, God said, "This night your soul shall be required of you."
+This night your soul shall be required of you. I should like you to set that up as the counter picture to the one that we had this morning, "Today shall you be with Me in Paradise."  That was said by Christ to the penitent thief, but to this impenitent rich man, God said, "This night your soul shall be required of you."
 
 20, 21. Then whose shall those things be, which you have provided? So is he that lays up treasure for himself, and is not rich toward God. "He that lays up treasure for himself." That was the chief point of this man's wrong-doing&mdash;his selfishness. His charity began at home and ended there. He lived only for himself.
 
