@@ -1,6 +1,7 @@
 # Sermon 3125 | Fear of Death
 
-"And deliver them who through fear of death were all their lifetime subject to bondage." Hebrews 2:15.
+> And deliver them who through fear of death were all their lifetime subject to bondage.  
+> Hebrews 2:15
 
 It is a very natural thing that man should fear to die, for man was not originally created to die. When Adam and Eve were first placed in the Garden of Eden, they were in such a condition that they might have remained there for a myriad years if they had kept their integrity. There was no reason why unfallen man should die&mdash;but now that we have sinned, the seeds of corruption are in this flesh of ours&mdash;and it is appointed unto men once to die. Yet, as if the body knew that it was not according to the first decree of Heaven that it should go to the earth and to the worms, it has a natural reluctance to return to its last bed. And this fear of death, so far as it is natural, is not wrong.
 
@@ -16,19 +17,15 @@ We greatly glorify God when we can say with Job, "Though He slay me, yet will I 
 
 The Christian who contemplates death with joy is a living sermon! He is a better defense of the Gospel than all the works that Butler and Paley and the other writers of Christian evidences have ever been able to compile. Therefore, dear Friends, the Church of Christ loses this defense and the world loses this evidence when we are troubled by the fear of death. This fear ought not to be found in Christians, but if it ever is, they ought to strive against it until they overcome it&mdash;
 
-" Why should we start, or fear to die?
+> Why should we start, or fear to die?  
+> What timorous worms we mortals are!  
+> Death is the gate of endless joy,  
+> And yet we dread to enter there?  
+> The pains, the groans, the dying strife  
+> Frighten our approaching souls away-Still we shrink back again to a life,  
+> Fond of our prison and our clay.  
 
-What timorous worms we mortals are!
-
-Death is the gate of endless joy,
-
-And yet we dread to enter there?
-
-The pains, the groans, the dying strife
-
-Frighten our approaching souls away-Still we shrink back again to a life,
-
-Fond of our prison and our clay." "How are we to get rid of this fear?" asks one. Well, let us never try to get rid of it, as some do, by forgetting all about death! That would be to live as the brutes that perish! They live their little day here without any thought beyond the present. The ox and the sheep go to the slaughterhouse without the power to look beyond the present life. I would not like to obtain peace of mind by descending to the level of those "dumb, driven cattle." Yet there are many men whose only peace arises from thoughtlessness and that is a sorry peace which cannot endure contemplation and consideration. Why, we know men who are bold enough in company and who can even blaspheme God&mdash;but set them down in a room by themselves, compel them to think in solitude even for a single hour&mdash;and you could not condemn them to a greater misery! They cannot bear the idea of parting with their present joys. Venturing into another world seems, to them, such a hazardous enterprise that they forget all about it and shut their eyes to all thoughts beyond this life!
+"How are we to get rid of this fear?" asks one. Well, let us never try to get rid of it, as some do, by forgetting all about death! That would be to live as the brutes that perish! They live their little day here without any thought beyond the present. The ox and the sheep go to the slaughterhouse without the power to look beyond the present life. I would not like to obtain peace of mind by descending to the level of those "dumb, driven cattle." Yet there are many men whose only peace arises from thoughtlessness and that is a sorry peace which cannot endure contemplation and consideration. Why, we know men who are bold enough in company and who can even blaspheme God&mdash;but set them down in a room by themselves, compel them to think in solitude even for a single hour&mdash;and you could not condemn them to a greater misery! They cannot bear the idea of parting with their present joys. Venturing into another world seems, to them, such a hazardous enterprise that they forget all about it and shut their eyes to all thoughts beyond this life!
 
 It is not in that way that Christians seek to overcome their fear of death. They are thoughtful and they wish to always ponder, to consider and to judge concerning the future as well as the present. They desire to look beyond this mortal state. They ask for brighter vision and clearer eyesight and do not need to shut their eyes to the future, whatever it may have in store for them!
 
@@ -38,35 +35,25 @@ First, then, where shall we look to be delivered from the fear of death?
 
 The answer is, Beloved, that you must look for that where you are bound to look for everything, namely, to the Lord Jesus Christ, for there is no true deliverance from the fear of death except by looking unto Him whose death is the death of death! The verse before our text suggests this when it tells us that Jesus Christ became Man, "that through death He might destroy him that had the power of death, that is, the devil; and deliver them who, through fear of death, were all their lifetime subject to bondage."
 
-How does Christ take away from us the fear of death? He does it, first, by taking away from us the sin which is the sting of death. To die forgiven, "accepted in the Beloved," is not really to die, but to depart out of this world unto the Father! Unforgiven sin is that which makes it hard to lay the head upon the dying pillow. But when sin is forgiven and we know that it is and we have perfect peace with God, we can even longfor that last evening of life to come that we may undress and sleep in Jesus! Be sure, Beloved, that you are forgiven&mdash;"make your calling and election sure." Know for a certainty that Jesus Christ's words apply to you, "Verily, verily, I say unto you, he that believes on Me has everlasting life." Rest completely upon that Sacrifice which He once offered upon the Cross when He made a full atonement for all
+How does Christ take away from us the fear of death? He does it, first, by taking away from us the sin which is the sting of death. To die forgiven, "accepted in the Beloved," is not really to die, but to depart out of this world unto the Father! Unforgiven sin is that which makes it hard to lay the head upon the dying pillow. But when sin is forgiven and we know that it is and we have perfect peace with God, we can even longfor that last evening of life to come that we may undress and sleep in Jesus! Be sure, Beloved, that you are forgiven&mdash;"make your calling and election sure." Know for a certainty that Jesus Christ's words apply to you, "Verily, verily, I say unto you, he that believes on Me has everlasting life." Rest completely upon that Sacrifice which He once offered upon the Cross when He made a full atonement for all who believe an Him! Understand that He has washed you from your sins in His blood and made you kings and priests unto God&mdash;and then I do not see how the fear of death can live in you any longer!&mdash;
 
-who believe an Him! Understand that He has washed you from your sins in His blood and made you kings and priests unto God&mdash;and then I do not see how the fear of death can live in you any longer!&mdash;
+> If sin is pardoned, Im secure!  
+> Death has no sting beside.  
+> The Law gives sin its damning power,  
+> But Christ, my Ransom, died.  
 
-"If sin is pardoned, Im secure!
+Next, Christ has delivered you from the fear of death by changing the very character of death, itself You know what He said to Martha, "Whoever lives and believes in Me shall never die." And Believers never do die in the sense in which others die. They die in order to endure the penalty of sin, but for us, that penalty was borne by Christ! All our iniquities were laid upon Him and all the penalty of them was borne by Him. Death to the Believer is no penalty&mdash;it is a development from this time state to another and a higher one&mdash;a breaking of the shell that now confines us! It is a snapping of the cable that holds the vessel to the shore; a severing of the chain that holds the eagle to the rock. Death releases us so that we may soar away to that land of light and love where Jesus is, as John Newton sings&mdash;
 
-Death has no sting beside.
+> In vain my fancy strives to paint  
+> The moment after death,  
+> The glories that surround the saint  
+> When yielding up his breath.  
+> One gentle sigh the fetter breaks!  
+> We scarce can say,' They're gone!  
+> Before the willing spirit takes  
+> Her mansion near the Throne.  
 
-The Law gives sin its damning power,
-
-But Christ, my Ransom, died." Next, Christ has delivered you from the fear of death by changing the very character of death, itself You know what He said to Martha, "Whoever lives and believes in Me shall never die." And Believers never do die in the sense in which others die. They die in order to endure the penalty of sin, but for us, that penalty was borne by Christ! All our iniquities were laid upon Him and all the penalty of them was borne by Him. Death to the Believer is no penalty&mdash;it is a development from this time state to another and a higher one&mdash;a breaking of the shell that now confines us! It is a snapping of the cable that holds the vessel to the shore; a severing of the chain that holds the eagle to the rock. Death releases us so that we may soar away to that land of light and love where Jesus is, as John Newton sings&mdash;
-
-"In vain my fancy strives to paint
-
-The moment after death,
-
-The glories that surround the saint
-
-When yielding up his breath.
-
-One gentle sigh the fetter breaks!
-
-We scarce can say,' They're gone!
-
-Before the willing spirit takes
-
-Her mansion near the Throne." Death to the Believer is not an execution&mdash;it is his deliverance, his freedom from slavery and admission into the Glory of
-
-God!
+Death to the Believer is not an execution&mdash;it is his deliverance, his freedom from slavery and admission into the Glory of God!
 
 Christ has taken away the fear of death from those who truly know Him by assuring us that our soul shall not die or become extinct There is a vital principle within us, as He has said, "Because I live, you shall live also." One of His last solemn declarations was, "Father, I will that they, also, whom You have given Me, be with Me where I am; that they may behold My Glory." We sorrow not as without hope concerning those who have fallen asleep in Jesus, for we know that they are forever with the Lord! "To be absent from the body and to be present with the Lord," is the Divine Revelation concerning all who are in Christ Jesus by a living faith! Because our souls shall never die, we are not afraid to venture into the world of spirits.
 
@@ -79,13 +66,9 @@ This is our consolation, that, as Jesus Christ died and rose again from the dead
 
 Thus I have shown you that to overcome the fear of death, we must look to Jesus Christ on the Cross atoning for us, in the Resurrection rising for us, in the Glory taking possession of our home for us and at the right hand of God preparing our place for us, possessing all power and using it so that He may bring us unto His eternal Kingdom&mdash;and soon to come again, in all the glory of the latter days, to raise the bodies of His people from the dead unless they are still alive at His coming. This is He who conquers for us the fear of death! It is to Him we are to look&mdash;"looking unto Jesus." Let your eyes be always looking to Him&mdash;then the fear of death will not make you subject to bondage.
 
-Now, secondly, what shall we think of that may further help us to overcome this
+Now, secondly, what shall we think of that may further help us to overcome this fear of death?
 
-fear of death?
-
-First, let us remember that if we are called to die, we are called to do no more than Jesus Christ has done before us. When my body goes down to the grave, it will not be the first tenant of the sepulcher! Myriads of the saints have been there before and, best of all, the saints' Master and Lord has slept in the tomb! You remember that Jesus left the napkin folded by itself that mourners might use it in drying their tears&mdash;but the linen clothes, in which He had been wrapped&mdash; remained together so that our last bed might be well-sheeted, that our last sleeping room might not be unfurnished. More than that&mdash;
-
-"There the dear flesh of Jesus lay, And left a long perfume."
+First, let us remember that if we are called to die, we are called to do no more than Jesus Christ has done before us. When my body goes down to the grave, it will not be the first tenant of the sepulcher! Myriads of the saints have been there before and, best of all, the saints' Master and Lord has slept in the tomb! You remember that Jesus left the napkin folded by itself that mourners might use it in drying their tears&mdash;but the linen clothes, in which He had been wrapped&mdash; remained together so that our last bed might be well-sheeted, that our last sleeping room might not be unfurnished. More than that&mdash;"There the dear flesh of Jesus lay, And left a long perfume."
 
 Should not the servant be as the Master? Does he ask for more? If the King, Himself, has passed this way, shall His bodyguard, His soldiers, His companions be afraid to pursue the same downward path? No, Beloved, as you follow the track of the Crucified to the tomb of Joseph of Arimathea, you may, yourself, walk safely there! If the footprints of the flock have often encouraged us, how much more should the footprints of the Shepherd! So, Believers, be not afraid to die, for Jesus died.
 
@@ -93,23 +76,13 @@ Remember, also, that death will not separate us from the love of Christ, nor fro
 
 Next, let us remember that death will not even separate us from all our friends. It will take the wife from the husband and the child from the mother&mdash;and we must leave behind us many who have been our comrades in the battle of life. But, especially to you who are growing old, it ought to be a very comforting thought that probably most of your best friends have already crossed the river! If you were to count up those who have been dear to you from your youth up, you would find that the majority have gone on before you as you have advanced in years. And there are some above who, a long way behind our Lord, of course, will be among the dearest friends that we hope to see up yonder! The mother will find her babies who were lent to her for a brief season and then caught away to Heaven, safe on the other shore. And grandparents, parents, brothers, sisters and many a fellow Church member with whom we went to the House of the Lord in company&mdash;are all there ready to welcome us when we shall be newcomers in the Celestial City! Do not, therefore, have a fear of death because of the separation from friends below, but rather cheer yourself with the prospect of a blessed reunion with friends above! You may, perhaps, regret that you have to leave some behind, but think of the friends ahead and let your spirit rejoice to remember that you are going "to the general assembly and Church of the first-born which are written in Heaven." Again, I say to you, "Comfort one another with these words."
 
-I think the fear of death ought to vanish from us when we remember that it will be an answer to a great many of our prayers. I am not sure we always do right to sing such words as these&mdash;
-
-"Father, I long, I faint to see The place of Your abode."
-
-I remember a minister, an old friend of mine, who went into the pulpit one Lord's-Day morning, stood up and read that verse&mdash;
-
-"Father, I long, I faint to see The place of Your abode Id leave Your earthly courts and flee Up to Your seat, my God!'
-
-As he uttered those words, he sat down in the seat, fell back&mdash;he had gone to be with his God! We should not venture to say or sing such words as these unless we are fully prepared for such a sudden change as came to my aged friend. But how often you and I have prayed to be rid of troubles! Well, we shall be rid of them, then! How often have we prayed to be rid of sin! We shall be rid of it, then! We have prayed to be delivered from temptation&mdash;and we shall be&mdash;then. We have asked to be like Jesus and we shall be, then! We have prayed for a clearer vision of Him and we shall have it, then. Why, our prayers, except when we pray, "Let the whole earth be filled with Your Glory," can scarcely go further than when we say, "Let us be with You where You are." By our death, the Lord will answer our prayers. One kiss on our lips from His dear mouth will kiss away our soul and we shall be where we shall see His blessed face in all the splendor of His Glory! So then, if death is the answer to your prayers, why need you dread it?
+I think the fear of death ought to vanish from us when we remember that it will be an answer to a great many of our prayers. I am not sure we always do right to sing such words as these&mdash;"Father, I long, I faint to see The place of Your abode." I remember a minister, an old friend of mine, who went into the pulpit one Lord's-Day morning, stood up and read that verse&mdash; "Father, I long, I faint to see The place of Your abode Id leave Your earthly courts and flee Up to Your seat, my God!" As he uttered those words, he sat down in the seat, fell back&mdash;he had gone to be with his God! We should not venture to say or sing such words as these unless we are fully prepared for such a sudden change as came to my aged friend. But how often you and I have prayed to be rid of troubles! Well, we shall be rid of them, then! How often have we prayed to be rid of sin! We shall be rid of it, then! We have prayed to be delivered from temptation&mdash;and we shall be&mdash;then. We have asked to be like Jesus and we shall be, then! We have prayed for a clearer vision of Him and we shall have it, then. Why, our prayers, except when we pray, "Let the whole earth be filled with Your Glory," can scarcely go further than when we say, "Let us be with You where You are." By our death, the Lord will answer our prayers. One kiss on our lips from His dear mouth will kiss away our soul and we shall be where we shall see His blessed face in all the splendor of His Glory! So then, if death is the answer to your prayers, why need you dread it?
 
 Remember, too, that death is attended by very special comforts. I remember a sermon by my grandfather which stuck in my youthful memory and is still fresh in my memory. I forget the text, but I think it was, "Grace to help in time of need." And at the end of the first head the old gentleman said, "But there is one kind of Grace that you do not want." Then he went on to a second head and mentioned another kind of Grace and, again, he said, "But there is one kind of Grace that you do not want." He had five or six heads to his discourse, but at the end of every one of them he said, "But there is one kind of Grace that you do not want." We were all wondering what he could mean and then he finished up with this remark, "You do not want dyingGrace till dying moments come!" There was truth in that observation!
 
 I may say to myself, "Do I feel, now, that I could die calmly or even triumphantly?" I may put the question if I like, but it is hardly a fair one, for I am not yet called to die! Yet my experience and observation of others lead me to believe that very remarkable Grace is often given to Believers in their last hours. I have seen the timid become more strong than the brave! I have seen the retiring become more bold than the courageous! And I have known some who seemed to be almost dumb, before, speak with matchless utterance! And some, whose faces have been lit up with supernatural joy&mdash;who, before, appeared to be amongst the doubting and the trembling ones of Christ's family. There are choice revelations, special manifestations, nearer approaches to Christ, wider outlets of love from Him and greater inlets into the soul of the brightness of His Presence in those times, than ever before!
 
-When the body is strong, it often seems like a thick wall that shuts out the light. But when disease comes and shakes the tenement, it makes great rifts in wall and roof&mdash;and through those rifts the Light of God comes streaming in as it had never come in before! I never can doubt the truth of our holy faith, or the reality of religion after what I have witnessed at the deathbeds of the Lord's people. I could tell you of one, who died this week, and who had long been a member of this Church. She was unconscious in her last hours, but up to the time when unconsciousness came on, it would have been a joy to any of you to see her! She almost incessantly requested her friends to sing such songs as&mdash;
-
-"Safe in the arms of Jesus."
+When the body is strong, it often seems like a thick wall that shuts out the light. But when disease comes and shakes the tenement, it makes great rifts in wall and roof&mdash;and through those rifts the Light of God comes streaming in as it had never come in before! I never can doubt the truth of our holy faith, or the reality of religion after what I have witnessed at the deathbeds of the Lord's people. I could tell you of one, who died this week, and who had long been a member of this Church. She was unconscious in her last hours, but up to the time when unconsciousness came on, it would have been a joy to any of you to see her! She almost incessantly requested her friends to sing such songs as&mdash;"Safe in the arms of Jesus."
 
 As long as she could do so, she took her part, joining better than any of them in the real joy of the song, for they were sorrowful at the thought of losing one whom they loved&mdash;but she was joyful in the prospect of soon beholding the face of Him whom her soul loved so intensely! I believe there is no joy in life that equals the joy of departing Believers!
 
@@ -132,9 +105,7 @@ The next piece of advice I have to give you is this&mdash;hold very loosely ever
 
 We ought to live in this world like lodgers at an inn. There was a good bishop who used to say that he should like to die at an inn because he felt as if he should then be in a similar position, both literally and spiritually. And truly, that is the spirit in which Christians should always live. A man on a journey goes to an inn to spend a night&mdash;he does not trouble himself because the room is not quite to his taste, for he will be off in the morning. You, Believer, are only at an inn, so do not fret about the little inconveniences here, for you are to be off in the morning and, you may depend upon it that your Father' s carriage will be at the door at the right time&mdash;so have everything packed up ready for your departure! Do not go buying a lot of lumber here, for you cannot carry it with you! Have very little and have it all ready. And a very good thing is to send as much as you can on before you!
 
-Somebody said, the other day, that the best way to travel was to send all your goods on by the luggage train in advance and then go, yourself, by the first-class express passenger train. He explained that he meant that you were to give away as much as you could to the poor and to the Church of God&mdash;and so send it on by the luggage train. "What I spent, I had," said a man. "What I kept, I lost What I gave away, I have." And truly it is so when Believers die. Still is that theirs which they have given to God and to His poor, "but whose is that which they have left behind?" Perhaps some ungrateful heir will sinfully squander it. I have often admired the difference between a rich man's funeral and a poor man's. It grieves me, sometimes, to think of the rich man's funeral. What do the sons and daughters of the miser think about it? They are most concerned to get home to hear the reading of the will! But when the poor man dies, it is quite another matter. There is his daughter, Jane, who is employed as a servant&mdash;she contributes a little towards the cost of the funeral. Then there is a son, John, who has a wife and four or five children&mdash;but he pinches himself so as to contribute a little. All
-
-the children do something to help and those are honest tears that they shed for the poor old man, for they have nothing to gain by his departure and the grief at his funeral will be real and true. But whether you are rich or poor in this world's goods, make sure that you are among "the poor in spirit, for theirs is the Kingdom of Heaven."
+Somebody said, the other day, that the best way to travel was to send all your goods on by the luggage train in advance and then go, yourself, by the first-class express passenger train. He explained that he meant that you were to give away as much as you could to the poor and to the Church of God&mdash;and so send it on by the luggage train. "What I spent, I had," said a man. "What I kept, I lost What I gave away, I have." And truly it is so when Believers die. Still is that theirs which they have given to God and to His poor, "but whose is that which they have left behind?" Perhaps some ungrateful heir will sinfully squander it. I have often admired the difference between a rich man's funeral and a poor man's. It grieves me, sometimes, to think of the rich man's funeral. What do the sons and daughters of the miser think about it? They are most concerned to get home to hear the reading of the will! But when the poor man dies, it is quite another matter. There is his daughter, Jane, who is employed as a servant&mdash;she contributes a little towards the cost of the funeral. Then there is a son, John, who has a wife and four or five children&mdash;but he pinches himself so as to contribute a little. All the children do something to help and those are honest tears that they shed for the poor old man, for they have nothing to gain by his departure and the grief at his funeral will be real and true. But whether you are rich or poor in this world's goods, make sure that you are among "the poor in spirit, for theirs is the Kingdom of Heaven."
 
 But the main way to overcome the fear of death is to believe firmly in your Lord. You will generally find that in proportion as your faith gets stronger, your fear of death will vanish&mdash;and as your faith gets weak, fear will come in to take its place. Realize that Christ is your Savior, that He loves you and has given Himself for you&mdash;and saved you with an everlasting salvation! Realize that He has inscribed your name upon the palms of His hands. No, more&mdash;that He has engraved it upon His heart! Remember that although a woman may forget her sucking child, your Lord never can forget you and that He has said, "I will never leave you, nor forsake you"&mdash;and then will you be able to say, "Yes, though I walk through the valley of the shadow of death, I will fear no evil: for You are with me; Your rod and Your staff, they comfort me."
 
@@ -144,53 +115,32 @@ Next, to get rid of the fear of death, I urge you to serve God every day with al
 
 I met, the other day, with a piece of poetry which struck me very forcibly. I wonder whether it will strike you in the same way as I read it&mdash;
 
-"'My work is done, I lay me down to die.
+> 'My work is done, I lay me down to die.  
+> Weary and travel-worn, Ilong for rest.  
+> Speak but the word, dear Master, and I fly,  
+> a dove let loose to nestle on Your breast.'  
+> 'Not yet, My child; a little longer wait,  
+> I need your prayerful watch at Glory's gate.'  
+> 'But, Lord, I have no strength to watch and pray,  
+> My spirit is benumbed and dim my sight.  
+> And I shall grieve Your wakeful love, as they  
+> Who in the garden slept, that paschal night.'  
+> 'My child, I need your weakness, hour by hour,  
+> To prove, in Me, your weakness ispower.'  
+> 'Not for myself, I urge the suit,  
+> But loved ones lose, for me, life's priceless bloom  
+> And tender, patient, uncomplaining, mute,  
+> Wear out theirjoy in my darkened room.'  
+> 'Enough, My child! I need their love to you;  
+> Around your couch they minister to Me.'  
+> 'It is enough, dear Master, yes, Amen!  
+> I will not breathe one murmur or reply.  
+> Only fulfill Your work in me and then  
+> Call me, and bid me answer, 'Here am I.'  
+> 'My child, the sign I waited for is given.  
+> Your work is done. I need you now in Heaven.'  
 
-Weary and travel-worn, Ilong for rest.
-
-Speak but the word, dear Master, and I fly,
-
-a dove let loose to nestle on Your breast.'
-
-'Not yet, My child; a little longer wait,
-
-I need your prayerful watch at Glory's gate.'
-
-'But, Lord, I have no strength to watch and pray,
-
-My spirit is benumbed and dim my sight.
-
-And I shall grieve Your wakeful love, as they
-
-Who in the garden slept, that paschal night.'
-
-'My child, I need your weakness, hour by hour,
-
-To prove, in Me, your weakness ispower.'
-
-'Not for myself, I urge the suit,
-
-But loved ones lose, for me, life's priceless bloom
-
-And tender, patient, uncomplaining, mute,
-
-Wear out theirjoy in my darkened room.'
-
-'Enough, My child! I need their love to you;
-
-Around your couch they minister to Me.'
-
-'It is enough, dear Master, yes, Amen!
-
-I will not breathe one murmur or reply.
-
-Only fulfill Your work in me and then
-
-Call me, and bid me answer, 'Here am I.'
-
-'My child, the sign I waited for is given.
-
-Your work is done. I need you now in Heaven.'" I admire that utterance of Mr. Whitefield, which I have quoted to you before, "I try to keep all my affairs so arranged that if I were to die at any time, they would be no trouble to those who come after me." He was so particular in his habits that he would not fall asleep if he had a pair of gloves out of place! And I like to feel that as far as it can be, all is right with my own affairs.
+I admire that utterance of Mr. Whitefield, which I have quoted to you before, "I try to keep all my affairs so arranged that if I were to die at any time, they would be no trouble to those who come after me." He was so particular in his habits that he would not fall asleep if he had a pair of gloves out of place! And I like to feel that as far as it can be, all is right with my own affairs.
 
 I do not wonder that some Christian people would be afraid to die, now, for they remember that they have not made their wills. Simple as that remark may seem to be to you, it is a very important matter, for it is a terrible thing for a man to be taken suddenly ill and, instead of having to think about departing to his God, he has to send for a lawyer! And when his own wits are scarcely ready for it, he has to be planning about what is to be done for his wife and children and others whom he wishes to benefit. Get that matter settled as soon as you can and see to everything else that needs attention&mdash;so that you may be able to say&mdash;"Here am I, standing like a passenger at a railway station. My luggage is all ready and I am only waiting to step into the carriage and be gone." Happy man who is in that prepared state, for he need have no fear of death!
 
