@@ -117,7 +117,7 @@ That they all may be one, as You, Father, are in Me, and I in You that they also
 
 And that the world may know that You have sent Me, andhave loved them as You have lovedMt. [See Sermon #1472,
 
-Volume 25&mdash;the glory, unity and triumph of THE church.] This is a
+Volume 25&mdash;the glory, unity and triumph of the church.] This is a
 
 great deep&mdash;the words are very simple and clear&mdash;but their meaning is unfathomable. Is it really true that the Father has loved His chosen ones as He has loved His only begotten Son? It is such a wondrous thing that one might be willing to lie awake at night to meditate upon the amazing Truth here revealed in our Savior's words&mdash;"You have sent Me, and have loved them as You have loved Me."
 

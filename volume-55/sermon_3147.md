@@ -102,7 +102,7 @@ Our help is in the name of the Lord, who made Heaven and earth. This is a good l
 
 Psalm 125:1. They that trust in the Lord shall be as Mount Zion, which cannot be removed, but abides forever [See
 
-Sermon #1450, Volume 24&mdash;the immovability of THE believer.] What
+Sermon #1450, Volume 24&mdash;the immovability of the believer.] What
 
 comfort there is in this verse to all who trust in the Lord! We never expect to see anyone tear up Mount Zion by the roots. The Romans have been there and plowed Mount Zion as a field, but they could not remove it&mdash;it is there still and the natural features are the same as they were in the days of Abraham and David. Mount Zion "cannot be removed but abides forever." Men have swept away much that was built on it, but Mount Zion is still there, nor shall any human power ever be able to remove it. And, glory be to God, neither men nor devils shall ever be able to remove us if we trust in the Lord, for we "shall be as Mount Zion, which cannot be removed, but abides forever."
 
