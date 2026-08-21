@@ -102,7 +102,7 @@ Portion of Scripture Read before Sermon&mdash;Matthew 15:21-39. HYMNS FROM "OUR 
 
 EXPOSITION BY C. H. SPURGEON MATTHEW 15:21-39
 
-[The sermons available for future use are those preached on Lord's-Day and Thursday evenings. These were usually shorter than the morning discourses. The publishers will issue, with the Sermon, the Exposition that preceded it as often as they are able to do so. They believe that readers will value all of these utterances of the beloved preacher who is now with the Lord. They have heard of many sermon readers who regularly turn to the portions of Scripture expounded by Mr. Spurgeon and even read the hymns sung at the Tabernacle. Such friends will now have a very full report of the services held there during the late Pastor's ministry.]
+
 
 Jesus had been in conflict with the Scribes and Pharisees. He never liked such discussions and though He was always victorious in every controversy, it grieved His spirit.
 
