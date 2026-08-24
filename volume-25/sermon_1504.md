@@ -122,4 +122,4 @@ It often happens to a man who has scraped and saved and yet stinted the cause of
 
 Everything for Jesus, the glorious Solomon of our hearts, the Beloved of our souls! Life for Jesus! Death for Jesus! Time for Jesus! Eternity for Jesus! Hand and heart for Jesus! Brain and tongue for Jesus! Night and day for Jesus! Sickness or health for Jesus! Honor or dishonor for Jesus! Shame or glory for Jesus! Everything for Jesus, "every man according to his charge." So may it be! Amen.
 
-[The original title of this sermon was The Dromedaries.]
+

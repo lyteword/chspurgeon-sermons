@@ -127,4 +127,4 @@ Oh, that the Church of God would believe in Jesus' power to heal sick souls! Rem
 
 PORTION OFSCRIPTURE READ BEFORE SERMON&mdash;John 5:1-23. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;909, 331, 787.
 
-SPURGEON's TESTIMONIAL&mdash;The Sermons and Speeches delivered in commemoration of the twenty-fifth year of his Pastorate. Passmore and Alabaster. At our express desire the publishers have issued this handsome volume for a shilling. It is a choice memorial of a rare event and every one of our friends should preserve a copy. It will soon be out of print and unobtainable. [And so it is!&mdash;EOD]
+SPURGEON's TESTIMONIAL&mdash;The Sermons and Speeches delivered in commemoration of the twenty-fifth year of his Pastorate. Passmore and Alabaster. At our express desire the publishers have issued this handsome volume for a shilling. It is a choice memorial of a rare event and every one of our friends should preserve a copy. It will soon be out of print and unobtainable. 

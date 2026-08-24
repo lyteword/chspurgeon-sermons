@@ -2,7 +2,7 @@
 
 "The eyes of your understanding being enlightened; hat you may know whiat is he hiope of His calling, and whiat are he richies of he glory of His inhieritance in he saints, and whiat is he exceeding greatness of Hispower toward us who believe, according to the working of His mighty power, which He worked in Christ, when He raised Him from the dead, and set Him at His own right hand in the hea venly places." Ephesians 1:18-20.
 
-[On a night when the Tabernacle was thrown open to all comers, the ordinary hearers vacating their seats for the occasion.]
+
 
 You see the text begins with a personal experience within the mind and judgment&mdash;"the eyes of your understanding being enlightened." Everything depends upon the opened eyes! The scene may be fair and the light may be bright, but if the sight is gone, all is in vain. Zedekiah had his eyes put out by the king of Babylon and then he was taken down to the imperial city, but as for being able to enjoy anything, he might as well have been in a desert. There were vast halls, palaces, hanging gardens and a city wall which was the wonder of the world, so that Babylon is called, by the Prophet, "the glory of kingdoms and the beauty of the Chaldees' excellency"&mdash;but the blinded monarch beheld nothing of all the grandeur of the golden city and to him her wealth was as though it had not been.
 
