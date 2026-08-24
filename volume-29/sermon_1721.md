@@ -2,7 +2,7 @@
 
 "Who has called us unto His eternal glory." 1 Peter 5:10.
 
-A FORTNIGHT ago, when I was only able to creep to the front of this platform, I spoke to you concerning the future of our mortal bodies&mdash;[Sermon #1719&mdash;The Tent Dissolved and the Mansion Entered]&mdash;"We know that if our earthly house of this tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens." On the next Sabbath, [Sermon #1720&mdash;Christ in You], we went a step further and we did not preach so much about the resurrection of the body as upon the hope of Glory for our entire nature, our text being, "Christ in you, the hope of glory."
+A FORTNIGHT ago, when I was only able to creep to the front of this platform, I spoke to you concerning the future of our mortal bodies&mdash;, we went a step further and we did not preach so much about the resurrection of the body as upon the hope of Glory for our entire nature, our text being, "Christ in you, the hope of glory."
 
 Thus we have passed through the outer court and have trod the hallowed floor of the Holy Place. And now we are the more prepared to enter within the veil and to gaze, a while, upon the glory which awaits us. We shall say a little&mdash; and oh, how little it will be&mdash;upon that glory of which we have so sure a prospect, that glory which is prepared for us in Christ Jesus and of which He is the hope! I pray that our eyes may be strengthened that we may see the heavenly light and that our ears may be opened to hear sweet voices from the better land. As for me, I cannot say that I will speak of the glory, but I will try to stammer about it&mdash;for the best language to which a man can reach concerning Glory must be a mere stammering.
 
