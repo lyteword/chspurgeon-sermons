@@ -2,7 +2,7 @@
 
 "When He gives quietness, who then can make trouble? And when He hides His face, who then can behold Him? Whether it is done against a nation, or against a man only."- Job 34:29.
 
-WE commenced our special services with a sermon of encouragement, by which we were reminded of the rapid answer which Daniel received to his prayer, [Sermon #734&mdash;The Dawn of Revival, Or Prayer Speedily Answered] and were led to hope that the Lord intended, at the very commencement of our supplications, to send forth a commandment of mercy. Since then, God has done great things for us, of which we are glad. Few of you, probably, are aware of the numerous conversions which God has worked in this place during the past two weeks. We are not fond of publishing numbers, nor of making estimates, but it suffices you to know, and us to say, that the Lord has made bare His arm and led forth captive souls from the bondage of sin.
+WE commenced our special services with a sermon of encouragement, by which we were reminded of the rapid answer which Daniel received to his prayer, and were led to hope that the Lord intended, at the very commencement of our supplications, to send forth a commandment of mercy. Since then, God has done great things for us, of which we are glad. Few of you, probably, are aware of the numerous conversions which God has worked in this place during the past two weeks. We are not fond of publishing numbers, nor of making estimates, but it suffices you to know, and us to say, that the Lord has made bare His arm and led forth captive souls from the bondage of sin.
 
 Many fathers and mothers here have had to weep for joy because their children have declared themselves to be on the Lord's side. Satan's kingdom has been weakened, and the armies of the Lord have been increased. There has been joy among the angels this week, and joy in the heart of the great Father&mdash;for many lost ones have been found! Let us give unto the Lord the glory which is due unto His name. Let us rejoice and be glad in the Lord!
 
@@ -46,10 +46,10 @@ We shall reflect upon this Truth of God as it applies, first, to God's people. M
 
 You have lost kindred&mdash;you have wept over their tombs. You have lost property&mdash;your gold and silver have taken to themselves wings and fled away. You have been broken in health, and you have been broken in spirit, too. But, when the Lord has lifted up the light of His countenance upon you, were you not of the same mind as Habakkuk, that, "Although the fig tree shall not blossom, neither shall fruit be in the vines; the labor of the olive shall fail, and the fields shall yield no meat; the flock shall be cut off from the fold, and there shall be no herd in the stalls," yet still you could rejoice in God? Beloved, a glimpse of our heavenly Father's face even sweetens affliction&mdash;
 
-> The bitterest tears,   
-> If He smile but on them,   
-> Like dew in the sunshine,   
-> Grow diamond and gem.   
+> The bitterest tears, 
+> If He smile but on them, 
+> Like dew in the sunshine, 
+> Grow diamond and gem. 
 
 We have found it sweet to be afflicted when we have enjoyed the Presence of God in it. And we have counted it all joy when we have fallen into many temptations because, in our hour of extremity and peril, the Savior has been unspeakably the more precious! In the absence of all other joys, the joy of the Lord has filled the soul to the brim. You know very well, dear Friends, that if the Lord is withdrawn, no comforts can make up for His absence. But if all earthly comforts are taken, you will not utter so much as a single murmuring word. If the Lord will but fill the vacuum with Himself, you will say, "Lord, I thank You that there was more room for You&mdash;more room for Your fullness&mdash;when the creature failed
 

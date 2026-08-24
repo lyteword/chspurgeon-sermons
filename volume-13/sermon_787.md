@@ -2,7 +2,7 @@
 
 "For His mercy endures forever."- Psalm 136:1.
 
-THIS one hundred and thirty-sixth Psalm was constantly sung in the Temple by appointed singers, among whom the names of Heman and Jeduthun are mentioned. These, we are told in the Book of Chronicles, were chosen to give thanks unto Jehovah, whose "mercy endures forever." This continued service of song was most fitting, for, if Jehovah's mercy endures forever, our praise should endure forever! If His goodness never ceases, our thanksgiving should never be silent! It seemed to me most appropriate to direct your attention to this text in the closing Sunday of the year because it is a fit accompaniment to that upon which I addressed you on the first Sunday. [Good Cheer for the New Year, Sermon #728.]
+THIS one hundred and thirty-sixth Psalm was constantly sung in the Temple by appointed singers, among whom the names of Heman and Jeduthun are mentioned. These, we are told in the Book of Chronicles, were chosen to give thanks unto Jehovah, whose "mercy endures forever." This continued service of song was most fitting, for, if Jehovah's mercy endures forever, our praise should endure forever! If His goodness never ceases, our thanksgiving should never be silent! It seemed to me most appropriate to direct your attention to this text in the closing Sunday of the year because it is a fit accompaniment to that upon which I addressed you on the first Sunday. 
 
 You will remember that we then spoke of the ever watchful mercy of the Lord our God, from the words, "The eyes of the Lord your God are always upon it, from the beginning of the year even unto the end of the year." Having almost reached the close of the year let us acknowledge that the mercy has been equal to the promise&mdash;that God has not failed to fulfill his gracious Word, "for His mercy endures forever." May all your hearts be full of gratitude and the music of your spirits stand in the stead of trumpets and cymbals which of old proclaimed the joy of Israel when they made mention of Jehovah's name!
 
@@ -36,10 +36,10 @@ teem with blessings to mankind! While the judgment itself vanishes, flowers bloo
 
 Doubtless, also, the Psalmist meant that mercy continues in its fullness. We make great draughts upon the mercy of God, but we do not diminish it. There are fears that we shall one day exhaust those great storehouses in which the earth's best fuel is laid up. This may be probable, and is certainly possible&mdash;a few hundred years will make a heavy demand upon our mineral treasuries&mdash;but quarry as you will in the mines of God's blessing, neither you nor your children, nor your children's children shall complain of a deficiency!&mdash;
 
-> Great God, the treasures of Your love   
-> Are everlasting mines,   
-> Deep as our helpless miseries are,   
-> And boundless as our sins.   
+> Great God, the treasures of Your love 
+> Are everlasting mines, 
+> Deep as our helpless miseries are, 
+> And boundless as our sins. 
 
 May we not also understand by, "His mercy endures forever," that the patience of God abounds? Have you ever reflected upon the infinite, long-suffering of God? Consider, for a moment, the sins of men are all before the Lord. You and I can readily put up with offenses which do not touch us in the quick, or actually under our own eye&mdash;but the sinner's sin is perpetrated before the countenance of Jehovah! No word is said behind His back. No blasphemy is uttered in secret to Him&mdash;and sin affects God as it does not affect us. We have grown so hardened that the heinousness of iniquity is little discerned by us&mdash;we take it as a matter of course.
 
@@ -77,10 +77,10 @@ the basin, and washes our feet yet again. From the accumulated dust of a year's 
 
 There is a fog in your soul as well as in the streets. Beloved, thank God our acceptance is not injured by our depressed state of mind! Whether we are depressed or exalted, whether we are enjoying communion or not, we still stand in the Beloved all fair and glorious in the sight of Him whose mercy endures forever! Possibly you have come here today and brought with you too much of yesterday's troubles. These ought not to come into the Sunday, for this is a day of rest. Still you cannot help it&mdash;you are beset with such daily anxiety that while sitting here you have been mentally looking into your ledger, or nursing the sick child. Your mind has been in the fields of vanity when it should have been on the mountain with God. Drive out your cares by remembering that "His mercy endures forever!"&mdash;
 
-> Come, make your needs, your burdens known!   
-> He will present them at the Throne,   
-> And angel bands are waiting there,   
-> His messages of love to bear.   
+> Come, make your needs, your burdens known! 
+> He will present them at the Throne, 
+> And angel bands are waiting there, 
+> His messages of love to bear. 
 
 You cannot be in such a difficulty that He cannot sustain you in it, or bear you out of it. "His mercy endures forever."
 

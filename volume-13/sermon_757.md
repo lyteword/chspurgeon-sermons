@@ -76,7 +76,7 @@ He loves as much every single one of all the blood-bought seed as if it were the
 
 But I said we should see in the text God also as a great Caretaker. "He causes the grass to grow for the cattle." Does God, then, care for oxen, or does He say it altogether for our sakes? "You shall not muzzle the mouth of the ox that treads out the corn," shows that God has a care for the beasts of the field. But it shows much more than that, namely, that He would have those who work for Him fed as they work. God cares for the beasts, and makes grass to grow for them. Then, my Soul, though sometimes you have said with David, "So foolish was I, and ignorant: I was as a beast before You," yet God cares for you.
 
-Do you remember our sermon upon "The Ravens' Cry?" [Volume 12, #672.] "He gives to the beast his food, and to the young ravens which cry"&mdash;there you have an instance of His care for birds, and here we have His care for beasts. And though you, my Hearer, may seem to yourself to be as black and defiled as a raven, and as far from anything spiritually good as the beasts, yet take comfort from this text! He gives to beasts their food, and He will give to you, though you think yourself to be beast-like, what your spirit needs at His hands. Observe, He cares for these beasts who are helpless in caring for themselves. The cattle could not plant the grass, nor cause it to grow.
+Do you remember our sermon upon "The Ravens' Cry?" "He gives to the beast his food, and to the young ravens which cry"&mdash;there you have an instance of His care for birds, and here we have His care for beasts. And though you, my Hearer, may seem to yourself to be as black and defiled as a raven, and as far from anything spiritually good as the beasts, yet take comfort from this text! He gives to beasts their food, and He will give to you, though you think yourself to be beast-like, what your spirit needs at His hands. Observe, He cares for these beasts who are helpless in caring for themselves. The cattle could not plant the grass, nor cause it to grow.
 
 Though they can do nothing in the matter, yet He does it all for them. He causes the grass to grow. You who are as helpless as oxen to help yourselves, who can only stand and moan out your misery, and know not what to do&mdash;God can prevent you in His loving kindness, and favor you in His tenderness. Now let the bleating of your prayer go up to
 
@@ -88,8 +88,8 @@ Shall the Lord of Mercy answer the beasts, and not hear men who are made in His 
 
 It is frequently so sickening a sight to see poor tortured cattle in our thoroughfares, that it makes one long to fly from such brutality, and cry&mdash;
 
-> Oh for a lodge in some vast wilderness, Some boundless mass of shade,   
-> Where sights of cruel men and maddened beasts Might never reach us more.   
+> Oh for a lodge in some vast wilderness, Some boundless mass of shade, 
+> Where sights of cruel men and maddened beasts Might never reach us more. 
 
 Yet the great God looks after those poor dumb cattle whom men despise! Comfortable thought for some of you who are of the meekest and lowliest spirit. You despise yourselves, and others despise you, but He who causes the grass to grow for the cattle has an eye to you! Man may have nothing for you but strokes from the rod. Thoughtless, heartless man may goad and vex your spirit and drive you through the streets of this busy world without so much as a drop of comfort to cool your burning tongue and fevered brain when you are fainting with many cares and fears. But God thinks of you, God cares for you still.
 

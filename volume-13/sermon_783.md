@@ -1,6 +1,6 @@
 # Sermon 783 | Sermons from Saintly Death Beds
 
-> And when Jacob had made an end of commanding his sons, he gathered up his feet into the bed, and yielded up the ghost, and was gathered unto his people.  
+> And when Jacob had made an end of commanding his sons, he gathered up his feet into the bed, and yielded up the ghost, and was gathered unto his people. 
 > Genesis 49:33
 
 JACOB did not yield up the ghost until he had delivered the last sentence of admonition and benediction to his 12 sons. He was immortal till his work was done. So long as God had another sentence to speak by him, death could not paralyze his tongue. Yet, after all, the strong man was bowed down, and he who had journeyed with unwearied foot full many a mile, was now obliged to gather up his feet into the bed to die. His life had been eventful in the highest degree, but that dread event now came upon him which is common to us all.
@@ -61,7 +61,7 @@ I do beseech you, dear Friends, value the Christian ministry! I ask no honor for
 
 Furthermore, I think the departures of great saints and those who have been eminent teach us to pray earnestly to God to send us more of such&mdash;a lesson which, I am quite certain, needs to be inculcated often. There is sadly little prayer in the Church for the rising ministry. You pray for those who are your pastors, and rightly so. "Brethren, pray for us." You cannot do us a better favor. But there is so little prayer that God would raise up ministers! Know you not that as surely as the blood of Christ bought the redemption of His people, as surely as the resurrection of Christ was for the justification of the saints, so surely the ascension of Christ was for the distribution of ministry among the sons of men?
 
-Know you not the passage, "He ascended up on high, He led captivity captive, and gave gifts unto men and He gave [these were the gifts] some, Apostles; and some, prophets; and some, evangelists; and some, pastors and teachers?" Now, you plead the precious blood when you would obtain pardon. You plead the resurrection and you receive justification. But
+Know you not the passage, "He ascended up on high, He led captivity captive, and gave gifts unto men and He gave some, Apostles; and some, prophets; and some, evangelists; and some, pastors and teachers?" Now, you plead the precious blood when you would obtain pardon. You plead the resurrection and you receive justification. But
 
 how seldom do you plead the ascension, so as to obtain a faithful ministry? Parts of Christendom are becoming terribly deficient in ministry. I have been told, and I have read in the literature of America, that in many parts of the United States one-third of the Churches are devoid of pastors. Believers are struggling and striving after ministers but cannot find them. There must have been, in that case, a failure in the prayer, "Lord, send forth laborers into the harvest."
 
