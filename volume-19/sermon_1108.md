@@ -84,14 +84,14 @@ They will be just as glorious as they would have been had God made them perfect 
 
 This is a wonderful nearness which God has given us! We are made His children. We are made to come into His immediate Presence and to taste of His love! Our sins are so effectually removed that we shall not ultimately suffer any loss or damage through having sinned. That detriment was laid on Christ. His was the loss&mdash;ours is the gain. His was the tremendous suffering&mdash;ours is the unutterable joy&mdash;
 
-> Your blood, not nine, O Christ,   
-> Your blood so freely spilt,   
-> Has blanched my blackest stain   
-> And purged away my guilt.   
-> Your righteousness   
-> My soul does beautify,   
-> Wrapped in that glorious robe   
-> Your Father I draw nigh.   
+> Your blood, not nine, O Christ, 
+> Your blood so freely spilt, 
+> Has blanched my blackest stain 
+> And purged away my guilt. 
+> Your righteousness 
+> My soul does beautify, 
+> Wrapped in that glorious robe 
+> Your Father I draw nigh. 
 
 And, dear Brothers and Sisters, this is what the Lord means, also, when He tells us He has put sin away "as far as the east is from the west." He means that He has forgotten it. Can God forget? Well, we speak of the Nature of God, sometimes, after the manner of men, and rightly so if we adopt those forms of Revelation which have been vouchsafed to us. We rightly regard everything as in His remembrance, because He dwells in all ages and everything is present with Him. And yet if He tells us He forgets we may not venture to disbelieve Him.
 
@@ -113,7 +113,7 @@ But, Beloved, we have it in the text that God is to remove our transgressions! O
 
 By the Substitution of Jesus, Justice is satisfied and God Himself blots out our sins. And here is the beauty of it&mdash; since the Lord has removed our transgressions from us, the thing is done completely and it is done forever and forever! What a man does, he may undo. You know how some men are like children&mdash;they will give a thing and take a thing back, and so play fast and loose with you. They will speak well of you today, and say, "Yes, they forgive," but they cannot forget! They remember again tomorrow, revive their old resentments and, in their anger, call up, again, past grievances. Not so, our God. "I am Jehovah! I change not," says the Lord, "therefore you sons of Jacob are not consumed." When God removes transgression, the work is so done that it never shall be undone&mdash;certainly not by Himself&mdash;and if not by Himself, who, then, can do it? My Brothers and Sisters, what consolations you have since you have believed in Jesus! I pray you, feast upon them and be satisfied to the fullest!
 
-Our text has in it also a touch of personality for each one of us. I has pondering upon this passage the other day and it came to me with a peculiar sweetness&mdash;not on account of any of the thoughts I have given you, but on account of this&mdash;"As far as the east is from the west, so far has He removed our transgressions from"&mdash;himself [David]? Yes, that is true, but it is "from us," from us. And this was what passed through my mind&mdash;then my sins are gone away from me, from me! Here am I, fretting that I am not what I should be, and groaning, and crying before God about a thousand things! But, for all that, there is no sin upon me for, "As far as the east is from the west, so far has He removed our transgressions from us."
+Our text has in it also a touch of personality for each one of us. I has pondering upon this passage the other day and it came to me with a peculiar sweetness&mdash;not on account of any of the thoughts I have given you, but on account of this&mdash;"As far as the east is from the west, so far has He removed our transgressions from"&mdash;himself? Yes, that is true, but it is "from us," from us. And this was what passed through my mind&mdash;then my sins are gone away from me, from me! Here am I, fretting that I am not what I should be, and groaning, and crying before God about a thousand things! But, for all that, there is no sin upon me for, "As far as the east is from the west, so far has He removed our transgressions from us."
 
 From ourselves the sins have gone! From us, as well as from His eyes. From His book and from His memory&mdash;they have gone from us. "But I committed them," says one. Ah, that you did. Your sins were yours, yours with a vengeance! It was like that fiery tunic which Hercules put on, which he could not drag from him, let him do what he might, but which ate into his flesh and bones. Such were your sins. You could not tear them off! But God has taken them off, every one of them, if you have believed in Jesus. And where is that tunic of fire now, which would have devoured you forever? Where is it? You shall search for it, but it shall not be found, no, it shall not be, says the Lord. It is gone away from you! I sometimes see Believers troubling themselves as if all their sins were laid up in an iron safe in some part of the Lord's house. It is not so! It is not so!
 
@@ -123,8 +123,8 @@ Ah, we many times go down into the hold of the vessel and there we lie among the
 
 Would not everybody say of me, "Why, that man must be insane!?" Now you, child of God, once had the handcuffs on&mdash;your sins were upon you&mdash;but Jesus Christ took them off. When you believed in Him, He broke all your fetters and now they are not there. Why do you go about trembling and saying, "I fear!&mdash;I am afraid!" What do you fear, O Man? What do you fear? Are you a Believer and afraid of your old sins? You are afraid of foes which do not exist! Your sins are so gone that they cannot be laid to your charge. Do you not believe this? Can you not rise to something like the true estimate of your position? You are not only pardoned, but you are a child of God! Go to your Father with joy and thankfulness and bless Him for all His love to you. Wipe those tears away, smooth those wrinkles from your brow&mdash;take up the song of joy and gladness and say with the Apostle Paul&mdash;"Who shall lay anything to the charge of God's elect? It is God that justifies. Who is he that condemns? It is Christ that died, yes rather, that is risen again, who is even at the right hand of God, who also makes intercession for us." Be glad in the Lord, you pardoned ones!&mdash;
 
-> Shout, Believer, to your God! He has once the winepress trod. Peace procured by blood Divine, Cancell'd all your sins and mine. In your Surety you are free, His dear hands were pierced for you. With His spotless vesture on,   
-> Holy as the Holy One. Oh the heights and depths of Grace! Shining with meridian blaze; Here the saved records show Sinners black but comely too.   
+> Shout, Believer, to your God! He has once the winepress trod. Peace procured by blood Divine, Cancell'd all your sins and mine. In your Surety you are free, His dear hands were pierced for you. With His spotless vesture on, 
+> Holy as the Holy One. Oh the heights and depths of Grace! Shining with meridian blaze; Here the saved records show Sinners black but comely too. 
 
 As for you who have never received that pardon, does not the mention of it make you long for it, cry for it and beg for it? O that you would, above all, believe for it&mdash;for it is to be had by you. The guiltiest of the guilty shall have forgiveness if they believe in Jesus! Whoever among you will trust in the crucified Savior shall be pardoned this night! The moment you trust Him you shall have a full acquittal for all your sins and crimes. Yes, all transgressions, and you shall sing, as our poet Kent does&mdash;
 

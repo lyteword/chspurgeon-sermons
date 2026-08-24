@@ -2,7 +2,7 @@
 
 "I have no greater joy than to hear that my children walk in truth." 3 John 1:4.
 
-JOHN speaks of himself as though he were a father and, therefore, we concede to parents the right to use the language of the text. Sure am I that many of you here present, both mothers and fathers, can truly say, "We have no greater joy than to hear that our children walk in truth" [the Truth of God.] But John was not after the flesh, the father of those of whom he was writing&mdash;he was their spiritual father. It was through his ministry that they had been brought into the new life. His relationship to them was that he had been the instrument of their conversion and had afterwards displayed a father's care in supplying them with heavenly food and gracious teaching.
+JOHN speaks of himself as though he were a father and, therefore, we concede to parents the right to use the language of the text. Sure am I that many of you here present, both mothers and fathers, can truly say, "We have no greater joy than to hear that our children walk in truth" But John was not after the flesh, the father of those of whom he was writing&mdash;he was their spiritual father. It was through his ministry that they had been brought into the new life. His relationship to them was that he had been the instrument of their conversion and had afterwards displayed a father's care in supplying them with heavenly food and gracious teaching.
 
 Therefore, this morning, after we have used the words as the expression of parents, we must take them back again and use them as the truthful utterance of all real pastors, "We have no greater joy than to hear that our children walk in the Truth of God."
 
@@ -36,10 +36,10 @@ without trembling, for spiritual joy will never intoxicate. Such joy arises from
 
 We love to see our children converted because we love God. Out of love to Him, by His Grace, we gave ourselves to Him and now, in later years, the same love prompts us to present our children. As Barzillai in his old age prayed David to accept the personal service of his son, Chimham, so would we, when our own strength declines, present our offspring to the Lord that they may supply our lack of service. We have said&mdash;
 
-> Had I ten thousand thousand tongues,   
-> Not one should silent be.   
-> Had I ten thousand thousand hearts,   
-> I'd give them all to Thee.   
+> Had I ten thousand thousand tongues, 
+> Not one should silent be. 
+> Had I ten thousand thousand hearts, 
+> I'd give them all to Thee. 
 
 Now as we have only one tongue of our own, we are intensely earnest that our children's tongues should sound forth the praises of the Savior. We have not another life on earth to call our own, but here are lives which the Lord has given us&mdash; and we are delighted that He should have them for Himself.
 
@@ -75,8 +75,8 @@ Do not be afraid at any time when pleading for the souls of your children! Be im
 
 Well, that means for us, during this life, many sorrows, nights of sleeplessness and days of anxiety. I have seen good men and great men crushed beneath the daily trouble caused by their children. "Children," said one, "are doubtful blessings," and he was near the truth. Blessings they are, and they can be made by God the choicest of blessings&mdash;but if they shall grow up to be dissolute, impure, ungodly&mdash;they will make our hearts ache&mdash;
 
-> How sharper than a serpent's tooth it is   
-> To have a thankless child.   
+> How sharper than a serpent's tooth it is 
+> To have a thankless child. 
 
 No cross is so heavy to carry as a living cross. Next to a woman who is bound to an ungodly husband, or a man who is unequally yoked with a graceless wife, I pity the father whose children are not walking in the Truth of God, who is yet, himself, an earnest Christian. Must it always be so, that the father shall go to the House of God and his son to the alehouse? Shall the father sing the songs of Zion, and the son and daughter pour forth the ballads of Belial?
 
@@ -102,7 +102,7 @@ John did so. Those who are the preacher's children are often known to him. They 
 
 Therefore, permit me to remind some of you who, I trust, know the Lord, but have never confessed His name, that you do us grievous wrong! We have sought your good and God has blessed us to you. But you deny us the fruit of our labor, which is that we should hear that God has owned our ministry in your consciences! Do not continue to defraud the laborer of his hire! You know how refreshing to the preacher is information that he has won a soul for Jesus. As cold water to a thirsty soul in a parching desert is such good news to us! I have had many such cups of water, but I am growing thirsty for more. I am grateful when the Lord works as He did only the other day, and I hear of it.
 
-I preached to you, one morning, a sermon to despairing souls [#1146 Consolation for the Despairing.] I said there might be few, then, present to whom it would apply. It was very grateful to me to find, a day or so after, that a friend from a considerable distance had been moved to come here that morning, and, after many years of despair, was brought into light and liberty through the sermon. Oh, how glad I felt! You cannot help preaching when you know that saving results follow! If God's Holy Spirit has blessed our word to you, do not refrain from acknowledging the blessing! Put on Christ publicly in Baptism, according to His command&mdash;unite yourself with His Church and commune with the people among whom you have been born unto God.
+I preached to you, one morning, a sermon to despairing souls I said there might be few, then, present to whom it would apply. It was very grateful to me to find, a day or so after, that a friend from a considerable distance had been moved to come here that morning, and, after many years of despair, was brought into light and liberty through the sermon. Oh, how glad I felt! You cannot help preaching when you know that saving results follow! If God's Holy Spirit has blessed our word to you, do not refrain from acknowledging the blessing! Put on Christ publicly in Baptism, according to His command&mdash;unite yourself with His Church and commune with the people among whom you have been born unto God.
 
 It seems from our text that John was in the habit of hearing about his spiritual children&mdash;"I have no greater joy than to hear"&mdash;mark that&mdash;"than to hear that my children walk in the truth." That implies that if you make a profession of your faith, people will talk about you. John could not have heard if others had not spoken. The man who makes a profession of religion, especially in a Church like this, will be watched by all the world's eyes, and not by very friendly critics, either. There are those at home, who know not the Savior, who, if they can find any fault in your character, will throw it at you, and say, "That is your religion, is it?"
 
