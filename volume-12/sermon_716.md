@@ -1,7 +1,7 @@
 # Sermon 716 | The Church Awakened
 
-> "Therefore He says: Awake, you who sleep, Arise from the dead, And Christ will give you light.'"  
-> Ephesians 5:14.  
+> "Therefore He says: Awake, you who sleep, Arise from the dead, And Christ will give you light.'" 
+> Ephesians 5:14. 
 
 WE have not time this evening to enter into the question as to where this quotation came from. There does not appear to be one exactly like it in the compass of the Old Testament&mdash;but we must remember that the Apostle very frequently quotes the spirit of texts rather than the words of them. In the eighth and in the tenth chapters of the Epistle to the Hebrews we find him quoting the same passage, but not in the same words, showing us that he, as an inspired man, felt himself able to deal rather with the spirit of a passage than with the precise words of it. There may, therefore, be no such passage in the Old Testament verbally, but as there are several which have the spirit of the exhortation, Paul was justified in saying, "God has said so-and-so."
 
@@ -109,4 +109,4 @@ More Divine Grace and more peace, more light and more joy&mdash;I pray God that 
 
 We have enough Churches in London where they sleep. Oh, may God deliver us from having this place to be a huge cemetery, and make us to be a great House, a great City from which shall go forth the hosts and armies of the Lord to do battle for Him! May God send His Holy Spirit to abide among us in all His plenitude, and He shall have the glory!
 
-Now you all see this sermon is to the Christian. I tried to preach to seekers this morning [#714&mdash;a Savior Such As You Need] and gave them their turn, then. But if there is one here who has not found the Savior, I must add this word to him. The way of salvation is this&mdash;Trust Christ and you are saved! Christ suffered in the place of His people. God laid their sin on Him and punished Him as if He were they. And whoever trusts Christ is forgiven. He is saved! And when he is saved then I invite him to exert his strength for his Master. But till then look at home and then look at Jesus, and God grant that this look at yourselves and at your Savior may be the means of your salvation&mdash;to the praise of the glory of His Divine Grace.
+Now you all see this sermon is to the Christian. I tried to preach to seekers this morning and gave them their turn, then. But if there is one here who has not found the Savior, I must add this word to him. The way of salvation is this&mdash;Trust Christ and you are saved! Christ suffered in the place of His people. God laid their sin on Him and punished Him as if He were they. And whoever trusts Christ is forgiven. He is saved! And when he is saved then I invite him to exert his strength for his Master. But till then look at home and then look at Jesus, and God grant that this look at yourselves and at your Savior may be the means of your salvation&mdash;to the praise of the glory of His Divine Grace.
