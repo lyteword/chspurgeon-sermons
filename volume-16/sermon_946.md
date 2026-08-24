@@ -90,10 +90,10 @@ He will pass gently out of this world into the world to come, and then, at that 
 
 Everything which can be seen is but a fruit with a worm at the core, a flower doomed to fade. But the Believer shall live forever, his life shall be coeval with the years of the Most High. God lives ever, ever, ever, and so shall every godly soul. Christ, having given him eternal life, he is one with Jesus, and as Jesus lives forever, even so shall he. In the moment of death the Christian will begin to enjoy this eternal life in the form of wonderful felicity in the company of Christ, in the Presence of God, in the society of disembodied spirits and holy angels. I say in a moment, for from the case of the dying thief we learn that there is no wait upon the road from earth to Heaven&mdash;
 
-> One gentle sigh the fetter breaks&mdash;   
-> We scarce can say, 'He'sgone!'   
-> Before the willing spirit takes   
-> Its mansion near the Throne.   
+> One gentle sigh the fetter breaks&mdash; 
+> We scarce can say, 'He'sgone!' 
+> Before the willing spirit takes 
+> Its mansion near the Throne. 
 
 How does Paul put it? "Absent from the body." But you have hardly said that word, when he adds, "present with the Lord." The eyes are closed on earth and opened again in Heaven! They loose their anchor, and immediately they come to the desired haven. How long that state of disembodied happiness shall last it is not for us to know, but by-and-by, when the fullness of time shall come, the Lord Jesus shall consummate all things by the resurrection of these bodies. The
 
@@ -121,12 +121,12 @@ All the kingdom which the Father has prepared, and the place which the Son has p
 
 The promise goes with godliness, and if you have godliness there is nothing in Heaven of joy, there is nothing there of honor, there is nothing there of rest and peace&mdash;which is not yours. For godliness has the promise of it, and God's promise never fails&mdash;
 
-> Lo! I see the fair immortals, Enter to the blissful seats;   
-> Glory opens her waiting portals, And the Savior's train admits. All the chosen of the Father, All for whom the Lamb was slain, All the Church appear together,   
-> Washed from every sinful stain. His dear smile the place enlightens More than thousand suns could do; All around, His Presence brightens,   
-> Changeless, yet forever new. Blessed state! Beyond conception!   
-> Who its vast delights can tell? May it be my blissful portion,   
-> With my Savior there to dwell.   
+> Lo! I see the fair immortals, Enter to the blissful seats; 
+> Glory opens her waiting portals, And the Savior's train admits. All the chosen of the Father, All for whom the Lamb was slain, All the Church appear together, 
+> Washed from every sinful stain. His dear smile the place enlightens More than thousand suns could do; All around, His Presence brightens, 
+> Changeless, yet forever new. Blessed state! Beyond conception! 
+> Who its vast delights can tell? May it be my blissful portion, 
+> With my Savior there to dwell. 
 
 Perhaps within the next ten minutes we may be there! Who knows? I had half said, "God grant it to me!" No doubt, many anxious spirits would be glad to end so soon life's weary journey and rest in the Fathers Home!
 
@@ -146,8 +146,8 @@ Perhaps you will have to fight the world's battles, and you will find them very 
 
 Though his feet may be blistered, the way may have been long, and the sweat may be pouring from his face, yet he plucks up courage at the sight of home. The last mile down hill is soon over, for he has seen his long-loved home. Christians, you may see it, you may see the goodly land from Nebo even now&mdash;
 
-> How near   
-> At times to faith's far-seeing eye, The golden gates appear!   
+> How near 
+> At times to faith's far-seeing eye, The golden gates appear! 
 
 When the Crusaders first came in sight of Jerusalem, though they had a hard battle before them before they could win it, yet they fell down in ecstasy at the sight of the holy city. And do not you and I say, "Soldiers of the Cross, my fellow Crusaders in the holy war of righteousness, will you not in prospect of the coming glory sing&mdash;
 
@@ -161,13 +161,13 @@ Your joys that I might see!'?"
 
 When the brave soldiers, of whom Xenophon tells us, came at last in sight of the sea, from which they had been so long separated, they cried out, "Thallasse! Thallasse!"&mdash;"The sea! The sea!" And we, though death appears between us and the better land, can yet look beyond it and see the&mdash;
 
-> Sweet fields beyond the swelling flood   
-> Arrayed in living green,   
+> Sweet fields beyond the swelling flood 
+> Arrayed in living green, 
 
 and bless God that a sight of what is to be revealed renders the burdens of the way light as we march towards Glory. Oh, live, live in the foretaste of Heaven. Let worldlings see that&mdash;
 
-> The thought of such amazing bliss   
-> Does constant joys create.   
+> The thought of such amazing bliss 
+> Does constant joys create. 
 
 Last of all. This promise which is appended to godliness is a VERY NEEDFUL ONE. It is a very necessary one, for ah, if I have no promise of the life that is to come, where am I? Where am I? And where shall I be? Where shall I be? I live, I know. I die, I know I must. And if it all is true as this old Bible, my mother's Bible, tells me&mdash;that there is a hereafter. If I have no godliness, then woe is the day to me! Oh, how much I want the promise of the life to come, for if I have not that I have a curse for the life to come.
 
@@ -187,4 +187,4 @@ And now, you who really desire to find godliness, remember, it is to be had in C
 
 But oh, my Lord and Master, Jesus Christ, is a river of mercy, deep and broad. You have but to stoop and drink, and you may drink as much as you will, and none shall tell you stop. Have you not His Word for it, "Let him that is athirst come. And whosoever will, let him take the water of life freely?" God grant you may with your heart believe the Gospel of Jesus, for our heart believes the Gospel of Jesus, for Christ's sake.
 
-[Sermon #937, The Profit of Godliness in This Life, is the sermon Brother Spurgeon alluded to at the beginning of this sermon.]
+
