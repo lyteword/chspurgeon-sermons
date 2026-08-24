@@ -108,7 +108,7 @@ Now I have to say this to you who fear the Lord and who are seeking to have Chri
 
 May God grant us this blessing now! Let the prayer be breathed, "Arise upon us, Sun of Righteousness," and then let the other prayer follow, "Make us to go forth and to grow up like calves of the stall, and may we serve You, O God, and receive Your blessing world without end! Amen."
 
-Exposition by C. H. Spurgeon: Luke10:25-42.
+## Exposition by C. H. Spurgeon: Luke 10:25-42
 
 Verses 25-28. And, behold, a certain lawyer stood up and tempted Him, saying, Master, what shall I do to inherit eternal life? He said unto him, What is written in the La w? How do you read it? And he answering, said, You shall love the Lord your God with all your heart, and with all your soul, and with all your strength, and with all your mind; and your neighbor as yourself And He said unto him, You have answered right this do and you shall live. Do any of you want to live by the Law? There is the Law. Does any man here pretend that he has kept it? Let me ask any man here who would justify himself by his own works&mdash;have you thought of God today? How much time have you spent with God? Or yesterday, how much of your time did you give Him&mdash;how many minutes? Would you venture to say that you spent a quarter of an hour in prayer? No. Perhaps if it comes to the truth, you did not spend five minutes. Now, if you loved God with all your heart and all your soul, and all your strength, and all your mind, do you think that five minutes would satisfy such a love as that? Oh, no, Sirs! You that are unconverted give God no love at all&mdash;and how can you think, therefore, that you are keeping His Law which puts it so strongly, "You shall love the Lord your God with all your heart? And with all your soul, and with all your strength, and with all your mind, and your neighbor as yourself? Have you ever done that? Neither the first nor the second table have you kept intact!
 
@@ -128,7 +128,7 @@ And went to him and bound up his wounds, pouring in oil and wine, andset him on 
 
 And on the morrow when he departed he took out twopence and gave them to the host, and said unto him, Take care of him; and whatever you spend more, when I come again, I will repay you. "This is my piece of work. I want to finish it and as I cannot stay, will you kindly supply the ready money, and when I come again, I will repay you?"
 
-37. Which, now, of these three, do you think was neighbor unto him that fell among the thieves? And he said, he that showed mercy on him. Oh, you lawyer, why did you not say, "The Samaritan?" Of course he did not like to use that word! Oh, no, we never mention them&mdash;the "Samaritans." "The Jews have no dealings with the Samaritans." So he would not honestly say, "The Samaritan," but he made a roundabout of it and said, "He that showed mercy on him."
+Which, now, of these three, do you think was neighbor unto him that fell among the thieves? And he said, he that showed mercy on him. Oh, you lawyer, why did you not say, "The Samaritan?" Of course he did not like to use that word! Oh, no, we never mention them&mdash;the "Samaritans." "The Jews have no dealings with the Samaritans." So he would not honestly say, "The Samaritan," but he made a roundabout of it and said, "He that showed mercy on him."
 
 Then said Jesus unto him, Go, and do you likewise. May we all be enabled to do so by exercising constant love to those who are in need!
 
@@ -138,7 +138,7 @@ And she had a sister calledMary, which also sat at Jesus 'feet and heardHis word
 
 But Martha was cumbered about much serving, and came to Him and said, Lord, do You not care that my sister has left me to serve alone? Bid her, therefore, that she help me. She wanted to get so much ready&mdash;to have everything nice. So she came almost scolding the Master! She was out of temper, surely, that day. She had gotten to be troubled. Dear Friends, it is not wrong to labor and to work and do all we can, but it is wrong to grow cumbered with it&mdash;to get fretful, anxious, worried about this thing and that! You will not do it any better. You will probably do less and you will do it worse. She was "cumbered about much serving."
 
-41, 42. And Jesus answered and said unto heer, Martha, Martha, you are careful and troubled about many things: but one thing is necessary. "You have forgotten much. Looking after many things, you have failed to remember the chief, the onlynecessary thing."
+And Jesus answered and said unto heer, Martha, Martha, you are careful and troubled about many things: but one thing is necessary. "You have forgotten much. Looking after many things, you have failed to remember the chief, the onlynecessary thing."
 
 And Mary has chosen that good part, which shall not be taken away from her And so He let her still sit there and hear His blessed Words&mdash;
 
