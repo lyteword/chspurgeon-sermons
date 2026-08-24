@@ -1,7 +1,7 @@
 # Sermon 627 | Justification And Glory
 
-> Whom He justified, them He also glorified.    
-> Romans 8:30.    
+> Whom He justified, them He also glorified. 
+> Romans 8:30. 
 
 WELL said the Apostle in another place, "All things are of God." And here in this passage all works of Divine Grace are evidently so. The pronoun, "He," is repeated yet again and again, as if to set the Lord always before us. "Whom He did foreknow, He also did predestinate to be conformed to the image of His Son." "Moreover, whom He did predestinate, them He also justified and whom He justified, them He also glorified." It is of God all the way through. There is not an inch of ground left to he covered by the creature's foot. The eternal Creator works all things in the Covenant of Grace according to the counsel of His own will. Haldane has an admirable note on this passage which we will quote in full:
 
@@ -133,4 +133,4 @@ He did not begin to build and then fail to finish. "Whom He justified, them He a
 
 The only question is, am I justified? I would say in closing, do not let that be a question, dear Hearer. But look to Him who freely justifies every believing soul and trust yourself now in His hands. May the Spirit of God bring you graciously to do it and you shall find it true, "Whom He justified, them He also glorified."
 
-["A Catechism with Proofs," compiled by C. H. Spurgeon from the Assembly's Shorter Catechism and the Baptist Catechism. London&mdash;Passmore & Alabaster, 23, Paternoster Row. Price 1d.; 7s. per hundred.]
+
