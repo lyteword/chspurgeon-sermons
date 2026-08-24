@@ -82,7 +82,7 @@ Ah, it is not very likely that any sword of mine will get at your head! Argument
 
 Oh, I wish you would take off that helmet! May God grant you Grace to unbuckle it tonight, never to put it on again! Do care. You are not a fool, my Friend, are you? It is only a fool who says, "What do I care?" Surely you care about your soul! Surely Heel is worth escaping from! Surely Heaven is worth winning! Surely that Cross on which our Savior died is worth thinking of Surely that poor soul of yours is worth caring about! Do, I pray you, think, and not go hastily on. Oh, may Jesus Christ, who died for such as you are, bring you to trust Him! And then, unbuckling all that evil armor of, "What do I care?" you will bow before His Cross and kiss His hands&mdash;and He will put upon you the golden helmet of a hope of salvation and you will rise, one of the Kings own soldiers, to fight His battles and win an immortal wreath of everlasting victory! May it is so with every one of us!
 
-Exposition by C. H. Spurgeon:
+## Exposition by C. H. Spurgeon: 
 
 1Thessalonians 5:1-28.
 
@@ -92,7 +92,7 @@ For when they shall say, Peace and safety; then sudden destruction comes upon th
 
 But you, brethren, are not in darkness, that that day should overtake you as a thief. You know that Christ will come. You expect the dissolution of this present state. To you, therefore, it will come as one who calls at daytime. You cannot know the hour. You must not know it. But since you know that He will come, and come to your joy&mdash;and since you are in the light, you look with gladness to that coming!
 
-6. You are all the children oflight and the children ofthe day: we are not ofthe night, nor ofdarkness. Therefore let us not sleep as do othersIf we were children of the night, sleep is a proper occupation for the night, but as we are the children of the day, let us not sleep as others.
+You are all the children oflight and the children ofthe day: we are not ofthe night, nor ofdarkness. Therefore let us not sleep as do othersIf we were children of the night, sleep is a proper occupation for the night, but as we are the children of the day, let us not sleep as others.
 
 But let us watch and be sobe. Watchfulness and sobriety are appropriate duties for the day. To be always serving our Lord with constancy and to keep ourselves from the fascinations of the world which make men's minds drunk&mdash;may these two things be our daily care.
 
@@ -106,16 +106,16 @@ Who died for us, that whether we wake or sleep, we should live together with Him
 
 Therefore comfort yourselves together and edify one another, just as you also are doing. The more of this the better. Christian people should constantly converse with one another for mutual edification.
 
-13. And we beseech you, brethren, to know them which labor among you, and are over you in the Lord, and admonish you; and to esteem them very highly in love for their work's sake. You see, in the Church of old they edified one another, but for all that, they did not cast off God's ordinance of Christian ministry. There was rule in the Church, then, as there should be now&mdash;and the Apostle, when he speaks of this individual edification, this mutual instruction&mdash; does not forget to notice those who were the pastors of the flock. He says, "Know them which labor among you and are over you in the Lord, and admonish you; and esteem them very highly in love for their work's sake."
+And we beseech you, brethren, to know them which labor among you, and are over you in the Lord, and admonish you; and to esteem them very highly in love for their work's sake. You see, in the Church of old they edified one another, but for all that, they did not cast off God's ordinance of Christian ministry. There was rule in the Church, then, as there should be now&mdash;and the Apostle, when he speaks of this individual edification, this mutual instruction&mdash; does not forget to notice those who were the pastors of the flock. He says, "Know them which labor among you and are over you in the Lord, and admonish you; and esteem them very highly in love for their work's sake."
 
 And be at peace among yourselves. How can a Church prosper if it is not?
 
-14-16. Now we exhort you, brethren, warn them that are unruly, comfort the feeble minded, support the weak, be patient toward all men. See that none render evil for evil unto any man, but always follow that which is good both among yourselves and to all men. Rejoice evermore. Here follows a string of Christian precepts&mdash;a golden chain. "Rejoice evermore."
+Now we exhort you, brethren, warn them that are unruly, comfort the feeble minded, support the weak, be patient toward all men. See that none render evil for evil unto any man, but always follow that which is good both among yourselves and to all men. Rejoice evermore. Here follows a string of Christian precepts&mdash;a golden chain. "Rejoice evermore."
 
-17-19. Pray without ceasing. In everything give thanks: for this is the will of God in Christ Jesus concerning you. Quench not the Spirit Do not despise His operations, either in yourselves or in your brethren. Do not quench Him by neglect, much less by open opposition!
+Pray without ceasing. In everything give thanks: for this is the will of God in Christ Jesus concerning you. Quench not the Spirit Do not despise His operations, either in yourselves or in your brethren. Do not quench Him by neglect, much less by open opposition!
 
-20-22. Despise not prophesying. Prove all things; hold fast that which is good. Abstain from all appearance of evil Not from that which other people choose to think evil, but from all real evil whatever it is&mdash;even from the very shadow that it casts and the shape which it assumes!
+Despise not prophesying. Prove all things; hold fast that which is good. Abstain from all appearance of evil Not from that which other people choose to think evil, but from all real evil whatever it is&mdash;even from the very shadow that it casts and the shape which it assumes!
 
-23-26. And the very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ Faithful is He that calls you, who also will do it Brethren, pray for us. Greet all the brethren with a holy kiss. Give one another a hearty shake of the hands. That is the western interpretation of the eastern form. Outward forms differ. The inward sense abides the same. Let brotherly love continue in a hearty friendliness among yourselves.
+And the very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ Faithful is He that calls you, who also will do it Brethren, pray for us. Greet all the brethren with a holy kiss. Give one another a hearty shake of the hands. That is the western interpretation of the eastern form. Outward forms differ. The inward sense abides the same. Let brotherly love continue in a hearty friendliness among yourselves.
 
-27, 28. I charge you by the Lord that this Epistle be read unto all the holy brethren. The Grace of our lord Jesus Christ be with you. Amei.
+I charge you by the Lord that this Epistle be read unto all the holy brethren. The Grace of our lord Jesus Christ be with you. Amei.
