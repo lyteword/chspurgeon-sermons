@@ -2,7 +2,7 @@
 
 "And, behold, a woman in the city, which was a sinner, when she knew that Jesus sat at meat in the Pharisee's house, brought an alabaster box of ointment, and stood at His feet behind Him weeping, and began to wash His feet with tears, and did wipe them with the hairs of her head, and kissed His feet, and anointed them with the ointment." Luke 7:37-38.
 
-THIS is the woman who has been confused with Mary Magdalene. How the error originated, it would not be easy to imagine, but error it certainly is. There is not the slightest shadow of evidence that this woman, who was a sinner, had even the remotest connection with her out of whom Jesus cast seven devils. In delivering you a sermon a few Sabbaths ago, upon the life of Mary of Magdala, [#792, Mary Magdalene, January 26, 1868] I think I showed you that it was hardly possible, and most improbable that she could have been a sinner in the sense here intended. And now I venture to affirm that there is as much evidence to prove that the woman in the narrative now before us, was the Queen of Sheba, or the mother of Sisera, as that she was Mary Magdalene&mdash;there is not a figment or fraction of evidence to be found! The fact is, there is no connection between the two.
+THIS is the woman who has been confused with Mary Magdalene. How the error originated, it would not be easy to imagine, but error it certainly is. There is not the slightest shadow of evidence that this woman, who was a sinner, had even the remotest connection with her out of whom Jesus cast seven devils. In delivering you a sermon a few Sabbaths ago, upon the life of Mary of Magdala, I think I showed you that it was hardly possible, and most improbable that she could have been a sinner in the sense here intended. And now I venture to affirm that there is as much evidence to prove that the woman in the narrative now before us, was the Queen of Sheba, or the mother of Sisera, as that she was Mary Magdalene&mdash;there is not a figment or fraction of evidence to be found! The fact is, there is no connection between the two.
 
 Further, the sinner before us is not Mary of Bethany, with whom so many have identified her. Mary, the sister of Martha and Lazarus, did anoint our Savior, but this is a previous anointing, by quite a different person, and the two narratives are altogether distinct. There is a great likeness, certainly, between the two. The principal persons were both women, full of ardent love to Christ. They both anointed the Lord with ointment&mdash;the name of Simon is connected with both, and they both wiped the Savior's feet with their hair. But it ought not to astonish you that there were two persons whose intense affection thus displayed itself&mdash;the astonishment should rather be that there were not 200 who did so, for the anointing of the feet of an honored friend was by no means so uncommon a token of respect among the Orientals as to be an unprecedented marvel.
 
@@ -36,18 +36,18 @@ Grace reigns right majestically in the case before us, in that this particular s
 
 
 
-> Oh, gift of gifts! Oh, Grace of faith!   
-> My God, how can it be   
-> That You, who has discerning love,   
-> Should give that gift to me?   
-> How many hearts You might have had   
-> More innocent than mine!   
-> How many souls more worthy far   
-> Of that pure touch of Yours!   
-> Ah, Grace! Into unlikeliest hearts   
-> It is Your boast to come;   
-> The glory of Your light to find   
-> In darkest spots a home.   
+> Oh, gift of gifts! Oh, Grace of faith! 
+> My God, how can it be 
+> That You, who has discerning love, 
+> Should give that gift to me? 
+> How many hearts You might have had 
+> More innocent than mine! 
+> How many souls more worthy far 
+> Of that pure touch of Yours! 
+> Ah, Grace! Into unlikeliest hearts 
+> It is Your boast to come; 
+> The glory of Your light to find 
+> In darkest spots a home. 
 
 At yonder table sits Simon the Pharisee, a good respectable body, as he thinks himself to be, and yet no Divine choice has fallen upon him&mdash;while this poor harlot is elected by Distinguishing Grace! How can we account for this? Many there were in the city like to herself, some worse, some better&mdash;but Grace had marked her as its own. Oh strange, yet admirable Sovereignty!
 

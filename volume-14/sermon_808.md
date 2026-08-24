@@ -1,9 +1,9 @@
 # Sermon 808 | Bringing the King Back
 
-> "Now therefore why speak you not a word of bringing the king back?"  
-> 2 Samuel 19:10.  
+> "Now therefore why speak you not a word of bringing the king back?" 
+> 2 Samuel 19:10. 
 
-THIS morning we were indulged with the Master's blessing while considering one of the most delightful subjects that can ever occupy the minds of God's creatures this side of Heaven [Sermon #807, Good News for Loyal Subjects.] It was a celestial song, fitter for angels' harps than sinners' tongues. We sang the triumphs of the once rejected but now exalted Son of Man. We lingered lovingly over the guarantees of His sure and blessed kingdom, and fed with delight upon that short, sweet sentence, "He must reign." We tried to show that the Throne of our Lord Christ is settled on a firm foundation, and that His ultimate and undisputed sovereignty over all things in Heaven and earth and Hell is a matter of Divine decree and will be asserted by the Divine power in due time.
+THIS morning we were indulged with the Master's blessing while considering one of the most delightful subjects that can ever occupy the minds of God's creatures this side of Heaven It was a celestial song, fitter for angels' harps than sinners' tongues. We sang the triumphs of the once rejected but now exalted Son of Man. We lingered lovingly over the guarantees of His sure and blessed kingdom, and fed with delight upon that short, sweet sentence, "He must reign." We tried to show that the Throne of our Lord Christ is settled on a firm foundation, and that His ultimate and undisputed sovereignty over all things in Heaven and earth and Hell is a matter of Divine decree and will be asserted by the Divine power in due time.
 
 We laid the sheaf upon the threshing floor this morning&mdash;let us beat out the precious grain this evening. We showed you the pearl, now let us make it a golden setting of practical holiness! The Son of David is assuredly King, and you know it. "Now therefore why speak you not a word of bringing the King back?" Israel had revolted, and set up Absalom against his father&mdash;but when the rebel bands had been scattered and Absalom had been slain, the people thought of their old love&mdash;they remembered the days when David was the terror of the Philistines and the champion of Israel! Their hearts smote them for their ingratitude to their valiant deliverer, and they said one to the other, "Now therefore why speak you not a word of bringing the king back?"
 
@@ -21,10 +21,10 @@ The royal hand brings health and cure&mdash;healing is to be found nowhere else 
 
 
 
-> Midst darkest shades if He appears,   
-> My dawning is begun;   
-> He is my soul's bright morning star,   
-> And He my rising sun.   
+> Midst darkest shades if He appears, 
+> My dawning is begun; 
+> He is my soul's bright morning star, 
+> And He my rising sun. 
 
 If your soul has been nipped with the frosts of a long and dreary winter. If the Sun of Righteousness does but manifest His meridian splendor, your summer will return at once! Let the King come and all His court will follow&mdash;all the Graces display themselves where the Lord of Grace is revealed. One word, then, to you who are under backslidings and declensions&mdash;play not with side issues and secondary remedies&mdash;but go straightforward to the root of the matter! Turn your whole soul to your absent Master, and make this your one business&mdash;to bring the King back to His palace and throne in your heart.
 
@@ -42,15 +42,15 @@ As Charles Wesley puts it so sweetly in the hymn&mdash;
 
 
 
-> You, O Christ, are all I want;   
-> More than all in You I find.   
+> You, O Christ, are all I want; 
+> More than all in You I find. 
 
 If you would obtain all good things in one, seek to win Christ and to be found in Him. Desponding one, your whole business lies with Jesus. You have nothing to do today with attainments and experiences&mdash;it is not even desirable to practice self-examinations while you are in despondency&mdash;these are to be attended to by-and-by&mdash;but just now, while the present stress of weather lasts, your one cry must be&mdash;
 
 
 
-> Jesus, lover of my soul,   
-> Let me to Your bosom fly.   
+> Jesus, lover of my soul, 
+> Let me to Your bosom fly. 
 
 While your boat is tossed about at sea, it is very likely that she needs a new copper bottom, or the deck requires holystoning, or the rigging is out of repair, or the sails need overhauling, or 50 other things may be necessary. But if the wind is blowing great guns and the vessel is drifting towards those white-crested breakers&mdash;the first business of the mariner is to make for the haven at once to avoid the hurricane. When he is all snug in port, he can attend to hull and rigging, and all the odds and ends besides.
 
@@ -76,10 +76,10 @@ Do you not long for it? Have you forgotten the garden of nuts and the beds of sp
 
 
 
-> O my Soul, forget no more   
-> The Friend who all your misery bore.   
-> Let every idol be forget,   
-> But, O my Soul, forget Him not.   
+> O my Soul, forget no more 
+> The Friend who all your misery bore. 
+> Let every idol be forget, 
+> But, O my Soul, forget Him not. 
 
 And now what are you doing to be so negligent of your Beloved? O fickle heart, are you not ashamed at your inconstancy! Content without your Lord? A spouse content without her husband? A child happy away from its father's face and under its father's frown? Chide your hearts, my Brothers and my Sisters, if you know any joy apart from Jesus!
 
@@ -87,10 +87,10 @@ I would gladly provoke you to a sacred jealousy. I would fill you with an insati
 
 
 
-> When will You come unto me, Lord?   
-> O come, my Lord, most dear!   
-> Come near, come nearer, nearer still,   
-> I'm blest when You are near.   
+> When will You come unto me, Lord? 
+> O come, my Lord, most dear! 
+> Come near, come nearer, nearer still, 
+> I'm blest when You are near. 
 
 Remember, the heavenly Lover will come. He forgives the past&mdash;He is ready to come to you now. Come to Him, dear Brother, just as you did at first. Fall flat on your face before His dear Cross, and then look up to His streaming wounds, and say, "Jesus, I rest in You." Give yourselves up to Him afresh. It is a good thing to renew your youth by renewing your fellowship. See at this season how the year has put on its new mantle of green! Mark how all animal and vegetable nature has been refreshed! Will you not renew your youth like the eagle? Will you not begin again? I trust you will, and if so, the true way to revive is to speak a word concerning bringing the King back.
 
@@ -138,11 +138,11 @@ Others of you are held back by temptations from evil friends. You get outside th
 
 
 
-> I know that safe with Him remains,   
-> Protected by His power,   
-> What I've committed to His hands   
-> Till the decisive hour.   
-> Then will He own my worthless name   
-> Before His Father's face,   
-> And in the New Jerusalem   
+> I know that safe with Him remains, 
+> Protected by His power, 
+> What I've committed to His hands 
+> Till the decisive hour. 
+> Then will He own my worthless name 
+> Before His Father's face, 
+> And in the New Jerusalem 
 > Appoint my soul a place.
