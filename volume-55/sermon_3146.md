@@ -69,9 +69,9 @@ Have you ever heard the story of the poor man, in deep distress of mind, who one
 
 And, Brothers and Sisters, that is the company to which you and I belong! And when we enter Heaven, they will welcome us just as heartily as they did the martyrs, the Prophets and the Apostles! Jesus Christ came into the world to save sinners&mdash;and when sinners repent, there is joy in the presence of the angels of God, and joy in the heart of God, Himself, because they have sought His pardoning mercy! If any of you are not saved, it is not because there is any lack of mercy in the heart of God! If you perish, it is not for want of an open door set before you! So come in while you may!
 
-Exposition by C. H. Spurgeon: John21.
+## Exposition by C. H. Spurgeon: John 21
 
-Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself. May every one of you, my fellow disciples, realize that Jesus is showing Himself to you! He is only to be seen in His own Light. He must show Himself to us, or else we shall never see Him.
+After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself. May every one of you, my fellow disciples, realize that Jesus is showing Himself to you! He is only to be seen in His own Light. He must show Himself to us, or else we shall never see Him.
 
 There were together Simon Peter, and Thomas calledDidymus, andNathanael of Cana in Galilee and the sons of Zebedee, and two other of His disciples. He had told them to go into Galilee and gave them the promise, "There shall you see Me." So now they were by the Galilean Lake. They were keeping their appointment with Christ and as He always keeps His appointment with His people, He was there to meet them as He had promised.
 
@@ -87,17 +87,17 @@ They answered Him, No. But that was not His fault.
 
 And He said unto them, Cast the net on the right side of the ship, and you shall find. They cast therefore, and now they were not able to draw it in for the multitude of fishes. He testified His Presence by crowning their exertions with His blessing. And soon they had a great catch of great fishes&mdash;a great contrast to their night of fruitless toil.
 
-8. Therefore that disciple whom Jesus loved said unto Peter, It is the Lord. Now when Simon Peter heard that it was the lord, he girt his fisher's coat unto him, (for he was naked), and did cast himself into the sea. And the other disciples came in the little ship, (for they were not far from land, but as it were two hundred cubits), dragging the net with fishe. We often come very slowly to Christ because we will drag that net with fishes. We have such a deal of care, anxiety, and trouble when we need not have any at all&mdash;and so we come slowly, "dragging the net with fishes."
+Therefore that disciple whom Jesus loved said unto Peter, It is the Lord. Now when Simon Peter heard that it was the lord, he girt his fisher's coat unto him, (for he was naked), and did cast himself into the sea. And the other disciples came in the little ship, (for they were not far from land, but as it were two hundred cubits), dragging the net with fishe. We often come very slowly to Christ because we will drag that net with fishes. We have such a deal of care, anxiety, and trouble when we need not have any at all&mdash;and so we come slowly, "dragging the net with fishes."
 
 As soon, then, as they were come to land, they saw a fire of coals there, and fish laid thereon, and bread. Why did they want to go fishing on their own account? Christ had all that they needed ready for them&mdash;there was the fire and there were the fish cooking on it, ready for their breakfast. It was the Lord Jesus Christ's business to provide for them and He did so.
 
-10, 11. Jesus said unto them, Bring of the fish which you have now caught Simon Peter went up and drew the net to land full of great fishes, an hundred and fifty and three and for all there were so many, yet the net was not broken. And there lay those 153 big fishes on the beach. Christ had no need of them but perhaps He condescended to use some of them for that morning meal, as He said to Peter, "Bring of the fish which you have now caught."
+Jesus said unto them, Bring of the fish which you have now caught Simon Peter went up and drew the net to land full of great fishes, an hundred and fifty and three and for all there were so many, yet the net was not broken. And there lay those 153 big fishes on the beach. Christ had no need of them but perhaps He condescended to use some of them for that morning meal, as He said to Peter, "Bring of the fish which you have now caught."
 
 Jesus said unto them, Come and dine.  Or, "Come and break your fast after your long night's toil." How they must have opened their eyes to see the fish ready cooked for them to eat!
 
 And none of the disciples dared ask Him, Who are You? knowing that it was the Lord. "It was the Lord"&mdash;"the Lord" who had asked them if they had any food, "the Lord" who had filled the net which had previously been empty, "the Lord" who had given them His own fish from His own fire that they might have breakfast with Him! O good Master, if we have been toiling all week and have caught nothing, call us now to come and eat of that which You have, Yourself, prepared!
 
-13-15. Jesus then came and took bread, and gave them some, and fish likewise. This is now the third time that Jesus showed Himself to His disciples after that He was risen from the dead. So when they had dined, Jesus said to Simon Peter, Simon, son of Jonas, Do you love Me more than these?"More than this lot of fish, these boats, these nets? You gave them all up for Me once, but now you have taken to them again&mdash;do you really love Me better than your fishing and your fish?"
+Jesus then came and took bread, and gave them some, and fish likewise. This is now the third time that Jesus showed Himself to His disciples after that He was risen from the dead. So when they had dined, Jesus said to Simon Peter, Simon, son of Jonas, Do you love Me more than these?"More than this lot of fish, these boats, these nets? You gave them all up for Me once, but now you have taken to them again&mdash;do you really love Me better than your fishing and your fish?"
 
 He said unto Him, Yes, Lord; You know that Ilove You. He said unto him, FeedMylambs. [See Sermon #1684, Volume
 
@@ -117,9 +117,9 @@ Sermon #2669, Volume 46&mdash;comfort from Christ's omniscience.] Thrice
 
 he had denied his Lord, so thrice he must be questioned concerning his love to the Lord whom he said he did not even know. And then for the third time he was re-commissioned by his Lord.
 
-17-19. Jesus said unto hiim, Feed My sheep. Verily, verily, I say unto you, When you were young, you gird yourself, and walked where you willed: but when you shall be old, you shall stretch forth your hands, and another shall gird you, and carry you where you would not. This spoke He, signifying by what death he should glorify God. And When He had spoken this, He said unto him, Follow Me. Peter's death was to glorify God, so he might well be content, painful though it was to be.
+Jesus said unto him, Feed My sheep. Verily, verily, I say unto you, When you were young, you gird yourself, and walked where you willed: but when you shall be old, you shall stretch forth your hands, and another shall gird you, and carry you where you would not. This spoke He, signifying by what death he should glorify God. And When He had spoken this, He said unto him, Follow Me. Peter's death was to glorify God, so he might well be content, painful though it was to be.
 
-20, 21. Then Peter, turning about, saw the disciple whom Jesus loved [See Sermon #1539, Volume 26&mdash;"the disciple whom Jesus
+Then Peter, turning about, saw the disciple whom Jesus loved [See Sermon #1539, Volume 26&mdash;"the disciple whom Jesus
 
 loved".] following; which also leaned on His breast at supper,
 
@@ -129,4 +129,4 @@ Jesus said unto him, If I will that he tarry till I come, what is that to you? Y
 
 Then went this saying abroad among the brethren, that that disciple should not die: yet Jesus said not unto him, He shall not die; but, If I will that he tarry till I come, what is that to you? This is only one of many instances in which Christ's words have been twisted and made to mean something quite different from what He intended.
 
-25. This is the disciple who testifies of these things, and wrote these things: and we know that his testimony is true. And there are also many other things which Jesus did, the which, if they should be written, every one, I suppose that even the world itself could not contain the books that should be written. Amen.
+This is the disciple who testifies of these things, and wrote these things: and we know that his testimony is true. And there are also many other things which Jesus did, the which, if they should be written, every one, I suppose that even the world itself could not contain the books that should be written. Amen.
