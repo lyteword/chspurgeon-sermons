@@ -68,11 +68,11 @@ Thus is it also in spiritual things. If you are willing to gather, God will alwa
 
 Thus, from a very simple text, we have had our lesson. Go home and feed upon what you have gathered&mdash;and take care to bless the name of the Lord!
 
-Exposition by C. H. Spurgeon: Psalm34.
+## Exposition by C. H. Spurgeon: Psalm 34
 
 The title of this Psalm is, "A Psalm of David, when he changed his behavior before Abimelech (or, Achish); who drove him away, and he departed." It relates to a sad scene in David's life when he had to feign madness in order to escape from his enemies. But I notice that although the fact is recorded, yet David does not dwell upon it in the Psalm. He had acted as a fool or a madman, but he was not fool enough, or mad enough, to glory in his shame! I have heard some men, whose past lives have been very disgraceful, who, after their professed conversion, have seemed to make a boast of their sin. David does not do that, nor will any other right-minded person. Let us always be ashamed of our sin, even while we magnify the Grace of God which has saved us from it. Though we may feel that it is necessary to mention it in order to encourage others to hope in the mercy of God, yet we must take care that we never even seem to dwell upon it with any kind of gusto. Thus the Psalm begins&mdash;
 
-Verse 1. I will bless the Lord at all times."Whether the times are dark or light, whether I feel well or ill, whether the Lord deals with me graciously or severely, I will bless Him at all times."
+I will bless the Lord at all times."Whether the times are dark or light, whether I feel well or ill, whether the Lord deals with me graciously or severely, I will bless Him at all times."
 
 His praise shall continually be in my moutt. What a blessed mouthful! If we could but carry out this resolve of David, we would not find so much fault with others as we often do. We shall have little or no opportunity for grumbling and murmuring if praise to Jehovah shall continually be in our mouth!
 
@@ -90,11 +90,11 @@ They looked unto Him.  "All these people that have come at my call to join me in
 
 And were lightened: and their faces were not ashamet. No, not one of them! If they looked to God, light shone from God upon their faces and their faces glowed with the holy radiance, so they had no reason to be ashamed.
 
-6, 7. This poor man cried,  and the Lord heard him, and saved him out of all his troubles. The angel of the Lord encamps round about them that fear Him, and delivers them. David's deliverance had been so special that he could not help feeling that some special deliverer had been employed on his behalf&mdash;"the angel of the Lord" had been sent to his help. Then David, why did you act like a madman? Ah, that was through his lack of faith, yet even lack of faith must not make us rob God of His Glory. What though we were unbelieving, He was faithful! Therefore let us give Him His due recompense of praise. Let us try to blot out the remembrance of our own weakness with our tears, but let us not erase the memory of God's loving kindness to us.
+This poor man cried,  and the Lord heard him, and saved him out of all his troubles. The angel of the Lord encamps round about them that fear Him, and delivers them. David's deliverance had been so special that he could not help feeling that some special deliverer had been employed on his behalf&mdash;"the angel of the Lord" had been sent to his help. Then David, why did you act like a madman? Ah, that was through his lack of faith, yet even lack of faith must not make us rob God of His Glory. What though we were unbelieving, He was faithful! Therefore let us give Him His due recompense of praise. Let us try to blot out the remembrance of our own weakness with our tears, but let us not erase the memory of God's loving kindness to us.
 
 O taste and see that the Lord is good: blessed is the man that trusts in Hi . You may not only believe that God is good, but it may become a matter of experience with you&mdash;"O taste and see that the Lord is good." You cannot see the goodness of God to perfection without tasting it, so use the sense of taste as well as that of sight! Some people want first to see, and then to taste, but David says, "Taste and see."
 
-10. O fear the Lord, you His saints: for there is no want to them that fearHim. The young lions do lack They are strong, cunning, ravenous, yet they "do lack."
+O fear the Lord, you His saints: for there is no want to them that fearHim. The young lions do lack They are strong, cunning, ravenous, yet they "do lack."
 
 And suffer hungerThey try to take care of themselves and, therefore, they get badly taken care of.
 
@@ -108,7 +108,7 @@ thing."
 
 Come, you children, listen to me: I will teach you the fear of the Lord. I should not wonder but that when David played the madman and scribbled on the doors of the gate, the children in the streets gathered around him and mocked him. Wherever we have done harm to any, let us try to do them good. So did David&mdash;he sought to gather the children about his knees and to talk to them&mdash;"Come, you children." He does not begin by saying, "Stand off, you children." There would be no teaching them in that way! You must seek to draw them to yourselves if you would draw them to your Lord. "Come, you children, listen to me: I will teach you the fear of the Lord." Though David had been anointed king, he remained a teacher of children! And the highest honor we can have is, for Christ's sake, to teach the little ones. Children love bright, happy teaching&mdash;they naturally desire life and happiness&mdash;so David begins.
 
-13. What man is he that desires life, and loves many days, that he may see good? Keep your tongue from evil, and your lips from speaking guile. Children's tongues are very active and they need to be reminded that their tongues must be sanctified or they will say what is evil. David had both spoken and acted with guile at the court of Achish, so he particularly dwelt upon that matter. "Depart from evil"&mdash;run away from it&mdash;not merely do not do it, but get away from it! "Depart from evil, and do good."
+What man is he that desires life, and loves many days, that he may see good? Keep your tongue from evil, and your lips from speaking guile. Children's tongues are very active and they need to be reminded that their tongues must be sanctified or they will say what is evil. David had both spoken and acted with guile at the court of Achish, so he particularly dwelt upon that matter. "Depart from evil"&mdash;run away from it&mdash;not merely do not do it, but get away from it! "Depart from evil, and do good."
 
 The eyes of the Lord are upon the righteous. He does not merely give a glance at them now and then, but His eyes rest on them. He is always watching them.
 
@@ -132,4 +132,4 @@ He keeps all his bones. Not one of them is broken. The righteous may have skin w
 
 Evil shall slay the wicked. Sin itself shall slaughter them.
 
-21, 22. And they that hate the righteous shall be desolate. The Lord redeems the soul of His servants: and none of them that trust in Him shall be desolate.
+And they that hate the righteous shall be desolate. The Lord redeems the soul of His servants: and none of them that trust in Him shall be desolate.
