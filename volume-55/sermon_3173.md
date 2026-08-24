@@ -94,13 +94,13 @@ I will close my discourse when I have reminded you that when we received Christ 
 
 I leave this sermon with God's people, but I cannot help adding that I do earnestly pray that all of you may receive Christ Jesus the Lord. Oh, come to Him tonight! He is willing that you should have Him&mdash;and every soul that wills to have Christ may have Him, for, "the Spirit and the bride say, Come. And let him that hears say, Come. And let him that is thirsty come. And whoever will, let him take the Water of Life freely." Amen, and Amen.
 
-Exposition by C. H. Spurgeon: 1 John 3:10-21.
+## Exposition by C. H. Spurgeon: 1 John 3:10-21
 
 Verses 10-12. In this the children of God are manifest and the children of the devil: whoever does not righteousness is not of God, neither he that loves not his brother For this is the message that you heard from the beginning, that we should love one another Not as Cain, who was of that Wicked One, and slew his brother And why did he slay him? Because his own works were evil, and his brother's righteous. Some people try to deceive us with the notion that all men are the children of God, but John, writing under the Inspiration of the Holy Spirit, shows how false that idea is! Holiness and love distinguish the children of God from the children of the devil!
 
 Marvel not, my brethren, if the world hates you. As Cain hated Abel, so worldlings hate the saints whose holiness is a continual rebuke to the ungodly.
 
-14-16. We know that we have passed from death unto life because we love the brethren. [See Sermon #2556, Volume 44&mdash;life
+We know that we have passed from death unto life because we love the brethren. [See Sermon #2556, Volume 44&mdash;life
 
 proved by love] He that loves not his brother abides in death.
 
@@ -110,13 +110,13 @@ we the love of God, because He laid down His life for uS  and we ought to lay do
 
 lives for the brethren. Such self-sacrifice as this is the very highest form of love to the brethren and is a following of the example of Christ, who "laid down his life for us."
 
-17, 18. But whoever has this world's goods and sees his brother has need and shuts up his heart of compassion from him, how dwells the love of God in him? My little children, let us not love in word, neither in tongue; but in deed and in
+But whoever has this world's goods and sees his brother has need and shuts up his heart of compassion from him, how dwells the love of God in him? My little children, let us not love in word, neither in tongue; but in deed and in
 
 Truth. Love that consists only of words is utterly worthless. If it is true love, it must prove itself by kind deeds and gracious actions.
 
 And hereby we know that we are of the Truth, and shall assure our hearts before Him. The love that will pass this test will bring a restful assurance of peace to the heart.
 
-20-22. For ifour heart condemns us, Godis greater that our heart, andknows all things. Beloved, if our heart condemns us not, then have we confidence toward God. And whatever we ask, we receive of Him because we keep His commandments and do those things that arepleasing in His sight. It is not everyone who can have whatever he chooses to ask of God in prayer. This privilege is only granted to those who "keep His commandments and do those things that are
+For ifour heart condemns us, Godis greater that our heart, andknows all things. Beloved, if our heart condemns us not, then have we confidence toward God. And whatever we ask, we receive of Him because we keep His commandments and do those things that arepleasing in His sight. It is not everyone who can have whatever he chooses to ask of God in prayer. This privilege is only granted to those who "keep His commandments and do those things that are
 
 And this is His commandment, that we should believe on the name ofHis Son, Jesus Christ, andlove one another, as He gave us commandment. Faith and love&mdash;faith in Christ and love to one another&mdash;are here most happily joined together! Let us never put them asunder.
 
