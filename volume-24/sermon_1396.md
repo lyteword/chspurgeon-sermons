@@ -2,7 +2,7 @@
 
 "Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight." Hosea 6:1,2.
 
-[Mr. Spurgeon was exceedingly unwell and his voice painfully weak, hence the pause in the middle of the sermon, during which the congregation sang part of a hymn to enable the preacher to gain strength enough to resume his discourse. This was the last sermon before Mr. Spurgeon's departure from home to obtain needed rest. It has been revised by Mr. Spurgeon at Mentone. The sermons are continued regularly every week.]
+
 
 IF man had never sinned, what delightful communion there would have been between him and God! A fairy vision rises before us of loving obedience and condescending fellowship, holy delight and boundless favor, lowly adoration and fatherly smile, perfect bliss and infinite complacency. Alas! Alas! It is no more than a vision! God would have treated man with familiarity and indulgence, lavishing favor and honor upon him. The Garden of Eden, fair as were its glades and lovely as were its flowers, was but a faint image of the things prepared for man had he continued in loyalty to God&mdash; inconceivable delights would have filled up the days of our life on earth had not the serpent's trail come across our nature and slimed it over with sin.
 
@@ -135,4 +135,4 @@ Each one of you must get to work to get the outside people into the house that t
 
 Pray for me, I beseech of you, and having done so, prove the sincerity of your prayers by helping in the Lord's work&mdash;this will be as medicine to your sick pastor's soul and body! I rely upon you, each one, to see these services made a success, God the Holy Spirit helping you.
 
-[a fortnight elapsed between the preaching of the above sermon and its being revised. Mr. Spurgeon is mending and begs for the prayers of his friends that he may, before long, be quite restored and may return to his work in full vigor.]
+
