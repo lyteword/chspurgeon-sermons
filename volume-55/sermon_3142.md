@@ -56,11 +56,11 @@ prayer, but I will say just this. If we want God to establish our work, we must 
 
 The Lord grant that all of us may be looking to His work for salvation and then be doing His work with both our hands and all our heart and praying God to establish it.
 
-Exposition by C. H. Spurgeon: Psalm142.
+## Exposition by C. H. Spurgeon: Psalm 142
 
 
 
-Verse 1. I cried unto the Lord with my voice; with my voice unto the Lord did I make my supplication. Silent prayers are often true prayers, but there are times when, in extremity of suffering, it is very helpful to give expression to the soul's agony. I know some friends who can never pray to their own comfort except they can hear their own voices, and I believe that it is a good thing for the most of us to retire to some private place where we cannot be heard by men and where we can therefore freely use our voices in prayer. Very often the use of the voice helps to keep the thoughts from wandering and also gives intensity to the desires. You notice that David particularly mentions here that he cried unto the Lord with his voice. No doubt many of his prayers ascended to God from his heart without the medium of his voice, but here the cry with his voice went with the desires of his heart.
+I cried unto the Lord with my voice; with my voice unto the Lord did I make my supplication. Silent prayers are often true prayers, but there are times when, in extremity of suffering, it is very helpful to give expression to the soul's agony. I know some friends who can never pray to their own comfort except they can hear their own voices, and I believe that it is a good thing for the most of us to retire to some private place where we cannot be heard by men and where we can therefore freely use our voices in prayer. Very often the use of the voice helps to keep the thoughts from wandering and also gives intensity to the desires. You notice that David particularly mentions here that he cried unto the Lord with his voice. No doubt many of his prayers ascended to God from his heart without the medium of his voice, but here the cry with his voice went with the desires of his heart.
 
 I poured out my complaint before Him. That is a beautiful expression, "I poured out my complaint"&mdash;just as you turn a pitcher upside down and let all the contents run out! "I poured out my complaint." We are generally ready enough to do that, only we usually go to some friend, or to some enemy and pour out our complaint into his ear. But what is the good of doing that? David took a far wiser course! "I poured out my complaint before Hm."
 
@@ -68,7 +68,7 @@ I showed before Him my trouble. Uncovered it and set it all out in order before 
 
 When my spirit was overwhelmed within me, then You knew my path. Many of the Lord's saints know the meaning of that sentence, "My spirit was overwhelmed within me." They are like a vessel that has sunk in the sea and is completely covered by the waves. David was in such a plight as that&mdash;he did not know his own whereabouts, but here was the mercy&mdash;"Then You knew my path." It is much better that God should know our path than that we should know it ourselves, for we may know it and be driven to despair by our knowledge. But God's knowledge of it moves Him to uphold us in it, or to deliver us out of it.
 
-3, 4. In the way wherein I walked have they privately laid a snare forme. I looked on my right hand, and beheld, but there was no man that would know m. "They were afraid to link themselves with me, lest, when I went down like a drowning man, they should be dragged down with me."
+In the way wherein I walked have they privately laid a snare forme. I looked on my right hand, and beheld, but there was no man that would know m. "They were afraid to link themselves with me, lest, when I went down like a drowning man, they should be dragged down with me."
 
 Refuge failed me. "I could not run away&mdash;there was no place where I could find shelter."
 
@@ -80,7 +80,7 @@ I said, You are my refuge. "I can flee to You."
 
 And my portion in the land of the living. With both hands he lays hold of God and cries, "You are my refuge and my portion"&mdash;two glorious "mys"! Well did Luther say that the very pith of the Gospel lies in the little words, and it is the same with the Psalms.
 
-7. Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I. Bring my soul out of prisoi. This is a suitable prayer for those who have troubled consciences, for those who are shut up in Doubting Castle and cannot get out without Divine assistance. "Bring my soul out of prison."
+Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I. Bring my soul out of prisoi. This is a suitable prayer for those who have troubled consciences, for those who are shut up in Doubting Castle and cannot get out without Divine assistance. "Bring my soul out of prison."
 
 That I may praise Your name. As soon as you are set at liberty, you ought at once to let your glad heart magnify the God who has broken your bonds and brought you out of prison!
 
