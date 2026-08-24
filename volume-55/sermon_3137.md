@@ -85,7 +85,7 @@ Pray Him to reveal Himself to you in His sufferings and in His Glory. Ask Him th
 
 Let us ask Him to say to each of our souls tonight, "I am your salvation." Some of us are going to the Communion Table. Perhaps He will say it to us there. And if He does not, we will go home to pray. And if He does not speak to us then, perhaps in the night-watches He will say it. And when we awake, we will still plead on until those lips which said, "Let there be light," and there was light, shall again say, "Let there be light," to us, and we shall know that He is our salvation! May God bless you very richly for hearing this prayer, for Jesus' sake.
 
-Exposition by C. H. Spurgeon: Philippians 1:21-30; 2:1-11.
+## Exposition by C. H. Spurgeon: Philippians 1:21-30; 2:1-11
 
 Philippians 1:21. For to me to live is Christ, and to die is gain.  "To me to live is Christ." If he lived, he lived to know more of
 
@@ -97,13 +97,13 @@ But if Ilive in the flesh. That is a very different thing from living to the fle
 
 This is the fruit of my labor He lived to work for Christ and to see souls saved as the fruit of his labor.
 
-22, 23. Yet what I shall choose I know not For I am in a strait between two, having a desire to depart, and to be
+Yet what I shall choose I know not For I am in a strait between two, having a desire to depart, and to be
 
 with Christ; which is far better  There were the two currents flowing in opposite directions.
 
 The Apostle seemed to hear two voices speaking to him. One of them said, "Live, and you will gather the fruit of your labor. You will see sinners saved, Churches established and the Kingdom of Christ extended in the earth." The other said, "Die, and you will be with Christ!" So he knew not which to choose.
 
-24-26. Nevertheless to abide in the flesh is more necessary for you. And having this confidence, Iknow that I shall abide and continue with you all for your furtherance and joy of faith; that your rejoicing may be more abundant in Jesus Christ for me by my coming to you agai. The Apostle desired to die, yet he was willing to live. Death would have been gain to him, yet he would endure the loss of living if he might thereby benefit others. Let us also always prefer the welfare of others before our own&mdash;and care rather to serve others than to make ourselves ever so happy. Now the Apostle gives these saints at Philippi a loving exhortation.
+Nevertheless to abide in the flesh is more necessary for you. And having this confidence, Iknow that I shall abide and continue with you all for your furtherance and joy of faith; that your rejoicing may be more abundant in Jesus Christ for me by my coming to you agai. The Apostle desired to die, yet he was willing to live. Death would have been gain to him, yet he would endure the loss of living if he might thereby benefit others. Let us also always prefer the welfare of others before our own&mdash;and care rather to serve others than to make ourselves ever so happy. Now the Apostle gives these saints at Philippi a loving exhortation.
 
 Only let your conversation be as it becomes the Gospel of Christ: that whether I come and see you, or else am absent, I may hear of your affairs that you stand fast in one spirit, with one mind striving together for the faith of the Gospel. The unity of the Church is of the utmost importance. When there is a lack of brotherly love, the perfect bond is lost&mdash;and as a bundle of rods, when once the binding cord is cut becomes merely a number of weak and single twigs, so is it with a divided Church. May we always be kept in one holy bond of perfect union with each other!
 
@@ -121,13 +121,13 @@ Philippians 2:1, 2. If there is, therefore, any consolation in Christ, if any co
 
 Let nothing be done through strife or vainglorj. This would be a good motto for those who are intending to build new places of worship! Let them not be built through strife, because of a squabble among the people of God, but make sure that all concerned are actuated by right motives and seeking only the Glory of God. But sometimes, if one gives a guinea, another feels that he must give two, so as to excel him&mdash;this is giving out of vainglory. Let nothing be done in this way, but as unto the Lord and as in His sight, let us do all our works and give all our gifts.
 
-3, 4. But in lowliness of mind let each esteem others better than themselves. Look not, every man, on his own things, but every man also on the things of others. Consider how you can help others and in what way you can prosper them both in temporal things and in spiritual. You are members of a body, so one member is not to think for itself alone&mdash;the unity of the whole body requires that every separate and distinct part of it should be in harmony with the whole.
+But in lowliness of mind let each esteem others better than themselves. Look not, every man, on his own things, but every man also on the things of others. Consider how you can help others and in what way you can prosper them both in temporal things and in spiritual. You are members of a body, so one member is not to think for itself alone&mdash;the unity of the whole body requires that every separate and distinct part of it should be in harmony with the whole.
 
-5-8. Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made Himself of no reputation, and took upon Himself the form of a Servant, and was made in the likeness of men: and being found in fashion as a man, He humbled Himself, and became obedient unto death, even the Sermon #3137
+Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made Himself of no reputation, and took upon Himself the form of a Servant, and was made in the likeness of men: and being found in fashion as a man, He humbled Himself, and became obedient unto death, even the Sermon #3137
 
 death Of the CrOSS.  He humbled Himself, so be you not unwilling to humble yourself. Lower than the Cross, Christ could not go, His death was one of such extreme ignominy that He could not have been more disgraced and degraded. Be you willing to take the lowest place in the Church of God and to render the most humble service! Count it an honor to be allowed to wash the saints' feet. Be humble in mind&mdash;nothing is lost by cherishing this spirit, for see how Jesus Christ was honored in the end.
 
-9-11. Therefore God also has highly exalted Him, and given Him a name which is above every name: that at the name of Jesus every knee should bow, of things in Heaven, and things in earth, and things under the earth; and that every
+Therefore God also has highly exalted Him, and given Him a name which is above every name: that at the name of Jesus every knee should bow, of things in Heaven, and things in earth, and things under the earth; and that every
 
 Christ&mdash;Read/download the entire sermon, free ofcharge, at http://www.spurgeongems.org.] Some foolish and superstitious persons make this
 
