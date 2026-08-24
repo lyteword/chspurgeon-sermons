@@ -1,7 +1,7 @@
 # Sermon 491 | Our Stronghold
 
-> "The name of the Lord is a strong tower: the righteous run into it, and are safe."  
-> Proverbs 18:10.  
+> "The name of the Lord is a strong tower: the righteous run into it, and are safe." 
+> Proverbs 18:10. 
 
 STRONG towers were a greater security in a bygone age than they are now. Then when troops of marauders invaded the land, strong castles were set upon the various hilltops, and the inhabitants gathered up their little wealth and fled there at once. Castles were looked upon as being very difficult places to attack. And ancient troops would rather fight a hundred battles than endure a single siege. Towns which would be taken by modern artillery in twelve hours held out for twelve years against the most potent forces of the ancient times.
 
@@ -55,7 +55,7 @@ It is a stern conflict and you fear that the sons of Anak will never be driven o
 
 Sin sometimes comes with all the terrors of the law. Then if you know not how to hide yourself behind your God, you will be in an evil plight. It will come at times with all the fire of the flesh, and if you cannot perceive that your flesh was crucified in Christ, and that your life is a life in Him, and not in yourself, then you will soon be put to the rout. But he who lives in his God and not in himself. He who wraps Christ's righteousness about him, and is righteous in Christ&mdash; such a man may defy all the attacks of the flesh, and all the temptations of the world. He shall overcome through the blood of the Lamb. "This is the victory that overcomes the world, even our faith."
 
-Then, Beloved, there are the temptations of the devil, and these are very dreadful. But how sweet it is, still, to feel that the Character of God is our strong tower. Without walls of Divine Grace and bulwarks of mercy, how can a tempted soul escape the clutches of the Destroyer? But where the soul lies in the entrenchments of Divine promise, all the devils in Hell cannot carry it by storm. I saw this week, one whom many of you greatly respect, the former pastor of this Church, Mr. James Smith, of Cheltenham&mdash;[since departed, to be with Christ, which is far better]&mdash;a name well-known by his innumerable little works which are scattered everywhere and cannot fail to do good.
+Then, Beloved, there are the temptations of the devil, and these are very dreadful. But how sweet it is, still, to feel that the Character of God is our strong tower. Without walls of Divine Grace and bulwarks of mercy, how can a tempted soul escape the clutches of the Destroyer? But where the soul lies in the entrenchments of Divine promise, all the devils in Hell cannot carry it by storm. I saw this week, one whom many of you greatly respect, the former pastor of this Church, Mr. James Smith, of Cheltenham&mdash;&mdash;a name well-known by his innumerable little works which are scattered everywhere and cannot fail to do good.
 
 You will remember that about a year ago he was struck with paralysis and one half of his body was dead. But yet, when I saw him on the bed, I had not seen a more cheerful man in the full heyday of strength. I had been told that he was the subject of very fearful conflicts at times. So after I had shook hands with him, I said, "Friend Smith, I hear you have many doubts and fears!" "Who told you that?" said he, "for I have none." "Never have any? Why I understood you had many conflicts." "Yes," he said, "I have many conflicts, but I have no doubts. I have many wars within, but I have no fears.
 
