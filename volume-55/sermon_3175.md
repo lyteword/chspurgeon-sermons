@@ -95,9 +95,9 @@ You and I are like Jacob. The Lord said to Him, "The land whereon you lie, to yo
 
 We must get this perfect peace of which we have now been singing and speaking. I admire in certain of the saints their self-command, their great quiet and deep restfulness of spirit. It is not everything, but it is a very great deal. It is all the more necessary just now because the world is in such a hurry. It is necessary to us when we are weak and suffering, and when we are surrounded by cares and sorrows. Yet it is quite as valuable when we are strong and young and comfort would tempt us aside. Oh, that the world may see that we have a peace that cannot be taken away from us by force or fraud! I do not quite like that saying of Addison, "Come here, young man, and see how a Christian can die." It looks too theatrical. But I should like it to be so with us that men might turn aside to see how a Christian can live! O Lord and Giver of peace, grant us Your peace, and Grace to keep it, even to the end!
 
-Exposition by C. H. Spurgeon: Hosea 14.
+## Exposition by C. H. Spurgeon: Hosea 14
 
-Verse 1. O Israel, return unto the Lord your God,  Bless His name that He is still your Gil! However much you may have backslid-
+O Israel, return unto the Lord your God,  Bless His name that He is still your Gil! However much you may have backslid-
 
 den, you have not lost your right to claim Him as your God, for He is yours eternally by a fixed promise. And because He is still your God, let His everlasting kindness entice you to come back to Him."
 
@@ -113,7 +113,7 @@ We will not ride upon horses. These were the confidence of the Egyptians&mdash;a
 
 Neither wiil we say anymore to the work ofour hands, You are our gods. Happy is that man who turns aside from every idol and trusts in God alone! It is a mark of very black backsliding when we begin to make our business, our families, our pleasures and our bodily health the objects of such tender consideration that we virtually say to them, "You are our gods."
 
-3, 4. For in You the fatherless finds mercy. I will heal their backsliding I will love them freely: for My anger is
+For in You the fatherless finds mercy. I will heal their backsliding I will love them freely: for My anger is
 
 turned away from him. Everlastingly turned away through the complete and satisfactory Atonement of Jesus Christ!
 
