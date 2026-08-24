@@ -1,6 +1,6 @@
 # Sermon 3162 | The Unfailing Help
 
-"And the King said, If the Lord does not help you, where can I find help for you? From the threshing floor, or from the winepress?" 2 Kings 6:27.
+> "And the King said, If the Lord does not help you, where can I find help for you? From the threshing floor, or from the winepress?" 2 Kings 6:27.
 
 I read in your hearing the very horrible incident connected with the siege of Samaria. I do not wonder that when the poor woman applied to the king he should have been horrified. He felt that her case, and the case of all about him was a desperate one, so he said, "If Jehovah does not interpose, what can I do?" The winepress is dry and the threshing floor is empty&mdash;there is nothing left to alleviate the horrors of famine. "If the Lord does not help you, where can I find help for you?"
 

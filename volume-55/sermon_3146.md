@@ -1,12 +1,10 @@
 # Sermon 3146 | The Power of Christ's Presence
 
-"Therefore that disciple whom Jesus loved said unto Peter, It is the Lord." John 21:7.
+> "Therefore that disciple whom Jesus loved said unto Peter, It is the Lord." John 21:7.
 
 I am going to speak, on this occasion, to my Brothers and Sisters who are workers for Christ. When our Lord met His Apostles by the lake and provided for them that memorable meal, He did not think it out of place to say to Peter, "Feed My lambs; feed My sheep." These practical exhortations were regarded by Him as quite in keeping with holy fellowship and so, though we are coming to the Communion Table at the close of this service, I feel that I am only right in speaking upon practical matters to you, my fellow laborers and fellow soldiers in the work and warfare of Christ. And I pray that God will, through me, speak to all here who love our Lord and Savior Jesus Christ.
 
-You know that we read in the Gospels according to Luke and John, of two miraculous draughts of fishes. [See Sermon
-
-#443, Volume 8&mdash;the two draughts of fishes.] The one that is recorded in this Chapter from which our text is taken was, in several respects, similar to that which was worked at an earlier period of our Lord's history.
+You know that we read in the Gospels according to Luke and John, of two miraculous draughts of fishes. The one that is recorded in this Chapter from which our text is taken was, in several respects, similar to that which was worked at an earlier period of our Lord's history.
 
 Before He called His Apostles, He worked the miracle of giving them a great haul of fish after they had toiled all the night and had taken nothing. And then, after He had died upon the Cross and risen from the grave, He repeated the miracle in almost identical fashion. I think there was a great lesson which our Savior intended His disciples to learn from that repetition. The miracle was a picture&mdash;and He wanted them to look upon it and catch the idea it was meant to convey&mdash;and as they had probably not all caught it the first time, He held the picture up before them again, that they might have another opportunity of learning the lesson which He had intended it to teach them.
 
@@ -32,12 +30,12 @@ But we are precisely like the Apostles in certain other points, the first of whi
 
 And even now, Brothers and Sisters, our success is wonderfully like the non-success of the Apostles, for we have scarcely taken anything in comparison with what still needs to be taken! Even when we speak of tens of thousands converted, what are they in comparison with the millions all around us in this vast city? When God gives us an increase of a hundred or a 120 in a month, we are glad and thankful, but large as those numbers are, what are they compared with the perishing myriads of London alone? Why should we not have 3,000 converts in a day as on the day of Pentecost? Why is it that our Churches are not multiplied till they cover this city in every part? Why does not the old Church of Christ, (for such we are), the old Catholic and Apostolic Church of Christ, come more to the front instead of lingering in the background? It is because we have not yet the fullness of the Master's power as we must have it&mdash;and desire to have it to the praise of His Glory! Christ's Presence, if He would but come among us in the fullness of His strength, would do so much more for us than anything that we have ever seen&mdash;that we would be as much astounded by the increase as the Apostles were by the two great draughts of fishes! Christ had but to will it and the fish came swimming in shoals to the net&mdash;and He has but to will it and souls will be converted by millions to Himself and His Gospel! He had but to give His disciples the directions to where to cast the net and the same net that had been empty would become full. And He has but to teach His ministers how to preach, and touch their lips with a burning coal off the altar to fire them with a Pentecostal enthu-siasm&mdash;and they would speak in a way in which as yet they have never spoken and with a power they have never yet experienced! Such days are promised and they will surely come. We are not straitened in God. We are straitened in ourselves. If we have not those glorious days of ingathering, it is because some sin of ours still keeps the Master's Glory from us. Oh, let us turn to Him and may He graciously turn to us!&mdash;
 
-> Let our mutual love be fervent,   
-> Make us prevalent in prayers!   
-> Let each one esteemed Your servant   
-> Shun the world's bewitching snares,   
-> Lord, revive us,   
-> All our help must come from You!   
+> Let our mutual love be fervent, 
+> Make us prevalent in prayers! 
+> Let each one esteemed Your servant 
+> Shun the world's bewitching snares, 
+> Lord, revive us, 
+> All our help must come from You! 
 
 Now, secondly, I have to speak upon the means which we are to use so as to gain our master's presence. I have tried to show you that all our success must come from Him and all that He gives us must be ascribed to Him. So how can we secure His Presence? We have it in a measure&mdash;how can we have it more fully?
 
@@ -93,35 +91,27 @@ As soon, then, as they were come to land, they saw a fire of coals there, and fi
 
 Jesus said unto them, Bring of the fish which you have now caught Simon Peter went up and drew the net to land full of great fishes, an hundred and fifty and three and for all there were so many, yet the net was not broken. And there lay those 153 big fishes on the beach. Christ had no need of them but perhaps He condescended to use some of them for that morning meal, as He said to Peter, "Bring of the fish which you have now caught."
 
-Jesus said unto them, Come and dine.  Or, "Come and break your fast after your long night's toil." How they must have opened their eyes to see the fish ready cooked for them to eat!
+Jesus said unto them, Come and dine. Or, "Come and break your fast after your long night's toil." How they must have opened their eyes to see the fish ready cooked for them to eat!
 
 And none of the disciples dared ask Him, Who are You? knowing that it was the Lord. "It was the Lord"&mdash;"the Lord" who had asked them if they had any food, "the Lord" who had filled the net which had previously been empty, "the Lord" who had given them His own fish from His own fire that they might have breakfast with Him! O good Master, if we have been toiling all week and have caught nothing, call us now to come and eat of that which You have, Yourself, prepared!
 
 Jesus then came and took bread, and gave them some, and fish likewise. This is now the third time that Jesus showed Himself to His disciples after that He was risen from the dead. So when they had dined, Jesus said to Simon Peter, Simon, son of Jonas, Do you love Me more than these?"More than this lot of fish, these boats, these nets? You gave them all up for Me once, but now you have taken to them again&mdash;do you really love Me better than your fishing and your fish?"
 
-He said unto Him, Yes, Lord; You know that Ilove You. He said unto him, FeedMylambs. [See Sermon #1684, Volume
-
-28&mdash;"feed my lambs"&mdash;a sunday school sermon.] "Do not go after
+He said unto Him, Yes, Lord; You know that Ilove You. He said unto him, FeedMylambs. "Do not go after
 
 fish any more, but attend to My business&mdash;'feed My lambs.' The proof of your greater love to Me than to all worldly things will be found in your doing of the work which I have committed to your charge."
 
-He said to him again the second time, Simon, son of Jonas, Do you love Me?[See Sermons #117, Volume 3&mdash;do you love
-
-me? And #1281, Volume 22&mdash;"do you love me?"] He said unto Him, Yes,
+He said to him again the second time, Simon, son of Jonas, Do you love Me? He said unto Him, Yes,
 
 Lord; You know that I love You. He said unto him, Feed My sheep. "Quit the sea. I am giving you no more business there&mdash;come now and be a pastor to My blood-bought sheep."
 
-He said unto him the third time, Simon, son of Jonas, Do you love Me? Peter was grieved because He said unto him the third time, Do you love Me? And he said unto Him, Lord, You know all things; You know that Ilove You. [See
-
-Sermon #2669, Volume 46&mdash;comfort from Christ's omniscience.] Thrice
+He said unto him the third time, Simon, son of Jonas, Do you love Me? Peter was grieved because He said unto him the third time, Do you love Me? And he said unto Him, Lord, You know all things; You know that Ilove You. Thrice
 
 he had denied his Lord, so thrice he must be questioned concerning his love to the Lord whom he said he did not even know. And then for the third time he was re-commissioned by his Lord.
 
 Jesus said unto him, Feed My sheep. Verily, verily, I say unto you, When you were young, you gird yourself, and walked where you willed: but when you shall be old, you shall stretch forth your hands, and another shall gird you, and carry you where you would not. This spoke He, signifying by what death he should glorify God. And When He had spoken this, He said unto him, Follow Me. Peter's death was to glorify God, so he might well be content, painful though it was to be.
 
-Then Peter, turning about, saw the disciple whom Jesus loved [See Sermon #1539, Volume 26&mdash;"the disciple whom Jesus
-
-loved".] following; which also leaned on His breast at supper,
+Then Peter, turning about, saw the disciple whom Jesus loved following; which also leaned on His breast at supper,
 
 and said, Lord, which is he that betrays you? Peter seeing him said to Jesus, Lord, and what shall this man do? Our Lord never answered such a foolish, inquisitive question as this! And therefore&mdash;
 

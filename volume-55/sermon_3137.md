@@ -1,6 +1,6 @@
 # Sermon 3137 | Soul Satisfaction
 
-"Say unto my soul, I am your salvation." Psalm 35:3.
+> "Say unto my soul, I am your salvation." Psalm 35:3.
 
 
 
@@ -12,8 +12,8 @@ It is also very necessary for us to learn this verse in its teaching as to soul-
 
 Sinner, there is no hope for you anywhere else! "Other foundation can no man lay than that is laid." Your hopes, poor Sinner, shall be baseless&mdash;they shall be as the fabric of a dream. Rest not in them, but forsake them, pitying your own folly for having ever trusted in them. Jesus bids you renounce them now. Flee away from everything which has up to now yielded you a gleam of comfort, or a ray of joy, to the wounds of Him who suffered in the sinner's place, and to the Cross of Him who was made a curse for us that we might be made a blessing! "I am your salvation." You are to trust now. Are you saying, "How can I be saved?" Jesus answers, "I am your salvation." Not "I will be," but "I am." Present salvation is stored up in Christ&mdash;
 
-> There is life for a look at the Crucified One!   
-> There is life at this moment for you.   
+> There is life for a look at the Crucified One! 
+> There is life at this moment for you. 
 
 "But," you say, "what am I to do? What am I to feel? What am I to be?" The answer is&mdash;
 
@@ -87,7 +87,7 @@ Let us ask Him to say to each of our souls tonight, "I am your salvation." Some 
 
 ## Exposition by C. H. Spurgeon: Philippians 1:21-30; 2:1-11
 
-Philippians 1:21. For to me to live is Christ, and to die is gain.  "To me to live is Christ." If he lived, he lived to know more of
+Philippians 1:21. For to me to live is Christ, and to die is gain. "To me to live is Christ." If he lived, he lived to know more of
 
 Christ studying His Person and learning by his happy experience so that he increased in his knowledge of his Lord and Savior. If he lived, he lived to imitate Christ more closely, becoming more and more conformed to His image. If he lived, he lived to make Christ more and more known to others and to enjoy Christ more himself. In these four senses, Paul might well say, "For to me to live is Christ"&mdash;to know Christ more, to imitate Christ more, to preach Christ more and to enjoy Christ more!
 
@@ -99,7 +99,7 @@ This is the fruit of my labor He lived to work for Christ and to see souls saved
 
 Yet what I shall choose I know not For I am in a strait between two, having a desire to depart, and to be
 
-with Christ; which is far better  There were the two currents flowing in opposite directions.
+with Christ; which is far better There were the two currents flowing in opposite directions.
 
 The Apostle seemed to hear two voices speaking to him. One of them said, "Live, and you will gather the fruit of your labor. You will see sinners saved, Churches established and the Kingdom of Christ extended in the earth." The other said, "Die, and you will be with Christ!" So he knew not which to choose.
 
@@ -125,7 +125,7 @@ But in lowliness of mind let each esteem others better than themselves. Look not
 
 Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made Himself of no reputation, and took upon Himself the form of a Servant, and was made in the likeness of men: and being found in fashion as a man, He humbled Himself, and became obedient unto death, even the Sermon #3137
 
-death Of the CrOSS.  He humbled Himself, so be you not unwilling to humble yourself. Lower than the Cross, Christ could not go, His death was one of such extreme ignominy that He could not have been more disgraced and degraded. Be you willing to take the lowest place in the Church of God and to render the most humble service! Count it an honor to be allowed to wash the saints' feet. Be humble in mind&mdash;nothing is lost by cherishing this spirit, for see how Jesus Christ was honored in the end.
+death Of the CrOSS. He humbled Himself, so be you not unwilling to humble yourself. Lower than the Cross, Christ could not go, His death was one of such extreme ignominy that He could not have been more disgraced and degraded. Be you willing to take the lowest place in the Church of God and to render the most humble service! Count it an honor to be allowed to wash the saints' feet. Be humble in mind&mdash;nothing is lost by cherishing this spirit, for see how Jesus Christ was honored in the end.
 
 Therefore God also has highly exalted Him, and given Him a name which is above every name: that at the name of Jesus every knee should bow, of things in Heaven, and things in earth, and things under the earth; and that every
 

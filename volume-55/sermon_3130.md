@@ -1,6 +1,6 @@
 # Sermon 3130 | "In Remembrance"
 
-"This do in remembrance of Me...This do you, as often as you drink it, in remembrance of Me." 1 Corinthians 11:24,25.
+> "This do in remembrance of Me...This do you, as often as you drink it, in remembrance of Me." 1 Corinthians 11:24,25.
 
 
 
@@ -50,8 +50,8 @@ Then you will note, by-and-by, that the bread has to be broken and the wine pour
 
 But you have more than that, for you have Christ's death set forth in the instructive symbol of the bread separated from the wine. To mix them in one cup would be to spoil the whole metaphorical teaching of the ordinance! The blood with the flesh is life, but the blood drained from the flesh is death. The blood is represented by the wine byitselfn the cup&mdash;and the bread by itselfrepresents the flesh. And the two emblems together set forth death&mdash;a violent death&mdash;such a death as Jesus died. Did you not sing of it just now&mdash;
 
-> See from His head, His hands, His feet,   
-> Sorrow and love flow mingled down! Did ever such love and sorrow meet, Or thorns compose so rich a crown?   
+> See from His head, His hands, His feet, 
+> Sorrow and love flow mingled down! Did ever such love and sorrow meet, Or thorns compose so rich a crown? 
 
 Never forget that the punishment for sin is not simply suffering, but death. "The soul that sins it shall die." And it was not until Christ died that the debt, which was due from His people to the justice of God, was fully discharged. The two emblems in this ordinance, therefore, needed to be separate in order to set before us the death of our dear Lord and Savior&mdash;and so to help us to remember Him.
 

@@ -1,6 +1,6 @@
 # Sermon 3150 | "Never, No Never, No Never"
 
-"Let your conversation be without covetousness: and be content with such things as you have. For He has said, I will never leave you, nor forsake you. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me." Hebrews 13:5, 6.
+> "Let your conversation be without covetousness: and be content with such things as you have. For He has said, I will never leave you, nor forsake you. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me." Hebrews 13:5, 6.
 
 
 
@@ -94,9 +94,7 @@ Marriage is honorable in all, and the bed undefiled: but whoremongers and adulte
 
 Let your conversation be without covetousness, and be content with such things as you have: for He has said, I will never leave you, nor forsake you. Therefore you have a grand reserve! What you have in possession is only a little spending money to use on the road to Heaven, but "He has said, I will never leave you, nor forsake you." You may confidently fall back upon the Providence of God in all times of straitness and need.
 
-So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. Remember them which have the rule over you, who have spoken unto you the Word of God: whose faith follow, considering the end of their conversation. Jesus Christ the same yesterday, and today and forever. [See Sermons #170, Volume 4&mdash;the immutability of
-
-Christ; #848, Volume 15&mdash;Jesus Christ is immutable and #2358, Volume 40&mdash;the unchangeable Christ.] It is for your own benefit to remember in your prayers those who preach the Word of God to you, for what can they do without Divine assistance and how can you be profited by them unless they are first blessed of God? Remember them, therefore.
+So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. Remember them which have the rule over you, who have spoken unto you the Word of God: whose faith follow, considering the end of their conversation. Jesus Christ the same yesterday, and today and forever. It is for your own benefit to remember in your prayers those who preach the Word of God to you, for what can they do without Divine assistance and how can you be profited by them unless they are first blessed of God? Remember them, therefore.
 
 Be not carried about with divers and strange doctrines. Do not put yourself into every man's hand to let him play with you as he pleases. The fish that never nibbles at the bait is not likely to be caught by the hook&mdash;and he who will not give heed to "divers and strange doctrines" is not likely to be carried away in the net of heresy!
 
@@ -108,12 +106,10 @@ For the bodies of those beasts, whose blood is brought into the sanctuary by the
 
 By Him therefore let us offer the sacrifice of praise to God continually, that is the fruit of our lips giving thanks
 
-to His name.  If you are Believers in Christ, you are God's priests and this is the sacrifice that you are continually to offer&mdash;the fruit of your lips, giving thanks to God's name!
+to His name. If you are Believers in Christ, you are God's priests and this is the sacrifice that you are continually to offer&mdash;the fruit of your lips, giving thanks to God's name!
 
-But to do good and to communicate forget not: for with such sacrifices God is well please . We are to do good to others, to communicate  of our own good things to those who need them and to do this at some sacrifice to ourselves, "for with such sacrifices God is well pleased."
+But to do good and to communicate forget not: for with such sacrifices God is well please . We are to do good to others, to communicate of our own good things to those who need them and to do this at some sacrifice to ourselves, "for with such sacrifices God is well pleased."
 
 Obey them that have the rule over you, and submit yourselves: for they watch for your souls, as they that must give account, that they may do it with joy, and not with grief: for that is unprofitable for you. Pray for us: for we trust we have a good conscience, in all things willing to live honestly. But I beseech you the rather to do this, that Imay be restored to you the sooner. You must have noted how often the Apostle asks for the prayers of those to whom he is writing. So we are following a good example when we ask you to pray for us.
 
-Now the God of Peace, that brought again from the dead our Lord Jesus, that Great Shepherd of the sheep, through the blood of the Everlasting Covenant make you perfect in every good work to do His will, working in you that which is ever pleasing in His sight, through Jesus Christ; to whom be glory forever and ever. Amen. [See Sermons #277, Volume
-
-5&mdash;the blood of the everlasting covenant; #1186, Volume 20&mdash;the blood of the covenant and #1368, Volume 23&mdash;the God of peace and our sanctification.]
+Now the God of Peace, that brought again from the dead our Lord Jesus, that Great Shepherd of the sheep, through the blood of the Everlasting Covenant make you perfect in every good work to do His will, working in you that which is ever pleasing in His sight, through Jesus Christ; to whom be glory forever and ever. Amen. 

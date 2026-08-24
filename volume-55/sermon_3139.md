@@ -1,6 +1,6 @@
 # Sermon 3139 | A Promise for the Blind
 
-"Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child, and she that travails with child together: a great company shall return there." Jeremiah 31:8.
+> "Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child, and she that travails with child together: a great company shall return there." Jeremiah 31:8.
 
 Poor Israel, as a nation, had its ups and downs. It was sometimes in captivity and soon it experienced a deliverance. At one time it was diminished and brought low through affliction, persecution, or sorrow. At another, it was multiplied and increased exceedingly. It was the deliverance from one of these evil seasons that Jeremiah was commissioned to announce by the promise that the Lord's people would come again to their own land.
 
@@ -46,7 +46,7 @@ You lame ones, fear not&mdash;you will not be cast out! Two snails entered the a
 
 Again, backsliders are lame. There are Christians to be found who believe that it is possible to fall from a state of Grace. Here I would speak cautiously. God's people cannot fall finally&mdash;but they can fall a long way. When a Christian falls, it is no light matter. I hear some talking of falling and getting up again, as if it were nothing. But let them turn to
 
-Hebrews 6:4 -6.  But
+Hebrews 6:4 -6. But
 
 we will rejoice that&mdash;
 

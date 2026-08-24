@@ -1,6 +1,6 @@
 # Sermon 3132 | A Question for You
 
-"Do you believe on the Son of God?" John 9:35.
+> "Do you believe on the Son of God?" John 9:35.
 
 
 
@@ -70,13 +70,11 @@ And His disciples asked Him, saying, Master, who did sin, this man, or his paren
 
 Jesus answered, Neither has this man sinned, nor his parents. That is to say, sin on their part was not the cause of his blindness.
 
-But that the works of God should be made manifest in him.  Human nature is a platform for the manifestation of Div ie
+But that the works of God should be made manifest in him. Human nature is a platform for the manifestation of Div ie
 
 work. The more in need you are, dear Friend, the more room there is for God's mercy to operate upon you.
 
-I must work the works of Him that sent Me while it is day: the night comes, when no man can work As long as I am in the world, I am the Light of the world. When He had thus spoken, He spat on the ground and made clay of the spittle, and he anointed the eyes of the blind man with the clay, and said to him, Go, wash in the pool of Siloam, (which is by interpretation, Sent). He went his way, therefore, and washed, and came seeing. "[See Sermon #1977, Volume 33&mdash;the blind
-
-beggar of the temple and his wonderful cure] Christ used very
+I must work the works of Him that sent Me while it is day: the night comes, when no man can work As long as I am in the world, I am the Light of the world. When He had thus spoken, He spat on the ground and made clay of the spittle, and he anointed the eyes of the blind man with the clay, and said to him, Go, wash in the pool of Siloam, (which is by interpretation, Sent). He went his way, therefore, and washed, and came seeing. " Christ used very
 
 simple means to cure this man's blindness, very unlikely means, apparently, to produce the desired effect. It might have seemed, indeed, that the man would have been more in the dark than ever when his eyes were plastered over with clay, yet the Lord chose to work in that way. And so, when the poor preacher feels as if he was nothing and nobody, and that his method may rather hinder his Master's work than help Him, yet still his Lord can work through his weakness and get to Himself glory notwithstanding His servant's infirmities!
 

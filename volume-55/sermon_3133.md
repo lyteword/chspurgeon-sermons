@@ -1,6 +1,6 @@
 # Sermon 3133 | Christ's Prayer for Believers
 
-"Neither pray I for these alone, but for them also who shall believe on Me through their word." John 17:20.
+> "Neither pray I for these alone, but for them also who shall believe on Me through their word." John 17:20.
 
 In the very opening of this subject one feels inexpressibly delighted to see the wondrous love of our Savior towards His people. He here promises that He will intercede for each of them before His Father's Throne and He declares that this intercession also rises for those who are yet uncalled, unconverted and unregenerated! Mark the depth of His affection&mdash; He spends all His time in continually interceding for His people. I marvel at the condescension of Jesus Christ, that His people's names are always on His lips. When we consider that notwithstanding all His exceeding Grace and affection towards them, they transgress and rebel, it appears amazing that He should mention their names, or that He should regard their persons! But when we remember that, day by day, in that land where there is no night, He who stands before His Father's Throne bears perpetually on His breast their names deeply cut in the precious jewels and stones of the breastplate, and always with outspread hands, pleads for them, we cannot but admire His love for them and feel a deep veneration for that Divine Grace which makes Him declare, "For Zion's sake will I not hold My peace and for Jerusalem's sake I will not rest until the righteousness thereof goes forth as brightness, and the salvation thereof as a lamp that burns."
 
@@ -80,9 +80,9 @@ I love to find those who have not got anything good at all about them. Some like
 
 If there is anyone here tonight who thinks himself, "the chief of sinners," I have called him and God has called him! I wish he would act like a man I once saw in the County Court, when I was sitting there. He said, "Make way! Make way! His Honor has called me." And He elbowed his way up, because the judge had called him! God says, "Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Say, "Stand back, for God calls me and I will come!" Sinner, it is Jesus you must rely on, and it is not yourself. It is nothing that you have, or can have&mdash;it is nothing that you do, or can do&mdash;you can be saved by Jesus Christ alone. Have faith in Him and rely on the Savior. Do you feel your need of a Savior? Then come and cast yourself upon Him! Leave off being anythingand let Christ be everything! Leave off doing, and let Him do! Say&mdash;
 
-> A guilty, weak, and helpless worm,   
-> On Christ's kind arms I fall!   
-> He is my strength and righteousness,   
-> My Jesus and my all.   
+> A guilty, weak, and helpless worm, 
+> On Christ's kind arms I fall! 
+> He is my strength and righteousness, 
+> My Jesus and my all. 
 
 If any are awakened tonight by my words, I have not done it, nor has the sinner done it&mdash;but to God's praise be it spoken! And to His name be all the glory!

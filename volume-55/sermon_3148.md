@@ -1,6 +1,6 @@
 # Sermon 3148 | Christ's Ambassadors
 
-"Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's place, be you reconciled to God." 2 Corinthians 5:20.
+> "Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's place, be you reconciled to God." 2 Corinthians 5:20.
 
 
 
@@ -34,9 +34,9 @@ that on His back should fall the stripes that were due to us&mdash;that in His h
 
 These are the terms of peace, then, and this is the blessed Gospel of Peace&mdash;"To wit, that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them; and has committed unto us the word of reconciliation." This is the Gospel that we preach&mdash;that whoever believes in Jesus Christ is reconciled to God through the death of His Son. Peace is possible! O blessed news! Blessed are the people that know this joyful sound! Bright should be the eyes of those who see the feet of the messengers that bring the glad tidings of peace possible between man and God!&mdash;
 
-> How beauteous are their feet   
-> Who stand on Zion's hill!   
-> Who bring salvation on their tongues, And words of peace reveal!   
+> How beauteous are their feet 
+> Who stand on Zion's hill! 
+> Who bring salvation on their tongues, And words of peace reveal! 
 
 Let me add to this the comforting assurance that peace has been effectually made already in tens of thousands of instances. There are many of us, now present, who are enjoying the peace that Christ has made on our behalf. Having looked, by faith, to His Sacrifice on Calvary, our sins have gone forever. Having rested where God has rested, even in Jesus, for Jesus is to God a Sacrifice of rest, we now feel perfect peace toward God! We are no longer His enemies, but love Him and desire to obey Him perfectly. And though we do still err and mourn a thousand imperfections, yet we can truly say that we do love Him and that we long to be like He is! Whatever He commands, we at least desire to do and by His Grace we are helped to do it. And whatever He forbids, we desire to abhor and to flee from it as from a poisonous serpent. Blessed be the name of God, we can speak to Him, now, without being afraid that He will destroy us, but saying, "Our Father, who are in Heaven, the Spirit of adoption in our hearts makes us say unto You, 'Abba, Father, we love You and adore You. Oh, for Grace to love You more!'"
 

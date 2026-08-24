@@ -1,6 +1,6 @@
 # Sermon 3149 | The Commissariat of the Universe
 
-"What You give them they gather." Psalm 104:28.
+> "What You give them they gather." Psalm 104:28.
 
 This sentence describes the commissariat of creation. The problem is the feeding of the "creeping things innumerable, both small and great beasts," which swarm the sea, the armies of birds which fill the air and the vast hordes of animals which people the dry land! But in this sentence we have the problem solved, "What You give them they gather." The work is stupendous, but it is done with ease because the Worker is Infinite&mdash;if He were not at the head of it, the task would never be accomplished! Blessed be God for the great You of the text! It is every way our sweetest consolation that the personal God is still at work in the world&mdash;leviathan in the ocean and the sparrow on the bough may be, alike, glad of this, and we, the children of the great Father, much more!
 
@@ -86,11 +86,11 @@ I sought the Lord, and He heard me, and delivered me from all my fears. It was a
 
 from them. It was not that calm quiet calling upon God that one would have liked to see in David. Still, God heard him and that makes the deliverance all the more wonderful.
 
-They looked unto Him.  "All these people that have come at my call to join me in praising the Lord&mdash;"They looked unto Him."
+They looked unto Him. "All these people that have come at my call to join me in praising the Lord&mdash;"They looked unto Him."
 
 And were lightened: and their faces were not ashamet. No, not one of them! If they looked to God, light shone from God upon their faces and their faces glowed with the holy radiance, so they had no reason to be ashamed.
 
-This poor man cried,  and the Lord heard him, and saved him out of all his troubles. The angel of the Lord encamps round about them that fear Him, and delivers them. David's deliverance had been so special that he could not help feeling that some special deliverer had been employed on his behalf&mdash;"the angel of the Lord" had been sent to his help. Then David, why did you act like a madman? Ah, that was through his lack of faith, yet even lack of faith must not make us rob God of His Glory. What though we were unbelieving, He was faithful! Therefore let us give Him His due recompense of praise. Let us try to blot out the remembrance of our own weakness with our tears, but let us not erase the memory of God's loving kindness to us.
+This poor man cried, and the Lord heard him, and saved him out of all his troubles. The angel of the Lord encamps round about them that fear Him, and delivers them. David's deliverance had been so special that he could not help feeling that some special deliverer had been employed on his behalf&mdash;"the angel of the Lord" had been sent to his help. Then David, why did you act like a madman? Ah, that was through his lack of faith, yet even lack of faith must not make us rob God of His Glory. What though we were unbelieving, He was faithful! Therefore let us give Him His due recompense of praise. Let us try to blot out the remembrance of our own weakness with our tears, but let us not erase the memory of God's loving kindness to us.
 
 O taste and see that the Lord is good: blessed is the man that trusts in Hi . You may not only believe that God is good, but it may become a matter of experience with you&mdash;"O taste and see that the Lord is good." You cannot see the goodness of God to perfection without tasting it, so use the sense of taste as well as that of sight! Some people want first to see, and then to taste, but David says, "Taste and see."
 
@@ -98,9 +98,7 @@ O fear the Lord, you His saints: for there is no want to them that fearHim. The 
 
 And suffer hungerThey try to take care of themselves and, therefore, they get badly taken care of.
 
-But they that seek the Lord shall not want any good thing. [See Sermon #65, Volume 2&mdash;lions lacking&mdash;but the children
-
-satisfied.] When God takes care of us, we are well taken care of,
+But they that seek the Lord shall not want any good thing. When God takes care of us, we are well taken care of,
 
 though we are not lions, but sheep&mdash;for we have a Shepherd, and the lions have not&mdash;so we "shall not want any good
 

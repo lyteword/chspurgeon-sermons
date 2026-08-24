@@ -1,6 +1,6 @@
 # Sermon 3169 | The Believer's Present Rest
 
-"We who have believed do enter into rest." Hebrews 4:3.
+> "We who have believed do enter into rest." Hebrews 4:3.
 
 
 
@@ -76,18 +76,18 @@ Without light from above, no man can perceive the beauties either of the Gospel 
 
 For we preach not ourselves but Christ Jesus the Lord, and ourselves your servants for Jesus' sake. Hence we learn that anything like priestcraft is altogether foreign to the Bible. The "priest" preaches up himself, the extraordinary value of his ordination, the occult influences which flow from his touch, the mysterious power which dwells in baptismal water and in "consecrated" wafers and poured-out wine. This is preaching themselves with a vengeance! But Christ's Apostles preached not themselves&mdash;they preached up Christ and Him crucified. Paul wrote, "God forbid that I should glory save in the Cross of our Lord Jesus Christ." And this was the constant theme of all the Apostles. If they mentioned themselves at all, they simply said, as Paul does here, "Ourselves your servants for Jesus' sake."
 
-For God, who commanded the light to shine out of darkness, has shined in our heart, to give the light of the knowledge of the Glory of God in the face of Jesus Christ.  There is the very Glory of God in the face of Jesus Christ,
+For God, who commanded the light to shine out of darkness, has shined in our heart, to give the light of the knowledge of the Glory of God in the face of Jesus Christ. There is the very Glory of God in the face of Jesus Christ,
 
 for He is, "very God of very God," and he who will but think of the wondrous mystery of the Incarnate Deity and the simple but marvelous plan of salvation through Christ's atoning Sacrifice will see infinitely more Glory, there, than in all God's works in Creation or Providence. Well does Watts say&mdash;
 
-> The spacious earth and spreading flood   
-> Proclaim the wise and powerful God!   
-> And Your rich glories from afar   
-> Sparkle in every rolling star.   
-> But in Christ's looks a Glory stands,   
-> The noblest labor of Your hands,   
-> The pleasing luster of His eyes   
-> Outshines the wonders of the skies.   
+> The spacious earth and spreading flood 
+> Proclaim the wise and powerful God! 
+> And Your rich glories from afar 
+> Sparkle in every rolling star. 
+> But in Christ's looks a Glory stands, 
+> The noblest labor of Your hands, 
+> The pleasing luster of His eyes 
+> Outshines the wonders of the skies. 
 
 But we have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us. The original might very fairly be rendered, "We have this treasure in oyster shells," for, just as pearls are found in the shells of oysters, so God gives to those who preach the Word, the treasure of the Gospel, yet they are themselves nothing but the oyster shells, nothing but the earthen vessel in which God pleases to place His priceless treasures. If you have done anything in the service of God, my Brother, remember that you are nothing but the oyster shell&mdash;it is God's Truth that is the pearl in you! So while you are thankful for the honor that He puts upon you, mind that you give Him all the glory. It is well to take the right view of our own imperfections and infirmities, as Paul did when he wrote, "Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may rest upon me." The infirmity of the creature leaves more room for the display of the greatness of the Creator, for if God can work such wondrous results by using such poor tools as we are, how great must be His power and skill!
 
@@ -109,4 +109,4 @@ While we look not at the things which are seei.. Alas for us if we did!
 
 But at the things which are not seen: for the things which are seen are temporal Temporal and temporary! See how they melt away, one after another!
 
-But the things which are not seen are eternal.  The substance is beyond the river. The shadows are here. God help us to look for the substance and to claim it as our own&mdash;and let none of us try to grasp the shadows which would be worthless if we could ever hold them in our hands!
+But the things which are not seen are eternal. The substance is beyond the river. The shadows are here. God help us to look for the substance and to claim it as our own&mdash;and let none of us try to grasp the shadows which would be worthless if we could ever hold them in our hands!

@@ -1,6 +1,6 @@
 # Sermon 3125 | Fear of Death
 
-> And deliver them who through fear of death were all their lifetime subject to bondage.  
+> And deliver them who through fear of death were all their lifetime subject to bondage. 
 > Hebrews 2:15
 
 It is a very natural thing that man should fear to die, for man was not originally created to die. When Adam and Eve were first placed in the Garden of Eden, they were in such a condition that they might have remained there for a myriad years if they had kept their integrity. There was no reason why unfallen man should die&mdash;but now that we have sinned, the seeds of corruption are in this flesh of ours&mdash;and it is appointed unto men once to die. Yet, as if the body knew that it was not according to the first decree of Heaven that it should go to the earth and to the worms, it has a natural reluctance to return to its last bed. And this fear of death, so far as it is natural, is not wrong.
@@ -17,13 +17,13 @@ We greatly glorify God when we can say with Job, "Though He slay me, yet will I 
 
 The Christian who contemplates death with joy is a living sermon! He is a better defense of the Gospel than all the works that Butler and Paley and the other writers of Christian evidences have ever been able to compile. Therefore, dear Friends, the Church of Christ loses this defense and the world loses this evidence when we are troubled by the fear of death. This fear ought not to be found in Christians, but if it ever is, they ought to strive against it until they overcome it&mdash;
 
-> Why should we start, or fear to die?  
-> What timorous worms we mortals are!  
-> Death is the gate of endless joy,  
-> And yet we dread to enter there?  
-> The pains, the groans, the dying strife  
-> Frighten our approaching souls away-Still we shrink back again to a life,  
-> Fond of our prison and our clay.  
+> Why should we start, or fear to die? 
+> What timorous worms we mortals are! 
+> Death is the gate of endless joy, 
+> And yet we dread to enter there? 
+> The pains, the groans, the dying strife 
+> Frighten our approaching souls away-Still we shrink back again to a life, 
+> Fond of our prison and our clay. 
 
 "How are we to get rid of this fear?" asks one. Well, let us never try to get rid of it, as some do, by forgetting all about death! That would be to live as the brutes that perish! They live their little day here without any thought beyond the present. The ox and the sheep go to the slaughterhouse without the power to look beyond the present life. I would not like to obtain peace of mind by descending to the level of those "dumb, driven cattle." Yet there are many men whose only peace arises from thoughtlessness and that is a sorry peace which cannot endure contemplation and consideration. Why, we know men who are bold enough in company and who can even blaspheme God&mdash;but set them down in a room by themselves, compel them to think in solitude even for a single hour&mdash;and you could not condemn them to a greater misery! They cannot bear the idea of parting with their present joys. Venturing into another world seems, to them, such a hazardous enterprise that they forget all about it and shut their eyes to all thoughts beyond this life!
 
@@ -37,21 +37,21 @@ The answer is, Beloved, that you must look for that where you are bound to look 
 
 How does Christ take away from us the fear of death? He does it, first, by taking away from us the sin which is the sting of death. To die forgiven, "accepted in the Beloved," is not really to die, but to depart out of this world unto the Father! Unforgiven sin is that which makes it hard to lay the head upon the dying pillow. But when sin is forgiven and we know that it is and we have perfect peace with God, we can even longfor that last evening of life to come that we may undress and sleep in Jesus! Be sure, Beloved, that you are forgiven&mdash;"make your calling and election sure." Know for a certainty that Jesus Christ's words apply to you, "Verily, verily, I say unto you, he that believes on Me has everlasting life." Rest completely upon that Sacrifice which He once offered upon the Cross when He made a full atonement for all who believe an Him! Understand that He has washed you from your sins in His blood and made you kings and priests unto God&mdash;and then I do not see how the fear of death can live in you any longer!&mdash;
 
-> If sin is pardoned, Im secure!  
-> Death has no sting beside.  
-> The Law gives sin its damning power,  
-> But Christ, my Ransom, died.  
+> If sin is pardoned, Im secure! 
+> Death has no sting beside. 
+> The Law gives sin its damning power, 
+> But Christ, my Ransom, died. 
 
 Next, Christ has delivered you from the fear of death by changing the very character of death, itself You know what He said to Martha, "Whoever lives and believes in Me shall never die." And Believers never do die in the sense in which others die. They die in order to endure the penalty of sin, but for us, that penalty was borne by Christ! All our iniquities were laid upon Him and all the penalty of them was borne by Him. Death to the Believer is no penalty&mdash;it is a development from this time state to another and a higher one&mdash;a breaking of the shell that now confines us! It is a snapping of the cable that holds the vessel to the shore; a severing of the chain that holds the eagle to the rock. Death releases us so that we may soar away to that land of light and love where Jesus is, as John Newton sings&mdash;
 
-> In vain my fancy strives to paint  
-> The moment after death,  
-> The glories that surround the saint  
-> When yielding up his breath.  
-> One gentle sigh the fetter breaks!  
-> We scarce can say,' They're gone!  
-> Before the willing spirit takes  
-> Her mansion near the Throne.  
+> In vain my fancy strives to paint 
+> The moment after death, 
+> The glories that surround the saint 
+> When yielding up his breath. 
+> One gentle sigh the fetter breaks! 
+> We scarce can say,' They're gone! 
+> Before the willing spirit takes 
+> Her mansion near the Throne. 
 
 Death to the Believer is not an execution&mdash;it is his deliverance, his freedom from slavery and admission into the Glory of God!
 
@@ -59,8 +59,8 @@ Christ has taken away the fear of death from those who truly know Him by assurin
 
 Then there is that master doctrine of the Christian faith which was not revealed to men in all its fullness until Jesus came. I mean, the doctrine of the resurrection of the body. It is for this body that we have any fear&mdash;corruption, earth and worms are its heritage&mdash;and it seems a hard thing that these eyes, which have seen the light, should be blinded in the mold; that these hands which have been active in God's service, should lie still in the grave&mdash;and that these limbs, which have trodden the pilgrim path, should be able to move no longer. But courage, Believer! Your body shall rise again! Laid in the earth it may be, but keptin the earth it cannotbe! The voice of Nature bids you die, but the voice of the Omnipotent bids you live, again, for the trumpet shall sound and then the bodies of the saints shall rise&mdash;
 
-> From beds of dust and silent clay,   
-> To realms of everlasting day.   
+> From beds of dust and silent clay, 
+> To realms of everlasting day. 
 
 This is our consolation, that, as Jesus Christ died and rose again from the dead, "even so they, also, who sleep in Jesus will God bring with Him." As we have this double comfort for soul and body, what more do we need?
 
@@ -90,8 +90,8 @@ You may visit the haunts of folly, if you will, and search for joy, there, but y
 
 But it is not so much the joy of dying that can console us as the life that is beyond death. I never like to hear people quote the first part of that text and omit the latter portion, "Eye has not seen, nor ear heard, neither have entered into the heart of man, the things which God has prepared for them that love Him. But God has revealed them unto us by His Spirit: for the Spirit searches all things, yes, the deep things of God." Christians know that there is a joy unspeakable and eternal which will be their portion as soon as they shall depart from this world to be with the Father. Well did we sing just now&mdash;
 
-> Let doubt, then, and danger my progress oppose, They only make Heaven more sweet at the close!   
-> Come joy or come sorrow, whate'er may befall An hour with my God will make up for them all.   
+> Let doubt, then, and danger my progress oppose, They only make Heaven more sweet at the close! 
+> Come joy or come sorrow, whate'er may befall An hour with my God will make up for them all. 
 
 What will be the sensations of the first hour in heaven? I will not try to picture them&mdash;I will leave you to imagine them. But what will be your sensations when you realize that you are not merely to be there for an hour, or a day, or even for 70 years, but forever and ever? Of him that overcomes, Christ says, "He shall go no more out." He shall be blessed forever and ever in the Presence of his Lord! The righteous are to go "into life eternal." Take away that word, "eternal," and you have taken away our all! But while that remains, the Heaven of Heaven is the fact that it will last forever and ever! I cannot stay to speak at length upon all this, but I do entreat every child of God to think much upon these comforting themes and then, surely, he will be helped to overcome the fear of death.
 
@@ -115,30 +115,30 @@ Next, to get rid of the fear of death, I urge you to serve God every day with al
 
 I met, the other day, with a piece of poetry which struck me very forcibly. I wonder whether it will strike you in the same way as I read it&mdash;
 
-> 'My work is done, I lay me down to die.  
-> Weary and travel-worn, Ilong for rest.  
-> Speak but the word, dear Master, and I fly,  
-> a dove let loose to nestle on Your breast.'  
-> 'Not yet, My child; a little longer wait,  
-> I need your prayerful watch at Glory's gate.'  
-> 'But, Lord, I have no strength to watch and pray,  
-> My spirit is benumbed and dim my sight.  
-> And I shall grieve Your wakeful love, as they  
-> Who in the garden slept, that paschal night.'  
-> 'My child, I need your weakness, hour by hour,  
-> To prove, in Me, your weakness ispower.'  
-> 'Not for myself, I urge the suit,  
-> But loved ones lose, for me, life's priceless bloom  
-> And tender, patient, uncomplaining, mute,  
-> Wear out theirjoy in my darkened room.'  
-> 'Enough, My child! I need their love to you;  
-> Around your couch they minister to Me.'  
-> 'It is enough, dear Master, yes, Amen!  
-> I will not breathe one murmur or reply.  
-> Only fulfill Your work in me and then  
-> Call me, and bid me answer, 'Here am I.'  
-> 'My child, the sign I waited for is given.  
-> Your work is done. I need you now in Heaven.'  
+> 'My work is done, I lay me down to die. 
+> Weary and travel-worn, Ilong for rest. 
+> Speak but the word, dear Master, and I fly, 
+> a dove let loose to nestle on Your breast.' 
+> 'Not yet, My child; a little longer wait, 
+> I need your prayerful watch at Glory's gate.' 
+> 'But, Lord, I have no strength to watch and pray, 
+> My spirit is benumbed and dim my sight. 
+> And I shall grieve Your wakeful love, as they 
+> Who in the garden slept, that paschal night.' 
+> 'My child, I need your weakness, hour by hour, 
+> To prove, in Me, your weakness ispower.' 
+> 'Not for myself, I urge the suit, 
+> But loved ones lose, for me, life's priceless bloom 
+> And tender, patient, uncomplaining, mute, 
+> Wear out theirjoy in my darkened room.' 
+> 'Enough, My child! I need their love to you; 
+> Around your couch they minister to Me.' 
+> 'It is enough, dear Master, yes, Amen! 
+> I will not breathe one murmur or reply. 
+> Only fulfill Your work in me and then 
+> Call me, and bid me answer, 'Here am I.' 
+> 'My child, the sign I waited for is given. 
+> Your work is done. I need you now in Heaven.' 
 
 I admire that utterance of Mr. Whitefield, which I have quoted to you before, "I try to keep all my affairs so arranged that if I were to die at any time, they would be no trouble to those who come after me." He was so particular in his habits that he would not fall asleep if he had a pair of gloves out of place! And I like to feel that as far as it can be, all is right with my own affairs.
 

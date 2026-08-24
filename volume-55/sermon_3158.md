@@ -1,6 +1,6 @@
 # Sermon 3158 | The Fifth Beatitude
 
-"Blessed are the merciful: for they shall obtain mercy." Matthew 5:7.
+> "Blessed are the merciful: for they shall obtain mercy." Matthew 5:7.
 
 
 

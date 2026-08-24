@@ -1,6 +1,6 @@
 # Sermon 3126 | Pictures of Life
 
-> What is your life?  
+> What is your life? 
 > James 4:14
 
 It well behooves me, now that another year of my existence has almost gone, standing on the threshold of a fresh era, to consider what I am, where I am going, what I am doing, whom I am serving and what shall be my reward. I will not, however, do so publicly before you&mdash;I hope that I may be enabled to perform that duty in secret. But rather let me turn this occurrence to another account by speaking to you of the frailty of human life, the fleeting nature of time, how swiftly it passes away, how soon we all shall fade as a leaf and how speedily the place which knows us now shall know us no more forever! The Apostle James asks, "What is your life?" and, thanks to Inspiration, we are at no great difficulty to give the reply, for Scripture, being the best interpreter of Scripture, supplies us with many very excellent answers. I shall attempt to give you some of them.
@@ -39,15 +39,15 @@ We have another picture of life in its changes given to us in the ninetieth Psal
 
 Another idea we get from the thirty-eighth Chapter of the Prophecy of Isaiah, at the twelfth verse&mdash;"I am removed as a shepherd's tent." The shepherds in the East build temporary huts near the sheep which are soon removed when the flock moves on. When the hot season comes on, they pitch their tents in the most favorable place they can find and each season has its suitable position. My life is like a shepherd's tent. I have already pitched my tent in a variety of places, but where I shall pitch it, by-and-by, I do not know. I cannot tell. Present probabilities seem to say that&mdash;
 
-> Here I shall make my settled rest,   
-> And neither go nor come&mdash;   
-> No more a stranger or a guest,   
-> But like a child at home.   
+> Here I shall make my settled rest, 
+> And neither go nor come&mdash; 
+> No more a stranger or a guest, 
+> But like a child at home. 
 
 But I cannot tell and you cannot, either. I know that my tent cannot be removed till God says, "Go forward." And it cannot stand firm unless He makes it so&mdash;
 
-> All my ways shall always be   
-> Ordered by His wise decree.   
+> All my ways shall always be 
+> Ordered by His wise decree. 
 
 You have been opening a new shop, lately, and you are thinking of settling down in trade and managing a thriving concern. Now paint not the future too brightly! Do not be too sure as to what is in store for you. Another has, for a long time, been engaged in an old establishment&mdash;your father always carried on trade there, and you have no thought of moving. But here you have no abiding city&mdash;your life is like a shepherd's tent! You may be here, there, and almost everywhere before you die. It was once said by Solon, "No man ought to be called a happy man till he dies"&mdash;because he does not know what his life is to be! But Christians may always call themselves happy men, here, because wherever their tent is carried, they cannot pitch it where the cloud does not move and where they are not surrounded by a circle of fire. God will be a wall of fire round about them and their Glory in the midst. They cannot dwell where God is not the bulwark of their salvation!
 
@@ -91,7 +91,7 @@ And my age is as nothing before You. What are 70 or 80 years, even if we live as
 
 Verily every man at his best state is altogether vanity. SelaL When he is strongest, calmest, happiest. When he is in his prime, when he is at his best&mdash;his best, of which he is so vain&mdash;is itself vain! Whatever there may be true about man, this is true, that he is unstable and soon passes away. He is constant in nothing but his inconstancy. "Verily every man at his best state is altogether vanity."
 
-Surely every man walks in a vain show.  This world is a mere theater and men strut across its stage acting their various parts. They come and they go as if they were mere figures moved by invisible wires! The most of men do not live at all, but only seemto live, for they have not the true, spiritual, eternal life within them. Every man walks like a performer in a pageant, or like those who march in a procession. We think we are standing still and watching others pass by, but we are, ourselves, part of the vain show and are passing away with the rest!
+Surely every man walks in a vain show. This world is a mere theater and men strut across its stage acting their various parts. They come and they go as if they were mere figures moved by invisible wires! The most of men do not live at all, but only seemto live, for they have not the true, spiritual, eternal life within them. Every man walks like a performer in a pageant, or like those who march in a procession. We think we are standing still and watching others pass by, but we are, ourselves, part of the vain show and are passing away with the rest!
 
 Surely they are disquieted in vai. They fret, they fume, they vex themselves, but it is all in vain. They make a noise, so the Hebrew says, in vain. Hear the clamor of the streets. Hear the buzz of the Exchange. Hear the noise of war, the shouts of conflict&mdash;it is all in vain, it is all for nothing! You are troubled about your business, troubled about your children, troubled about your wealth, troubled about I know not what&mdash;surely you are disquieted in vain! Oh, that we could but believe that all this disquietude is only vanity! Then might we live much more peaceful lives.
 

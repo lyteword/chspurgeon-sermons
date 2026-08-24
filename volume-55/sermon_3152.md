@@ -1,6 +1,6 @@
 # Sermon 3152 | The Lower Courts
 
-"For if our heart condemns, God is greater than our heart, and knows all things. Beloved, if our heart condemn us not, then have we confidence toward God." 1 John 3:20,21.
+> "For if our heart condemns, God is greater than our heart, and knows all things. Beloved, if our heart condemn us not, then have we confidence toward God." 1 John 3:20,21.
 
 
 
@@ -48,10 +48,10 @@ Then, Beloved, God can often see in His people the good which they cannot see in
 
 "Well," says one, "I never had a doubt about my state. I have always felt sure that I was all right." Then, my Friend, if you never had a doubt about yourself, allow me to doubt for you. Ah, Beloved, it is not high thoughts that prove us to be Christians&mdash;it is lying humbly in the dust before the Mercy Seat that is one of the sure signs that we are the children of God! So although your heart condemns you, as my own heart and conscience have condemned me a thousand times, I trust that you can yet say with me&mdash;
 
-> Ido believe, I will believe   
-> That Jesus died for me!   
-> That on the Cross He shed His blood   
-> From sin to set me free.   
+> Ido believe, I will believe 
+> That Jesus died for me! 
+> That on the Cross He shed His blood 
+> From sin to set me free. 
 
 Savior, I will trust You and I do trust You. Lost and ruined, and guilty, and all but damned, I will still trust You&mdash;and so You cannot cast me away, for You have promised, "Him that came to Me I will in no wise cast out."
 

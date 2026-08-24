@@ -1,6 +1,6 @@
 # Sermon 3176 | The Beauty Of The Olive Tree
 
-"His beauty shall be as the olive tree." Hosea 14:6.
+> "His beauty shall be as the olive tree." Hosea 14:6.
 
 
 

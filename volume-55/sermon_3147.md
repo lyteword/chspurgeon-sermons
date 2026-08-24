@@ -1,6 +1,6 @@
 # Sermon 3147 | God's Glory in the Building Up of Zion
 
-"When the Lord shall build up Zion, He shall appear in His Glory." Psalm 102:16.
+> "When the Lord shall build up Zion, He shall appear in His Glory." Psalm 102:16.
 
 The Lord Himself must "build up Zion," or it will never be built up. He first planned it. He is the Architect of His own Church. He dug the foundations, i.e., has supplied the great Cornerstone. He, by His own power, creates each living stone, polishes it and fits it into its place. He cements the whole structure and as He first sketched the plan, so will He complete it in every iota to the praise and the glory of His wisdom, His Grace and His love. It shall be said of Zion, when all her walls are built and all her palaces completed&mdash;and when all her happy inhabitants have their mouths filled with song as they walk in white&mdash;"The Lord has built it, from the foundation even to the topstone." I remember seeing, close by the side of the Alps, a house which had upon its front, words to this effect, "This house was built entirely by the skill, wealth and industry of its inhabitants." It struck me as not being a very modest thing to put in front of one's house for, after all, the structure was not very marvelous . But when we look at the glorious architecture of the Church of God, it is no mean part of its luster that it may fittingly bear such an inscription as this, "This House was built entirely by the wisdom, the munificence and the power of the Infinite Jehovah."
 
@@ -70,9 +70,7 @@ The Church of Christ shall and must be built! Even if you and I sit still, it wi
 
 Psalm 123:1. Unto You lift I up my eyes, O You that dwell in the heavens. Our eyes are far too apt to look below, or to look within, or to look around. But it is wisdom on our part to look up. There is always something blessed to see upward, especially when we look up to Him who dwells in the highest heavens&mdash;our Father, our Savior, our Comforter. There is little down here that is worth looking at, but there is everything for our comfort when we look up.
 
-Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hands of her mistress; so our eyes wait upon the Lord our God, until that He has mercy upon us. [See Sermon #2654, Volume45&mdash;wakeful
-
-and watchful eyes.] This is what we are looking for-the mercy
+Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hands of her mistress; so our eyes wait upon the Lord our God, until that He has mercy upon us. This is what we are looking for-the mercy
 
 of the Lord our God. It comes from His great heart, through His almighty hands. A wave of His hand is sufficient to drive away all our troubles. When He opens His hand, He supplies the needs of every living thing, so mighty and so bountiful is He. Let us, therefore, keep our eyes upon our Lord's hands "until that He has mercy upon us."
 
@@ -92,21 +90,17 @@ Then the waters had overwhelmed us, the stream had gone over our soul: then the 
 
 Blessed be the Lord, who has not given us as a prey to their teeth. Neither to Satan and his lieges, nor to wicked men, has God delivered us. We are not to be their prey, for God claims us as His own!
 
-Our soulis escapedas a bird out of the snare of the fowlers: the snare is broken and we have escaped. [See Sermon #1696,
-
-Volume 28&mdash;the bird escaped from the snare.] What a joyous song
+Our soulis escapedas a bird out of the snare of the fowlers: the snare is broken and we have escaped. What a joyous song
 
 that is for the escaped soul to sing! Whenever a Christian has fallen into difficulties through not walking uprightly, when he has gone astray from the right path and has been caught in the fowler's net&mdash;and is in such trouble that he does not know what to do&mdash;then God comes and cuts the net, perhaps, with the sharp knife of affliction and the imprisoned soul again finds freedom from worldly associations and happy liberty in the service of God. I do not know a sweeter song than this that he and others of God's rescued birds can sing as they mount up into the clear light of God's Countenance, "Our soul is escaped as a bird out of the snare of the fowlers: the snare is broken and we have escaped."
 
 Our help is in the name of the Lord, who made Heaven and earth. This is a good lesson for us to learn from the past experience of the Lord's people. God and God alone did deliver His servants in the past and herein is our confidence for the present and the future&mdash;our help is in the name&mdash;the revealed and manifested Character&mdash;of Jehovah, the Creator of Heaven and earth!
 
-Psalm 125:1. They that trust in the Lord shall be as Mount Zion, which cannot be removed, but abides forever [See
-
-Sermon #1450, Volume 24&mdash;the immovability of the believer.] What
+Psalm 125:1. They that trust in the Lord shall be as Mount Zion, which cannot be removed, but abides forever What
 
 comfort there is in this verse to all who trust in the Lord! We never expect to see anyone tear up Mount Zion by the roots. The Romans have been there and plowed Mount Zion as a field, but they could not remove it&mdash;it is there still and the natural features are the same as they were in the days of Abraham and David. Mount Zion "cannot be removed but abides forever." Men have swept away much that was built on it, but Mount Zion is still there, nor shall any human power ever be able to remove it. And, glory be to God, neither men nor devils shall ever be able to remove us if we trust in the Lord, for we "shall be as Mount Zion, which cannot be removed, but abides forever."
 
-As the mountains are roundabout Jerusalem, so the Lord is roundabout His people from henceforth even forever  At Jerusalem there is first the deep valley around the hill. And then afterwards a range of encircling mountains, but the munitions of stupendous rock are nothing compared with those eternal ramparts which protect the people of God.
+As the mountains are roundabout Jerusalem, so the Lord is roundabout His people from henceforth even forever At Jerusalem there is first the deep valley around the hill. And then afterwards a range of encircling mountains, but the munitions of stupendous rock are nothing compared with those eternal ramparts which protect the people of God.
 
 For the rod of the wicked shall not rest upon the lot of the righteous; lest the righteous put forth their hands into iniquity. "The rod of the wicked" may fall upon the lot of the righteous, but it shall not "rest" there! The godly may be oppressed for a season, but that season shall not be too long for them to endure. God will not allow His servants to be tried above what they are able to bear, lest their faith should fail and, in order to escape from their oppressors, they should "put forth their hands unto iniquity."
 

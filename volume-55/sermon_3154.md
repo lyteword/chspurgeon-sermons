@@ -1,6 +1,6 @@
 # Sermon 3154 | Concerning The Forbearance Of God
 
-"Or do you despise the riches of His goodness and forbearance and long-suffering, not knowing that the goodness of God leads you to repentance?" Romans 2:4.
+> "Or do you despise the riches of His goodness and forbearance and long-suffering, not knowing that the goodness of God leads you to repentance?" Romans 2:4.
 
 
 
@@ -88,21 +88,19 @@ For the promise, that he should be the heir of the world, was not to Abraham, or
 
 For if they which are of the Law are heirs, faith is made void, and the promise made of no effect because the Law works wrath: for where no Law is, there is no transgression. So that the Law is not for justification, but for condemnation. It is the Law that reveals sin and that shows sin to be sin&mdash;so men can never become right with God by the Law.
 
-Therefore it is of faith, that it might be by Grace,  to the end the promise might be sure
+Therefore it is of faith, that it might be by Grace, to the end the promise might be sure
 
 to all the seed That is, to all Believers who are the true seed of Abraham. He is the father of the faithful and if you are one of the faithful, he is your father! And the Covenant which God made with Abraham and his seed was made with you and on your account if you are, indeed, a Believer in the Lord Jesus Christ!
 
 Not to those only who are of the Law, but also to those who are of the faith of Abraham, who is the father of us all, (as it is written, I have made you a father of many nations) before Him whom he believed, even God, who quickens the dead and calls those things which are not, as though they were. Who against hope believed in hope, that he might become the father of many nations, according to that which was spoken, So shall your seed be. And being not weak in faith, he considered not his own body now dead, when he was about an hundred years old, neither yet the deadness of
 
-Sarah's womb. He staggered not  at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fuly persuaded that what He had promised, He was also able to perform. And therefore it was imputed to him for righteousness. O Soul, if you are like one who is dead. If you are devoid of all strength, Grace and savor&mdash;if you can but believe in God who can quicken the dead, if you will but trust your soul in the hands of Him who is able even to raise dry bones out of their graves and make them live&mdash;your faith shall be imputed unto you for righteousness! Your faith is that which shall justify you in the sight of God and you shall be "accepted in the Beloved." Oh, what marvels faith works! This is the root-Grace&mdash;all manner of good things spring from faith&mdash;but there must be faith as the root if there are to be other Graces as the fruit. Do your God the honor to believe Him&mdash;to believe that He cannot lie&mdash;to believe that He has never promised what He is not able to perform. If you will do that, it is clear that you are one of Abraham's seed and the Covenant made with Abraham was made with you also!
+Sarah's womb. He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fuly persuaded that what He had promised, He was also able to perform. And therefore it was imputed to him for righteousness. O Soul, if you are like one who is dead. If you are devoid of all strength, Grace and savor&mdash;if you can but believe in God who can quicken the dead, if you will but trust your soul in the hands of Him who is able even to raise dry bones out of their graves and make them live&mdash;your faith shall be imputed unto you for righteousness! Your faith is that which shall justify you in the sight of God and you shall be "accepted in the Beloved." Oh, what marvels faith works! This is the root-Grace&mdash;all manner of good things spring from faith&mdash;but there must be faith as the root if there are to be other Graces as the fruit. Do your God the honor to believe Him&mdash;to believe that He cannot lie&mdash;to believe that He has never promised what He is not able to perform. If you will do that, it is clear that you are one of Abraham's seed and the Covenant made with Abraham was made with you also!
 
 Now it was not written for his sake alone, that it was imputed to him; but for us, also, to whom it shall be imputed if we believe on Him that raised up Jesus our Lord from the dead; who was delivered for our offenses and was
 
 http://www.spurgeongems.orgj See the great Object of saving faith? Christ, once dead, has been raised from the dead&mdash;and if you would be saved&mdash;you must rely upon the crucified and risen Savior! If you thus believe that Jesus the Crucified is the Christ of God, the anointed Messiah and Redeemer, you prove that you are born of God! And if you trust yourself to the risen and glorified Christ, you have risen in Him and you shall rise to be with Him forever and ever.
 
-Romans 5:1. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ [See Sermon
-
-#1456, Volume 25&mdash;peace&mdash;a fact and a feeling.] My Friend, are these
+Romans 5:1. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ My Friend, are these
 
 words true concerning you? Can you put your finger on this verse and say, "this is true of me, 'Therefore being justified by faith, we have&mdash;I have&mdash;peace with God through our Lord Jesus Christ'?" We who have believed in Jesus enjoy that peace&mdash;a deep, profound calm is upon our spirit whenever we think of God! We are not afraid of Him, We are not afraid to meet Him even on His Judgment Seat! "Being justified by faith, we have peace with God." Have you peace with God? Are you sure that you have it? If not, perhaps you are not justified by faith, for that is the root of it! "Being justified by faith, we have peace with God through our Lord Jesus Christ."
 

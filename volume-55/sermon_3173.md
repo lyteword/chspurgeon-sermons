@@ -1,6 +1,6 @@
 # Sermon 3173 | "As" and "So"
 
-"As you have therefore received Christ Jesus the Lord, so walk you in Him." Colossians 2:6.
+> "As you have therefore received Christ Jesus the Lord, so walk you in Him." Colossians 2:6.
 
 
 
@@ -24,14 +24,14 @@ But you have also received Him as Jesus, and you love that charming name. No hym
 
 It soothes his sorrows, heals his wounds, And drives away his fears." You also sing with Bernard of Clairvaux&mdash;
 
-> Jesus, the very thought of You   
-> With sweetness fills my breast.   
-> But sweeter far Your face to see   
-> And in Your Presence rest   
-> Nor voice can sing, nor heart can frame,   
-> Nor can the memory find   
-> A sweeter sound than Your blest name,   
-> OSavior of mankind!   
+> Jesus, the very thought of You 
+> With sweetness fills my breast. 
+> But sweeter far Your face to see 
+> And in Your Presence rest 
+> Nor voice can sing, nor heart can frame, 
+> Nor can the memory find 
+> A sweeter sound than Your blest name, 
+> OSavior of mankind! 
 
 You received Him as your Savior and, therefore, He has saved you from the penalty of sin and He will also save you from the dominion and power of sin. If you are saved, you are saved entirely through Jesus&mdash;and you do not need, and you do not desire any other Savior! You look to Jesus for all that can be comprehended in the word, salvation. His name means Savior and you have found Him to be a Savior to you. So you have received the anointed Savior, Christ Jesus.
 
@@ -59,10 +59,10 @@ There is great safety in going back to first principles. To make sure of being i
 
 So I ask you, how did you receive Christ? Possibly your first answer is, "I received Him in the depth of sorrow and humiliation of soul. I had been broken in pieces by the great plow of the Law and was rent and torn asunder by my own consciousness of guilt. I lay before the Cross moaning and roaring like a wounded beast and in my extremity I received Christ as being the very Savior that I needed. I felt myself to be less than nothing and I took Him to be my All-in-All. Shivering in my nakedness through sin, I took His righteousness as my perfect covering. Famished to death, I took Him to be both my life and the food of that life. I grasped Christ in my despair at finding there was nothing else to which I could cling! Out of the great deeps of my soul's distress, I cast myself upon His mercy, saying&mdash;
 
-> I can but perish if I go,   
-> I am resolved to try&mdash;   
-> ForifIstay away,   
-> I know I must forever die!'   
+> I can but perish if I go, 
+> I am resolved to try&mdash; 
+> ForifIstay away, 
+> I know I must forever die!' 
 
 Our daily walk in Christ must be very much like that. Not exactly so, for there should be no unbelief in it. As for myself, I must confess that I never realize Christ's preciousness so much as when I feel myself still to be apart from Him, an undeserving, ill-deserving, Hell-deserving sinner. Sometimes when our Lord gives us sweet enjoyments, we make too much of them by letting them come between Him and our souls. And when the Holy Spirit bestows upon us certain Graces, we think we are very fine fellows and carry our heads aloft very proudly&mdash;instead of giving all the Glory to His holy name. Now, if we ever act like that, we may rest assured that as we go up in our own estimation, Christ will go down&mdash; and that would be a sorry thing, indeed! Grow in Grace, but not in self-esteem. Have more faith, but do not boast of having it. Be full of zeal, but not of conceit concerning it. Be as holy as it is possible for you to become, but do not prate and brag about your holiness as some have done. Be not like those who push with horn and with shoulder the weak ones of
 
@@ -100,13 +100,11 @@ Verses 10-12. In this the children of God are manifest and the children of the d
 
 Marvel not, my brethren, if the world hates you. As Cain hated Abel, so worldlings hate the saints whose holiness is a continual rebuke to the ungodly.
 
-We know that we have passed from death unto life because we love the brethren. [See Sermon #2556, Volume 44&mdash;life
-
-proved by love] He that loves not his brother abides in death.
+We know that we have passed from death unto life because we love the brethren. He that loves not his brother abides in death.
 
 Whoever hates his brother is a murderer: and you know that no murderer has eternal life abiding in him. Hereby perceive
 
-we the love of God, because He laid down His life for uS  and we ought to lay down our
+we the love of God, because He laid down His life for uS and we ought to lay down our
 
 lives for the brethren. Such self-sacrifice as this is the very highest form of love to the brethren and is a following of the example of Christ, who "laid down his life for us."
 

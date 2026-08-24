@@ -1,6 +1,6 @@
 # Sermon 3153 | Paul Cheered in Prison by His Lord
 
-"And when there arose a great dissension, the chief captain, fearing lest Paul should have been pulled in pieces by them, commanded the soldiers to go down and to take him by force from among them, and to bring him into the castle. And the following night the Lord stood by him and said, Be of good cheer, Paul: for as you have testified of Me in Jerusalem, so must you bear witness also at Rome. And when it was day, certain of the Jews banded together and bound themselves under a curse, saying that they would neither eat nor drink till they had killed Paul. And they were more than forty which had made this conspiracy." Acts 23:10-13.
+> "And when there arose a great dissension, the chief captain, fearing lest Paul should have been pulled in pieces by them, commanded the soldiers to go down and to take him by force from among them, and to bring him into the castle. And the following night the Lord stood by him and said, Be of good cheer, Paul: for as you have testified of Me in Jerusalem, so must you bear witness also at Rome. And when it was day, certain of the Jews banded together and bound themselves under a curse, saying that they would neither eat nor drink till they had killed Paul. And they were more than forty which had made this conspiracy." Acts 23:10-13.
 
 From the midnight whisper of the Lord to Paul we may draw forth sweet encouragement. Those of the Lord's children who have been engaged in His work and are called to suffer in it, have here a special word of consolation!
 
@@ -12,8 +12,8 @@ If all else forsook him, Jesus was company enough! If all others despised him, t
 
 "The Lord stood by him." This shall be said of each one who diligently serves God. Dear Friend, if you are a worker for the Lord Jesus, depend upon it, He will not desert you. If, in the course of your endeavors, you are brought into sadness and depression, you shall then find it sweetly true that the Lord stands by you. Did you ever forsake a friend who was spending his strength for you? If you have done so, you ought to be ashamed of yourself, but I think I hear you say indignantly, "No, I have always been faithful to my faithful friend." Do not, therefore, suspect your Lord of treating you ungenerously, for He is faithful and true. All your former helpers may desert you&mdash;Sadducees, Pharisees and scribes may all set themselves to oppose you&mdash;but with the Lord at your right hand you shall not be moved! Cheer up, desponding Brothers and Sisters&mdash;
 
-> God is near you, therefore cheer up, Sad soul!   
-> He'll defend you when around you Billows roll.   
+> God is near you, therefore cheer up, Sad soul! 
+> He'll defend you when around you Billows roll. 
 
 The next comfort for Paul was the reflection that the Lord's standing by him proved that he knew where he was and was aware of his condition.
 
@@ -23,18 +23,18 @@ The Lord stood by Paul despite doors and locks. He asked no warden's leave to en
 
 What is more, that part of our circumstances which we do not ourselves know, Jesus knows, and in these He stands by us, for Paul was not aware of the danger to which he was exposed. He did not know that certain Jews, to the number of forty, had banded themselves together to kill him! But He who was his shield and his exceeding great reward had heard the cruel oath and arranged to disappoint the bloodthirsty ones. Dear Friend, the Lord knows all about your troubles before they come to you&mdash;He anticipates them by His tender foresight. Before Satan can draw the bow, the Preserver of men will put His Beloved beyond the reach of the arrow. Before the weapon is forged in the furnace and fashioned on the anvil, He knows how to provide us with armor of proof which shall burn the edge of the sword and break the point of the spear. Let us therefore sing with holy boldness, "In the time of trouble He shall hide me in His pavilion: in the secret of His tabernacle shall He hide me. He shall set me up upon a rock." How safe we are, for Jehovah has said, "No weapon that is formed against you shall prosper; and every tongue that shall rise against you in judgment, you shall condemn." With joy, therefore, let us draw water out of these two wells of salvation&mdash;the Lord is present with us and He knows us altogether! Putting the two thoughts together, we may hear Him say to our inmost souls&mdash;
 
-> I, the Lord, am with you,   
-> Beyou not afraid!   
-> I will help and strengthen,   
-> Be you not dismayed!   
-> Yes, I will uphold you   
-> With My own right hand.   
-> You are called and chosen   
-> In My sight to stand!   
-> Onward then, and fear not,   
-> Children of the day!   
-> For His Word shall never,   
-> Never pass away.   
+> I, the Lord, am with you, 
+> Beyou not afraid! 
+> I will help and strengthen, 
+> Be you not dismayed! 
+> Yes, I will uphold you 
+> With My own right hand. 
+> You are called and chosen 
+> In My sight to stand! 
+> Onward then, and fear not, 
+> Children of the day! 
+> For His Word shall never, 
+> Never pass away. 
 
 When the Lord Jesus came to Paul, He gave him a third reason for courage. He said, "Be of good cheer, Paul: for you have testified of Me in Jerusalem. There was much comfort in this assurance that his work was accepted of his master.
 
@@ -44,7 +44,7 @@ fied of Me in Jerusalem." The Apostle had done so, but he was too humble to cons
 
 Perhaps, dear Friend, you also shall be made to remember that you have borne witness for Jesus and that your life has not been altogether in vain. It may be that your conscience makes you more familiar with your faults than with your services, and you rather sigh than sing as you look back upon your Christian career. Yet your loving Lord covers all your failures and commends you for what His Grace has enabled you to do in the way of witness-bearing. It must be sweet to you to hear Him say, "I know your works; for you have a little strength and have kept My Word, and have not denied My name."
 
-Be faithful to your Lord, dear Friend, if you are now in prosperity, for thus you will be laying up a store of cheering memories for years to come. To look back upon a well-spent life will not cause an atom of legal boasting to an experienced Believer&mdash;but it will justly create much holy rejoicing! Paul was able to rejoice that he had not run in vain, neither labored in vain&mdash;and happy are we if we can do the same. If it is right for us to chasten our conscience on account of omissions, it must be lawful ground for thankful joy that our heart condemns us not, for then have we confidence towards God.  If any of
+Be faithful to your Lord, dear Friend, if you are now in prosperity, for thus you will be laying up a store of cheering memories for years to come. To look back upon a well-spent life will not cause an atom of legal boasting to an experienced Believer&mdash;but it will justly create much holy rejoicing! Paul was able to rejoice that he had not run in vain, neither labored in vain&mdash;and happy are we if we can do the same. If it is right for us to chasten our conscience on account of omissions, it must be lawful ground for thankful joy that our heart condemns us not, for then have we confidence towards God. If any of
 
 us should fall into straitened circumstances, it will be a comfort to be able to say, "When I was rich, I freely used my wealth for my Lord." If we are ill, it will be a satisfaction to remember that when we were in health, we used our strength for Jesus. These are reflections which give light in the shade and make music at midnight. It is not out of our own reflections that the joy arises, but out of the witness of the Holy Spirit that the Lord is not unrighteous to forget our work of faith and labor of love.
 
@@ -78,7 +78,7 @@ accused have the accusers face to face, and have license to answer for himself c
 
 Therefore, when they were come here, without any delay on the morrow I sat on the judgment seat, and commanded the man to be brought forth. Against whom when the accusers stood up, they brought no accusations of such things as I supposed: but had certain questions against him of their own superstition, and of one Jesus, which was dead,
 
-whom Paul affirmed to be alive.  Festus may have supposed that they would have accused Paul of plotting against Rome, or of some other political crime. He would have thought such matters of far greater importance than the "certain questions against him of their own superstition, and of one Jesus, which was dead, whom Paul affirmed to be alive." Paul could make that affirmation with the utmost confidence, for Christ had appeared to him on the road to Damascus, proving without doubt that, though once dead, He was again alive.
+whom Paul affirmed to be alive. Festus may have supposed that they would have accused Paul of plotting against Rome, or of some other political crime. He would have thought such matters of far greater importance than the "certain questions against him of their own superstition, and of one Jesus, which was dead, whom Paul affirmed to be alive." Paul could make that affirmation with the utmost confidence, for Christ had appeared to him on the road to Damascus, proving without doubt that, though once dead, He was again alive.
 
 And because I doubted of such manner of questions, I asked'him whether he would go to Jerusalem, and there be judged of these matters. But when Paul had appealed to be reserved unto the hearing of Augustus, I commanded him to be kept till I might send him to Caesar. Then Agrippa said unto Festus, I would also hear the man myself. Tomorrow, said he, you shall hear him. So Paul's witness-bearing was made to spread still further! It is scarcely possible to conceive of any other circumstances in which the Gospel could have been made known to such an audience as the Apostle was, on the morrow, to have the opportunity of addressing!
 
@@ -98,9 +98,7 @@ see. And now I stand and am judged for the hope of the promise made of God unto 
 
 Notice that the fiction concerning "the ten lost tribes" has no foundation in Scripture. There are no lost tribes, several of them are mentioned by name in the New Testament. The Apostle James writes "to the twelve tribes which are scattered abroad," and here Paul speaks of them as "our twelve tribes." The Jews whom we have among us at this day belong to all of the twelve tribes, as they will tell you if you ask them. There are no lost tribes yet to be discovered, neither are we, as a nation, those ten tribes that are supposed to have been lost! We are Gentiles and not Jews. The Apostle speaks here concerning the hope of the whole nation of the Jews. We who have believed in Jesus are the inheritors of that grand hope, as we have understood it correctly and have realized that it is fulfilled in the Person of Jesus of Nazareth, the only begotten Son of God!
 
-Why shouldit be thought a thing incredible with you, that God should raise the dead?[See Sermon #1067, Volume 16&mdash;the
-
-resurrection credible.] That great fact of the Resurrection of
+Why shouldit be thought a thing incredible with you, that God should raise the dead? That great fact of the Resurrection of
 
 Christ is the cornerstone of the temple of Truth, the keystone of the arch of the Gospel. The Apostles made this Truth of God very prominent in their preaching and here Paul began his address with it. It was the great difficulty of the Christian religion at that period, so Paul went straight to it at once.
 
@@ -110,11 +108,9 @@ And many of the saints did I shut up in prison, having received authority from t
 
 Whereupon as I went to Damascus with authority and commission from the chief priests, at midday, O king, I saw in the way a light from Heaven, above the brightness of the sun, shining roundabout me and them which journeyed with me. And when we were all fallen to the earth, I heard a voice speaking unto me, and saying in the Hebrew tongue,
 
-Saul, Saul, why do you persecute Me?  It is hard for you to kick against the pricks. He was like a stubborn ox kicking against the goads&mdash;the harder he kicked, the more the sharp points of the goads pricked him!
+Saul, Saul, why do you persecute Me? It is hard for you to kick against the pricks. He was like a stubborn ox kicking against the goads&mdash;the harder he kicked, the more the sharp points of the goads pricked him!
 
-And I said. Who are You, Lord? And He said, I am Jesus whom you persecute. But rise, and stand upon your feet: for I have appeared unto you for this purpose, to make you a minister and a witness both of these things which you have seen, and of the things which I will yet reveal to you. I will deliver you from the people, and from the Gentiles, unto whom now I send you, to open their eyes, and to turn them from darkness to light, and from the power of Satan unto God, that they may receive forgiveness ofsins, and inheritance among them which are sanctified by faith that is in Me. [See
-
-Sermon #1774, Volume 30&mdash;God's work upon minister and convert.] Part
+And I said. Who are You, Lord? And He said, I am Jesus whom you persecute. But rise, and stand upon your feet: for I have appeared unto you for this purpose, to make you a minister and a witness both of these things which you have seen, and of the things which I will yet reveal to you. I will deliver you from the people, and from the Gentiles, unto whom now I send you, to open their eyes, and to turn them from darkness to light, and from the power of Satan unto God, that they may receive forgiveness ofsins, and inheritance among them which are sanctified by faith that is in Me. Part
 
 of this address was spoken to Paul by Ananias when he came to open his eyes, hence some have thought that Paul here mixed up what was said to him by Christ and what was said by Ananias, yet all the while recognizing it as being virtually all one message from Christ&mdash;but I do not think so. I believe that Paul would have us understand that the Lord Jesus Christ actually said to him, on the road to Damascus, all that we have recorded here&mdash;and that when Ananias came to him, he, without having heard what the Lord had said to Paul, said the same thing to him&mdash;and this would be a kind of sign and token to the Apostle that what was said to him was really a message from God. How often this happens under every true Gospel ministry! The very thing that you were talking about while on your way to the service will be spoken to
 
@@ -128,7 +124,7 @@ For the king knows of these things, before whom also I speak freely: for I am pe
 
 Believe you the Prophet? I know that you believe. Then Agrippa said unto Paul, "You almost persuade me
 
-to become a Christian.''"  a great deal of effort has been put forth to prove that Agrippa did not say anything of the kind, but that he was only laughing at Paul when he ironically said, "Are you going to make me a Christian so easily as this?" If so, the reply of Paul was singularly inappropriate, but taking Agrippa's words to be as they appear here, "You almost persuade me to become a Christian," Paul's answer can be well understood.
+to become a Christian.''" a great deal of effort has been put forth to prove that Agrippa did not say anything of the kind, but that he was only laughing at Paul when he ironically said, "Are you going to make me a Christian so easily as this?" If so, the reply of Paul was singularly inappropriate, but taking Agrippa's words to be as they appear here, "You almost persuade me to become a Christian," Paul's answer can be well understood.
 
 And Paul said, I would to God that not only you, but also all that hear me this day, were both almost, and altogether such as I am, except these bonds. And in so speaking he skillfully hinted how unfairly he was chained before his judges&mdash;and yet how he wished ill to none, but only wished good to all!
 
@@ -158,17 +154,17 @@ In this was manifested the love of God toward us, because that God sent His only
 
 Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our
 
-sins. Beloved, if God so loved us, we ought also to love one another.  As God "so loved
+sins. Beloved, if God so loved us, we ought also to love one another. As God "so loved
 
 us" when there was nothing lovable about us, and so loved us as to give His only begotten Son to save us, "we ought also to love one another."
 
-No man has seen God at any time. If we love one another, God dwells in us, and His love is perfected in us. Hereby know we that we dwell in Him, and He in us, because He has given us of His Spirit. And we have seen and do testify that the Father sent the Son to be the Savior of the world.  John could testify as an eyewitness to the sufferings and death of Christ, for he stood at the foot of the Cross and saw the Savior die&mdash;and he had before laid his head upon his Master's breast. He knew that Christ was real flesh and blood and he knew that Christ really died, so he could truly say, "We have seen and do testify that the Father sent the Son to be the Savior of the world."
+No man has seen God at any time. If we love one another, God dwells in us, and His love is perfected in us. Hereby know we that we dwell in Him, and He in us, because He has given us of His Spirit. And we have seen and do testify that the Father sent the Son to be the Savior of the world. John could testify as an eyewitness to the sufferings and death of Christ, for he stood at the foot of the Cross and saw the Savior die&mdash;and he had before laid his head upon his Master's breast. He knew that Christ was real flesh and blood and he knew that Christ really died, so he could truly say, "We have seen and do testify that the Father sent the Son to be the Savior of the world."
 
 Whoever shall confess that Jesus is the Son of God, God dwells in him, and he in God. And we have known and believed the love that Godhas to us. Godis love, andhe that dwells in love dwells in God, and Godin him. This is a deep Book. The words are very simple and plain&mdash;mainly monosyllables, yet who among us can ever fathom the depth of this Epistle? May we fathom it so far as to plunge into its wondrous depths!
 
 Wherein is our love madeperfect, that we may have boldness in the Day of Judgment: because as He is, so are we in this world. There is no fear in love; but perfect love casts out fear: because fear has torment. He that fears is not made perfect in love. Questioning, mistrust, unbelief, doubt&mdash;all these die when we come truly and heartily to love our Lord! And in proportion as our love to Him burns like a flame of fire, it burns up all this wood, hay and stubble of trembling, slavish fear.
 
-We love Him because He first loved uS.  We Would never have loved Him unless He had "first loved us." His love to us begat our love to Him!
+We love Him because He first loved uS. We Would never have loved Him unless He had "first loved us." His love to us begat our love to Him!
 
 If man says, Ilove God, and hates his brother, he is a liar John is very emphatic in his condemnation of such a man as that! Some of the most tender-hearted men in the world are the most blunt in their mode of speaking. And some of the most fawning flatterers are the most cruel in their hearts. We love John all the better because he writes so plainly, "If a man says I love God, and hates his brother, he is a liar."
 

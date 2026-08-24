@@ -1,6 +1,6 @@
 # Sermon 3143 | Shoes for Pilgrims and Warriors
 
-"And your feet shod with the preparation of the Gospel of Peace." Ephesians 6:15.
+> "And your feet shod with the preparation of the Gospel of Peace." Ephesians 6:15.
 
 The Christian was evidently intended to be in motion, for here are shoes for his feet. His head is provided with a helmet, for he is to be thoughtful. His heart is covered with a breastplate, for he is to be a man of feeling. His whole nature is protected by a shield, for he is called to endurance and caution. And that he is to be active is certain, for a sword is provided for his hand to use and sandals with which his feet are to be shod. To suppose that a Christian is to be motionless as a post and inanimate as a stone, or merely pensive as a weeping willow and passive as a reed shaken by the wind, is altogether a mistake! God works in us and His Grace is the great motive power which secures our salvation, but He does not so work in us as to chloroform us into unconscious submission, or engineer us into mechanical motion&mdash;He orchestrates all our activities by working in us "to will and to do of His good pleasure." Grace imparts healthy life and life rejoices in activity! The Lord never intended His people to be automatons worked by clockwork, or cold and dead statues&mdash;He meant them to have life, to have it abundantly&mdash;and in the power of that life to be full of energy! It is true He makes us lie down in green pastures, but equally certain is it that He leads us onward beside the still waters! A true Believer is an active person&mdash;he has feet and uses them.
 
@@ -90,13 +90,13 @@ And your feet shod with the preparation of the Gospel of Peace. Rough roads grow
 
 Above all. Over all, covering all from head to foot.
 
-Taking the shield of faith.  For you need this shield to protect both your armor and yourself.
+Taking the shield of faith. For you need this shield to protect both your armor and yourself.
 
 Therewith you shall be able to quench all the fiery darts of the wicked. Not only the fiery darts of the Wicked One, but those, also, of wicked men and wicked women who may throw at you afar, darts that are all ablaze which would burn as well as pierce you if you were not well guarded against them. Nothing can quench these fiery darts but the shield of faith!
 
 And take the helmet of salvatioi.. You used to wear the helmet of pride with its fine nodding plumes, but that has been taken off of you long ago. Now put on "the helmet of Salvation." This will effectually defend your head and no sword will be able to cleave through it to injure you. Your brain and everything that is connected with your mental powers will be right when you know that you are saved&mdash;and when the power of God's salvation is working within you!
 
-And the sword of the Spirit, which is the Word of God.  There is no sword like that! It pierces even to the dividing
+And the sword of the Spirit, which is the Word of God. There is no sword like that! It pierces even to the dividing
 
 asunder of soul and spirit, of joints and marrow and is a discerner of the thoughts and intents of the heart. Nothing can resist the Word of God if it is only wielded aright. There is one more weapon in the heavenly armory.
 

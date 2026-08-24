@@ -1,6 +1,6 @@
 # Sermon 3157 | The Fourth Beatitude
 
-"Blessed are they who hunger and thirst after righteousness: for they shall be filled." Matthew 5:6.
+> "Blessed are they who hunger and thirst after righteousness: for they shall be filled." Matthew 5:6.
 
 
 
@@ -74,7 +74,7 @@ persist in enmity. We are to render blessing for cursing, prayers for persecutio
 
 For if you love them which love you, what reward have you, do not even the publicans do the same? Any common sort of man will love those who love him. Even tax gatherers and the scum of the earth can rise to this poor, starveling virtue. Saints cannot be content with such a groveling style of things. "Love for love is manlike," but "love for hate" is Christlike. Shall we not desire to act up to our high calling?
 
-And if you salute your brethren only, what do you more than others?  Do not even the publicans do sO? On a journey, or in the
+And if you salute your brethren only, what do you more than others? Do not even the publicans do sO? On a journey, or in the
 
 streets, or in the house, we are not to confine our friendly greetings to those who are near and dear to us. Courtesy should be wide and none the less sincere because general. We should speak kindly to all and treat every man as a brother. Anyone will shake hands with an old friend, but we are to be cordially courteous towards every being in the form of man. If not, we shall reach no higher level than mere outcasts. Even a dog will salute a dog.
 

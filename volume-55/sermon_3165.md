@@ -1,6 +1,6 @@
 # Sermon 3165 | Witnesses for God
 
-"You are My witnesses, says the Lord." Isaiah 43:10.
+> "You are My witnesses, says the Lord." Isaiah 43:10.
 
 (Suggested by his being summoned to attend the police court as a witness).
 
@@ -46,8 +46,8 @@ Again, Brothers and Sisters, we can testify to our Lord's wisdom, can we not? We
 
 Beloved Friends, we can also bear witness to the Immutability of God. Of course, our span of life is so little at the longest, that we cannot bear much witness to the eternal unchangeableness of Jehovah. Still, take our 25 years of Christian experience&mdash;or some of you can take your fifty&mdash;has there been any change in your God? We are fickle as the winds that blow, but there certainly has been no change in Him! He loved us and He loves us still! He forgave us and He forgives us still! He chastened us and He chastens us still! And He sustained us and He sustains us still&mdash;
 
-> Immutable His will Tho' dark may be my frame, His loving heart is still Eternally the same!   
-> My soul thro'many changes goes, His love no variation knows.   
+> Immutable His will Tho' dark may be my frame, His loving heart is still Eternally the same! 
+> My soul thro'many changes goes, His love no variation knows. 
 
 We have proved this by actual trial. Perhaps in the time of trouble we thought that His love was failing us, but in looking back we confess how wrong we were. There was as much love in the Lord's chastening as in His caresses. We were as much loved when we were hiding under the shadow of His wings as when we were reveling in the light of His Countenance. Blessed be His name, He changes not!
 

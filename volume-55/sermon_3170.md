@@ -1,6 +1,6 @@
 # Sermon 3170 | The Novelties of Divine Mercy
 
-"His compassions...are new every morning: great is Your faithfulness." Lamentations 3:22,23.
+> "His compassions...are new every morning: great is Your faithfulness." Lamentations 3:22,23.
 
 The Book of the Lamentations of Jeremiah is very dolorous. When you look upon the dragons, owls, pelicans and bitterns of the wilderness, you have a fit picture of his mournful state. He was full of grief, like a bottle needing vent. His heart was ready to burst with wormwood and with gall.
 

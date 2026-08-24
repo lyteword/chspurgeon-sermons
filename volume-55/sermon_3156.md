@@ -1,6 +1,6 @@
 # Sermon 3156 | The First Beatitude
 
-"Blessed aire the poor in spirit: for theirs is the Kingdom of Heaven." Matthew 5:3.
+> "Blessed are the poor in spirit: for theirs is the Kingdom of Heaven." Matthew 5:3.
 
 
 
@@ -68,7 +68,7 @@ Moreover, it is clear that only those who are poor in spirit do actually reign a
 
 The dominion awarded by this Beatitude to the poor in spirit is no common one. It is the Kingdom of Heaven, a heavenly dominion far excelling anything which can be obtained this side of the stars. An ungodly world may reckon the poor in spirit to be contemptible, but God writes them down among His peers and princes. And His judgment is true and far more to be esteemed than the opinions of men or even of angels! Only as we are poor in spirit have we any evidence that Heaven is ours. But having that mark of blessedness, all things are ours, whether things present or things to come. To the poor in spirit belong all the security, honor and happiness which the Gospel Kingdom is calculated to give upon earth! Even here below they may eat of its dainties without question and revel in its delights without fear. Theirs are also the things not seen as yet, reserved for future Revelation. Theirs the Second Advent, theirs the Glory, theirs the fifth great monarchy, theirs the Resurrection, theirs the Beatific Vision, theirs the eternal ecstasy!
 
-"Poor in spirit." The words sound as if they described the owners of nothing, and yet they describe the inheritors of all things! Happy poverty! Millionaires sink into insignificance! The treasures of the Indies evaporate in smoke while to the poor in spirit remains a boundless, endless, faultless Kingdom which renders them blessed in the esteem of Him who is God over all, blessed forever! And all this is for the present life in which they mourn and need to be comforted, hunger and thirst and need to be filled. All this is for them while yet they are persecuted for righteousness' sake. What, then, must be their blessedness when they shall shine forth as the sun in the Kingdom of their Father and in them shall be fulfilled the promise of their Master and Lord, "to him that overcomes will I grant to sit with Me on My Throne, even as I also overcame, and am set down with My Father on His throne"?
+"Poor in spirit." The words sound as if they described the owners of nothing, and yet they describe the inheritors of all things! Happy poverty! Millionares sink into insignificance! The treasures of the Indies evaporate in smoke while to the poor in spirit remains a boundless, endless, faultless Kingdom which renders them blessed in the esteem of Him who is God over all, blessed forever! And all this is for the present life in which they mourn and need to be comforted, hunger and thirst and need to be filled. All this is for them while yet they are persecuted for righteousness' sake. What, then, must be their blessedness when they shall shine forth as the sun in the Kingdom of their Father and in them shall be fulfilled the promise of their Master and Lord, "to him that overcomes will I grant to sit with Me on My Throne, even as I also overcame, and am set down with My Father on His throne"?
 
 ## Exposition by C. H. Spurgeon: Matthew 5:31-42
 

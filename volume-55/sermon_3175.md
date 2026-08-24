@@ -1,6 +1,6 @@
 # Sermon 3175 | "Peace! Perfect Peace!"
 
-"You will keep him in perfect peace (Margin: peace, peace), whose mind is stayed on You: because he trusts in You." Isaiah 26:3.
+> "You will keep him in perfect peace (Margin: peace, peace), whose mind is stayed on You: because he trusts in You." Isaiah 26:3.
 
 
 
@@ -25,10 +25,10 @@ quieted! We are first wearied and then worried. To be perfectly at peace amid th
 
 "To do the will of Jesus, this is rest." To be sure that what you are doing is what Jesus would have you do is peace! Happy soul that is doing what Jesus would have it do! I put up this little question in the Orphanage, for the children to read&mdash;"What would Jesus do?" This, if we have spiritual minds, will be one of the best guides for us when we are in difficulty as to what is the next thing for us to do. We would do good, but too many good things are present with us&mdash;which is to be first? To know the will of Jesus, and to do it, is to abide in the peace of God! What we cannot do, we shall leave to Him, being assured that our duty does not lie in the region of the absolutely impossible&mdash;
 
-> When obstacles and trials seem   
-> Like prison walls to be,   
-> I do the little I can do,   
-> And leave the rest to Thee.   
+> When obstacles and trials seem 
+> Like prison walls to be, 
+> I do the little I can do, 
+> And leave the rest to Thee. 
 
 God comes in with His Grace where the impossible shuts us out. There are two things we need never worry about&mdash;what we can do and what we cannot do. What remains? The next verse is very sweet&mdash;
 
@@ -74,10 +74,10 @@ Jesus has vanquished death and all its powers." Death is the last enemy, but mor
 
 I have heard of an aged Christian Sister at Plymouth who had been for many years troubled with the fear of death, but she got over it and was very happy and very cheerful when speaking about her departure. She lived in a room of her own and one night she said to the friends in the house, "I believe I shall see the Lord tomorrow." It was on a Saturday night she spoke thus and, according to her wish, they did not disturb her in the morning. But as they did not hear anything from her as the day passed on, they went to her room about mid-day and, sure enough, she was with her Lord! On a piece of paper which lay on her bed, they found these lines written&mdash;
 
-> Since Jesus is mine, I'll not fear undressing,   
-> But gladly put off these garments of clay.   
-> To die in the Lord is a Covenant blessing,   
-> Since Jesus to Glory through death led the way.   
+> Since Jesus is mine, I'll not fear undressing, 
+> But gladly put off these garments of clay. 
+> To die in the Lord is a Covenant blessing, 
+> Since Jesus to Glory through death led the way. 
 
 That is the way to look at it!&mdash;
 
@@ -97,7 +97,7 @@ We must get this perfect peace of which we have now been singing and speaking. I
 
 ## Exposition by C. H. Spurgeon: Hosea 14
 
-O Israel, return unto the Lord your God,  Bless His name that He is still your Gil! However much you may have backslid-
+O Israel, return unto the Lord your God, Bless His name that He is still your Gil! However much you may have backslid-
 
 den, you have not lost your right to claim Him as your God, for He is yours eternally by a fixed promise. And because He is still your God, let His everlasting kindness entice you to come back to Him."
 
@@ -147,7 +147,7 @@ idols?"
 
 I have heard him, and observed him: I am like a green fir tree. That is what Ephraim says, and this is what God says.
 
-From Me is your fruit found  We are never so fruitful as when we get all our fruit from God! We always shine in borrowed light and we are always fruitful in borrowed fruitfulness.
+From Me is your fruit found We are never so fruitful as when we get all our fruit from God! We always shine in borrowed light and we are always fruitful in borrowed fruitfulness.
 
 Who is wise, and he shall understand these things? Prudent, and he shall know them? For the ways of the Lord are righ. Did your murmuring spirit say that they were not right? Because you have had some sore trial, did your repining spirit say that they were not right? They are certainly right and you shall see that it is so one day! "The ways of the Lord are right."
 

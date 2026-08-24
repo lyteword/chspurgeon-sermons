@@ -1,6 +1,6 @@
 # Sermon 3172 | Bright Prospects for Young Believers
 
-"But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth and grow up as calves of the stall." Malachi 4:2.
+> "But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth and grow up as calves of the stall." Malachi 4:2.
 
 
 
@@ -46,7 +46,7 @@ Christ, then, is the Sun of Righteousness. Now, Sinner. Now, Trembler. If you fe
 
 But the figure employed in the text is a double one. It is said that sometimes in the East, after a long time of calm, the very air gets putrid and the glowing sand reflects the burning heat till, presently, a refreshing land breeze comes up with the sunrise. So Christ is here pictured as a sun&mdash;His beams being like the wings of some gigantic golden eagle&mdash;and those wings, like refreshing winds, bringing health to the poor sickly inhabitants of earth who are ready to die. Certainly when Christ comes in all His splendor of Light, for He is "the Light of the world," He comes also with health to sick souls! Do not believe, Soul, that your sickness is incurable, though Satan may tell you a thousand times that it is! If Christ comes to deal with you, Man, though your disease should be the deadly cancer of blasphemy, He can cure it! Though you should have the fever of drunkenness within your soul, Christ can heal you of that fiery malady! I ventured to say this
 
-morning that there is now no hospital for incurable souls  because Christ can cure all manner of spiritual diseases!
+morning that there is now no hospital for incurable souls because Christ can cure all manner of spiritual diseases!
 
 You perceive that the text does not say that they who fear the name of the Lord shall be cured of their spiritual maladies by what they do themselves. No, but that Christ, the Sun of Righteousness, shall arise upon them and in His light they shall obtain the health they lack! Get Jesus, poor Soul, and you need not trouble yourself about much else. There is everything that a sinner requires in the Person of the appointed Savior. Arise, O You blessed Jesus Christ, like the sun upon the darkness, that some who are in this place may now leave their sins and rejoice in Your power to save!
 

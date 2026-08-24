@@ -1,6 +1,6 @@
 # Sermon 3131 | The Fainting Hero
 
-"He was very thirsty, and called on the Lorrd, and said, You have given this great deliverance into the hand of Your servant: and now shall I die of thirst, and fall into the hand of the uncircumncised?" Judges 15:18.
+> "He was very thirsty, and called on the Lord, and said, You have given this great deliverance into the hand of Your servant: and now shall I die of thirst, and fall into the hand of the uncircumcised?" Judges 15:18.
 
 You will remember the occasion on which these words were spoken. Samson had been brought down from the top of the rock Etam, bound with cords by his own brothers, and given up as a captive into the hands of the Philistines. But no sooner did he reach the Philistines than the supernatural force of God's Spirit came upon him and he snapped the cords as though they had been but hemp and, seeing the jawbone of a newly slaughtered donkey lying near at hand, he grasped that strange weapon and fell with all his might upon the hosts of the Philistines! And though, no doubt, they took to speedy flight, yet the one man, smiting them hip and thigh, left no less than a thousand persons dead upon the ground! And as he piled up the heaps of the slain, he looked with grim satisfaction upon the slaughter which he had worked, crying, "With the jawbone of a donkey, heaps upon heaps, with the jaw of a donkey have I slain a thousand men." There was, perhaps, a little of vaunting and vain-glorying in his conduct, but in a moment, a sudden faintness came over him. He had been exerting himself most marvelously, straining every nerve and muscle, and now, being very thirsty, he looked round him for a stream of water, but there was none&mdash;and he felt as if, for lack of water, he would die and then the Philistines would rejoice over him! With that simple-minded faith which was so characteristic of Samson, who was nothing but a big child, he turned his eyes to his heavenly Father, and cried, "O Jehovah, You have given me this great deliverance, and now shall I die of thirst? After all that You have done for me, shall the uncircumcised rejoice over me because I die for lack of a drink of water?" Such confidence had he that God would interpose on his behalf.
 
@@ -44,8 +44,8 @@ Do you think, dear Friend, if He does not do so, He will lose all that He has do
 
 Now God has spent the blood of His own dear Son to save you! He has spent the power of the Holy Spirit to make you what He would have you be and He will never stay His mighty hand till His work is done! Has He said and shall He not do it? Has He begun and shall He not complete it? God will have no unfinished works! When Jehovah's banner is furled and His sword is sheathed, then shall He cry&mdash;
 
-> 'Tis done,   
-> For the kingdoms of this world Are the kingdoms of My Son.   
+> 'Tis done, 
+> For the kingdoms of this world Are the kingdoms of My Son. 
 
 In that day, every vessel that He prepared for Glory shall be in Glory, having been made perfectly meet for it. Do not, then, despair because of your present trouble!
 
@@ -67,11 +67,11 @@ Trust in the Lord, and do good. These are two good things to go together&mdash;f
 
 So shall you dwell in the land Not merely on earth, but in the land of promise, the land which God has promised to His people. We dwell there by faith even now. Everywhere we find our God and wherever we find Him, it is Emmanuel's land to us.
 
-So and verily you shall be fed. "Verily, verily," is Christ's most solemn affirmation.  David here says, "verily," because the statement
+So and verily you shall be fed. "Verily, verily," is Christ's most solemn affirmation. David here says, "verily," because the statement
 
 he makes is absolutely true&mdash;"Trust in the Lord, and do good; so shall you dwell in the land, and verily you shall be fed."
 
-Delight yourself also in the Lord; and He shall give you the desires of your heart.  When all your heart's desires are fixed upon Him
+Delight yourself also in the Lord; and He shall give you the desires of your heart. When all your heart's desires are fixed upon Him
 
 because He is your heart's delight, then you may give a loose rein to those desires without any fear that they will run away! When your heart's desires are of this sort, you shall have them, be they what they may! It is not every man who shall have the desires of his heart given to him, but only that man whose heart's delight is in his God. There is much in connection with the person praying which will help to decide whether he shall or shall not have his desires granted. What is the condition of the heart out of which the desires come? When the heart is full of delight in the Lord, its desires shall be pleasing in His sight and shall be granted.
 

@@ -1,6 +1,6 @@
 # Sermon 3141 | Women's Rights&mdash;a Parable
 
-"And Moses brought their cause before the Lord." Numbers 17:5.
+> "And Moses brought their cause before the Lord." Numbers 17:5.
 
 By the help of God the Holy Spirit, I want to use this incident which forms a kind of episode in the rehearsal of the history of Israel's 40 years' wanderings in the wilderness, for a twofold purpose. First, let me indicate its general teach-ingand, secondly, let me take it as a ground of appeal to certain special classes.
 
@@ -28,10 +28,10 @@ I know that some of you are occasionally met by sneering skeptics and they say t
 
 and believing that one hour with Him will be worth all the trials of the road&mdash;worth enduring ten thousand deaths, if we could endure them, in order to win it and that, moreover, by God's Grace we shall win it&mdash;
 
-> We shall behold His face,   
-> We shall His name adore!   
-> And sing the wonders of His Grace   
-> Henceforth forevermore!   
+> We shall behold His face, 
+> We shall His name adore! 
+> And sing the wonders of His Grace 
+> Henceforth forevermore! 
 
 So I hold up these daughters of Zelophehad to your commendation and imitation on account of their faith.
 

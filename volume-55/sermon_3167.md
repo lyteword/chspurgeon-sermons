@@ -1,6 +1,6 @@
 # Sermon 3167 | The Christian's Helmet
 
-"And for a helmet the hope of salvation." 1 Thessalonians 5:8.
+> "And for a helmet the hope of salvation." 1 Thessalonians 5:8.
 
 the very mention of a helmet may well seem to remind every Christian here that he is a soldier.
 

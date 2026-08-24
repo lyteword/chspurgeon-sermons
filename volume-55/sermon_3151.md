@@ -1,6 +1,6 @@
 # Sermon 3151 | The Lord's Supper&mdash;simple But Sublime!
 
-"This do you, as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:25,26.
+> "This do you, as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:25,26.
 
 
 
@@ -32,14 +32,14 @@ It is a feast where you are to be perfectly at ease, in contrast, mark you, with
 
 Well now, Brothers and Sisters, if to remember Christ is the objective of the Lord's Supper, then you will not have come here to any purpose unless you remember Him! So I pray you to put away every other thought. Have you doctrinal difficulties? Leave them till tomorrow! Have you a sick child, or does business go amiss? Well you will not relieve your cares by violating this sacred hour. Let these burdens be cast on Him who cares for you! One thing you have to do with, it is Jesus Christ crucified&mdash;crucified for you, received by you. Now blot out the other stars and let one star alone shine in the sky&mdash;the Star of Bethlehem! Bid farewell to every love but the love of Jesus and to every fellowship but fellowship with Him. Ask the Lord to take your heart as an arrow and fit it to His bow&mdash;and shoot it right up to where Christ is in Heaven. "Set your affection on things above." Many people misquote that, "Set your affections." Paul wrote no such thing! "Set your affection"&mdash;tie your affections into one bundle and make them one affection&mdash;and then set it upon things above. Let your whole heart lie in the bosom of the Savior. I pray the Master that we may not, one of us, hold back&mdash;not even you, Mrs. Much-Afraid, nor you, Little-Faith. Nor you, Ready-to-Halt&mdash;may you forget your crutches and may you now remember only Him who is the All-in-All of both the strong and the weak&mdash;
 
-> The strong, the feeble and the weak,   
-> Are one in Jesus now   
+> The strong, the feeble and the weak, 
+> Are one in Jesus now 
 
 and let them know it as they sit here and remember Him!
 
 The second objective of this Communion Supper is the showing of Christ's death till he comes.
 
-"Till He comes." I must not say anything about that except that He will come! And I think that ought to be enough for Christians. To my great sorrow, I had sent to me this last week, two or three copies of a tract purporting, according to the title page to have been written by myself, prophesying the coming of the Lord in the year 1866. Now, you may expect to hear of me being in Bedlam  whenever by my tongue or my pen, I give countenance to such rubbish! The Lord may come in 1866, and I shall be glad to see Him, but I do not believe He will. And one reason why I don't believe He will, I have told you before&mdash;it is because all these false two-penny-halfpenny prophets say that He will. If they said He would not, I would begin to think He would, but inasmuch as they are all crying as one man that He will come in 1866, or 1867, I am inclined to think He will not come at any such time! It seems to me that there are a very great many prophecies which must be fulfilled before the coming of Christ&mdash;which will not be fulfilled in the next 12 months. And I prefer, Beloved, to stand in the position of a man who knows neither the day nor the hour in which the Son of Man comes&mdash;always looking for His appearing, but never interfering with those dates and figures which seem to me to be proper amusement for young ladies who have nothing to do, and who take to them instead of reading novels. And for certain divines who have exhausted their stock of knowledge about sound Doctrine and, therefore, make up and gain a little ephemeral popularity by shuffling texts of Scripture as the Norwood gypsies shuffled cards in days gone by! Leave the prophets to divide the profits which they get from simpletons&mdash;and as for you, watch for Christ's coming, whether it shall be today, or tomorrow&mdash;and set no limits, and no dates, and no times! Only work while it is called today. Work so that when He comes, He may find you, as faithful servants, ready to come in to the wedding with Him. "Till He comes," then, the Lord's Supper is to be a showing forth of His death!
+"Till He comes." I must not say anything about that except that He will come! And I think that ought to be enough for Christians. To my great sorrow, I had sent to me this last week, two or three copies of a tract purporting, according to the title page to have been written by myself, prophesying the coming of the Lord in the year 1866. Now, you may expect to hear of me being in Bedlam whenever by my tongue or my pen, I give countenance to such rubbish! The Lord may come in 1866, and I shall be glad to see Him, but I do not believe He will. And one reason why I don't believe He will, I have told you before&mdash;it is because all these false two-penny-halfpenny prophets say that He will. If they said He would not, I would begin to think He would, but inasmuch as they are all crying as one man that He will come in 1866, or 1867, I am inclined to think He will not come at any such time! It seems to me that there are a very great many prophecies which must be fulfilled before the coming of Christ&mdash;which will not be fulfilled in the next 12 months. And I prefer, Beloved, to stand in the position of a man who knows neither the day nor the hour in which the Son of Man comes&mdash;always looking for His appearing, but never interfering with those dates and figures which seem to me to be proper amusement for young ladies who have nothing to do, and who take to them instead of reading novels. And for certain divines who have exhausted their stock of knowledge about sound Doctrine and, therefore, make up and gain a little ephemeral popularity by shuffling texts of Scripture as the Norwood gypsies shuffled cards in days gone by! Leave the prophets to divide the profits which they get from simpletons&mdash;and as for you, watch for Christ's coming, whether it shall be today, or tomorrow&mdash;and set no limits, and no dates, and no times! Only work while it is called today. Work so that when He comes, He may find you, as faithful servants, ready to come in to the wedding with Him. "Till He comes," then, the Lord's Supper is to be a showing forth of His death!
 
 Let us just notice how we show it forth.
 
@@ -69,9 +69,7 @@ As You have given Him power over all flesh, that He shouldgive eternallife to as
 
 seem unable to see that there is perfect harmony between the general and the particular aspects of Christ's Atonement. As the one Mediator between God and men, He has absolute power over all men, to do with them as He wills, yet that power has a special relation to those whom His Father gave Him before the foundation of the world. And they are those who come to Him in accordance with His declaration, "All that the Father gives Me shall come to Me; and He that comes to Me I will in no wise cast out."
 
-And this is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sen [See
-
-Sermon #2396, Volume 41&mdash;eternal life!] So that the only way to obtain eternal life is to know God the Father and God the Son&mdash;and the best way to know them is to ask God the Holy Spirit to teach us what is revealed concerning them in the Sacred Scriptures which He inspired holy men of old to write.
+And this is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sen So that the only way to obtain eternal life is to know God the Father and God the Son&mdash;and the best way to know them is to ask God the Holy Spirit to teach us what is revealed concerning them in the Sacred Scriptures which He inspired holy men of old to write.
 
 I have glorified You on the earth: I have finished the work which You gave Me to do. And now, O Father, glorify You Me with Yourself with the Glory which I had with You before the world wa. As Christ had carried out His Father's will and done the work He had been sent to do, it was but right that He should go back to the Glory which He had, for a season, voluntarily laid aside. You notice that although He had not then died upon the Cross, He was so certain that He would there complete His great mediatorial work that He spoke of it as being already "finished."
 
@@ -79,9 +77,7 @@ I have manifested Your name unto the men which You gave Me out of the world: You
 
 Now they have known that all things whatever You have given Me are of You. For I have given unto them the words which Yougave Me, and they have received them, andhave known surely that Icame out from You, and they have believed that You did send M. You see how the Truth reached these disciples. The Father gave the words to His Son in His mediatorial capacity. And He gave those words to His disciples&mdash;and they received them and believed that Christ was indeed the Sent One from the Father.
 
-I pray for them: I pray not for the world, but for them which You have given Me; for they are Yours. And all Mine are Yours, and Yours are Mine; andIam glorifedin thei. . [See Sermon #2331, Volume 39&mdash;christ's pastoral prayer for his
-
-people.] See what perfect union there is between the Father and
+I pray for them: I pray not for the world, but for them which You have given Me; for they are Yours. And all Mine are Yours, and Yours are Mine; andIam glorified in thei. . See what perfect union there is between the Father and
 
 the Son, and note their mutual relationship to the chosen people, "They are Yours. And all Mine are Yours, and Yours are Mine."
 
@@ -91,15 +87,13 @@ And now come I to You Christ looked beyond all that was to happen to Him before 
 
 And these things I speak in the world, that they might have My joy fulfilled in themselves. I have given them Your word, and the world has hated them, because they are not of the world, even as I am not of the world. Never did anyone more thoroughly mix with men than Christ did&mdash;and never had anyone greater sympathy with human beings than He had&mdash;yet everyone knows that He never was "of the world." He was distinct from all who were round about Him and He says that His disciples were as He was. "They are not of the world, even as I am not of the world." Christ's people have a life that others have not. They have a relationship to God that others have not. They are swayed by motives which others understand not and they are journeying onward toward a perfection to which others do not even desire to attain! So they are not of the world and the world treats them as speckled birds&mdash;and hates them even as it hated their Lord and Master.
 
-I pray not that You should take them out of the world, but that You should keep them from evil. [See Sermons #47,
-
-Volume 1&mdash;Christ's prayer for his people; #2355, Volume 40&mdash;Christ's negative and positive prayer and #2703, Volume 46&mdash;the preservation of ChristIANS in the world.] Christ did not pray that there might
+I pray not that You should take them out of the world, but that You should keep them from evil. Christ did not pray that there might
 
 be monasteries and nunneries where His servants might be shut away from the world, nor even that His followers might die in early youth and go home to Heaven! He prayed that, remaining in the world for gracious purposes&mdash;to be its salt and its light&mdash;they might themselves be kept from the evil that is in the world. It would be a dreadful thing, indeed, if the chosen people of God were to be overcome by the world. So Christ prayed that His Father would keep them from the evil, for He well knew that they could not be kept from it by any power that was not Divine. There is no less power needed for the preservation of a Believer than for his regeneration. The sustaining of a Saint is a constant miracle which can only be worked by God Himself.
 
 They are not of the world, even as I am not of the world. Sanctify them through Your Truth: Your Word is
 
-Truth.  Some men tell us that the Truth of God is in the Word, but that the Word is not the Truth. I read, the other day, that we might regard the Bible as a casket which contained the jewel of the Truth, but was not itself the jewel. Christ did not talk in that fashion, for He said to His father, "Your Word is Truth." This shows that God's Word is not merely the casket of Truth, but is the Truth itself!
+Truth. Some men tell us that the Truth of God is in the Word, but that the Word is not the Truth. I read, the other day, that we might regard the Bible as a casket which contained the jewel of the Truth, but was not itself the jewel. Christ did not talk in that fashion, for He said to His father, "Your Word is Truth." This shows that God's Word is not merely the casket of Truth, but is the Truth itself!
 
 As You have sent Me into the world, even so have I also sent them into the worl. They are sent ones, even as Christ was the Sent One. As He is the Christ, they are Christians, anointed with the same anointing as He Himself is and they should endeavor to be in all respects missionaries to the world, even as Christ was God's great Missionary to the lost.
 
@@ -115,15 +109,11 @@ That they all may be one, as You, Father, are in Me, and I in You that they also
 
 And the Glory which You gave Me I have given them; that they may be one, even as We are One: I in them, and You in Me, that they may be made perfect in one. That is the real secret of the saints' unity&mdash;"I in them," together with the everlasting Union of Christ Jesus with the Father&mdash;"and You in Me, that they may be made perfect in one."
 
-And that the world may know that You have sent Me, andhave loved them as You have lovedMt. [See Sermon #1472,
-
-Volume 25&mdash;the glory, unity and triumph of the church.] This is a
+And that the world may know that You have sent Me, andhave loved them as You have lovedMt. This is a
 
 great deep&mdash;the words are very simple and clear&mdash;but their meaning is unfathomable. Is it really true that the Father has loved His chosen ones as He has loved His only begotten Son? It is such a wondrous thing that one might be willing to lie awake at night to meditate upon the amazing Truth here revealed in our Savior's words&mdash;"You have sent Me, and have loved them as You have loved Me."
 
-Father, I will that they also whom You have given Me, be with Me where I am; that they may behold My Glory, which You have given Me: for You loved Me before the foundation of the world. [See Sermons #188, Volume 4&mdash;the redeemers
-
-prayer and #1892, Volume 32&mdash;why they leave us.] Some foolish folk
+Father, I will that they also whom You have given Me, be with Me where I am; that they may behold My Glory, which You have given Me: for You loved Me before the foundation of the world. Some foolish folk
 
 talk about the saints being put away for a while into some purgatorial "limbo" in order that they may be made ready for Heaven but Christ speaks not so! He says, "I will that they...be with Me where I am." We care not to answer curious questions about the disembodied state&mdash;it is enough for us that Christ knows all and that we shall be with Him forever!
 
@@ -131,13 +121,11 @@ What shall be the occupation of those who are with Christ? "That they may behold
 
 O righteous Father, the world has not known You: but I have known You, and these have known that You have sent Me. And I have declared unto them Your name, and will declare it: that the love with which You have loved Me
 
-may be in them, and I in them.  How rich is this language! How musical! Surely,
+may be in them, and I in them. How rich is this language! How musical! Surely,
 
 never did any human poem match this peerless prose of the Divine Teacher! And now, what a descent it is as we pass on to the next scene in His life!
 
-John 18:1, 2. When Jesus had spoken these words, He went forth with His disciples over the Brook Kidron, where was a garden, into the which He entered, and His disciples. And Judas also, which betrayed Him, knew the place. [See Sermon
-
-#2767, Volume 48&mdash;Jesus in gethsemane.] He was familiar with the
+John 18:1, 2. When Jesus had spoken these words, He went forth with His disciples over the Brook Kidron, where was a garden, into the which He entered, and His disciples. And Judas also, which betrayed Him, knew the place. He was familiar with the
 
 Master's place of retirement for private prayer and he had, doubtless, heard the Master pray there. Yes, and many a Judas knows the place where the saints meet for worship and knows the Communion Table, too, and knows some of the most hallowed gatherings of God's people where they pour out their hearts in private prayer. And the pity is that knowing all that&mdash;the ancient Judas and the modern one do not savingly know the Master Himself!
 
@@ -151,6 +139,6 @@ They answered Him, Jesus of Nazareth. Jesus said unto them, I am He. And Judas a
 
 Then asked He them again, Whom do you seek? And they said, Jesus of Nazareth. Jesus answered, I have told you that I am He: if therefore you seek Me, let these go their way: that the saying might be fulfilled which He spoke, Of
 
-them which You gave Me have I lost none.  That was a very gracious saying of
+them which You gave Me have I lost none. That was a very gracious saying of
 
 Christ's, "If therefore you seek Me, let these go their way." This is what Christ says on His people's behalf to death and to the Law and the justice of God. And though this saying does not excuse the disciples' flight, it does make some sort of apology for their going away, every man to his own home. Christ knew that they would be safer there. One of them followed Him afar off instead of going his way&mdash;and you know what came of it. There is a time for openly following Christ, but there is a time when Jesus says, "Let these go their way." So, right to the end He takes care of His sheep and bids them scatter for a while now that the sword is about to enter their Shepherd's heart.

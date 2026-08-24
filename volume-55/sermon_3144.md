@@ -1,6 +1,6 @@
 # Sermon 3144 | "The True Sayings of God"
 
-"These are the true sayings ofGod." Revelation 19:9.
+> "These are the true sayings ofGod." Revelation 19:9.
 
 Before I use our text in a larger sense, it is due to our reverence for the Word of God to expound this short sentence in its immediate connection, for the angel here declared that certain things which had been spoken in John's hearing were "the true sayings of God." You will observe that he bade the Apostle "write" what he had heard. It was so weighty that John was not to trust it simply to his memory. It was so necessary that it should be remembered that he had to record it so that it might be handed down to future generations. "Write," said the angel, and then, as if to give John reasons for writing&mdash;reasons why these Truths of God should be permanently recorded&mdash;he added, "These are the true sayings of God."
 
@@ -8,11 +8,9 @@ What were those true sayings? I shall not dwell long upon them, but just hastily
 
 The next true saying is concerning the glorious and universal reign of the great God. For John "heard, as it were, the voice of a great multitude, and as the voice of many waters, and as the voice of mighty thunders saying, Alleluia: for the Lord God omnipotent reigns." There has been a long war between God and idols of various names. Among the ancient idols were Baal and Ashtaroth, and Dagon&mdash;but all had to bow down before Jehovah. Then Jupiter, and Saturn, and Venus and Mars were worshipped as deities by the heathen. And now many gods and lords still dominate a large part of the human intellect. But they are all doomed to fall and the one invisible Creator of Heaven and earth, almighty and eternal, will yet reign throughout the whole universe without a rival! And then shall be heard again that great shout that John heard during the wondrous Revelation in the Isle of Patmos. "Alleluia: for the Lord God Omnipotent reigns." Let us never imagine that God's Throne is in peril! Let us never fancy that the Truth of God can be defeated. Truth is God's daughter and He covers her with His great shield and fights for her with His invincible Omnipotence! Do not tremble for the Ark of God&mdash;do not despair, or even despond&mdash;the Lord will win the victory over all the powers of evil! This, also, is one of "the true sayings of God."
 
-The next true saying was this, that Jesus Christ, the Lamb of God&mdash;so called because of the atoning Sacrifice which He presented on Calvary&mdash;will have a full reward for all His sufferings&mdash;"For the marriage of the Lamb [See Sermon #2096,
+The next true saying was this, that Jesus Christ, the Lamb of God&mdash;so called because of the atoning Sacrifice which He presented on Calvary&mdash;will have a full reward for all His sufferings&mdash;"For the marriage of the Lamb is come, and His wife has
 
-Volume 35&mdash;"the marriage of the lamb.] is come, and His wife has
-
-made herself ready...Blessed are they which are called unto the marriage supper  Jesus Christ came into this world to find His
+made herself ready...Blessed are they which are called unto the marriage supper Jesus Christ came into this world to find His
 
 beloved ones. And He found them in bondage&mdash;and having taken upon Himself their nature, He became their next of kin&mdash;and then, according to the ancient Law, He redeemed them and bought them unto Himself&mdash;and He has espoused unto Himself all those that trust in Him. All who believe in Him, in whatever visible Church they may be, make up the one Church of Jesus Christ which He has redeemed from among men with His precious blood. And in the latter days He will have that Church to be His reward. At present, Christ has but a poor reward for all His sufferings. Comparatively few reverence Him. His people are a feeble and scattered folk, but there are days coming in which the Lord Jesus Christ shall have all whom He bought with His blood. He shall have for Himself all whom He came to save. He shall not be disappointed&mdash;"He shall not fail, nor be discouraged." The Lord shall abundantly reward Him for all His agonies. "He shall see of the travail of His soul and shall be satisfied." This also is one of "the true sayings of God."
 

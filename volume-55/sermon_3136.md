@@ -1,6 +1,6 @@
 # Sermon 3136 | Lessons From the Malta Fire
 
-"They kindled a fire, and received us, every one, because of the present rain, and because of the cold." Acts 28:2.
+> "They kindled a fire, and received us, every one, because of the present rain, and because of the cold." Acts 28:2.
 
 As much as lies in us, we should seek to do good unto all men, and we can never know to whom we may be rendering service. These people of Malta never dreamed that they were entertaining an Apostle and it never entered into their heads that their simple act of hospitality would be recorded in the Sacred Scriptures&mdash;and that millions of eyes would read of&mdash;and millions of minds would think upon this kind act of theirs on behalf of this shipwrecked company! They really entertained an angel unawares, and they had many blessings in consequence, for we find that Paul afterwards healed the father of the chief of the island and others of the inhabitants who were suffering from various diseases. We can never tell how God may make return to us for acts of kindness which we may do to others, but just as it is said that curses, like chickens, come home to roost, and that he who throws a stone into the air will find it fall on his own head, so do good actions&mdash;deeds of kindness and charity&mdash;come back to us in some shape or other, even as Christ said to His disciples, "Give, and it shall be given unto you: good measure, pressed down, and shaken together, and running over, shall men give into your bosom. For with the same measure that you mete withal it shall be measured to you again." It is the best way to bless ourselves to be earnest in blessing others! These hospitable people were bringing down upon the island of Malta untold benedictions while they were, in their simple kindness, entertaining shipwrecked mariners! At this season of the year, in the midst of such a city as this, abounding as it does with the poor and needy, there are abundant opportunities of using "the mammon of unrighteousness" well by relieving their needs&mdash;and what you possess would be made all the sweeter to yourselves through your ministering to others in their necessities. I am not, however, going to speak upon that matter just now&mdash;I intend to use the text in this manner. First, I am afraid we are very apt to grow spiritually cold and, therefore, next, the text suggests that we should be diligent in using means for getting spiritual warmth. And thirdly, as there are a good many in this world who are cold, as Paul and his companions were when they came shivering from the deep, it should be our constant duty to seek to kindle a fire and to receive them, every one, because of the cold.
 
@@ -10,14 +10,14 @@ First, because we are ourselves cold subjects&mdash;hot enough, perhaps, in temp
 
 been allowed to actually stand still, have found our onward progress to be a hard climb up the Hill Difficulty because we are so lumpish and heavy. Often have we had to cry with Dr. Watts&mdash;
 
-> Come, Holy Spirit, heavenly Dove,   
-> With all Your quickening powers,   
-> Kindle a flame of sacred love   
-> In these cold hearts of ours!   
-> Dear Lord! And shall we always be   
-> At this poor dying rate?   
-> Our love so faint, so cold to You,   
-> And Yours to us so great?   
+> Come, Holy Spirit, heavenly Dove, 
+> With all Your quickening powers, 
+> Kindle a flame of sacred love 
+> In these cold hearts of ours! 
+> Dear Lord! And shall we always be 
+> At this poor dying rate? 
+> Our love so faint, so cold to You, 
+> And Yours to us so great? 
 
 We are indeed cold subjects. Just compare your state of heart, for a while, with the ardor of Apostles, confessors and martyrs who lived and died for Jesus. Compare, or rather, contrast yourselves with some other children of God whom you have known, whose fervent prayers put you to shame and whose many acts of self-denial, and whose whole persevering service now rise before you to make you blush. Above all, contrast yourselves with your dear Lord and Savior. He was a veritable flame of fire, but what are you? Alas! Alas, what am I? Cold, cold, cold! Even His great love scarcely warms us to anything like true Christian affection! We can think of Hell with its unutterable horrors and yet be scarcely moved! We can think of Heaven with its indescribable glories and yet be scarcely affected. We can turn to You, O You blessed Christ of Calvary, and look upon Your ghastly wounds, yet is our soul scarcely made to melt! It is sad that it should be so, but mournfully true is it that we are cold by nature.
 
@@ -65,14 +65,14 @@ After you get a flame, you must remember that all fires begin with littles. At f
 
 But when it does burn, there must be fresh fuel for it. Paul knew this and, therefore, he set to work picking up sticks. When we once get God's revival fire to warm this cold world, the Church must find suitable fuel to feed it. We must get some from this Brother and some from another Brother, and from our good Sisters, too, and we ourselves must be the glowing coals. And if we can be kept close together and be fanned by the spirit of unity and by the breath of the Holy Spirit, there will soon be a blessed furnace heat that shall warm this cold earth&mdash;
 
-> Spirit Divine, attend our prayers,   
-> Make a lost world Your home.   
-> Descend with all Your gracious powers   
-> Oh come, Great Spirit, come!   
-> Come as the fire and purge our hearts   
-> Like sacrificial flame&mdash;   
-> Let our whole soul an offering be   
-> To our Redeemer's name.   
+> Spirit Divine, attend our prayers, 
+> Make a lost world Your home. 
+> Descend with all Your gracious powers 
+> Oh come, Great Spirit, come! 
+> Come as the fire and purge our hearts 
+> Like sacrificial flame&mdash; 
+> Let our whole soul an offering be 
+> To our Redeemer's name. 
 
 And perhaps while we are trying to gather all the fuel that we can, we may pick up a viper in the process. It was so in Paul's case and I should not wonder if it is so in ours. I have heard this fault found with revivals, that certain persons had been added to the Church who never ought to have been admitted. Very likely some people found fault with that Malta fire when, in the process of picking up sticks to feed it, a viper fastened on Paul's hand. I have noticed that whenever there is a revival in the Church, there is almost certain to be a hypocrite hidden away among the converts. If you have a garden, you must have noticed that the snails come out after rain&mdash;and after a revival, slimy hypocrites are pretty sure to appear&mdash;but what if they do? The Lord Jesus Christ did not leave off preaching because He knew that there was a Judas among His Apostles! And if we should have a Judas in our ranks, should that make us give up our work for Christ? No! But if there are in our midst some people who are good for nothing, let us try all the more to find out those who will be good for something. And if, in the course of the Lord's work, there should be unworthy persons added to the Church, so much the greater should be our anxiety that worthy persons should be added, too, to counterbalance the mischief that the others may produce!
 

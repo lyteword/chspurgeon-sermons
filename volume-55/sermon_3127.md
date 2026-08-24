@@ -1,6 +1,6 @@
 # Sermon 3127 | A Promise and Precedent
 
-> He shall glorify Me: for He shall receive ofMine, and shall show it unto you.  
+> He shall glorify Me: for He shall receive ofMine, and shall show it unto you. 
 > John 16:14
 
 Jesus Christ, our gracious Lord and Master, is here speaking of the Holy Spirit and He says of Him, "He shall glorify Me: for He shall receive of Mine, and shall show it unto you." Our Lord Jesus Christ, in His own personal teaching, did not plainly declare all the Truths which He intended to reveal because the Holy Spirit was not then given to His disciples and they were not, at that time, able to receive all that He might have taught them. He Himself said to them, "I have yet many things to say unto you, but you cannot bear them now." The germ of everything that would be revealed was in the teaching of Christ, but not the full development of it. That was left till after the Holy Spirit had been given on the day of Pentecost. In the Acts of the Apostles, in their various Epistles and in the Apocalypse given to John, we have the full Revelation of the Truth of God&mdash;the Holy Spirit there taking of the things of Christ and revealing them to us and also, according to His promise, showing us, in the Book of the Revelation, "things to come."
@@ -17,10 +17,10 @@ I gather from our text another Doctrine, namely, that, any teaching which does n
 
 There is this further Doctrine in the text, that the Holy Spirit, in glorifying Christ, acts in sacred concert with the other Persons of the blessed Trinity, for Jesus said, "He shall receive of Mine." I am not going to explain this declaration of Christ. I cannot do so, for I do not, myself, fully understand it. All I can say is that the Holy Spirit is represented here as receiving the things of Christ. Now the Holy Spirit is continually spoken of in the Scriptures as Divine and He certainly is Divine&mdash;yet Christ here says that He receives or takes from the Father the things of Christ that He may show them to us. They are not His own things&mdash;things of His own devising or suggesting&mdash;but those which Christ calls His. So, just as Jesus said that He did not come in His own name, but in the name of the Father who had sent Him, so the Spirit of God does not come in His own name, nor come with His own message&mdash;but He receives the things of Christ and shows them to us. I delight in this sharing of the great work by the glorious Trinity in Unity! I love to see the Father, Son and Spirit all taking part in the salvation of the elect! Just as in the Creation, God said, "Let Us make man in Our image, after Our likeness," and there was a council held to decide as to that early work, so here it is not merely one of the Persons of the Trinity, but all Three who are concerned in the greater work of man's new creation! The Spirit receives from the Father the things of Christ and so it is as though God said, "Let Us make man new in Our image, after Our likeness." Father, Son and Spirit work together in perfecting the new creation&mdash;so let us always give undivided and equal honor to the Father, to the Son and to the Holy Spirit&mdash;
 
-> Give to the Father praise,   
-> Give glory to the Son,   
-> And to the Spirit of His Grace   
-> Be equal honor done.   
+> Give to the Father praise, 
+> Give glory to the Son, 
+> And to the Spirit of His Grace 
+> Be equal honor done. 
 
 Further, I want you to notice that the Holy Spirit, being bent upon glorifying Christ, glorifies Him with His own things. Jesus says, "He shall receive of Mine." The Holy Spirit does not go after something apart from Christ in order to bring glory to Christ&mdash;if Christ is to be glorified, the crown must be made out of His own jewels&mdash;and the jewels must be found in His own mine! So, Beloved, in order to honor Christ, you must go to Christ&mdash;you must find Christ's honors in Christ Himself. Even the Holy Spirit, who is Omniscient, does not look outside of Christ in order to find something with which to glorify Him. "He shall glorify Me: for He shall receive of Mine." And none of us can ever honor Christ by bringing anything to Him. If we want to honor Him, we must honor Him with that which is already His own. If I want to honor the Lord Jesus Christ at this moment, how can I do it better than by preaching of His own Person, His own Manhood, His own Godhead, His own life, His own death, His own Resurrection, His own Ascension and His own coming again in the glory of His Father with the holy angels? It must be with the things of Christ that we honor Christ!
 
@@ -32,23 +32,23 @@ Oh, what a wondrous view of Christ the Holy Spirit sometimes gives us! As yet, h
 
 Sometimes a beam of light will shine upon Christ's hands that were pierced by the nails and then we wonderingly ask, "How could the hands of the Creator of the universe be thus nailed to the tree for us?" And soon the Spirit's bright light gleams upon the face of Jesus and we then&mdash;
 
-> See Divine compassion   
-> Floating in His languid eyes   
+> See Divine compassion 
+> Floating in His languid eyes 
 
 As He bows His head to death for us. But what will it be if the Holy Spirit shall be pleased to give us a full view of Christ upon the Cross? Then will our happy spirits indeed glorify Him and each redeemed one will softly sing&mdash;
 
-> Sweet the moments, rich in blessing,  
-> Which before the Cross I spend.  
-> Life, and health, and peace possessing  
-> From the sinner's dying Friend.  
-> Here I'll sit forever viewing  
-> Mercy's streams, in streams of blood.  
-> Precious drops! My soul bedewing  
-> Plead and claim my peace with God.  
-> Here it is I find my Heaven  
-> While upon the Cross I gaze  
-> Love I much? I ve more forgiven.  
-> Im a miracle of Grace.  
+> Sweet the moments, rich in blessing, 
+> Which before the Cross I spend. 
+> Life, and health, and peace possessing 
+> From the sinner's dying Friend. 
+> Here I'll sit forever viewing 
+> Mercy's streams, in streams of blood. 
+> Precious drops! My soul bedewing 
+> Plead and claim my peace with God. 
+> Here it is I find my Heaven 
+> While upon the Cross I gaze 
+> Love I much? I ve more forgiven. 
+> Im a miracle of Grace. 
 
 Oh, for such a sight of Christ as that, for thus Jesus is glorified and we are truly blessed!
 
@@ -56,10 +56,10 @@ Now secondly, I want to show you that the text may be viewed as a promise. He sh
 
 Come, dear child of God, and lay hold of this precious promise of Christ! If you get the promise of a man and you believe that he is an honest man, you value his promise. But here you have the promise of your God and Savior, Jesus Christ, the faithful Promiser, so you may well prize that! Are you not sometimes the subject of grave doubts as to whether you really glorify Christ? If so, fall back upon His blessed promise. The Holy Spirit in you shall glorify Christ, for He shall take of the things of Christ and shall show them to you. Possibly you fear that in the days to come, you will bring no glory to Christ. You know your own feebleness, your lack of talent and your lack of opportunity for glorifying Christ. You have cried many a time&mdash;
 
-> Oh, for a thousand tongues to sing   
-> My great Redeemers praise!   
-> The glories of my God and King   
-> The triumphs of His Grace!   
+> Oh, for a thousand tongues to sing 
+> My great Redeemers praise! 
+> The glories of my God and King 
+> The triumphs of His Grace! 
 
 Yet you grieve that you cannot glorify Him and you are afraid that you never will be able to do so. Listen to this precious promise again&mdash;"He shall glorify Me: for He shall receive of Mine, and shall show it unto you," even to you, though you are His poorest, weakest, meanest child! Though you will not be able to say much about it to others, you will glorify Christ by looking at Him as He is revealed to you by the Holy Spirit! We honor the sun as we look at it, or bask in its beams&mdash;I do not know what else we can do to show our appreciation of the sun but lie in the sunlight and thank God for letting the sun shine upon us. I have often thought of the lilies and the roses in the garden and of how they praise the God who made them. Not by singing, as the birds do, nor by lowing, like the cattle, nor by clapping their hands in joy and exultation like the trees of the woods do&mdash;the lilies and the roses praise God by just receiving from Him everything that they possess, drinking in His dew and rain and sunshine and standing there in all their beauty pouring out the fragrance that He has poured into them! And that is how you must glorify Christ, my Brothers and Sisters who are in Him. See Christ as the Spirit shows Him to you! Receive of His fullness, pour out the Grace that He has poured into you&mdash;and you shall in this way glorify Christ!
 
