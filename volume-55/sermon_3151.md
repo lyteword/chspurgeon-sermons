@@ -59,7 +59,7 @@ Well, dear Friends, as we come together at the Table, we will be remembering any
 
 Well, now, may we accomplish these two designs&mdash;to remember Christ and to show His death. We can only do it by His Spirit. Let us, with bowed head, ask for that Spirit. Let us seek that we may worship Christ in spirit and in truth while we receive the outward symbols of His suffering.
 
-Exposition by C. H. Spurgeon: John 17; 18:1-9.
+## Exposition by C. H. Spurgeon: John 17; 18:1-9
 
 Chapter 17:1. These words spoke Jesus, andlifted up His eyes to Heaven, andsaid, Father, the hour is come; glorify Your Son; that Your Son also may glorify You. Christ's great intercessory prayer begins with His appeal to His Father to glorify His Son. Christ knew all that He would have to suffer during that "hour" to which He had looked forward to from eternity, but His eyes could see beyond the gross with all its shame, the crown with all its glory! The Son being glorified, He would also glorify His Father and there is a wondrous Glory that comes to the Father through the death of His Son upon the Cross.
 
@@ -73,23 +73,23 @@ And this is life eternal, that they might know You, the only true God, and Jesus
 
 Sermon #2396, Volume 41&mdash;eternal life!] So that the only way to obtain eternal life is to know God the Father and God the Son&mdash;and the best way to know them is to ask God the Holy Spirit to teach us what is revealed concerning them in the Sacred Scriptures which He inspired holy men of old to write.
 
-5. I have glorified You on the earth: I have finished the work which You gave Me to do. And now, O Father, glorify You Me with Yourself with the Glory which I had with You before the world wa. As Christ had carried out His Father's will and done the work He had been sent to do, it was but right that He should go back to the Glory which He had, for a season, voluntarily laid aside. You notice that although He had not then died upon the Cross, He was so certain that He would there complete His great mediatorial work that He spoke of it as being already "finished."
+I have glorified You on the earth: I have finished the work which You gave Me to do. And now, O Father, glorify You Me with Yourself with the Glory which I had with You before the world wa. As Christ had carried out His Father's will and done the work He had been sent to do, it was but right that He should go back to the Glory which He had, for a season, voluntarily laid aside. You notice that although He had not then died upon the Cross, He was so certain that He would there complete His great mediatorial work that He spoke of it as being already "finished."
 
 I have manifested Your name unto the men which You gave Me out of the world: Yours they were, and You gave them to Me; and they have kept Your wor. No one but Christ could or would have borne such a testimony concerning His fickle, feeble followers. Happy will it be for us if He can also say concerning us who profess to be His disciples, "They have kept Your word."
 
-7, 8. Now they have known that all things whatever You have given Me are of You. For I have given unto them the words which Yougave Me, and they have received them, andhave known surely that Icame out from You, and they have believed that You did send M. You see how the Truth reached these disciples. The Father gave the words to His Son in His mediatorial capacity. And He gave those words to His disciples&mdash;and they received them and believed that Christ was indeed the Sent One from the Father.
+Now they have known that all things whatever You have given Me are of You. For I have given unto them the words which Yougave Me, and they have received them, andhave known surely that Icame out from You, and they have believed that You did send M. You see how the Truth reached these disciples. The Father gave the words to His Son in His mediatorial capacity. And He gave those words to His disciples&mdash;and they received them and believed that Christ was indeed the Sent One from the Father.
 
-9, 10. I pray for them: I pray not for the world, but for them which You have given Me; for they are Yours. And all Mine are Yours, and Yours are Mine; andIam glorifedin thei. . [See Sermon #2331, Volume 39&mdash;christ's pastoral prayer for his
+I pray for them: I pray not for the world, but for them which You have given Me; for they are Yours. And all Mine are Yours, and Yours are Mine; andIam glorifedin thei. . [See Sermon #2331, Volume 39&mdash;christ's pastoral prayer for his
 
 people.] See what perfect union there is between the Father and
 
 the Son, and note their mutual relationship to the chosen people, "They are Yours. And all Mine are Yours, and Yours are Mine."
 
-11, 12. And now I am no more in the world, but these are in the world, and I come to You. Holy Father, keep through Your own name those whom You have given Me, that they may be one as We are. While I was with them in the world, I kept them in Your name: those that You gave Me I have kept, and none of them is lost, but the son of perdition; that the Scripture might be fulfille . So it is clear that Judas was not among those who were given to Christ by His Father&mdash;if He had been, He also would have been "kept."
+And now I am no more in the world, but these are in the world, and I come to You. Holy Father, keep through Your own name those whom You have given Me, that they may be one as We are. While I was with them in the world, I kept them in Your name: those that You gave Me I have kept, and none of them is lost, but the son of perdition; that the Scripture might be fulfille . So it is clear that Judas was not among those who were given to Christ by His Father&mdash;if He had been, He also would have been "kept."
 
 And now come I to You Christ looked beyond all that was to happen to Him before He could return to His Glory and, as He saw His Father waiting to welcome Him, He cried "And now come I to You." These might be appropriate words in the mouth of a dying Believer: "And now come I to You."
 
-13, 14. And these things I speak in the world, that they might have My joy fulfilled in themselves. I have given them Your word, and the world has hated them, because they are not of the world, even as I am not of the world. Never did anyone more thoroughly mix with men than Christ did&mdash;and never had anyone greater sympathy with human beings than He had&mdash;yet everyone knows that He never was "of the world." He was distinct from all who were round about Him and He says that His disciples were as He was. "They are not of the world, even as I am not of the world." Christ's people have a life that others have not. They have a relationship to God that others have not. They are swayed by motives which others understand not and they are journeying onward toward a perfection to which others do not even desire to attain! So they are not of the world and the world treats them as speckled birds&mdash;and hates them even as it hated their Lord and Master.
+And these things I speak in the world, that they might have My joy fulfilled in themselves. I have given them Your word, and the world has hated them, because they are not of the world, even as I am not of the world. Never did anyone more thoroughly mix with men than Christ did&mdash;and never had anyone greater sympathy with human beings than He had&mdash;yet everyone knows that He never was "of the world." He was distinct from all who were round about Him and He says that His disciples were as He was. "They are not of the world, even as I am not of the world." Christ's people have a life that others have not. They have a relationship to God that others have not. They are swayed by motives which others understand not and they are journeying onward toward a perfection to which others do not even desire to attain! So they are not of the world and the world treats them as speckled birds&mdash;and hates them even as it hated their Lord and Master.
 
 I pray not that You should take them out of the world, but that You should keep them from evil. [See Sermons #47,
 
@@ -97,7 +97,7 @@ Volume 1&mdash;Christ's prayer for his people; #2355, Volume 40&mdash;Christ's n
 
 be monasteries and nunneries where His servants might be shut away from the world, nor even that His followers might die in early youth and go home to Heaven! He prayed that, remaining in the world for gracious purposes&mdash;to be its salt and its light&mdash;they might themselves be kept from the evil that is in the world. It would be a dreadful thing, indeed, if the chosen people of God were to be overcome by the world. So Christ prayed that His Father would keep them from the evil, for He well knew that they could not be kept from it by any power that was not Divine. There is no less power needed for the preservation of a Believer than for his regeneration. The sustaining of a Saint is a constant miracle which can only be worked by God Himself.
 
-16, 17. They are not of the world, even as I am not of the world. Sanctify them through Your Truth: Your Word is
+They are not of the world, even as I am not of the world. Sanctify them through Your Truth: Your Word is
 
 Truth.  Some men tell us that the Truth of God is in the Word, but that the Word is not the Truth. I read, the other day, that we might regard the Bible as a casket which contained the jewel of the Truth, but was not itself the jewel. Christ did not talk in that fashion, for He said to His father, "Your Word is Truth." This shows that God's Word is not merely the casket of Truth, but is the Truth itself!
 
@@ -113,7 +113,7 @@ word," and indeed, it is His Word that leads sinners to repent and to believe! Y
 
 That they all may be one, as You, Father, are in Me, and I in You that they also may be one in Us; that the world may believe that You have sent Me. I wish that we could see more of this blessed unity, yet it does exist, even if we cannot see it. Wherever there is any true spiritual life&mdash;it matters not how much it may be marred by denominational divisions&mdash;there is and there always will be, an essential unity. All Christians are one family in Christ. I do not mean all who call themselves Christians, but all who really are Believers in Christ. The inner life is one, the source of that life is one, the nourishment of that life is one and the end of that life is one&mdash;so that all who possess it must be one&mdash;one in Christ and one with one another, even as Christ is One with the Father.
 
-23. And the Glory which You gave Me I have given them; that they may be one, even as We are One: I in them, and You in Me, that they may be made perfect in one. That is the real secret of the saints' unity&mdash;"I in them," together with the everlasting Union of Christ Jesus with the Father&mdash;"and You in Me, that they may be made perfect in one."
+And the Glory which You gave Me I have given them; that they may be one, even as We are One: I in them, and You in Me, that they may be made perfect in one. That is the real secret of the saints' unity&mdash;"I in them," together with the everlasting Union of Christ Jesus with the Father&mdash;"and You in Me, that they may be made perfect in one."
 
 And that the world may know that You have sent Me, andhave loved them as You have lovedMt. [See Sermon #1472,
 
@@ -129,7 +129,7 @@ talk about the saints being put away for a while into some purgatorial "limbo" i
 
 What shall be the occupation of those who are with Christ? "That they may behold My Glory." There will be something worth looking at, something to be delighted with forever and ever! "The glory which You have given Me: for You loved Me before the foundation of the world." So God must have loved His people before the foundation of the world, for He has loved them as He has loved His Son! There was no beginning and there shall be no end to the Father's love to His people! He says to each one of them, "I have loved You with an everlasting love: therefore with loving kindness have I drawn You." Here are waters to swim in&mdash;plunge into them and revel in the bliss they are meant to convey to all who are in Christ Jesus!
 
-25-26. O righteous Father, the world has not known You: but I have known You, and these have known that You have sent Me. And I have declared unto them Your name, and will declare it: that the love with which You have loved Me
+O righteous Father, the world has not known You: but I have known You, and these have known that You have sent Me. And I have declared unto them Your name, and will declare it: that the love with which You have loved Me
 
 may be in them, and I in them.  How rich is this language! How musical! Surely,
 
@@ -147,9 +147,9 @@ Judas then, having received a band of men and officers from the chief priests an
 
 Jesus, therefore, knowing all things that should come upon Him, went forth and said unto them, Whom do you seek? It is a wonderfully suggestive thought that Jesus knew everything that would happen to Him. Martyrs and other sufferers for Christ's sake have had some measure of foresight of what they had to endure, but none of them could have so exquisite a foretaste of everything as our blessed Lord had. He knew it all&mdash;every single atom of pain, anguish and heartbreak. He knew it all, yet He calmly "went forth" to meet it and said to those who came to drag Him away to His death, "Whom do you seek?"
 
-6. They answered Him, Jesus of Nazareth. Jesus said unto them, I am He. And Judas also, which betrayed Him, stood with them. As soon, then, as He had said unto them, I am He, they went backward and fell to the ground. "Jesus said unto them, I Am," as though appropriating to Himself the name of Jehovah. And "they went backward, and fell to the ground," astounded and confounded! Even though He restrained His Omnipotence, He claimed the Omnipotent name, I AM, and before the majesty of that name they prostrated themselves upon the ground!
+They answered Him, Jesus of Nazareth. Jesus said unto them, I am He. And Judas also, which betrayed Him, stood with them. As soon, then, as He had said unto them, I am He, they went backward and fell to the ground. "Jesus said unto them, I Am," as though appropriating to Himself the name of Jehovah. And "they went backward, and fell to the ground," astounded and confounded! Even though He restrained His Omnipotence, He claimed the Omnipotent name, I AM, and before the majesty of that name they prostrated themselves upon the ground!
 
-7-9. Then asked He them again, Whom do you seek? And they said, Jesus of Nazareth. Jesus answered, I have told you that I am He: if therefore you seek Me, let these go their way: that the saying might be fulfilled which He spoke, Of
+Then asked He them again, Whom do you seek? And they said, Jesus of Nazareth. Jesus answered, I have told you that I am He: if therefore you seek Me, let these go their way: that the saying might be fulfilled which He spoke, Of
 
 them which You gave Me have I lost none.  That was a very gracious saying of
 
