@@ -96,8 +96,8 @@ He means, indeed, himself as to his actions. "I would keep Your way, O Lord, whe
 
 But it is also a great prayer, if you consider it in the matter of its modes. "Lead me." How does God lead? Brothers and Sisters, He leads us by the Law. The Law tells us what we ought to do. The Ten Commandments of the Law are, as it were, ten signposts, all of them saying&mdash;"This is the way; walk you in it." He leads us, better still, by the example of Christ&mdash;
 
-> We read our duty in Your Word,   
-> But in His life the Law appears Drawn out in living characters.   
+> We read our duty in Your Word, 
+> But in His life the Law appears Drawn out in living characters. 
 
 The Law tells us what we should do, but Jesus has done it for us and shown us how to do it! The whole life of Christ is a leading of us in the way. He leads us in the way by His Holy Spirit. The Holy Spirit enlightens the conscience, influences the will, guides the judgment and sweetly leads the heart in the path of sanctity. Under God, the Holy Spirit, the ministry often becomes our guide in the way everlasting. Some choice word from God's servants, coming at a right time, may check us when we would do evil, may inspirit us when we would faint in the way of right. And then good books and I know not what besides&mdash;the example of the saints, the hints of Providence, the emotions of our own hearts when near to God&mdash;these are often prompts to guide and lead us in the way everlasting. So, you see, as to its modes the prayer of the text is very comprehensive.
 
@@ -111,13 +111,13 @@ The last remark is the prayer is most comprehensive as to the persons who may fi
 
 He will hear you, Sinner, through the intercession of Jesus. He will wash you in the atoning blood. He will guide you and bring you, even you, into the way everlasting. Let it not, then, be omitted by any one of us to make this our prayer before we leave this house! I charge you, let not this evening's gathering be in vain, and I know it will be in vain to each one present who is not led so to pray. Come! Let us pray this prayer together and may the Lord hear us!
 
-[Then the people bowed their heads and worshipped and said "Amen" after the following prayer.]
+
 
 "O Lord, my God, lead me in the way everlasting! I need it! You have made me to teach others and my example influences many. Lead me in the way everlasting! And Your servants who gather around me, my beloved deacons and elders, whose example, also, will be potent for good if they are good, and for evil if they are evil&mdash;Lord, hear them as they say, 'Lead us in the way everlasting.' And the members of the Church, the many hundreds, yes, the thousands who are associated in Church fellowship here&mdash;who eat of Your bread and drink of Your cup&mdash;O hear them, such of them as are now present who shall now cry unto You, 'Lead me in the way everlasting.'
 
-> Hear every Brother in dilemma and difficulty, every Sister in duty and danger, every heart that is weary, every soul that is sick who says, 'Lead me in the way everlasting.' And Lord, hear the unconverted sinner as he breathes this desire   
-> towards your Throne of Grace. Is there one here that has left the paths of virtue and of honesty and do his lips tremblingly say, 'Lead me in the way everlasting'? Lord, hear his supplication! Lord, hear it for Jesus' sake. Where ever there stands or sits in this Tabernacle one old or young, rich or poor, learned or illiterate, moral or immoral&mdash;if there is such a one here who in his heart says, 'Father, forgive me and lead me in the way everlasting'&mdash;O do You answer that prayer speedily, for Your dear Son's sake. And now, once more, for Jesus' sake we do each of us beseech you, 'Lead me in the way everlasting.' Amen.   
+> Hear every Brother in dilemma and difficulty, every Sister in duty and danger, every heart that is weary, every soul that is sick who says, 'Lead me in the way everlasting.' And Lord, hear the unconverted sinner as he breathes this desire 
+> towards your Throne of Grace. Is there one here that has left the paths of virtue and of honesty and do his lips tremblingly say, 'Lead me in the way everlasting'? Lord, hear his supplication! Lord, hear it for Jesus' sake. Where ever there stands or sits in this Tabernacle one old or young, rich or poor, learned or illiterate, moral or immoral&mdash;if there is such a one here who in his heart says, 'Father, forgive me and lead me in the way everlasting'&mdash;O do You answer that prayer speedily, for Your dear Son's sake. And now, once more, for Jesus' sake we do each of us beseech you, 'Lead me in the way everlasting.' Amen. 
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Psalm 139.
 
-[Mr. Spurgeon's illness prevented his revising the sermons of last week and he much regrets that in the discourse entitled, "The Upper Hand," (Sermon #901), a passage concerning the Law has been wrongly printed. The mistake was corrected as soon as observed.]
+
