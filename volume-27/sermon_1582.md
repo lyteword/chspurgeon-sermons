@@ -66,7 +66,7 @@ You pilgrims to Zion who press,
 
 Break forth and extol the great Ancient of Days
 
-His rich and distinguishing Grace," is often with me and makes my heart merry. Then the doctrine of Redemption, of which I tried to speak last Lord's Day [Silver Sockets&mdash;Redemption the Foundation, Volume 27, Sermon #1581] how joyous it is! What bliss to know that the Redeemer lives! "Unto you that believe He is precious" and a fullness of joy flows forth at every remembrance of Him. Then that doctrine of Justification is the marrow of joy! Oh, to think that we are just in the sight of God through Jesus
+His rich and distinguishing Grace," is often with me and makes my heart merry. Then the doctrine of Redemption, of which I tried to speak last Lord's Day  how joyous it is! What bliss to know that the Redeemer lives! "Unto you that believe He is precious" and a fullness of joy flows forth at every remembrance of Him. Then that doctrine of Justification is the marrow of joy! Oh, to think that we are just in the sight of God through Jesus
 
 Christ!
 
