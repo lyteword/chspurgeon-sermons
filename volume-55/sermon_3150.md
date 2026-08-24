@@ -82,19 +82,19 @@ Though there are a thousand influences that might make a true man fall and cause
 
 Grace of God we grasp "the Sword of the Spirit, which is the Word of God"&mdash;and with brave hearts and strong we stand steadfastly for the faith! And so will we stand until the Truth shall win the day and the victory shall be unto the Captain of our salvation! Stand fast, Brothers and Sisters, in the name of God, and may the Lord bless you, for Jesus Christ's sake! Amen.
 
-Exposition by C. H. Spurgeon: Hebrews 13:1-21.
+## Exposition by C. H. Spurgeon: Hebrews 13:1-21
 
 This is a practical Chapter at the close of this most instructive Epistle.
 
-Verse 1. Let brotherly love continue. The word, "continue," implies that the "brotherly love" exists. There are many things which might put an end to it, so see to it that as far as you are concerned, it continues. Under all provocations and under all disappointments, "let brotherly love continue."
+Let brotherly love continue. The word, "continue," implies that the "brotherly love" exists. There are many things which might put an end to it, so see to it that as far as you are concerned, it continues. Under all provocations and under all disappointments, "let brotherly love continue."
 
-2, 3. Be not forgetful to entertain strangers: for thereby some have entertained angels unawares. Remember them that are in bonds, as bound with them; and them which suffer adversity, as being yourselves also in the bod}. And being likely, therefore, to take your own turn of suffering and to need the sympathy of your fellow Christians. Show sympathy to others while they need it and they will gratefully remember you when you are in bonds or in adversity.
+Be not forgetful to entertain strangers: for thereby some have entertained angels unawares. Remember them that are in bonds, as bound with them; and them which suffer adversity, as being yourselves also in the bod}. And being likely, therefore, to take your own turn of suffering and to need the sympathy of your fellow Christians. Show sympathy to others while they need it and they will gratefully remember you when you are in bonds or in adversity.
 
 Marriage is honorable in all, and the bed undefiled: but whoremongers and adulterers God will judge. And terrible will be their doom when God does judge them! They may think that because they sin in secret, they shall escape punishment&mdash;but it shall not be so. Whether men judge them or not, God wiljudge them.
 
 Let your conversation be without covetousness, and be content with such things as you have: for He has said, I will never leave you, nor forsake you. Therefore you have a grand reserve! What you have in possession is only a little spending money to use on the road to Heaven, but "He has said, I will never leave you, nor forsake you." You may confidently fall back upon the Providence of God in all times of straitness and need.
 
-6-8. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. Remember them which have the rule over you, who have spoken unto you the Word of God: whose faith follow, considering the end of their conversation. Jesus Christ the same yesterday, and today and forever. [See Sermons #170, Volume 4&mdash;the immutability of
+So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. Remember them which have the rule over you, who have spoken unto you the Word of God: whose faith follow, considering the end of their conversation. Jesus Christ the same yesterday, and today and forever. [See Sermons #170, Volume 4&mdash;the immutability of
 
 Christ; #848, Volume 15&mdash;Jesus Christ is immutable and #2358, Volume 40&mdash;the unchangeable Christ.] It is for your own benefit to remember in your prayers those who preach the Word of God to you, for what can they do without Divine assistance and how can you be profited by them unless they are first blessed of God? Remember them, therefore.
 
@@ -104,7 +104,7 @@ For it is a good thing that the heart is established with Grace, not with meats,
 
 We have an altar, of which they have no right to eat which serve the tabernacle. Those who cling to the external and ceremonial observances of religion have no right to the privileges which belong to those who come to the spiritual altar&mdash;they cannot share that secret.
 
-11-14. For the bodies of those beasts, whose blood is brought into the sanctuary by the high priest for sin, are burned outside the camp. Therefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate. Let us go forth, therefore, unto Him outside the camp, bearing His reproach. For here have we no continuing city, but we seek one to come. Then, my Brother or Sister, do not look for a continuing city here. Do not build your nest on any one of the trees of earth, for they are all marked for the axe&mdash;and they will all have to come down, and your nest too, if you have built upon them.
+For the bodies of those beasts, whose blood is brought into the sanctuary by the high priest for sin, are burned outside the camp. Therefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate. Let us go forth, therefore, unto Him outside the camp, bearing His reproach. For here have we no continuing city, but we seek one to come. Then, my Brother or Sister, do not look for a continuing city here. Do not build your nest on any one of the trees of earth, for they are all marked for the axe&mdash;and they will all have to come down, and your nest too, if you have built upon them.
 
 By Him therefore let us offer the sacrifice of praise to God continually, that is the fruit of our lips giving thanks
 
@@ -112,8 +112,8 @@ to His name.  If you are Believers in Christ, you are God's priests and this is 
 
 But to do good and to communicate forget not: for with such sacrifices God is well please . We are to do good to others, to communicate  of our own good things to those who need them and to do this at some sacrifice to ourselves, "for with such sacrifices God is well pleased."
 
-17-19. Obey them that have the rule over you, and submit yourselves: for they watch for your souls, as they that must give account, that they may do it with joy, and not with grief: for that is unprofitable for you. Pray for us: for we trust we have a good conscience, in all things willing to live honestly. But I beseech you the rather to do this, that Imay be restored to you the sooner. You must have noted how often the Apostle asks for the prayers of those to whom he is writing. So we are following a good example when we ask you to pray for us.
+Obey them that have the rule over you, and submit yourselves: for they watch for your souls, as they that must give account, that they may do it with joy, and not with grief: for that is unprofitable for you. Pray for us: for we trust we have a good conscience, in all things willing to live honestly. But I beseech you the rather to do this, that Imay be restored to you the sooner. You must have noted how often the Apostle asks for the prayers of those to whom he is writing. So we are following a good example when we ask you to pray for us.
 
-20, 21. Now the God of Peace, that brought again from the dead our Lord Jesus, that Great Shepherd of the sheep, through the blood of the Everlasting Covenant make you perfect in every good work to do His will, working in you that which is ever pleasing in His sight, through Jesus Christ; to whom be glory forever and ever. Amen. [See Sermons #277, Volume
+Now the God of Peace, that brought again from the dead our Lord Jesus, that Great Shepherd of the sheep, through the blood of the Everlasting Covenant make you perfect in every good work to do His will, working in you that which is ever pleasing in His sight, through Jesus Christ; to whom be glory forever and ever. Amen. [See Sermons #277, Volume
 
 5&mdash;the blood of the everlasting covenant; #1186, Volume 20&mdash;the blood of the covenant and #1368, Volume 23&mdash;the God of peace and our sanctification.]
