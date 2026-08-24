@@ -2,8 +2,6 @@
 
 "And the Spirit and the bride say, Come! And let him who hears say, Come! And let him who thirsts come. And whoever will, let him take the water of life freely." Revelation 22:17.
 
-[This sermon is the first sermon in Volume 23 in the original manuscripts.]
-
 OUR text stands at the end of the Bible even as this day stands at the end of the year&mdash;and it is full of Gospel even as we would make our closing Sabbath discourse. It would seem as if the Holy Spirit were loath to put down the pen while so many remained unbelieving, notwithstanding the testimony of the Inspired Word and, therefore,, before He closes the canon of Holy Scripture and guards it against all addition or mutilation, with most solemn words He gives one more full, free, earnest, gracious invitation to thirsty souls to come to Christ and drink! So on this last page of the year I would gladly write another Gospel invitation that those who have not, up to now, believed our report, may, even on this last day of the feast, incline their ears and accept the message of salvation!
 
 Before yet the midnight bell proclaims the birth of a new year, may you be born to God! At any rate, once more shall the Truth of God, by which men are regenerated, be lovingly brought under your attention. I ask those of you who have the Master's ear to put up this request to Him just now, that if the arrows have missed the mark on the previous 52 Sabbaths, they may strike the target this time, being directed by the Divine Spirit. Pray, also, that if some have kept the door of their hearts fast closed against the Lord Jesus till now, He may, Himself, come in the preaching of the Word, this morning, and put in His hand by the hole of the door, that their hearts may be moved for Him.
