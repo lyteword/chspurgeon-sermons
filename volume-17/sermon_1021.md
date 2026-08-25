@@ -70,4 +70,4 @@ Now, why is it that mothers take so much pains in teaching their children to wal
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Hosea 11.
 
-SOME of our sermon readers may not be aware that MR. SPURGEON issues a monthly magazine, price 3d. entitled, The Sword and the Trowel. It is full of interesting matter, and commands a large circulation. The volume for 1871 will be reedy a few days after the First of December. Early orders for next year are requested. Messrs. Passmore and Alabaster are the Publishers.
+SOME of our sermon readers may not be aware that MR. Spurgeon issues a monthly magazine, price 3d. entitled, The Sword and the Trowel. It is full of interesting matter, and commands a large circulation. The volume for 1871 will be reedy a few days after the First of December. Early orders for next year are requested. Messrs. Passmore and Alabaster are the Publishers.
