@@ -9,7 +9,7 @@ DEAR friends, last Sabbath morning I tried to stir YOU up to sacred activity. I 
 
 By God's Grace may we not be discouraged if our message has been refused, but might we be instructed by the example of Paul and Barnabas as to what we should do. And may we be comforted by the success which their perseverance achieved. The Jews of Antioch, after having heard Paul with considerable attention, made up their minds to refuse Jesus, the Son of David, and not to accept Him as their Messiah and Savior.
 
-Our first point for consideration will be that THE REJECTION OF CHRIST IS a VERY SOLEMN BUSINESS. It has been a very solemn business for the Jewish nation. The history of the Jews since their rejection of our Lord may be written in blood and tears. No Gentile should read it without ten thousand blushes, for they have been evilly treated by all the nations, though through them the greatest blessing that ever came to men has come to us. Never should we forget that our Redeemer is of the seed of Israel. Yet, when the chosen people rejected Jesus deliberately, from that day a history of woe and sorrow began, which has gone on even to this day.
+Our first point for consideration will be that THE REJECTION OF Christ IS a VERY SOLEMN BUSINESS. It has been a very solemn business for the Jewish nation. The history of the Jews since their rejection of our Lord may be written in blood and tears. No Gentile should read it without ten thousand blushes, for they have been evilly treated by all the nations, though through them the greatest blessing that ever came to men has come to us. Never should we forget that our Redeemer is of the seed of Israel. Yet, when the chosen people rejected Jesus deliberately, from that day a history of woe and sorrow began, which has gone on even to this day.
 
 To the deep disgrace of Christendom, so called, there still remain countries in which they regard a Jew's life as of less value than that of a dog and only force holds them back from massacre. They are still a people scattered and poor in many parts of the earth, although in others they take the lead in wealth. Oh, that they had received the Messiah, I shall not attempt to picture what would have been their history if they had accepted the Son of David as their Lord. It is not so&mdash;
 
@@ -63,7 +63,7 @@ O gracious Spirit of God, still bear with wayward men! We beseech You, still hav
 
 There stands the case. They put everlasting life from them and judged themselves unworthy of it. What an unhappy state of things! It is too painful for me. I cannot speak longer upon it&mdash;I must hasten to my second point.
 
-THIS REJECTION OF CHRIST BY SOME LED TO a MORE EXTENDED EFFORT. When Paul and Barnabas found that their message was rejected, what did they do? They met the Jews with this bold sentence, "Seeing you put it from you and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles."
+THIS REJECTION OF Christ by SOME LED TO a MORE EXTENDED EFFORT. When Paul and Barnabas found that their message was rejected, what did they do? They met the Jews with this bold sentence, "Seeing you put it from you and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles."
 
 In consequence of the ill-manners of the Jews they did not turn away from their work. It never entered their minds to give up their ministry because it did not succeed among these Jews. They did not say, "Lo, we turn away from preaching Jesus&mdash;we will speak no more in the name of the Lord." Neither, my Brethren, may we speak thus. I know the heart grows sick when tender testimony is rejected. The constant reiteration of the same Gospel to ears that will not hear becomes wearisome work. It needs great faith to go on from day to day plowing a rock. Oh, shall we always have to cry to you in vain! Will you always be so perverse? Yet we dare not cease to plead with you. We cannot give you up.
 
@@ -83,9 +83,9 @@ We have labored for London. But if London counts itself unworthy of eternal life
 
 The result of the rejection of Christ by some was the expansion of the sphere of the godly workers. It reminds us of the parable&mdash;they that were bid were not worthy. Therefore, go out into the highways and hedges and as many as you find bid to the supper.
 
-Thirdly, please notice that THIS ENLARGEMENT OF EFFORT WAS ENCOURAGED BY THE PROMISE
+Thirdly, please notice that THIS ENLARGEMENT OF EFFORT WAS ENCOURAGED by THE PROMISE
 
-OF GOD. "For so has the Lord commanded us, saying, I have set you to be a light of the Gentiles, that you should be for salvation unto the ends of the earth."
+OF God. "For so has the Lord commanded us, saying, I have set you to be a light of the Gentiles, that you should be for salvation unto the ends of the earth."
 
 Let us notice this&mdash;God has set Jesus to be a light, and a light He must be. God's appointment is no empty thing. No man thinks of setting up a light if nobody will ever see it. And if God has appointed Christ to be a light, depend upon it some are to see that light. But all men are blind by nature. Alas, it is even so. But if God has set His Son to be a light, I conclude that He is about to open the eyes of the blind, that they may see this light. If I saw a wise man going into a blind asylum, laying on gas or making preparation for the electric light, I should feel sure that he had a view to people who can see. And if none but blind people could come into the building, I should conclude that he anticipated a time when the poor blind folks would find their eyes again and would be able to use the light.
 
@@ -101,7 +101,7 @@ Where even the image of manhood seems obliterated and the brute reigns supreme, 
 
 lowest of the low. Slaves and outcasts embraced Christianity and rose to holiness. It was by such that the Lord overthrew the idols of Greece and Rome. The Lord can work such wonders again and He will. Only let us believe it and tell out unceasingly the Gospel of Jesus in the unlikeliest places and the promise will be fulfilled&mdash;"I have set you to be a light of the Gentiles, that you should be for salvation unto the ends of the earth."
 
-Observe, in the fourth place, that THIS ENLARGEMENT OF EFFORT WAS ENCOURAGED BY SPEEDY
+Observe, in the fourth place, that THIS ENLARGEMENT OF EFFORT WAS ENCOURAGED by SPEEDY
 
 SUCCESS&mdash;"And when the Gentiles heard this, they were glad and glorified the Word of the Lord: and as many as were ordained to eternal life believed. And the Word of the Lord was published throughout all the region."
 
@@ -117,7 +117,7 @@ Set them down to a joint of meat. It vanishes before them. See what masters they
 
 I finish with the fifth point. THIS ENLARGEMENT AND ALL ITS BLESSED RESULTS, WERE ORDAINED
 
-IN THE PURPOSE OF GOD. The record runs thus&mdash;"They were glad and glorified the Word of the Lord: and as many as were ordained to eternal life believed." Attempts have been made to prove that these words do not preach predestination. But these attempts so clearly do violence to language that I will not waste time in answering them. A great discussion has been carried on between those who believe in the free will of man and others who believe in the Free Grace of God. There is no real reason for this dispute, except when the man who believes in free will denies God's freedom in Divine Grace, or when the man who magnifies Free Grace denies that man has any will.
+IN THE PURPOSE OF God. The record runs thus&mdash;"They were glad and glorified the Word of the Lord: and as many as were ordained to eternal life believed." Attempts have been made to prove that these words do not preach predestination. But these attempts so clearly do violence to language that I will not waste time in answering them. A great discussion has been carried on between those who believe in the free will of man and others who believe in the Free Grace of God. There is no real reason for this dispute, except when the man who believes in free will denies God's freedom in Divine Grace, or when the man who magnifies Free Grace denies that man has any will.
 
 It is possible for both parties to be wrong&mdash;and, in a measure, for both to be right. Beloved, I used the first part of my text fairly and I was not afraid to acknowledge the existence of free will, and to deplore its doings. Now I read, "as many as were ordained to eternal life believed," and I shall not twist the text. But I shall glorify the Grace of God by as-
 

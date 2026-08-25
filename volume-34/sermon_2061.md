@@ -24,7 +24,7 @@ Again, crave no signs, for this craving is highly perilous. Translated according
 
 Crave, therefore, no sign. If you read a story of a person who saw a vision, or it you hear another declare that a voice spake to him'believe those things, or not, as you like; but do not desire them for yourself. These wonders may, or may not, be freaks of the imagination. I will not judge; but we must not rely upon them, for we are not to walk by sight, but by faith. Rely not upon anything that can be seen of the eyes, or heard of the ears; but simply trust him whom we know to be the Christ of God, the Rock of our salvation.
 
-Secondly, when you want comfort, crave no sign, but TURN TO THE WOUNDS OF OUR LORD. You see what Thomas did. He wanted faith, and he looked for it to Jesus wounded. He says nothing about Christ's head crowned with glory. He does not say that he must see him "gird about the paps with a golden girdle." Thomas, even in his unbelief, is wise; he turns to his Lord's wounds for comfort. Whenever your unbelief prevails, follow in this respect the conduct of Thomas, and turn your eyes straightway to the wounds of Jesus. These are the founts of never-failing consolation, from which, if a man doth once drink, he shall forget his misery, and remember his sorrow no more. Turn to the Lord's wounds; and if you do, what will you see?
+Secondly, when you want comfort, crave no sign, but TURN TO THE WOUNDS OF OUR Lord. You see what Thomas did. He wanted faith, and he looked for it to Jesus wounded. He says nothing about Christ's head crowned with glory. He does not say that he must see him "gird about the paps with a golden girdle." Thomas, even in his unbelief, is wise; he turns to his Lord's wounds for comfort. Whenever your unbelief prevails, follow in this respect the conduct of Thomas, and turn your eyes straightway to the wounds of Jesus. These are the founts of never-failing consolation, from which, if a man doth once drink, he shall forget his misery, and remember his sorrow no more. Turn to the Lord's wounds; and if you do, what will you see?
 
 First, you will see the tokens of your Master's love. O Lord Jesus, what are those wounds in thy side, and in thy hands? He answers, "These I endured when suffering for thee. How can I forget thee? I have graven thee upon the palms of my hands. How can I ever fail to remember thee? On my very heart the spear has written thy name." Look at Jesus, dead, buried, risen, and then say, "He loved me, and gave himself for me"! There is no restorative for a sinking faith like a sight of the wounded Saviour. Look, soul, and live by the proofs of his death! Come and put thy finger, by faith, into the print of the nails, and these wounds shall heal thee of unbelief. The wounds of our Lord are the tokens of his love.
 
@@ -67,7 +67,7 @@ PORTION OF SCRIPTURE READ BEFORE SERMON'John 20:18-31.
 
 HYMNS FROM "OUR OWN HYMN BOOK"'785, 937, 282.
 
-LETTER FROM MR. SPURGEON
+LETTER FROM MR. Spurgeon
 
 BELOVED READERS,'Thanks be unto God for thirty-four volumes of sermons thus completed. May they continue to be blest of God long after the preacher and his present readers have entered into rest. The speaker is still laid aside by weakness, but the word of the Lord never loses its power. His voice can only be heard of a few thousands, but the printed page will talk to multitudes. Let us pray that the still small voice of the Holy Spirit may sound in the heart of readers for many generations to come.
 
@@ -77,6 +77,6 @@ At the close of the year I salute my brethren, and entreat a place in their dail
 
 Yours in Christ Jesus,
 
-H. SPURGEON.
+H. Spurgeon.
 
 Mentone, Dec. twentieth, 1888.

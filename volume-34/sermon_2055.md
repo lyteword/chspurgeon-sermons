@@ -141,7 +141,7 @@ I do not wonder at it. I have made a similar remark when I have been long withou
 
 Christian people, I am not going to sympathize with you but congratulate you upon your troubles, for the Cross of Christ is precious. But you that do not love my Lord and Master, if you roll in riches, if your eyes stand out with fatness, I mourn over you. Bullocks fattened for the slaughter, your joys are but the prelude to your woes. Oh, that God would have mercy upon you and that you would have mercy upon yourselves and flee at once to Jesus and put your trust in Him! Faith in the work, offices and Person of the Lord Jesus is the way of salvation. May He help you to run in it at this hour, for His name's sake! Amen.
 
-LETTER FROM MR. SPURGEON.
+LETTER FROM MR. Spurgeon.
 
 DEAR FRIENDS&mdash;In answer to a general desire that I should let my beloved Readers know of my condition, I will write a line or two each week. Owing to extreme weakness it has taken me the whole week to reach my sunny retreat but at each stage I have found myself a little better and I can now walk a little&mdash;a very little. Yet for this I am deeply grateful to Him "who restores our life." I hope, by rest in this genial climate, to recover tone, strength and freshness of mind and then I trust all will be spent, in future days, for God's glory.
 

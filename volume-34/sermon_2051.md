@@ -9,7 +9,7 @@ The most contemptible flouted Him. The mean soldier in the petty army of a petty
 
 Herod himself treated Him with contempt. In this loathsome being I see the most likely person to think nothing of the Lord Jesus. Let me just say a word or two about this member of a detestable family, that I may see whether his like can be found here tonight. I will not give you any history of this Herod. It is not worth while. This "fox" is not worth unearthing. The page of history is stained by the Herodian name. I will give you enough concerning him to help you to answer the question&mdash;Are you like he? Have you set Christ at nothing? Have you treated Christ with contempt?
 
-This shall be our first enquiry&mdash;WHO IS THE MOST LIKELY PERSON TO TREAT OUR LORD WITH CONTEMPT?
+This shall be our first enquiry&mdash;WHO IS THE MOST LIKELY PERSON TO TREAT OUR Lord WITH CONTEMPT?
 
 Herod was a man who had once heard the Word of God. Yes, heard it with a measure of attention and apparent benefit. We read, "Herod feared John, knowing that he was a just man and an holy and observed him. And when he heard him, he did many things and heard him gladly." According to the margin, Herod "kept him or saved him"&mdash;preserving him from those who would have laid violent hands upon him. But he broke away from his respectful regard of John and now that Jesus stands before him, his memory of the Baptist does not restrain him from mocking the Baptist's Lord. He had silenced that eloquent tongue and now he had no care to listen to anything which might further bestir his conscience.
 
@@ -41,7 +41,7 @@ When a bad fellow once praised Socrates, that philosopher said, "I wonder what I
 
 This, then, is the man who sets Jesus at nothing. I wonder whether he is here tonight! Possibly it is a woman who is doing this. Women fall into precisely the same evils as men from their own side of the house and the same remarks apply to both sexes. You who once were hearers, you who once were impressed, you who did willful violence to conscience. You who persist in sin, you who are the slaves of evil company and dare not do right for the life of you, for fear of ridicule&mdash; you are the kind of people of whom Herod was a sad specimen&mdash;you set Jesus at nothing. You treat my Master in contempt.
 
-Having tried to find out Herod, let us now answer a second question&mdash;ON WHAT GROUND DID HE TREAT OUR LORD WITH CONTEMPT?
+Having tried to find out Herod, let us now answer a second question&mdash;ON WHAT GROUND DID HE TREAT OUR Lord WITH CONTEMPT?
 
 Men have some reason or other for their acts, although often those reasons are most unreasonable. Before we consider the unhallowed reasons for this great crime, let us do homage to the name of the Son of God. O Lord Jesus, even in Your lowest humiliation You are worthy of all reverence. To Your friends You are all the more dear and the more honored because You were greatly despised. You, bound and brought a prisoner before the tetrarch, are free to rule our hearts. You were charged with sedition but we fall at Your blessed feet and proclaim You King of kings! Herod sets Him up as the butt of his ridicule and makes nothing of Him. As Herbert puts it&mdash;
 
@@ -71,9 +71,9 @@ The Prophet proved His commission by His silence. And yet He provoked their scor
 
 Those, I suppose, were the grounds upon which Herod and such as Herod, make light of Christ. Poor grounds they are, and such as will fail to justify them before the bar of God.
 
-Now, dear Friends, let us consider&mdash;DO MEN NOW SET OUR LORD AT NOTHING? DO MEN NOW
+Now, dear Friends, let us consider&mdash;DO MEN NOW SET OUR Lord AT NOTHING? DO MEN NOW
 
-TREAT OUR LORD WITH CONTEMPT?
+TREAT OUR Lord WITH CONTEMPT?
 
 Herod is dead and buried and there is no sort of reason why we should not let him rot into oblivion. I therefore speak to you and try to discover whether you are setting Christ at nothing. Are you treating our Lord with contempt? I fear there are such. Who are they?
 
@@ -129,7 +129,7 @@ O my Hearer, what will then become of you? The prospect is terrible&mdash;but yo
 
 This is very heavy preaching to me. If it is as painful to you to hear as to me to speak, you will be glad when I have done. I pray that these solemn words may long remain upon your hearts. Oh, that they might bring you to Jesus at once by the power of the Holy Spirit!
 
-But I close with this&mdash;WHAT DO BELIEVERS SAY ABOUT THEIR LORD? Herod made nothing of Him&mdash;
+But I close with this&mdash;WHAT DO BELIEVERS SAY ABOUT THEIR Lord? Herod made nothing of Him&mdash;
 
 what do we make of Him? Well, we say, first, that we mourn and lament that there ever was a time when we ourselves made nothing of the glorious One. It is many years ago with some of us. But we cannot forget it, nor cease to bewail it. There were a certain number of years in our lives in which it was nothing to us that Jesus should die.
 

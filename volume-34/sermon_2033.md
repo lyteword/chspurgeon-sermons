@@ -73,7 +73,7 @@ I beseech you, give yourselves space for thought, before thought becomes the wor
 
 Do, for God's sake and for your soul's sake, hear what wisdom teaches concerning everlasting things! O Lord, give Your Grace to my dear Hearers, that they may consider their ways and turn unto Your statutes!
 
-Very briefly, let us note that David gives a third piece of advice, which in essence means APPROACH UNTO GOD ARIGHT&mdash;"Offer the sacrifices of righteousness."
+Very briefly, let us note that David gives a third piece of advice, which in essence means APPROACH UNTO God ARIGHT&mdash;"Offer the sacrifices of righteousness."
 
 Now, I do not quite know what David, himself, may have intended by it, but this is how I interpret it. Come to God. Come to God in His own way. Come as Israel came to the Tabernacle in the wilderness, bringing their sacrifices with them.
 

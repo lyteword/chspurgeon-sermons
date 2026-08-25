@@ -85,7 +85,7 @@ When they stood quite still, there was a hush. The disciples stood around the Lo
 
 At any rate, Jesus heard the flutter of the wings of desire if not of faith. Surely her eyes were speaking as she gazed on Jesus, who had so suddenly appeared. Here let us be as quiet as the scene before us. Let us be hushed for a minute and pray God to raise dead souls at this time. 
 
-That hush was not long, for speedily the Great Quickener entered upon His gracious work. This is our third point&mdash; JESUS IS ABLE TO WORK THE MIRACLE OF LIFE-GIVING.
+That hush was not long, for speedily the Great Quickener entered upon His gracious work. This is our third point&mdash; Jesus IS ABLE TO WORK THE MIRACLE OF LIFE-GIVING.
 
 Jesus Christ has life in Himself and He quickens whom He will (John 5:21). Such life is there in Him that "he that lives and believes in Him, though he were dead, yet shall he live." Our blessed Lord immediately went up to the bier. What lay before Him? It was a corpse. He could derive no aid from that lifeless form. The spectators were sure that he was dead, for they were
 

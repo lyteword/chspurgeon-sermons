@@ -91,7 +91,7 @@ The Lord will do this so completely that He will make you sing concerning it. In
 
 We may yet feel like that great saint who, when he recovered from sickness, cried, "Take me back to my sick bed again, for there have I enjoyed such fellowship with Christ as I never knew before." We may yet have to say, as certain saints of the Church of Scotland said, "Oh, that we were meeting among the moors and the hills once more. For never had the bride of Christ such fellowship with the Bridegroom as when she met Him in secret places." The Lord knows how to lift us high by that which cast us low and to make Psalms for our stringed instruments out of the dirges which drowned our music. The God of the resurrection has delivered, does deliver, and will deliver His people.
 
-Time fails me and therefore I must hurry on, else I had loved to linger and expand. SEE HERE a DECLARATION THAT GOD WILL SAVE HIS CHOSEN FROM THEIR DEATH IN SIN. He that will raise our bodies from the grave will, according to His Everlasting Covenant, raise His chosen from their death in sin.
+Time fails me and therefore I must hurry on, else I had loved to linger and expand. SEE HERE a DECLARATION THAT God WILL SAVE HIS CHOSEN FROM THEIR DEATH IN SIN. He that will raise our bodies from the grave will, according to His Everlasting Covenant, raise His chosen from their death in sin.
 
 This must be so. If the Lord did not raise His people's souls from their death in sin, a resurrection of their bodies would be a curse rather than a blessing. Resurrection will be no benefit to those who die unregenerate. My Hearers, you will all rise from the grave. But I fear that some of you will rise to shame and everlasting contempt. That is an awful passage which I quoted just now from the Book of Daniel&mdash;think much of it. Therefore since God will not have His people rise to shame and everlasting contempt He will make their souls to rise first into newness of holy life. This regeneration must come to all of you, if you are to be partakers of the glory of Christ hereafter. You must be quickened, though you were dead in trespasses and sins. That fact suggests a question to each heart&mdash;have you received the Divine life?
 
@@ -119,7 +119,7 @@ The Lord will do as He wills. Does He not say, "I will have compassion upon whom
 
 What little time you can yet afford me, I will use in stating THAT HERE WE HAVE AN ASSURANCE THAT
 
-THE LORD CAN DELIVER FROM ANY OTHER FORM OF DEATH. I ask you now to think of a few matters very briefly.
+THE Lord CAN DELIVER FROM ANY OTHER FORM OF DEATH. I ask you now to think of a few matters very briefly.
 
 The Jews&mdash;as an organized nationality are dead. They are a people scattered and divided under the whole Heaven. Truly might they say, as in the Prophet Ezekiel, "Our bones are dried and our hope is lost: we are cut off for our parts."
 

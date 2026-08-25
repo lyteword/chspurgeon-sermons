@@ -81,7 +81,7 @@ All God's people love Him supremely. But we cannot love a God whom we do not kno
 
 And this leads me to the second point, whereon I ask your earnest attention&mdash;THE ONE GRAND MEANS OF
 
-OBTAINING THIS KNOWLEDGE OF GOD. Here it is&mdash;"For I will forgive their iniquity and I will remember their
+OBTAINING THIS KNOWLEDGE OF God. Here it is&mdash;"For I will forgive their iniquity and I will remember their
 
 sin no more." Do you get the idea? The clearest knowledge of God comes out of pardoned sin. The most distinct, vivid, assured knowledge of Jehovah comes to us when our iniquity is blotted out and our sin is covered.
 

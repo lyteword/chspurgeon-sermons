@@ -29,7 +29,7 @@ Every wise man will conclude that the best way for a man is the way which God ha
 
 With all my heart I invite any who have never yet begun to live after a right fashion, to take Christ to be the way of life to them. And then I entreat them to let their eyes look straight on and their eyelids straight before them and to follow Jesus without giving a glance either to the right hand or to the left till it shall be said of them, even in glory, "These are they which follow the Lamb wherever He goes."
 
-I shall make my earnest appeals to the heart and conscience by beginning with this first exhortation&mdash;LET CHRIST BE YOUR WAY. You that are young, let Him be your way from your youth. You that have up to now gone the wrong road until your hairs have grown gray in the service of iniquity, turn, I beseech you, and take to the way of salvation. May His Spirit turn you and you will be turned&mdash;then will Jesus become your way from henceforth.
+I shall make my earnest appeals to the heart and conscience by beginning with this first exhortation&mdash;LET Christ BE YOUR WAY. You that are young, let Him be your way from your youth. You that have up to now gone the wrong road until your hairs have grown gray in the service of iniquity, turn, I beseech you, and take to the way of salvation. May His Spirit turn you and you will be turned&mdash;then will Jesus become your way from henceforth.
 
 If Christ is your way, you will begin first to seek to have Christ. "How shall I have Him?" says one. Do you desire Him? Will you accept Him? He is yours. The act of accepting Christ secures Christ to us. For the Father freely gives Him to all who freely accept Him. Some are troubled through ignorant and unbelieving fears and are saying, "I wish I could lay hold on Jesus! I wish I knew that Christ were mine!" Are you willing to have Him? Who made you willing? Do you desire Him? Who made you desire Him? Who but the Spirit of the Lord? Will you now take Jesus to be your Savior, to save you from your sin? Then depend on it He is yours. There was never any difficulty with Him to give Himself to you.
 
@@ -108,7 +108,7 @@ Strip yourself of your last rag and let Christ clothe you from top to bottom. Be
 
 at their proper focus and let that focus be the Lord Jesus. "Let your eyes look right on and let your eyelids look straight before you."
 
-But my time has almost expired and I have only to lay emphasis on one more matter. LET YOUR EYES DISTINCTLY AND DIRECTLY LOOK TO CHRIST ALONE. I have gone over this before, but I need to hammer at it
+But my time has almost expired and I have only to lay emphasis on one more matter. LET YOUR EYES DISTINCTLY AND DIRECTLY LOOK TO Christ ALONE. I have gone over this before, but I need to hammer at it
 
 again in order to clench the nail. Look not to any human guide but look to Christ Jesus alone. We have no faith in priests. But it is a very easy thing to fix your faith upon a minister and hear what he says and believe it because he says it. I charge you, believe nothing that I tell you if it cannot be supported by the Word of God. I am content to stand or to fall by this&mdash;"To the Law and to the testimony: if they speak not according to this Word, there is no light in them."
 
@@ -136,7 +136,7 @@ Go after Christ, dear Friend. Seek after Christ with your whole heart and soul. 
 
 Then you will soon find Him. "Let your eyes look right on and let your eyelids look straight before you," and you shall see the Lord of Grace appearing to you through the mist and through the cloud&mdash;that same Savior who stands in the midst of us even now and cries, "Look unto Me, and be you saved, all the ends of the earth: for I am God and there is none else."
 
-LETTER FROMMR. SPURGEON
+LETTER FROMMR. Spurgeon
 
 BELOVED FRIENDS&mdash;We are in our measure partaking in the change of weather which plunged England from an almost summer heat into cold and fog, for we have a cold wind blowing with a force which overpowers the warm sun. This has a depressing influence upon many invalids but does not affect me. Each day I make a little progress. I could not yet stand through a discourse, much less walk a mile. But I can walk further than I could a week ago and I am conscious of renewed vigor. I thank God that the swelling of the feet is also decreasing and so I may look for complete restoration and then for a speedy return to my happy work.
 

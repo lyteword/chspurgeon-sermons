@@ -19,7 +19,7 @@ Jesus has manifested Himself to him as He does not unto the world. And therefore
 
 I am going to speak to those of you who believe in the Lord Jesus Christ, for you are chosen&mdash;faith is the sure mark of election. If you believe in Jesus and are resting in Him, this is the token that God has chosen you from before the foundation of the world. For no man yet ever had a true faith in Christ without receiving it from God and that gift from God is the token that He will give all other saving gifts, and that He has chosen that man to eternal salvation. The effect upon you of your knowing your election of God will be similar to the effect which it had upon David when he knew that the Lord had chosen him to be the ruler over Israel.
 
-What effect had this doctrine, this experience, this inward conviction upon David? First, IT MADE GOD THE LEADING THOUGHT WITH DAVID. I believe that in every case where a man is inwardly persuaded of the Holy Spirit that the Lord has chosen him out of the world, the sure and certain effect is that the Lord stands out to him in a clear light and becomes to him the greatest force in his life, the chief motive power, the main thought of his mind. Observe how David said to Michal, "It was before the Lord." And all through the chapter you constantly read that David did this and that "before the Lord."
+What effect had this doctrine, this experience, this inward conviction upon David? First, IT MADE God THE LEADING THOUGHT WITH DAVID. I believe that in every case where a man is inwardly persuaded of the Holy Spirit that the Lord has chosen him out of the world, the sure and certain effect is that the Lord stands out to him in a clear light and becomes to him the greatest force in his life, the chief motive power, the main thought of his mind. Observe how David said to Michal, "It was before the Lord." And all through the chapter you constantly read that David did this and that "before the Lord."
 
 In the fourteenth verse we read, "And David danced before the Lord with all his might." It will be so&mdash;God will be realized in every passage of our life. Has the Lord chosen me to be His own? Then I see the hand of the Lord in my parentage, in my birth, in my bringing up. I see the hand of the Lord in my calling out from the world and in my conversion. I see the Lord in His Providence, in His preservation of me from the paths of the Destroyer. In fact, everywhere I see the Lord.
 
@@ -116,7 +116,7 @@ And I pray its power may be felt more and more until everything like caste and c
 
 I have been quick upon that point, for time is flying with six wings and I want to dwell a minute upon this point.
 
-A SENSE OF BEING CHOSEN OF GOD STIRS a DESIRE FOR THE SERVICE OF GOD.
+A SENSE OF BEING CHOSEN OF God STIRS a DESIRE FOR THE SERVICE OF God.
 
 Such service will be personal. Look at David. He must serve God himself. He cannot let the priests and Levites do it. He must take a turn as a Levite himself. Lots of people allow their ministers to serve God for them, or they subscribe to societies that by means of a committee they may serve God secondhand. The man that God has chosen must have a personal religion and he must offer a personal service. The woman who had had much forgiven did not come to Peter and say, "Please, Mr. Peter, I have an alabaster box of ointment&mdash;will you at some proper time or other be pleased to pour it upon the Master?"
 

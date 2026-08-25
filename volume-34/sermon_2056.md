@@ -52,7 +52,7 @@ Beloved in the Lord, think not that this is an unnecessary warning, even for you
 
 If we put our confidence elsewhere, our idolatry will come home to us and we shall hear the voice of disappointment, wailing bitterly, "Bel bows down, Nebo stoops: your carriages were heavy loaded. They are a burden to the weary beast. They stoop, they bow down together."
 
-Let that stand as the black cloud on which God will paint his bright rainbow, while I notice in the second place, that OUR GOD ABIDES ALWAYS THE SAME. "Even to your old age I am He." He is always the same in Himself and always the same to His people. If you are, indeed, a Believer in the Lord and resting in Christ Jesus, He says to you at this time with regard to all the future unknown and, perhaps greatly dreaded, "Be not afraid, for I am the Lord your God. Even to your old age I am He."
+Let that stand as the black cloud on which God will paint his bright rainbow, while I notice in the second place, that OUR God ABIDES ALWAYS THE SAME. "Even to your old age I am He." He is always the same in Himself and always the same to His people. If you are, indeed, a Believer in the Lord and resting in Christ Jesus, He says to you at this time with regard to all the future unknown and, perhaps greatly dreaded, "Be not afraid, for I am the Lord your God. Even to your old age I am He."
 
 Dear Friends, we rightly expect trials between here and Heaven. And the ordinary wear and tear of life, even if life should not be clouded by an extreme trial, will gradually wear us out. We shall come, by-and-by, if life is spared, to that
 
@@ -80,7 +80,7 @@ Beloved, fear not. We shall see better days and brighter times yet, if we have b
 
 Their very names are like music to our ears and honey in our mouth. Remember Joseph Irons and Harrington Evans and Watts Wilkinson and Rowland Hill and men of that order? Where are the teachers and fathers now? But then the point is, the God of these saints is not dead. The Great Shepherd of Israel still lives and He leads us still and feeds us still and guards us still. And He will guard His flock and guide His flock&mdash;till He makes us to lie down in the green pastures on the hilltops of Glory. Oh, let us bless and praise His name tonight, that He gives us this rich comfort, "I am He." Jehovah, eternally the same, is the Rock of our salvation.
 
-And now, thirdly, I want to call your attention, in the words before us, to the fact that while false confidences pass away, GOD WILL FOREVER BE THE SAME. His former mercies guarantee to us future mercies. Read the passage before us&mdash;He says, "I have made and I will bear. Even I will carry, and will deliver you."
+And now, thirdly, I want to call your attention, in the words before us, to the fact that while false confidences pass away, God WILL FOREVER BE THE SAME. His former mercies guarantee to us future mercies. Read the passage before us&mdash;He says, "I have made and I will bear. Even I will carry, and will deliver you."
 
 First, you see, He says, "I have made." The Lord, who is your helper is He that created you&mdash;you certainly could not have created yourself. It is well to remember the mercy of God to us in our formation and in the first days of our birth and infancy. David was not ashamed to say to his God, "You are He that took me out of the womb." The Lord gave us birth, or we had never seen the light. When we were born, we could not help ourselves in the least degree. Poor helpless, shiftless creatures&mdash;all we could do was to cry! We shall never again be so weak as we were at our birth. Great decrepitude may fall upon us but we shall never be so little, so feeble, so puling, so dependent as we were when we could not speak and make known our wants, except by a cry.
 
@@ -139,7 +139,7 @@ And you, my aged Brothers and Sisters, to whom I speak with much reverence, show
 
 Therefore, "rest in the Lord and wait patiently for Him," and may He bless you evermore, for Jesus' sake! Amen.
 
-LETTER FROM MR. SPURGEON
+LETTER FROM MR. Spurgeon
 
 DEAR FRIENDS, Although we have had two days of rainy and tempestuous weather, I have improved so greatly that I feel like the man who is described in Scripture as "walking and leaping and praising God." As I cannot quite manage the two former exercises, I desire to be doubly abundant in the third. Watts says&mdash;
 
