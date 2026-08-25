@@ -65,7 +65,7 @@ You shall yet, amidst the splendors of eternity, forget the trials of time&mdash
 
 Thus, dear Friends, Memory may be as Coleridge calls it, "the bosom spring of joy," and when the Holy Spirit bends it to His service, it may be chief among earthly comforters.
 
-For a short time, we will speak TO THE DOUBTING CHRISTIAN WHO HAS LOST HIS EVIDENCES OF
+For a short time, we will speak TO THE DOUBTING ChristIAN WHO HAS LOST HIS EVIDENCES OF
 
 SALVATION. It is our habit, in our ministry, to avoid extremes as much as possible and to keep to the narrow path of the Truth of God. We believe in the doctrine of predestination. We believe in the doctrine of free agency and we follow the narrow path between those mountains. So in all other Truths. We know some who think that doubts are not sins&mdash; we regret their thinking that.
 

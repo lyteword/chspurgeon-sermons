@@ -87,7 +87,7 @@ Let us reflect that the murrain of sin is much more pestilential and more certai
 
 It is better that one die than that many should be smitten and therefore the highest consideration for the good of mankind in general renders it necessary that the mandate should go forth, "Cut it down."
 
-The second most solemn work is to remind you, O impenitent Sinner, that FOR GOD TO HAVE SPARED YOU
+The second most solemn work is to remind you, O impenitent Sinner, that FOR God TO HAVE SPARED YOU
 
 SO LONG IS a VERY WONDERFUL THING. That the infinitely just and holy God should have spared you, unconverted man, unconverted woman, up till now, is no small timing but a matter for adoring wonder. Let me show you this. Consider, negatively, God is not sparing you because He is insensible towards your sins&mdash;He is angry with the wicked every day. If the Lord could be indifferent towards sin and could bring His holy mind to treat it as a mere trifle, then it would be no wonder that He should let the transgressor live.
 

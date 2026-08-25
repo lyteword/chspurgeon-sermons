@@ -87,7 +87,7 @@ Be it so, if your understanding cannot comprehend, let your affections apprehend
 
 The last piece of holy Christmas work is to come. "The shepherds returned," we read in the twentieth verse,
 
-"GLORIFYING AND PRAISING GOD for all the things that they had heard and seen, as it was told unto them."
+"GLORIFYING AND PRAISING God for all the things that they had heard and seen, as it was told unto them."
 
 Returned to what? Returned to business to look after the lambs and sheep again! Then if we desire to glorify God we need not give up our business. Some people get the notion into their heads that the only way in which they can live for God is by becoming ministers, missionaries, or Bible women.
 

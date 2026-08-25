@@ -137,7 +137,7 @@ Religion, then, takes away from us nothing but what we are glad to lose. And it 
 
 "I would not change my blessed estate For all the world calls good or great; And while my faith can keep her hold, 1 envy not the sinner's gold."
 
-In the last place, THE TRUE FARE OF GODLINESS IS ALREADY PAID&mdash;NOT BY US&mdash;BUT BY OUR LORD JESUS. Jonah paid his fare from Joppa to Tarshish, but I never find that he paid any fare back. The conveyance which brought him to land was far cheaper than the ship of Tarshish, though not quite so comfortable. He came back to land with no expense to himself whatever!
+In the last place, THE TRUE FARE OF GodLINESS IS ALREADY PAID&mdash;NOT by US&mdash;BUT by OUR Lord Jesus. Jonah paid his fare from Joppa to Tarshish, but I never find that he paid any fare back. The conveyance which brought him to land was far cheaper than the ship of Tarshish, though not quite so comfortable. He came back to land with no expense to himself whatever!
 
 So we must pay much and do much in order to be cast away&mdash;but the way of eternal life and salvation is perfectly free. When Jonah was thrown out into the midst of the sea, the whale did not swallow him because he was a man of money, or because he was a man of merit&mdash;he was just a needy, destitute sinner, subject to the wrath of God as expressed in that tempest and in that storm and in that boiling sea. And there came the friendly fish which carried him into a living grave for three days that his life might be preserved.
 
