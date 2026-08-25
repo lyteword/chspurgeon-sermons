@@ -14,9 +14,9 @@ Further, Samuel was a child who was not merely given up to God and brought up in
 
 I am going to apply Samuel's little speech, "Here I am," specially to grown-up people, yet I am not going to exclude children from the application. When God called Samuel, he answered, "Here I am!" Now, first, what did this show? And secondly, what did it foretell?
 
-I must devote the greater part of the time to the question, WHAT DID Samuel's ANSWER, "HERE I AM,"
+I must devote the greater part of the time to the question, what did Samuel's answer, "Here I am,"
 
-SHOW?
+show?
 
 It showed, first, a hearing ear. God spoke and Samuel heard. Have you a hearing ear, dear Brother? Be grateful if you have, for all men have not that blessing. There are some who have an itching ear&mdash;and they come to a place of worship not to hear profit, but merely to judge, to criticize, to find fault, to draw comparisons between one speaker and another. If that is the case with you, dear Friend, may the Lord cure your ears of itching and open them to the Truth of God, for they are stopped up! John Bunyan speaks of Ear-Gate being stopped up with filth, and it is often so. Men cannot hear the voice of God because there is sin in the way&mdash;some darling sin&mdash;and they are not wise enough to realize that what they hear will be the means either of saving them or of damning them. Hearing true Gospel sermons is one of the most solemn occupations in which intelligent beings can be employed. Hearing ears are by no means common things&mdash;happy are you who have them.
 
@@ -56,7 +56,7 @@ Once more, I think that Samuel's answer implied a submissive spirit. He said, "H
 
 Can each Christian here say the same with regard to suffering? Here I come to heart-searching work. If Christ wants one who can bear reproach for Him, can you say, "Here I am?" If He wants one who can suffer the loss of prosperity and become poor, can you say, "If it is for Your Glory, Lord, here I am?" And can you endure it if you do say so? If God should lay a heavy affliction upon you and rack you with pain from day to day, can you say, "Here I am?" In the dreary night-watches, I confess that I have not found it easy. I have wanted to be able to say, "Lord, here I am," but I have caught myself saying, "I do not want to be here much longer. I want to be up preaching the Gospel again, for I do not like lying here, going without my necessary rest and feeling countless depressions of spirit and grievous pains of body." But I know some Christians who are more used to pain who have learned to say with old Eli, "It is the Lord: let Him do what seems good to Him." I daresay some of you remember Dr. Hamilton's story of poor Betty who said, "The Lord said to me, 'Betty, look after your husband and your house,' and I did it. And then He said, 'Betty, go and talk to your neighbors about Jesus,' and I did that. And then He said, 'Betty, go and lie on the bed and cough,' and I am doing it, blessed be His holy name!" Ah, but it needs a great deal of Grace to lie and cough to God's Glory! Yet it is being done, and the groans of sick, yet submissive saints are as musical to God's ear as the hallelujahs of archangels!
 
-Now my time has fled, so I can only give you the outline of what I was going to say in answer to my second question, WHAT DID THIS UTTERANCE OF THE CHILD Samuel FORETELL FOR HIM?
+Now my time has fled, so I can only give you the outline of what I was going to say in answer to my second question, what did this utterance of the child Samuel foretell for him?
 
 Why, it foretold, first, further communications from God. Those who answer to God's call shall hear His voice again! If you are faithful to what you know, you shall know more! If you can truly say, "Here I am," God will call you again and keep on calling you as long as He has messages to give you.
 
