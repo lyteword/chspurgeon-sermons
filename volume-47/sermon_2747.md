@@ -126,4 +126,4 @@ Oh, may the Spirit of God work that blessed decision in your mind and heart righ
 
 &mdash;Adapted from The C. HI. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

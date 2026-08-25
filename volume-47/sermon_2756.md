@@ -10,7 +10,7 @@ At this present moment, under the Gospel dispensation, there is no division betw
 
 If you were never lost, you have no part or lot in His work of salvation. But if you are lost, and know it, this is the very link which unites you to the Savior! He has come to seek and to save just such as you are and I hope, in the observations I am about to make, that I shall be able to show that He came to save you!
 
-I shall speak concerning OUR LORD's MISSION. He has come to seek and to save that which was lost.
+I shall speak concerning OUR Lord's MISSION. He has come to seek and to save that which was lost.
 
 Notice, first, what a gracious mission it was! It was a mission of pure mercy and indescribable love. Our Lord Jesus Christ did not come into the world to seek His own honor, but to seek and to save the lost. Not to get anything for Himself, but to give everything to those who are lost. His mission is one of undeserved goodness, on His part, towards those who have treated Him evilly and who deserve very different treatment at His hands. There was no law except His own love to compel Christ to come to save sinners. They had no claim upon Him. When He resolved to come, it was an act of matchless Grace. If He had not chosen to come, He would still have been the ever-blessed Son of the Highest, enshrined in everlasting Glory though everyone of us had perished! His coming was Infinite goodness, returning good for evil, coming down to our lost estate and determining, by superabundant affection, to save us from it! Our Savior is embodied Grace,
 
@@ -82,7 +82,7 @@ Dear Master, we are only too glad to go on such an errand! You shall not have to
 
 Go thus, Brothers and Sisters, in the Holy Spirit's might, and in your Savior's name! And may He enable you to bring home, with rejoicing, many of the lost ones&mdash;and to Him shall be all the glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW21:23-46.
+Exposition by C. H. Spurgeon: Matthew21:23-46.
 
 Verse 23. And when He was come into the temple, the chief priests and the elders of the people came unto Him as He was teaching and said, By what authority are You doing these things? And who gave You this authority?fesus knew that these men came to Him for no good purpose, and that they were only trying to trip Him up in His speech. He was always willing to teach when men were willing to learn, but He did not care to cast His pearls before swine. Therefore, mark the holy caution, the sacred ingenuity with which our Lord replied to these men.
 

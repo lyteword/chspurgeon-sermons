@@ -90,7 +90,7 @@ Now, lastly, God has also delivered our feet from falling as He did in the case 
 
 No, you have nothing at all to fret about! Your soul is delivered from death, your eyes from tears and your feet from failing&mdash;so rest, rest, rest, rest! You will glorify God by resting. One of the highest acts of devotion is to rest in the Lord. God grant it to you now, especially at His Table, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM85
+Exposition by C. H. Spurgeon: Psalm85
 
 In my brief comments upon this Psalm, I shall not feel bound to keep to the immediate occasion for which it was written, but shall seek to find a use for it in the present circumstances of God's saints.
 
@@ -106,9 +106,9 @@ Will You be angry with us forever? Will You draw out Your anger to all generatio
 
 Will You not revive us again: that Your people may rejoice in You? "We have got down very low, great God. We have been, these last six days, mixing with the world and, perhaps, we have forgotten You. Come to us, we pray You. Give us fresh life! Revive us again! Many a time have You, spiritually, raised us up as from the grave's mouth. Will You not do it again? All that You have done for us in the past will be lost if You do not continue Your mercy to us. 'Will You not revive us again?' You love to see us happy and You are, Yourself, the Happy God! Oh, make us happy, too, by reviving us, 'that Your people may rejoice in You'!"
 
-Show us Your mercy, O LORD, and grant us Your salvation. So far, the Psalm is a prayer. Now the Psalmist seems to stop and wait for the answer to his supplication. Beloved, always do that when you pray. When you have spoken to God, wait for Him to speak to you. Do not let it appear that your prayer needs no answer, but really expecta reply to it and then, in patience and in silence, wait for it.
+Show us Your mercy, O Lord, and grant us Your salvation. So far, the Psalm is a prayer. Now the Psalmist seems to stop and wait for the answer to his supplication. Beloved, always do that when you pray. When you have spoken to God, wait for Him to speak to you. Do not let it appear that your prayer needs no answer, but really expecta reply to it and then, in patience and in silence, wait for it.
 
-I will hear what God the LORD will speak: for He will speak peace unto His people, and to His saints: but let them not turn again to folly. For, if they do, their darkness will return and they will again have to mourn their Lord's absence. Perhaps the rod will fall more heavily upon them and their souls will sink into a deeper despondency. For a Christian to once be a fool, is a sad thing, but for him to turn again to folly is a multiplied form of iniquity which God will surely punish!
+I will hear what God the Lord will speak: for He will speak peace unto His people, and to His saints: but let them not turn again to folly. For, if they do, their darkness will return and they will again have to mourn their Lord's absence. Perhaps the rod will fall more heavily upon them and their souls will sink into a deeper despondency. For a Christian to once be a fool, is a sad thing, but for him to turn again to folly is a multiplied form of iniquity which God will surely punish!
 
 Surely his salvation is near them that fear Him; that glory may dwell in our land. O beloved Brothers and Sisters, lay hold on that salvation which is near you and exalt in it! And even now let your spirits feel the glow of His glory shining in your soul!
 
@@ -120,4 +120,4 @@ Truth shall spring out of the earth. Promises which lay hidden in God's Word, li
 
 And righteousness shall look down from Heaven. As if so pleased with the state of things brought about by the atoning Sacrifice of Christ that it flung up the windows of Heaven to look down and see this great sight! "Righteousness shall look down from Heaven."
 
-12, 13. Yes, the LORD shall give that which is good; and our land shall yield her increase. Righteousness shall go before Him; andshall set us in the way ofHis steps. May God thus revive us, by His Holy Spirit, for Christ's sake! Amen.
+12, 13. Yes, the Lord shall give that which is good; and our land shall yield her increase. Righteousness shall go before Him; andshall set us in the way ofHis steps. May God thus revive us, by His Holy Spirit, for Christ's sake! Amen.

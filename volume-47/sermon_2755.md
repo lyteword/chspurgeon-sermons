@@ -50,7 +50,7 @@ Once more, will you be prepared to defend Him?\f Jesus comes to a house, it beco
 
 Yes, dear Friends, if the Lord Jesus Christ should come to your house, you must say, "It shall be my heart's ambition, as long as I live, to defend His cause by the holiness of the character which I trust His Holy Spirit will work in me." If this is the case with any of you, then He must stay at your house tonight. God grant that He may do so!
 
-Now I must close by reminding you of WHAT WILL HAPPEN IF CHRIST COMES TO STAY IN YOUR
+Now I must close by reminding you of WHAT WILL HAPPEN IF Christ COMES TO STAY IN YOUR
 
 HOUSE.
 
@@ -85,7 +85,7 @@ Other refuge have I none,
 
 Hangs myhelpless soul on You!" So, Christ of God, we cast ourselves into Your arms! Save us, save us, save us for Your sweet mercy's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE18:36-43; 19:1-10.
+Exposition by C. H. Spurgeon: Luke18:36-43; 19:1-10.
 
 Luke 18:35-38. And it came to pass, that as He was come near unto Jericho, a certain blind man sat by the wayside begging. And hearing the multitude pass by, he asked what it meant And they told him, that Jesus of Nazareth passes by. And he cried, saying, Jesus, You son of David, have mercy on me! He did not need to be told twice who was passing by, nor did he need any exhortation to seek Christ's help. It was enough for him that Jesus of Nazareth was near him, so he would cry to Him for the help He alone could give. Oh, that we were half as sensible! Oh, that the blindness did not get into men's hearts! If it were not so, every blind soul would at once begin to cry to God for mercy! There is not one poor sinner here who knows that Jesus often passes this way, who would not begin at once to cry, "You Son of David, have mercy on me."
 

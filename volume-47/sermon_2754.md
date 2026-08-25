@@ -44,7 +44,7 @@ I will give you one more picture and then I think I shall have described this wi
 
 My Hearer, are you in such a position? Then, remember that the Son of Man has come to seek and to save that which was lost and that you are one of those whom He came to save, for you are manifestly lost. He will never be disappointed with the result of His work! Those whom He come to save, He will save and if you trust Him, He will save you! You shall be brought in among His redeemed people here on earth and you shall see His face and rejoice in His great salvation in the day when He Shall come in the Glory of His Father with all His holy angels with Him!
 
-Now, note the next division of the passage&mdash;GOD's MATCHLESS CONSOLATIONS.
+Now, note the next division of the passage&mdash;God's MATCHLESS CONSOLATIONS.
 
 Does He bring her into the wilderness that she may be the prey of the vultures, or that the jackals may devour her? Oh, no! He brings her there that He may "speak comfortably to her." You see how the two things go together. There is a precious golden band in the text&mdash;a band which neither death nor Hell can ever shatter, which, like a sacred rivet or heavenly link, joins the two sentences together. "I will bring her into the wilderness"&mdash;that is true, we know&mdash;"and I will speak comfortably to her." That is also true. The two are linked together and cannot be separated. Those who are brought into such a wilderness as I have described, shall hear the comforting words of Jehovah spoken to their hearts!
 
@@ -88,7 +88,7 @@ There is never any good done in that way. There are more flies caught with honey
 
 Go, Beloved, and lure others to Christ! And may God the Holy Spirit bless each one of you! If in the wilderness, may He speak comfortably to you. If hardened in your sin, may He bring you into the wilderness! And if He has already spoken comfortably to you, may He help you to speak comfortably to others! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE9:51-56'
+Exposition by C. H. Spurgeon: Luke9:51-56'
 
 Verse 51. And it came to pass, when the time was come that He should be received up, He steadfastly set His face to go to Jerusalem. It is a very remarkable expression that is used here&mdash;"when the time was come that He should be received up." It does not say, "that He should depart," or, "that He should die." It leaps over that and speaks only of His glorious Ascension into Heaven! When that time was drawing near&mdash;and, of course, His death would come before it&mdash; Christ "steadfastly set His face to go to Jerusalem," where He knew that He should die upon the Cross.
 

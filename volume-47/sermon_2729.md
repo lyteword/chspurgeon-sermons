@@ -40,7 +40,7 @@ Another thing which we may learn from our Lord Jesus Christ having shown Himself
 
 Now I want to talk to you, though only for a few minutes, about Christ's transfigured face, concerning which our text says, "His face did shine as the sun."
 
-First, from this Truth of God we learn that JESUS CHRIST IS THE SAME IN HIS GLORY AS HE WAS BEFORE.
+First, from this Truth of God we learn that Jesus Christ IS THE SAME IN HIS GLORY AS HE WAS BEFORE.
 
 He was transfigured, but He was not transformed into another person. Matthew says that "His face did shine as the sun." Then, His face was the same as it was before. It was His face that the Apostles saw. All the familiar features of His
 
@@ -58,7 +58,7 @@ O Beloved, have you known Christ here? Then you shall know Him hereafter! Have y
 
 Oh, yes! You shall see the nail-prints shine resplendent and you shall know that He is, indeed, your old familiar Savior who was with you on earth&mdash;and now you are to be with Him forever in Heaven!
 
-Our text also teaches us a second lesson, namely, that THE GLORY OF CHRIST SURPASSES ALL HUMAN EXPRESSION.
+Our text also teaches us a second lesson, namely, that THE GLORY OF Christ SURPASSES ALL HUMAN EXPRESSION.
 
 We can measure the illuminating power of the gas that we burn. We talk of it as having so many candle-power, but will any gentleman who is quick at calculations compute for us the candle-power of the sun? No, that is a task he can never accomplish, for the sun has more light than all other lights put together. So far as we are concerned, all the lights that we can make or imagine cannot equal the sun&mdash;he is the very source of all the light that floods the world on our brightest days.
 
@@ -70,7 +70,7 @@ There is an inexpressible Glory about my Master&mdash;I can never exaggerate in 
 
 much in honor of your Lord." No, if all human tongues were eloquent and all did speak His praise forever&mdash;and if all angelic voices never spoke except to laud and magnify Him&mdash;so glorious is He that the praises of all combined would not rise above the soles of His feet!
 
-I gather from our text, in the third place, that THE GLORY OF CHRIST IS ALL MEANT TO CHEER AND
+I gather from our text, in the third place, that THE GLORY OF Christ IS ALL MEANT TO CHEER AND
 
 TO ENLIGHTEN.
 
@@ -82,7 +82,7 @@ Israel."
 
 Jesus, also, like the sun, is a great Healer The Italians say, "Where the sun comes not, the physician will soon come," but where the sun shines, his beams usually bring at least a measure of health to men. So, where Jesus is, there the sick revive, for healing is found beneath His wings. Thus the face of Jesus is as the rays of the sun, scattering no malicious vapor, no deadly darts of baleful wrath, but only goodness and love. Oh, that we would all look, by faith, upon His blessed face and receive all the benefits that He is waiting and willing to bestow upon us!
 
-I am obliged to speak very briefly upon each point where one might enlarge almost without end, so I ask you to notice, in the fourth place, that THE GLORY OF CHRIST IS SUCH THAT IT MAY BE REFLECTED BY US.
+I am obliged to speak very briefly upon each point where one might enlarge almost without end, so I ask you to notice, in the fourth place, that THE GLORY OF Christ IS SUCH THAT IT MAY BE REFLECTED by US.
 
 Everybody knows that the sun's light can be reflected. We owe much to reflected light. Well, the Glory of Christ is such that it can shine upon you so that you can see it and then, afterwards, you can reflect it, and refract it, and send it back upon others. You can give to others something of what Christ has given to you&mdash;and this is a very blessed thing. "For God, who commanded the light to shine out of darkness, has shined in our hearts, to give the light of the knowledge of the Glory of God in the face of Jesus Christ," in order that we may let that light shine out upon others!
 
@@ -90,7 +90,7 @@ John says, "We beheld His Glory, the Glory as of the Only Begotten of the Father
 
 There are some professors who do not reflect much credit upon their profession, I am sorry to say, and they generally blame the minister when this is the case. I sometimes wish that some of you Christians would be more careful as to what you do, because the blame for your inconsistencies often falls upon me. If I could do you any good by bearing it, I would not mind, but it is not so&mdash;you bring discredit upon the name of one who wishes to live to the Lord in the best way he can, and who has quite enough faults of his own without having all those of other people unjustly laid at his door. "Ah," say the fault-finders, "that is one of Spurgeon's people." Of course they do! And I am blamed for your wrong-doing, although I am not in the least responsible for it. If the sheep go astray because the shepherd has not done his best to keep them from wandering, blame him. But if he has done all he could and the sheep then stray, so that the dog has to go after them, do not say that the shepherd ought to have the dog set on him! O, Beloved, try to reflect the Glory of God so that people shall ask, "What makes that man's countenance so bright?" And the answer shall be, "He has set his face so close to the Well-Beloved's face that he reflects the light that shines from it."
 
-Lastly&mdash;for our time fails us&mdash;we learn that THIS GLORY OF CHRIST WILL SOON BE MORE FULLY DISPLAYED.
+Lastly&mdash;for our time fails us&mdash;we learn that THIS GLORY OF Christ WILL SOON BE MORE FULLY DISPLAYED.
 
 In Heaven, the glorified face of Jesus is always to be seen, for we are expressly told that, "His servants shall serve Him: and they shall see His face." Their eyes will be specially strengthened so that they can gaze upon it without injury&mdash;
 
@@ -109,7 +109,7 @@ Are you ready for His appearing? Say not, "It will be a long while before it hap
 
 That is another paradox. If it were really difficult, men would do it, but because it is so easy, they say they cannot. "If the Prophet had bid you do some great thing, would you not have done it?" said the servants to Naaman, their master. "How much rather, then, when he says to you, Wash and be clean?" And so, when the message is, "Look and live," you proud gentlemen want to have a much more elaborate system of salvation! You do not like to simply look to Christ, that you may be saved. But if there is a poor soul, anywhere, who is willing to have a whole Christ for nothing, he may have Him, and have Him now! Accept Him and God bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW16:24-28; 17:1-13.
+Exposition by C. H. Spurgeon: Matthew16:24-28; 17:1-13.
 
 Matthew 16:24, 25. Then said Jesus unto His disciples, If any man will come after Me, let him deny himself, and take up his cross, and follow Me. For whoever will save his life shall lose it: and whoever will lose his life for My sake shall find it This is the law of self-sacrifice, based on the Sacrifice of Christ and leading up to the complete sacrifice of the redeemed. We are not our own&mdash;we are bought with a price. To try to keep ourselves to ourselves would be acting con-
 

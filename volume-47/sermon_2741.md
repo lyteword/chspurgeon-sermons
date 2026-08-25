@@ -108,7 +108,7 @@ Lastly, one word to those who cannot say that they are saved. My dear Friends, t
 
 Go, then, my Brothers and Sisters, and spread the Doctrine of Salvation by Grace, for this old watchword of the Church is the source of her victory! And when once this shall be her battle-cry, her triumph is sure! The headstone of God's spiritual temple shall be brought forth with shouts, crying, "Grace, Grace unto it."
 
-EXPOSITION BY C. H. SPURGEON: 1 CORINTHIANS 12; 13:1-3.
+Exposition by C. H. Spurgeon: 1 Corinthians 12; 13:1-3.
 
 1 Corinthians 12:1, 2. Now concerning spiritual gifts, brethren, I would not have you ignorant You know that you were Gentiles, carried away unto these dumb idols, even as you were led. Although the members of the church at Corinth were highly favored with spiritual gifts, they do not seem to have known how to use them. Paul points out to them, in this chapter, how ignorant they were concerning the very gifts which they possessed. They did not know how to put them to proper use in the service of God. The Apostle, therefore, reminds these gift-exalted Corinthians that, only a little while before, they were heathens, carried away by lies and superstition, and worshipping dumb idols. They had nothing, therefore, to boast of and it is probable that if we look back to the hole of the pit from where we were dug, we shall find no more occasion for boasting than they had.
 

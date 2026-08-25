@@ -72,7 +72,7 @@ Further, we become akin to the Divine Spirit by being born of God and the Holy S
 
 Now, Brothers and Sisters, listen to these words. Do you not see that you must overcome the world or else you will perish? But you cannot overcome the world as you are. You must, therefore, be born-again! Your only hope lies in your being born of God! And this, if it is to take place, must be God's work. It is God alone who can do it, so you are like ships on their beam-ends&mdash;you cannot "right" yourselves. Cry, therefore, with your whole heart to God and ask Him to work this miracle in you! "Salvation is of the Lord." He can save you. He can take away the heart of stone out of your flesh and give you a heart of flesh. He can breathe upon the dry bones and make them live. Yes, He, the mysterious Father of our spirits, can create in us a new spirit that shall be begotten of Himself and be like unto Himself&mdash;and this we must have&mdash;or we can never overcome the world.
 
-Now, thirdly, and lastly, I have to speak of THE CONQUERING WEAPON WHICH IS USED BY THIS NEW NATURE. "This is the victory that overcomes the world&mdash;our faith."
+Now, thirdly, and lastly, I have to speak of THE CONQUERING WEAPON WHICH IS USED by THIS NEW NATURE. "This is the victory that overcomes the world&mdash;our faith."
 
 It never entered into my head that the most of professing Christians would ever overcome the world. I do not think they ever will, for the world has, to a large extent, overcome them. You may hear some of them asking, "How far may we go in worldly amusements?" You really want to go, do you not? Then go, for it does not matter much where such people
 

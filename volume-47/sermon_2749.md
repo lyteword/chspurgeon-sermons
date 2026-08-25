@@ -18,7 +18,7 @@ Ah, my dear Friend! If you have been so distinguished by the Grace of God, you o
 
 and as Rehoboam "did not prepare his heart to seek the Lord," Satan found him evil to do and he did it!
 
-So I judge that this expression means, first, that HE DID NOT BEGIN LIFE WITH SEEKING THE LORD.
+So I judge that this expression means, first, that HE DID NOT BEGIN LIFE WITH SEEKING THE Lord.
 
 His father, Solomon, did when he found himself lifted up to the throne of Israel while he was yet a young man. Solomon spread his case before the Lord and asked for wisdom and, in consequence, taking it as a whole, his reign was a grand one, and his kingdom attained to a high state of prosperity. He was faithful to the worship of Jehovah, in the main, though there was a sad turning aside to idols. But he acted wisely in most of his ways, so that the wisdom of Solomon became proverbial. That result was due to the fact that God gave him "wisdom and understanding exceeding much, and largeness of heart, even as the sand that is on the seashore." He asked of God wisdom and God gave it to him. But this foolish son of his asked not for wisdom. The scepter was there, so he grasped it! There was an empty throne, so he sat down upon it. I daresay he fancied it was a very fine thing to be king over Israel and his thoughts did not go much beyond the mere external pomp and splendor of royalty. He did not intend any ill, but he was not very determined upon doing that which was right. And probably he never thought of commencing his career by asking the blessing of God upon it. I hope no one whom I am addressing would resolve to lead a bad life, but, mind you, it may happen to you, as it did to Rehoboam, that the summary of your life will be, "he did evil because he did not prepare his heart to seek the Lord."
 
@@ -85,7 +85,7 @@ O dear Friends, is not this Rehoboam a specimen of a great many people who are n
 
 The last point involved in this description of Rehoboam is this&mdash;HE HAD NO CARE ABOUT SERVING
 
-GOD.
+God.
 
 He did not care whether he served the Lord or not and, as to serving Him in a right spirit, that never entered into his head. He never "prepared his heart." If he went to a service&mdash;well, he was there, but that was all. Some people who have come here tonight never thought of breathing a prayer before they came, nor after they entered the building. They would even venture, if we allowed them, to partake of the Communion at the Lord's Table without self-examination and without prayer&mdash;they do everything without any preparation of the heart.
 

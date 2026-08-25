@@ -2,7 +2,7 @@
 
 "Whom God has raised up, having loosed the pains of death, because it was not possible that He should be held by it." Acts 2:24.
 
-PETER is here speaking of the risen Christ, whom God had raised up, "having loosed the pains of death." So it is clear that whatever those pains were, our blessed Lord Jesus Christ felt them&mdash;He felt them much more than His followers do, for, in His death-agony, He was left without the sustaining help of God and the light of His Father's Countenance was hidden from Him. His death was a bitter one, indeed! He took the deepest draughts of wormwood and gall, for He had to "taste death for every man," whatever that mysterious expression may mean. We must never imagine that there was about Christ's death anything which took away from its bitterness. There was much that increased it, but nothing that diminished it. He was bound, as with strong cords, by the pains of death. All His powers were, for a time, fettered. He was held captive and He did really die. After death, He was buried. But there was this remarkable fact about His dead body&mdash;it saw no corruption. In the case of ordinary corpses, corruption begins very speedily. In a climate like that of Jerusalem, it is very quick in doing its work of dissolving the mortal fabric. But, although our Lord did truly die, no taint of corruption came upon His precious body.
+Peter is here speaking of the risen Christ, whom God had raised up, "having loosed the pains of death." So it is clear that whatever those pains were, our blessed Lord Jesus Christ felt them&mdash;He felt them much more than His followers do, for, in His death-agony, He was left without the sustaining help of God and the light of His Father's Countenance was hidden from Him. His death was a bitter one, indeed! He took the deepest draughts of wormwood and gall, for He had to "taste death for every man," whatever that mysterious expression may mean. We must never imagine that there was about Christ's death anything which took away from its bitterness. There was much that increased it, but nothing that diminished it. He was bound, as with strong cords, by the pains of death. All His powers were, for a time, fettered. He was held captive and He did really die. After death, He was buried. But there was this remarkable fact about His dead body&mdash;it saw no corruption. In the case of ordinary corpses, corruption begins very speedily. In a climate like that of Jerusalem, it is very quick in doing its work of dissolving the mortal fabric. But, although our Lord did truly die, no taint of corruption came upon His precious body.
 
 The reason for that was, first, because it was not necessary. Corruption is not a part of the sentence which Christ had to bear. The penalty of sin is death&mdash;and that He bore to the utmost. But there was no necessity that He should also endure the usual consequences of death and, therefore, although He died, His flesh was not permitted to see corruption.
 
@@ -12,7 +12,7 @@ And, further, it was not even natural that the body of Christ should see corrupt
 
 "He is altogether love1y." So, although He really died and His body was laid in the tomb as the dead usually are, yet, inasmuch as it was preserved from corruption, it is marked out as being above and different from all the rest.
 
-I am now going to speak upon the fact mentioned in the text, that IT WAS NOT POSSIBLE THAT THE BONDS OF DEATH SHOULD HOLD OUR LORD. God raised Him up, "having loosed the pains of death, because it was not possible that He should be held by it."
+I am now going to speak upon the fact mentioned in the text, that IT WAS NOT POSSIBLE THAT THE BONDS OF DEATH SHOULD HOLD OUR Lord. God raised Him up, "having loosed the pains of death, because it was not possible that He should be held by it."
 
 Why was it impossible that the bonds of death should hold Christ? There are several reasons. The first is that Christ had in Himself the inherent power to die, and to live again. I will not enlarge upon this Truth of God, but simply give you our Lord's own Words concerning it. "Therefore does My Father love Me, because I lay down My life, that I might take it again. No man takes it from Me, but I lay it down of Myself. I have power to lay it down, and I have power to take it up again. This commandment have I received of My Father." Now, in the realms of the dead, before that time, there had never been seen any person who had the inherent power to take up his life again. Neither had there ever been one there who had possessed the inherent power to lay down his life when he pleased, for no mere man has ever been the absolute master of his own life&mdash;so that our Lord Jesus was the first who ever entered the portals of the tomb bearing within Himself the power to rise again whenever He pleased.
 
@@ -40,7 +40,7 @@ Then, too, if He had never risen and gone up to Heaven in His human body, we wou
 
 Further, if Christ's body had remained in the grave, there could have been no reign of Christ, and no sitting down at the right hand of God as there now is. He would have been in Heaven in the same respect as He is here as God&mdash;but there would have been no visible appearance of the representative Man, and the once-crucified Redeemer&mdash;and the ransomed ones could not have sung, "For You were slain and have redeemed us to God by Your blood," for He would not have been there to hear the song! They might have remembered the Sacrifice on Calvary, but He, as the Lamb that had been slain, wearing the marks of His priesthood and death, would not have been there.
 
-Now I pass on to my second observation, which is that, AS CHRIST COULD NOT BE HELD BY THE BONDS OF DEATH, HE COULD NOT BE HELD BY ANY OTHER BONDS.
+Now I pass on to my second observation, which is that, AS Christ COULD NOT BE HELD by THE BONDS OF DEATH, HE COULD NOT BE HELD by ANY OTHER BONDS.
 
 If He was more than a match for death, who or what shall ever be able to stand against Him? Death, the slaughterer of all mankind, before whom kings and princes, as well as the meanest of their subjects, lie prostrate in the tomb&mdash;death, before whom giants bend as a rush sways to and fro in the wind&mdash;even death is vanquished by Christ! He is the destroyer of destruction, and the death of death! Then what power can possibly stand in opposition to Him? I want to cheer you,
 
@@ -56,7 +56,7 @@ Since then we have come to times in which wealth, and rank, and fashion, andpres
 
 Now, in closing my discourse, there is a Truth of God upon which I wish to insist with great earnestness. It is
 
-this&mdash;AS CHRIST COULD NOT BE HELD BY THE BONDS OF DEATH, IT IS NOT POSSIBLE TO KEEP IN BONDAGE ANYTHING THAT BELONGS TO HIM.
+this&mdash;AS Christ COULD NOT BE HELD by THE BONDS OF DEATH, IT IS NOT POSSIBLE TO KEEP IN BONDAGE ANYTHING THAT BELONGS TO HIM.
 
 You remember that when Pharaoh told Moses that the men among the children of Israel might go into the wilderness to offer sacrifice, he said that they must leave their little ones behind. But Moses would not accept that condition. The next time Pharaoh said, "Go, serve the Lord; only let your flocks and your herds be stayed: let your little ones also go with you." But Moses answered, "You must give us also sacrifices and burnt offerings, that we may sacrifice unto the Lord our God. Our cattle also shall go with us; there shall not an hoof be left behind." All that was of Israel was to go with Israel&mdash;and that is still our Master's will and way. "Where I am," He says, "there shall My people be also. If I am in the grave, they must be in the grave, too, buried with Me. If I rise, they also shall rise, for I will not rise without them. And if I go to Heaven, I will not go without them." This is our joy! And with dear old Rowland Hill we can sing&mdash;
 
@@ -84,7 +84,7 @@ We have buried many of the godly. There is many a Campo Santo round about this g
 
 for, as it is written, "A bone of Him shall not be broken." And it is not possible that they who are, as it were, the bones of His mystical body, should be held by the bonds of death! O happy people, who belong to Christ! God grant that we may all be numbered among them, for His great name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ACTS2.
+Exposition by C. H. Spurgeon: Acts2.
 
 Verse 1. And when the day of Pentecost was fully come, they were all with one accord in one place. The first lesson that we ought to learn from this Inspired record of what happened on the day of Pentecost is that we cannot expect a revival until there is unity among Christians. The Spirit of God will not visit and bless a church where there is strife. These disciples in Jerusalem "were all with one accord in one place," "in prayer and supplication," as the fourteenth verse of the previous chapter tells us.
 

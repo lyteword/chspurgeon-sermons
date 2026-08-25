@@ -82,15 +82,15 @@ Plead His promise, trust His Grace!" If I had to tell you of a hard master&mdash
 
 I have not to impose hard terms upon you. I do not come with threats of war and destruction. Mercy fills the Throne of God and wrath stands silently by. Oh, come and accept the mercy of your God! Some of you will do so, I know. The Lord shall lead you to do it by His gracious Spirit&mdash;and to His name shall be the praise forever. Amen and Amen!
 
-EXPOSITION BY C. H. SPURGEON: HOSEA 14.
+Exposition by C. H. Spurgeon: Hosea 14.
 
 According to the heading of this chapter, we have here, "an exhortation to repentance," and, "a promise of God's blessing."
 
-Verse 1. O Israel, return unto the LORD your God; for you have fallen by your iniquity Fallen into sorrow, fallen into shame, fallen into spiritual poverty, fallen into weakness of faith, fallen almost to destruction! Though you are Israel and God loves you, yet, "you have fallen by your iniquity," and the only possible way in which you can obtain restoration is to "return unto the Lord your God." Seek once again your Father's face. Cry, with the prodigal, "I will arise and go to my Father." "O Israel, return unto the Lord your God." You maydo so, for He bids you come back to Him. You should do so, for it was unwise of you to wander from Him&mdash;so end your wandering and return to Him. "Return unto the Lord your God." He is still "your God!" He denies not the sacred band which binds you to Himself. Though you have forsaken Him, yet still He bids you think of Him, not as a stranger, but as your God!
+Verse 1. O Israel, return unto the Lord your God; for you have fallen by your iniquity Fallen into sorrow, fallen into shame, fallen into spiritual poverty, fallen into weakness of faith, fallen almost to destruction! Though you are Israel and God loves you, yet, "you have fallen by your iniquity," and the only possible way in which you can obtain restoration is to "return unto the Lord your God." Seek once again your Father's face. Cry, with the prodigal, "I will arise and go to my Father." "O Israel, return unto the Lord your God." You maydo so, for He bids you come back to Him. You should do so, for it was unwise of you to wander from Him&mdash;so end your wandering and return to Him. "Return unto the Lord your God." He is still "your God!" He denies not the sacred band which binds you to Himself. Though you have forsaken Him, yet still He bids you think of Him, not as a stranger, but as your God!
 
 O child of God, are you just now very heavy in heart because of your backsliding? Is the lamp of spirituality burning very low? Do you feel as if you had got into a state of spiritual barrenness? Then return&mdash;return at once&mdash;unto the Lord your God, for your sad condition is due to your iniquity!
 
-Take with you words, and turn to the LORD: say unto Him. He puts the Words into our mouths, for He knows that sometimes we feel as if we cannot give proper expression to our repentance. We feel it, but we cannot utter it, so He puts the very form of the confession into His children's mouths&mdash;"Take with you words, and turn to the Lord: say unto
+Take with you words, and turn to the Lord: say unto Him. He puts the Words into our mouths, for He knows that sometimes we feel as if we cannot give proper expression to our repentance. We feel it, but we cannot utter it, so He puts the very form of the confession into His children's mouths&mdash;"Take with you words, and turn to the Lord: say unto
 
 Him"&mdash;
 

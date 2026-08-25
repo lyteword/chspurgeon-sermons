@@ -85,7 +85,7 @@ That were his wages for making the chain! Here is a meditation for you tonight, 
 
 There is a subject for your meditation! I do not think it will be sweet, but if God makes it profitable, it will do you good. You sometimes must have strong medicines when the disease is bad. God apply His own Word to your hearts, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 5.
+Exposition by C. H. Spurgeon: 1 John 5.
 
 Verse 1. Whoever believes that Jesus is the Christ is born of God. These are very simple words, but they contain a great depth of meaning. The teaching conveyed by this Epistle is very profound, though the language is such as even a child can understand. There must be faith in Jesus Christ as the anointed Son of God&mdash;otherwise there is no new birth, no regeneration by the Holy Spirit.
 
@@ -131,4 +131,4 @@ Amen. And we say, "Amen. So let it be."
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-RIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+RIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

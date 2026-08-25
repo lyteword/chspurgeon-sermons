@@ -94,7 +94,7 @@ Lastly, we ought especially to adore the love and mercy of God in that His plan 
 
 The Lord bless you, Beloved, and give you to know all this in your own souls, for His dear Son's sake! Amen.
 
-EXPOSITION BY C H. SPURGEON: ROMANS 5:6-21.
+Exposition by C H. Spurgeon: Romans 5:6-21.
 
 Verse 6. For when we were yet without strength, in due time Christ died for the ungodly. This is one of the most surprising sentences on record. If it had not been Inspired, there are many who would quibble at it. Indeed, many do quibble at it even now, for it is still currently believed that Christ must have died for the righteous. Yet thus is it written&mdash;"In due time Christ died for the ungodly." And this is the commendation of that death, and of the love which suggested it!
 

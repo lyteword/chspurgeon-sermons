@@ -16,7 +16,7 @@ This short text is one from which I have often preached to you. I notice that th
 
 brought all that wealth to the surface&mdash;and that may take your whole lifetime&mdash;someone else may sink another shaft and open up a fresh vein!
 
-I shall try to explain the text, first, by showing you that OUR LOVE TO GOD IS a FACT WHICH DESERVES AN AVOWAL.
+I shall try to explain the text, first, by showing you that OUR LOVE TO God IS a FACT WHICH DESERVES AN AVOWAL.
 
 Is it a fact with you, dear Friend, or is it not? Let every one of us answer this question for himself or herself. With some of us, blessed be God, it is a fact that we do love God&mdash;it is a fact that is worth speaking out and worth writing down. The Holy Spirit, Himself, thought it worthwhile to move John to write down for himself and for his brethren, "We love Him." Some feel that they must honestly confess that they do notlove the Lord and there may be others who are quite indifferent as to whether they love Him or not. But there are some who must avow their affection for Him. The very stones in the street would cry out against them if they did not confess their love to their Lord! They feel compelled to say, in the face of all the world, "We love Him." They do not say it boastingly, for they give the reason why they love Him&mdash;"because He first loved us"&mdash;a reason drawn from the Grace of God which prevents anything like boasting concerning it. Yet, trustfully, boldly, unhesitatingly, they do say outright, so that whoever will, may hear it, "'We love Him.' Others may not, but we do, and we gather together as a company of people who are agreed upon this point, 'We love Him.' We love God especially as He is revealed to us in the Person of Jesus Christ, His only begotten and well-beloved Son, who loved us and gave Himself for us."
 
@@ -84,7 +84,7 @@ thoughts may fly here and there during the day, but when you get home they come 
 
 But our love to Christ, though it is, in itself, a simplicity, is based upon a great mystery. The mystery is that He should ever have loved us at all. Can anybody tell us how it was that Christ ever began to love us? I sometimes fancy that I could explain why Jesus Christ loved some of you, but I cannot make out why He ever loved me&mdash;that is a matter which I must leave until I see Him. But I suppose it was because He would do it&mdash;because His own Sovereign Will so determined. Certainly, I cannot conceive of any other cause. And if any of you ever think that you were saved because you were better than other people, or that you owe the first advances towards being saved to your own free will&mdash;well, I am glad if there are any such good people about, but I know that it was not so with me! And I think that the most of God's people will say, "No, no, no, no! If there is any difference between us and others, it is the Grace of God that has made it, so let Him have all the glory of it." There is a difference between some of us and others whom we know&mdash;and whoever made it ought to have the crown for it. If you made it yourself, Brother, you can claim the crown. But I know that you will not do that if you are really a lover of the Lord, but that you will cry with us, "Not unto us, O Lord, not unto us, but unto Your name give Glory, for Your mercy, and for Your truth's sake." So I conclude that we are all agreed that the difference between us and our former selves, and our old companions, is one which Sovereign Grace has made&mdash;and that this is a great mystery&mdash;although our love in return for it is a simplicity.
 
-I can only give you just a few sentences upon our last point, which is this&mdash;OUR LOVE IS a FORCE SUSTAINED BY a HIGHER FORCE.
+I can only give you just a few sentences upon our last point, which is this&mdash;OUR LOVE IS a FORCE SUSTAINED by a HIGHER FORCE.
 
 Our love is a force. If you truly love God, you feel it to be so. It is a force that comforts and emboldens us. Out of love to God, we feel that we can even dare the devil to do his worst against us. When love fills us to the fullest, it makes us courageous.
 
@@ -100,7 +100,7 @@ Then, do you not see, Brothers and Sisters, if there is such a force as this to 
 
 Strong Son of God&mdash;immortal love, nor pain, nor grief, nor bloody sweat, nor death, itself, could stop You and, by Your sacred passion, we implore You to let Your love drop into our souls till we, too, shall become strong, like Yourself, according to our measure, and shall be able to contend for You, to suffer for You, to live for You and to die for You, all the while giving this as the explanation of it all&mdash;"We love Him, because He first loved us"! God bless you, Beloved, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 4
+Exposition by C. H. Spurgeon: 1 John 4
 
 Verse 1. Beloved, believe not every spirit a simpleton believes every word that he hears, but "the wise man's eyes are in his head," so he examines what he sees and hears, and does not blindly accept whatever may be told to him. So John says, "Believe not every spirit."
 
