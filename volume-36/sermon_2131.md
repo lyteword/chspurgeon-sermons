@@ -29,7 +29,7 @@ They may begin, even now, I say, to make ready for this festival and by Divine G
 
 So I will begin by saying, first, that as in the case before us in the text, so at this very time, THERE ARE
 
-SEASONS WHEN WE FEEL UNFIT FOR THE SACRED ORDINANCE OF THE LORD's TABLE. It may be that at
+SEASONS WHEN WE FEEL UNFIT FOR THE SACRED ORDINANCE OF THE Lord's TABLE. It may be that at
 
 this hour there are many in the congregation who are not sanctified for the feast and are not cleansed according to the due order. I speak not of you all&mdash;there are choice spirits in this place who "walk in the light, as God is in the light," and have fellowship with God perpetually&mdash;so that the blood of Jesus cleanses them from all sin.
 

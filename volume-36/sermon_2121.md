@@ -91,7 +91,7 @@ I will praise Him in life; I will praise Him in death; And praise Him as long as
 
 Thus have I shown you the blessed occupation and the commendable manner of it. May the Holy Spirit help us to love praise and live praise till we perfect praise!
 
-But I ask your attention earnestly for a minute to a third point and that is THE SACRED OBJECT of this blessing. The text is, in the original, "Bless Jehovah, O my Soul." In the reading of the Psalms, as a rule, I frequently put the word, "Jehovah," before you instead of, "the Lord," for you know that wherever we get, the "LORD," in capital letters, it is "Jehovah" in the original&mdash;and why should we not know that the sacred name is used by the inspired writer?
+But I ask your attention earnestly for a minute to a third point and that is THE SACRED OBJECT of this blessing. The text is, in the original, "Bless Jehovah, O my Soul." In the reading of the Psalms, as a rule, I frequently put the word, "Jehovah," before you instead of, "the Lord," for you know that wherever we get, the "Lord," in capital letters, it is "Jehovah" in the original&mdash;and why should we not know that the sacred name is used by the inspired writer?
 
 I am afraid that a great many so-called Christians do not worship Jehovah at all. The god of the present period is a new god, newly sprung up. The Old Testament is looked upon by some as if it were a worn-out Book and the God of Israel is regarded as a deity of the olden time and not the only living and true God. "Ah!" they say, "He is a very imperfect Revelation" and then they go on to reverence their own effeminate version of the Godhead.
 

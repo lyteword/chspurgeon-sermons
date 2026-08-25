@@ -29,7 +29,7 @@ On this occasion I wish to speak of good works worked on Jesus and therefore I s
 
 These, owing as they do, so much to their Lord, are those to whom I would speak now, and say, Render unto Him good works that shall terminate in Him and shall be made to express your love to Him. Good works worked upon Jesus or solely in reference to Him are to be our subject. Very briefly we shall notice the feelings prompting this kind of service. Secondly, we shall mention modes of such service. Thirdly, we shall give counsel or careful notes to be observed in such service. And then we shall conclude with a word by way of defense of service of this sort.
 
-And first, THERE ARE FEELINGS WHICH PROMPT TRUE BELIEVERS TO DO WORKS AS UNTO CHRIST. To bring forth these peculiar services, certain feelings move within the Believer's bosom. The first and the most powerful, probably, is gratitude. "We love Him because He first loved us." He lived for us. He died for us. He rose for us. He pleads for us. We owe all to Him.
+And first, THERE ARE FEELINGS WHICH PROMPT TRUE BELIEVERS TO DO WORKS AS UNTO Christ. To bring forth these peculiar services, certain feelings move within the Believer's bosom. The first and the most powerful, probably, is gratitude. "We love Him because He first loved us." He lived for us. He died for us. He rose for us. He pleads for us. We owe all to Him.
 
 The natural impulse of the renewed heart is to say, "What can I do for Him? I love His people, but I love Him best. I love His ministers, but He is beyond them all. I love His cause on the earth, but I love Him better. While I owe much to His Church and to His ministers, I owe most to Him. I want to tell Him how I love Him. I want to show Him, by some direct act done for Him, that my heart adores Him for all that He has done for me."
 
@@ -113,7 +113,7 @@ I suggest this to you&mdash;I cannot teach you how to do it. God's Holy Spirit m
 
 But time fails me and therefore I must, thirdly, and with extreme brevity, OFFER YOU a WORD OR TWO OF
 
-ADVICE ABOUT DOING GOOD WORKS FOR JESUS. Take care that self never creeps in. It is to be all for Jesus&mdash;let
+ADVICE ABOUT DOING GOOD WORKS FOR Jesus. Take care that self never creeps in. It is to be all for Jesus&mdash;let
 
 not the foul fingers of self-seeking stain your work. Never do anything for Jesus out of love for popularity. Be always glad if your right hand does not know what your left hand does. Hide your works as much as possible from the praise of the most judicious friend.
 
@@ -127,7 +127,7 @@ It is the devil's logic which says, "You see I cannot come out and avow the Trut
 
 I will not detain you longer, but just close by saying that THERE IS a GOOD DEFENSE FOR ANY KIND OF
 
-WORK WHICH YOU MAY DO UNTO JESUS AND UNTO JESUS ONLY. However large the cost, nothing is wasted
+WORK WHICH YOU MAY DO UNTO Jesus AND UNTO Jesus ONLY. However large the cost, nothing is wasted
 
 which is expended upon the Lord, for Jesus deserves it. What if it did no service to any other&mdash;did it please Him? He has a right to it! Is nothing to be done for the Master of the feast? Are we to be so looking after the sheep as never to do honor to the Shepherd? Are the servants to be cared for and may we do nothing for the Well-Beloved Lord Himself?
 

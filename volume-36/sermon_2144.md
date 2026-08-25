@@ -19,7 +19,7 @@ A Church which grows so enlightened as to neglect the Doctrines of Grace also fa
 
 He so values this that He prays, "Father, keep them," and, "Father, sanctify them." May those two prayers be heard for us and then we shall stand with our loins girt, our shoes on our feet, our lamps trimmed and our lights burning&mdash; ready to go forth at the command of the Most High to the very ends of the earth. Our mission by Jesus grows out of His mission by the Father&mdash;and we may learn much about it by considering how the Father sent the Son to be the Savior of the world.
 
-I would open up this subject by asking you, first, WHAT OUR LORD's BEING SENT INVOLVED TO HIMSELF, for, to a large extent, there will be a parallel between His being sent and ours. The parallel is drawn by way of quality, not of equality. Christ's commission is on a higher scale than ours, for He was sent to be a Propitiation and Covenant-Head and so came into positions which it would be presumption for us to dream of occupying. Still, there is a likeness, though it is only that of a drop in the sea.
+I would open up this subject by asking you, first, WHAT OUR Lord's BEING SENT INVOLVED TO HIMSELF, for, to a large extent, there will be a parallel between His being sent and ours. The parallel is drawn by way of quality, not of equality. Christ's commission is on a higher scale than ours, for He was sent to be a Propitiation and Covenant-Head and so came into positions which it would be presumption for us to dream of occupying. Still, there is a likeness, though it is only that of a drop in the sea.
 
 Our Lord's mission involved complete subjection to the Father's will. He said, "My Father is greater than I"&mdash;this did not relate to His essential Nature and dignity as God, but to the position which He took up in reference to the Father when He was sent to be our Savior. He that sends is greater than He that is sent&mdash;the Savior took up that subordinate position that He might do the Father's will. From that time forth, so long as He remained under His commission, He did not speak His own words nor do His own deeds&mdash;but He listened to the Father's will&mdash;and what the Father said to Him He both spoke and did.
 
@@ -49,7 +49,7 @@ There may be other lawful objectives but these you render subsidiary to the one 
 
 "This is a high standard," says one. My Brothers and Sisters, it is none too high and it is sad that any should think it so. God help you to know that you are sent and clearly to perceive what your mission involves. We, too, are missioned from above! We, too, are to have a hand in the saving of the world!
 
-Secondly, having thus shown you the parallel so far, I now ask you to CONSIDER WHY OUR LORD WAS SENT INTO THE WORLD. Our Lord came here with one design. Christ was not sent to teach a correct system of
+Secondly, having thus shown you the parallel so far, I now ask you to CONSIDER WHY OUR Lord WAS SENT INTO THE WORLD. Our Lord came here with one design. Christ was not sent to teach a correct system of
 
 philosophy. He was not Plato, but Jesus&mdash;not a sage, but a Savior. He could have solved the problems of the universe but He did not even allude to them. He was not an Aristotle, ruling the world of human thought, although He could have done so easily had He chosen.
 
@@ -81,7 +81,7 @@ Do you think the worldlings, the skeptics, the critics will ever unite to spread
 
 If I belong to the tribe of Judah, I have to help my Brothers and Sisters to drive out the Canaanites from our portion. If you belong to the tribe of Issachar, or Benjamin, you must look to your own allotment and clear it of the enemy. Joshua is the leader, but every Israelite is in His army. Christ has power over all flesh, as the Head of the body, and He has given to each of His members a portion of His power so that each member of His body has power over some portion of the "all flesh," and that power must be used in the giving of eternal life to as many as the Father has given to Jesus! God grant that you may feel this and may go to your work as Christ went to His!
 
-This leads me a little further and I now invite you to CONSIDER HOW OUR LORD CAME, for this will show
+This leads me a little further and I now invite you to CONSIDER HOW OUR Lord CAME, for this will show
 
 us how we ought to go forward when we are sent. First, our Lord came with alacrity. The work of our Redeemer was no forced work. He was sent, but He willingly came&mdash;
 
@@ -102,7 +102,7 @@ Our Lord came with abiding resolve to go through with His mission to the end. He
 
 He that has been bought with the blood of Christ and knows it, feels that he must endure to the end&mdash;for only he that endures to the end shall be saved. We go because our Lord's sending constrains us. "Woe is unto me if I preach not the Gospel!" Woe is unto you if you do not teach the children, or speak to individuals, or write letters, or in some way fulfill your mission!
 
-Bear with me a little, while I bid you CONSIDER HOW OUR LORD BEHAVED AS THE SENT ONE. Oh, that we may learn from Him how to fulfill our own mission! Our Lord began early. While He was yet a youth, He said, "Know you not that I must be about My Father's business?" As soon as ever a man is converted, he should enquire, "Lord, what will You have me do?" Young Believer, do not let many weeks pass over your head before you have attempted something for your Lord. I will correct that exhortation&mdash;I wish you would not let a single day pass away without your bearing testimony for your Master.
+Bear with me a little, while I bid you CONSIDER HOW OUR Lord BEHAVED AS THE SENT ONE. Oh, that we may learn from Him how to fulfill our own mission! Our Lord began early. While He was yet a youth, He said, "Know you not that I must be about My Father's business?" As soon as ever a man is converted, he should enquire, "Lord, what will You have me do?" Young Believer, do not let many weeks pass over your head before you have attempted something for your Lord. I will correct that exhortation&mdash;I wish you would not let a single day pass away without your bearing testimony for your Master.
 
 But, next, our Lord waited very patiently. He was 30 years old before He preached openly. We do not know all that He did in the workshop at Nazareth. Is it not possible that He supported His widowed mother by His labor? We do not know, but of this we are sure, that it is the first duty of many young men to look after their parents. It is the duty of all to "show piety at home." Many Christian women will have done well if they have carried out home duties. She was a holy woman upon whose grave they placed this epitaph, "She made home happy." This is what Jesus did for the first 30 years of His life. He was doing the Father's will when He was a young Man at home.
 

@@ -21,7 +21,7 @@ As for himself, he did not claim that degree of perception and profundity which 
 
 Nor was this all, he was a willing worker, for he spoke prophetically in the name of the Lord. Nor do we even end here, for from this short writing it is clear that he was a joyful truster in God. Brutish as he judged himself to be, he rose into supreme content at every thought of God. Those four points I am going to handle at this time, as the Lord may help me by His Holy Spirit.
 
-The first is this&mdash;a SENSE OF INFERIORITY MUST NOT KEEP US BACK FROM FAITH IN GOD. I will suppose that someone here is saying, "Surely I am more stupid than any man and have not the understanding of a man." Our text brings before us a wise man who said this of himself and yet he had firm faith in God! If we have to say what Agur said, let us also trust as Agur did! If only wise men might put their trust in God, what would become of nine out of 10 of us? I hope there is nobody here so foolish as to say, "I could trust in God if I were a man of mark." Ah, Sirs! To be a man of mark is no help in the matter of faith!
+The first is this&mdash;a SENSE OF INFERIORITY MUST NOT KEEP US BACK FROM FAITH IN God. I will suppose that someone here is saying, "Surely I am more stupid than any man and have not the understanding of a man." Our text brings before us a wise man who said this of himself and yet he had firm faith in God! If we have to say what Agur said, let us also trust as Agur did! If only wise men might put their trust in God, what would become of nine out of 10 of us? I hope there is nobody here so foolish as to say, "I could trust in God if I were a man of mark." Ah, Sirs! To be a man of mark is no help in the matter of faith!
 
 I hope no one is so silly as to say, "If I were possessed of great riches I could, then, come to Jesus." "How hardly shall they that have riches enter into the kingdom of God!" Nor may you say, "If I had great gifts I could trust in the Lord Christ." Talents involve responsibility but they do not help towards salvation. Gifts may even drag a man down&mdash;only Divine Grace can lift him up. The gifted man may be so full of pride that he may never submit himself to the free-Grace Gospel of our Lord Jesus.
 
@@ -79,7 +79,7 @@ The Lord will not give up one of the children of Zion as incorrigible. Dunces, w
 
 I have been very brief upon that second point and I must be much the same on the third: A SENSE OF
 
-INFERIORITY MUST NOT KEEP US BACK FROM SERVING GOD. What if, like Agur, we take the very lowest
+INFERIORITY MUST NOT KEEP US BACK FROM SERVING God. What if, like Agur, we take the very lowest
 
 place? Like he did, let us speak on God's behalf. Who knows, He may prophesy by us, also? Agur's simple word is called "the prophecy." If God shall speak by you, my Friend, your thinking so little of yourself will give a charm to your speech. If God shall use such as you are, He will have all the glory of it, will He not?
 
@@ -101,7 +101,7 @@ Next, if you are very little, you should, like the locusts, associate with other
 
 Have also a holy courage like the spider, who is in king's palaces. She is not satisfied with being hidden away in a barn or a cottage&mdash;she pays a visit to Solomon and makes her abode in his painted halls. If you can go anywhere for Christ, go and spin your web of Gospel from your inmost soul! Make up your mind that whatever company you are in you will begin to spin about Christ and spin a web in which to catch a soul for your Lord! In this way, though you fear you are more stupid than any man, God will make as much use of you as if you were the wisest of men! I pray you, O feeble one, render to your Lord such service as you can.
 
-Lastly&mdash;a SENSE OF INFERIORITY MUST NOT HINDER OUR FAITH IN THE LORD. Suppose you have to say, this morning, very groaningly, "I am more stupid than any man, I have not the understanding of a man." What then? Are you going to fret and worry about it? Will you, therefore, refuse to believe in your God? I do not see, if it is true to the fullest extent, that there is any reasonable cause for being cast down in reference to the Lord your God!
+Lastly&mdash;a SENSE OF INFERIORITY MUST NOT HINDER OUR FAITH IN THE Lord. Suppose you have to say, this morning, very groaningly, "I am more stupid than any man, I have not the understanding of a man." What then? Are you going to fret and worry about it? Will you, therefore, refuse to believe in your God? I do not see, if it is true to the fullest extent, that there is any reasonable cause for being cast down in reference to the Lord your God!
 
 Would you expect to be saved because you were not stupid? Would you look for Heaven because you had a fine understanding and could place a third of the letters of the alphabet at the end of your name? If everybody said, "What a highly cultured man this is!" do you think Heaven's gate would open any the more readily to you? You are on the wrong
 

@@ -115,7 +115,7 @@ nor your money put into the iron safe? What would you say about such Providences
 
 No, no, there are devil's providences as well as Divine Providences! And there are mistaken notions of Providence and wretched perversions whereby the Holy One of Israel is grossly insulted and provoked! Thus have I briefly given you three words of caution and the fourth is like unto them.
 
-WE MAY NOT EXCUSE OURSELVES IN DOING WRONG BY THE LAWFULNESS OF AN ACT IN ITSELF. What is right in another may not be right in me. That which another might do without offense may be a grievous wrong in a child of God.
+WE MAY NOT EXCUSE OURSELVES IN DOING WRONG by THE LAWFULNESS OF AN ACT IN ITSELF. What is right in another may not be right in me. That which another might do without offense may be a grievous wrong in a child of God.
 
 For the mariner to go to Tarshish was right enough. We do not say that in itself it was wrong to go by sea to Tarshish. There would be an end to trade if ships might not roam the watery plains. Yes, my dear Friend, it may be quite right for certain persons to pursue a course which you must not even think of! For the Tyrian sailors to go to Tarshish was their business, their calling, their duty&mdash;but it was very different with the Prophet. It was not Jonah's business, calling, or duty&mdash;why should he go to Tarshish? There is a solemn difference between being at sea in the path of duty and going there to escape service.
 
