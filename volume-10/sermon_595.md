@@ -87,7 +87,7 @@ In this process morality is promoted and men are civilized and improved. But thi
 
 I come in the third place, and O for some assistance from on high, to observe that THE SIN OF PREFERRING
 
-BARABBAS TO CHRIST WAS THE SIN OF EVERY ONE OF US BEFORE OUR CONVERSION. Will you turn over the leaves of your diary, now, dear Friends, or fly upon the wings of memory to the hole of the pit where you were lifted? Did you not, O you who live close to Christ, did you not once despise Him? What company did you like best? Was it not that of the frivolous, if not that of the profane?
+BARABBAS TO Christ WAS THE SIN OF EVERY ONE OF US BEFORE OUR CONVERSION. Will you turn over the leaves of your diary, now, dear Friends, or fly upon the wings of memory to the hole of the pit where you were lifted? Did you not, O you who live close to Christ, did you not once despise Him? What company did you like best? Was it not that of the frivolous, if not that of the profane?
 
 When you sat with God's people, their talk was very tedious. If they spoke of Divine realities and of experimental subjects, you did not understand them, you felt them to be troublesome. I can look back upon some whom I know now to be most venerable Believers, whom I thought to be a gross nuisance when I heard them talk of the things of God! What were our thoughts about? When we had time for thinking, what were our favorite themes? Not much did we meditate upon eternity. Not much upon Him who came to deliver us from the misery of Hell's torments. Brothers and Sisters, His great love with which He loved us was never laid to heart by us as it should have been.
 
@@ -103,7 +103,7 @@ It was mighty Grace which made us seek the Savior. And as we look back upon our 
 
 And now I shall come to the closing part of the sermon which is THAT THERE ARE DOUBTLESS MANY
 
-HERE WHO THIS DAY PREFER BARABBAS TO OUR LORD JESUS CHRIST. Let me first state your case, dear
+HERE WHO THIS DAY PREFER BARABBAS TO OUR Lord Jesus Christ. Let me first state your case, dear
 
 Friends. I would describe it honestly, but at the same time so describe it that you will see your sin in it. And while I am doing so, my object will be to reason with you, and pray the Lord may change your will.
 

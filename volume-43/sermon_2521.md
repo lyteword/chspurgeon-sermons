@@ -102,7 +102,7 @@ And heal it, if it be.'
 
 'Quicken me, O Lord, quicken me!'" And He will do it, for He has declared, "Him that comes to Me, I will in no wise cast out." May we all come to Him, now, and then shall we all meet in the Glory Land, by-and-by, through His Grace! Amen and Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:33-40.
+Exposition by C. H. Spurgeon: Psalm119:33-40.
 
 We have here some of the jottings from David's pocketbook, the notes of his experience as recorded in his diary. The whole Psalm is a great case full of golden rings. They all fit, one into the other, but each ring is also perfect in itself!
 

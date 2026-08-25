@@ -22,7 +22,7 @@ I have heard of pills for the earthquake and medicine for the comet&mdash;but I 
 
 Here it is&mdash;"Let the peace of God rule in your hearts, to which you are also called in one body; and be you thankful." If we dissect our text, we shall find, in it, four pieces of advice.
 
-First, POSSESS THE PEACE OF GOD&mdash;"Let the peace of God rule in your hearts." It cannot rule in your hearts if you have never felt its power! Therefore, make certain that you are truly reconciled to God by Jesus Christ. Many persons have peace, but, alas, it is false peace. They have the peace of a soft, gentle, timorous, time-serving charac-ter&mdash;a mean sort of peace, which, if it hurts no one else, often ruins its possessor. Some have the peace of ignorance, the peace of stupidity, the peace of utter indifference&mdash;false peace. These are the followers of those false prophets who cried, "peace, peace," where there was no peace. Woe to the man whose peace of mind is like the deadly smoothness of the current just as it nears the waterfall!
+First, POSSESS THE PEACE OF God&mdash;"Let the peace of God rule in your hearts." It cannot rule in your hearts if you have never felt its power! Therefore, make certain that you are truly reconciled to God by Jesus Christ. Many persons have peace, but, alas, it is false peace. They have the peace of a soft, gentle, timorous, time-serving charac-ter&mdash;a mean sort of peace, which, if it hurts no one else, often ruins its possessor. Some have the peace of ignorance, the peace of stupidity, the peace of utter indifference&mdash;false peace. These are the followers of those false prophets who cried, "peace, peace," where there was no peace. Woe to the man whose peace of mind is like the deadly smoothness of the current just as it nears the waterfall!
 
 Many are at ease in a condition which might make a wise man's hair turn gray in a night. They were never emptied from vessel to vessel and, therefore, they are settled upon their lees&mdash;but they shall be poured out to their utter confusion. They think right well of themselves, but already the axe of judgment is lifted against them. The peace that we need to possess is the peace of God, which means, I think, first, peace with God. Oh, what a blessed thing it is to feel that the great cause of quarrel between our fallen spirit and the great Spirit is taken away&mdash;that we are reconciled to God by the death of His Son&mdash;that sin, the great divider, has been cast into the depths of the sea and that there is established between us and God, a happy fellowship!
 
@@ -67,7 +67,7 @@ That is the peace of God! Win it, dear Friends, and wear it! By God's good Spiri
 
 But now let us consider the second piece of advice that grows out of the text. If you possess this peace of God, let it
 
-occupy the throne&mdash;LET THE PEACE OF GOD RULE IN YOUR HEARTS. In order to there being any peace in the
+occupy the throne&mdash;LET THE PEACE OF God RULE IN YOUR HEARTS. In order to there being any peace in the
 
 heart, or anywhere else, there must be a ruler. Those people who are for putting down all kings and principalities and powers may bid farewell to peace. Anybody who is inclined to anarchy should read Carlyle's, "French Revolution," with care and ask himself whether the worst king is not, after all, a great deal better than the despotism of the mob&mdash;the carnival of misrule wherein every man does that which is right in his own eyes&mdash;all eyes love darkness rather than light.
 
@@ -91,7 +91,7 @@ bulent&mdash;into any society, however discordant the elements may be&mdash;and 
 
 Once let the mind be thoroughly disturbed and unhinged before the Lord&mdash;and you are weak as any other man and you will say that which you will have to unsay&mdash;and you will do that which you would wish to wipe out with your tears! When rest of soul is gone, hard things are spoken and hard things are done which would not consort with communion with the tender Lord. Let the peace of God always rule, or otherwise you will not always be safe. Especially let the peace of God rule your affections! Be satisfied that you love God and that your heart cleaves to God and does not follow after any other. Be at peace with God as to your heart and, when that is so, and the affections are dominated by conscious love to God, it is then that you fight the battles of life with comfort to yourself and with honor to the name of Him to whom you belong.
 
-Very briefly, I want, in the third place, to say, STRENGTHEN YOURSELF, dear Friends, BY GOD's SPIRIT,
+Very briefly, I want, in the third place, to say, STRENGTHEN YOURSELF, dear Friends, by God's SPIRIT,
 
 WITH ARGUMENTS, in order that you may let the peace of God rule in your hearts and may be kept from any breach of that heavenly peace. Remember, you can only be happy in heart and healthy in spirit as long as you keep the peace of God. You are sure to become wretched and unhappy&mdash;you are sure to stumble, here and there, into faults&mdash;if that peace of God is gone. As you would be in the best possible condition for walking with God in joy while here, below, look to your peace. This is no mean argument&mdash;try to feel the force of it.
 

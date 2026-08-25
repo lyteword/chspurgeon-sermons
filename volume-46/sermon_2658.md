@@ -14,7 +14,7 @@ and there remained no strength in me: for my comeliness was turned in me into co
 
 But, now&mdash;and this will be our first head&mdash;it was necessary that they should be awake to see the glories of Christ Secondly, if you and I are to see the glories of Christ, it is necessary that we, also, should be awake, and that is more than can be said of all of us. I may say to some, "Let us not sleep as others do," for there are many who are so soundly sleeping that they are quite oblivious of the glories of Christ. When I have spoken on those two points, I want to close my discourse by showing you that this doctrine of the necessity of our wakefulness explains many things.
 
-"When they were awake, they saw His glory and the two men that stood with Him." So, first, IT WAS NECESSARY FOR THEM TO BE AWAKE TO SEE CHRIST's GLORY.
+"When they were awake, they saw His glory and the two men that stood with Him." So, first, IT WAS NECESSARY FOR THEM TO BE AWAKE TO SEE Christ's GLORY.
 
 It was necessary, first, that Christ's Transfiguration might be known to be a fact&mdash;not a dream, nor a piece of imagination which had no real existence. "When they were awake, they saw His glory." It was a literal matter of fact to them. As surely as Christ was born at Bethlehem. As certainly as He toiled in the carpenter's shop at Nazareth. As truly as His blessed feet trudged over the holy fields of Judaea. As truly as He healed the sick and preached the Gospel wherever He went and as really as He did actually die upon the Cross of Calvary, so it is a matter of plain fact that Jesus Christ did, on a certain mountain&mdash;what mountain we do not know&mdash;undergo a wonderful change, for the time being, in which His glory was marvelously and distinctly displayed so that His three disciples could see it!
 
@@ -32,7 +32,7 @@ The Apostles needed to be wide awake to discern this difference and so do we, fo
 
 So much, then, upon the necessity for these three men being fully awake.
 
-Now, Brothers and Sisters, let me speak to you upon the second part of our subject which is that IT IS NECESSARY FOR US, ALSO, TO BE AWAKE IF WE ARE TO SEE CHRIST's GLORY.
+Now, Brothers and Sisters, let me speak to you upon the second part of our subject which is that IT IS NECESSARY FOR US, ALSO, TO BE AWAKE IF WE ARE TO SEE Christ's GLORY.
 
 We have not dreamt our religion. It has not come to us as a vision of the night, but when we were fully awake, we saw Christ's glory. We have seen His glory when we have been awake without weariness, awake without pain, awake without losses, awake without fears and trembling. In our coolest moments, when there was the least likelihood of our being deceived, we have seen His glory as our Savior, our Helper, our Keeper, our All-in-All. Set that fact down, then, and stand to it before the face of every man who dares to speak a word against Jesus of Nazareth, the Son of God, that just as truly as "when they were awake, they saw His glory," so have we seen it in our most wakeful and calm and quiet moments!
 
@@ -68,7 +68,7 @@ But above all, dear Friends, we must be awake with regard to our Lord Himself. O
 
 and passion, by Your glorious Resurrection and Ascension, awaken all our spirits to perceive that You are not far from any one of Your people and that Your Word is still true, "Lo, I am with you always, even unto the end of the world." III. I must not keep you much longer, but I want to say that THIS DOCTRINE OF THE NECESSITY OF OUR
 
-WAKEFULNESS IN ORDER THAT WE MAY SEE THE GLORY OF CHRIST, THROWS a LIGHT ON SEVERAL THINGS.
+WAKEFULNESS IN ORDER THAT WE MAY SEE THE GLORY OF Christ, THROWS a LIGHT ON SEVERAL THINGS.
 
 First, it shows us why some see so little of the glory of Christ ' 'Ah," says one, "I used to see it. I could not get through a sermon without being moved at the thought of my Savior suffering for me, and rising for me. But now I do not seem to get any good out of all the services I attend." Whose fault is that? It is not His, for He is unchanged. Is it mine? Perhaps so and yet, since others see him, surely the blame cannot be allmine. Is it not your fault, Friend? You are not as wide awake as you used to be! It is a curious thing when a man says, "I do not knew how it is that I cannot see as I used to." Why, he has not got his eyes open! Foolish man, let him awaken himself and when he is thoroughly awake, then his eyes will be as good as ever and he will see as much of his Lord's glory as he used to! Old age has not come upon you yet, my Brother, my Sister, though you sorrowfully sing&mdash;
 
@@ -91,7 +91,7 @@ Well, Beloved, be content to go to bed when there is such an awakening in store 
 
 The Lord grant to you and to me, dear Friends, to know all the bliss of awakening to behold His glory! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW17:1-5.
+Exposition by C. H. Spurgeon: Matthew17:1-5.
 
 
 

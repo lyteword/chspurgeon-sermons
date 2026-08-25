@@ -12,7 +12,7 @@ morning, when the sun rises, even a morning without clouds; as the tender grass 
 
 I want to do two things. First, to show you that this passage describes our experience of the rule of Christ Secondly, to prove to you that our experience should encourage others to receive Him as their Ruler.
 
-First, then, there are many of you, my dear Brothers and Sisters in Christ, who can join with me in saying that the text IS a TRUTHFUL DESCRIPTION OF OUR OWN EXPERIENCE OF THE RULE OF CHRIST since that dear hour which brought us to His feet, cut up all our self-righteousness by the root and blessedly taught us to trust and rest in Him.
+First, then, there are many of you, my dear Brothers and Sisters in Christ, who can join with me in saying that the text IS a TRuthFUL DESCRIPTION OF OUR OWN EXPERIENCE OF THE RULE OF Christ since that dear hour which brought us to His feet, cut up all our self-righteousness by the root and blessedly taught us to trust and rest in Him.
 
 Let us take the sentences as they stand and let the hearts of God's children respond as I speak upon each one of them. Has it not been true, Beloved, that Jesus has been to us as the light of the morning, when the sun rises Was He not so when first you saw Him? You were in the dark&mdash;an Egyptian darkness that might be felt was upon you. You had aforetime walked in the feeble and fickle light of the sparks of your own kindling, but those sparks were, at last, all stamped out and the light of all your candles was quenched in thickest gloom. Was it not like the rising of the sun when you&mdash;
 
@@ -56,7 +56,7 @@ Thus I have spoken about our experience of the rule of Christ tallying with the 
 
 text.
 
-I will spend only a few minutes in speaking upon the second part of our subject, lest I weary you. It is this&mdash;OUR EXPERIENCE SHOULD ENCOURAGE OTHERS TO RECEIVE JESUS CHRIST AS THEIR RULER.
+I will spend only a few minutes in speaking upon the second part of our subject, lest I weary you. It is this&mdash;OUR EXPERIENCE SHOULD ENCOURAGE OTHERS TO RECEIVE Jesus Christ AS THEIR RULER.
 
 If we had found Him a bad Master, we would tell you. As we have found Him inexpressibly good to us, we come to you and gladly bear our witness on His behalf. I am addressing a good many who have heard the Gospel for a long time and yet are not saved. When are you going to lay these things to heart? When shall the time of decision be? Listen to me with great earnestness for these last few minutes. I want you to receive Jesus Christ as your Ruler, but, before you do so, you must receive Him as your Savior! You cannot truly say, "I will serve Christ," until you have first said, "I will trust Him." The Gospel message is, "Believe in the Lord Jesus Christ, and you shall be saved." May the Spirit of God enable you, at this very moment, sitting where you are, or standing in the crowd,  to trust the Son of God who lived and died that sinners might not perish. Trust Him and you are saved!
 

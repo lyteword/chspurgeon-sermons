@@ -1,9 +1,9 @@
 # Sermon 933 | Angelic Studies
 
 
-DELIVERED ON LORD's-DAY EVENING, MAY 1, 1870
+DELIVERED ON Lord's-DAY EVENING, MAY 1, 1870
 
-BY C. H. SPURGEON,
+BY C. H. Spurgeon,
 
 AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
@@ -21,7 +21,7 @@ Do they not watch over the saints? Is it not written, that they "encamp round ab
 
 They are, as it were, in yonder gilded vessel, untossed of tempest. But they have sympathy with us in this poor heavy-laden boat, tossed with tempest and not comforted. I see them there on yonder sea of glass mingled with fire. I hear their harps, as incessantly their joy goes up in music to the Throne of the Most High. But they do not look down with scorn on us poor denizens of this dusky planet. On the contrary, they delight to think of us as their Brethren, as their fellow servants, as it will be the consummation of their happiness when we shall all be gathered to the Church of the First-Born, that they shall make up the innumerable company of angels that surround the blood-washed throng.
 
-The subject of our meditation, which will be brief, resolves itself into a question, HOW EXCLUSIVELY THROUGH THE CHURCH DO ANGELS COME TO SEE THE MANIFOLD WISDOM OF GOD? Some other matters in connection with this we shall have to speak of afterwards.
+The subject of our meditation, which will be brief, resolves itself into a question, HOW EXCLUSIVELY THROUGH THE CHURCH DO ANGELS COME TO SEE THE MANIFOLD WISDOM OF God? Some other matters in connection with this we shall have to speak of afterwards.
 
 Who can doubt that the angels had seen much of the wisdom of God in creation? With faculties keener and more elevated than ours, faculties that have never been blunted by sin, they can perceive the various contrivances of God's skill both in the animate and the inanimate world. Doubtless as each new star has been minted by God, as each planet has been struck off like a spark from the everlasting anvil, angels, those sons of the morning, have lifted up their songs, and have poured forth their paeans of joy and gladness.
 
@@ -97,7 +97,7 @@ Yes, and when they have seen your boldness and your constancy, your self-denial,
 
 The subject is far too large for me. I shall leave you to think it out, after thus introducing you to but a few aspects of it. There is much room for meditation as to how these bright and happy spirits do and shall see the wisdom of God in the salvation of the Church.
 
-But do you now ask, DO ANGELS GAIN ANYTHING BY THE CHURCH OF GOD? I think they do. Certainly they acquire increased knowledge. With us knowledge is sometimes sorrow. To know is often to mourn. What the eye does not see the heart does not rue. "Where ignorance is bliss"&mdash;and it sometimes is&mdash;there are those who think, "it is folly to be wise." But ignorance is not bliss in Heaven. Knowledge increases the joy of the angels, and I will tell you why&mdash;because it makes them take a greater delight in God when they see how wise and gracious He is. If it is possible for the angels to be happier than natural innocence and honorable service can render them, they must be happier through knowing and seeing more of God, as His attributes are reflected and His perfections mirrored forth in the Church.
+But do you now ask, DO ANGELS GAIN ANYTHING by THE CHURCH OF God? I think they do. Certainly they acquire increased knowledge. With us knowledge is sometimes sorrow. To know is often to mourn. What the eye does not see the heart does not rue. "Where ignorance is bliss"&mdash;and it sometimes is&mdash;there are those who think, "it is folly to be wise." But ignorance is not bliss in Heaven. Knowledge increases the joy of the angels, and I will tell you why&mdash;because it makes them take a greater delight in God when they see how wise and gracious He is. If it is possible for the angels to be happier than natural innocence and honorable service can render them, they must be happier through knowing and seeing more of God, as His attributes are reflected and His perfections mirrored forth in the Church.
 
 Angels, methinks, will be enriched by the society of the saints in Heaven. Commerce always enriches, and commerce between angelic and human natures will be enriching to them both. They love in Heaven&mdash;they show their love by rejoicing over repenting men. They will be glad to see us there. I do believe they will make much of us, as we do if we have seen some poor child reclaimed, and afterwards grow up to honor. We like to think of such an one. It brings the tears into our eyes that our Father did so good a deed for the orphan, the pauper, or the outcast. And will not the angels rejoice over those in whom the Father's mercy has worked such wonderful happiness?
 

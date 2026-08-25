@@ -1,6 +1,6 @@
 # Sermon 2380 | Encouragements To Prayer
 
-"I am the LORD your God, which brought you out of the land of Egypt: open your mouth wide, and I will fill it." Psalm 81:10.
+"I am the Lord your God, which brought you out of the land of Egypt: open your mouth wide, and I will fill it." Psalm 81:10.
 
 The preceding verse bids us turn away from any strange God&mdash;"There shall no strange god be in you; neither shall you worship any strange god." Idolatry is the natural sin of man. It covers a very large surface of the realm of sin and it is always cropping up in some form or other. Idolatry is not merely the bowing before graven images&mdash;the essence of it lies in putting trust in any other than the great invisible God. We can easily make to ourselves gods of our experience, of our wealth, of our talents. We can make idols of our children, of our wives, of our husbands, of our friends. We can make a god of anything by valuing it more than we do our Savior, or by trusting in it beyond our God, or by refusing to trust in Him apart from it. You can make a god of the means of Grace&mdash;when you think more of the means of Grace than of God and the Grace of the means! You can make a god of your Bible when you think that the reading of it, apart from the illumination of the Holy Spirit, will be all that you require! So you see that it is very easy for man to fall into idolatry.
 
@@ -14,7 +14,7 @@ In our text we have God coming very near to His people, and coming near them to 
 
 their mouths to Him. The text contains one encouragement and two arguments for it&mdash;they will be our two divisions. First, God encouraging His people. And, secondly, God using two great arguments. You see, the exhortation is sandwiched in between two arguments. The first is, "I am the Lord&mdash;I am Jehovah&mdash;your God, which brought you out of the land of Egypt." Then comes the exhortation, "Open your mouth wide." And that is followed by the other argument, "I will fill it." There is a good reason, indeed, for opening the mouth wide, when God has promised to fill it!
 
-To begin, then, the exhortation of the sermon will be that which we find in the text, in which we hear GOD ENCOURAGING HIS PEOPLE by saying, "Open your mouth wide."
+To begin, then, the exhortation of the sermon will be that which we find in the text, in which we hear God ENCOURAGING HIS PEOPLE by saying, "Open your mouth wide."
 
 I suppose that the Lord means by this exhortation, first of all, to help us to get rid of the paralyzing influence of fear. A man, in the presence of one whom he dreads, cannot speak boldly. And if he has been guilty of some great crime and stands before one whom he regards as his judge, he is like the man in our Lord's parable&mdash;"speechless." A man on his knees, conscious of his sin, fearing the justice of God, would very naturally be unable to speak. And to encourage him, God says, "Open your mouth; be not afraid. Open your mouth wide; confess your sin; acknowledge your wanderings from your God; go into the particulars of your iniquity; ask for My mercy; plead My promises; set forth the arguments that can be drawn from the Cross of Christ. Open your mouth wide; be not afraid to speak."
 
@@ -69,7 +69,7 @@ And then think of the needs of others. Oh, when I think of what power prayer has
 
 Remember, once more, God's exceedingly great and precious promises. How can you be praying on a right scale if you are always praying straitened in yourselves? O dear Friends, the promises of God are not narrow! They are "exceedingly great and precious promises." You have never fully measured them! Come, then, with an open mouth, and ask great things of your Father who is in Heaven. Thus have I, at some length, handled the exhortation in the text, but I cannot do much with it&mdash;it is only the Holy Spirit who can effectually whisper into your ear and heart, "Open your mouth wide."
 
-Now, secondly, observe GOD USING TWO GREAT ARGUMENTS upon which I will only speak briefly. One is
+Now, secondly, observe God USING TWO GREAT ARGUMENTS upon which I will only speak briefly. One is
 
 put before the exhortation and one is put afterwards, to keep it with an attendant on either side.
 
@@ -95,7 +95,7 @@ So is it in comparing our testimony concerning God's goodness. Sometimes we who 
 
 Now, then, let us all come before God with open mouths. Whatever state of mind we may be in, if we cannot pray, let us come and open our mouth and pant, as David did when he said, "As the hart pants after the water brooks, so pants my soul after You, O God." So let us come before our God. You who feel as if you could not speak and could scarcely think, come with your mouth wide open and stand there before God! Or be like the little bird in its nest&mdash;open your mouth towards Heaven! Mark how the parched earth, in times of drought, cracks and opens its mouth for the rain. Let your parched heart begin to pray in the Presence of your God and thus ask for His Grace. May God give us mighty desires! We read of Daniel, in the margin of our Bible, instead of, "a man greatly Beloved," "a man of desires." He was a man of great desires! And if we are like he in this respect, we shall soon be greatly blessed, and God will be greatly glorified! May it be so, for His great name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Psalm 81
+Exposition by C. H. Spurgeon: Psalm 81
 
 We have here an exhortation to praise God and this is always in season. Perhaps we need more stirring up to praise than to prayer, yet it ought to be as natural for us to praise God as it is for the birds to sing. Thus the Psalm begins&mdash;
 
@@ -119,7 +119,7 @@ Hear, O My people, and I will testify unto you: O Israel, if you will hearken un
 
 There shall no strange god be in you; neither shall you worship any strange god. It is strange that we should ever wish to do so. Oh, that we might be wholly delivered from everything that looks like idolatry and be enabled to cleave to the worship of the one living and true God with the serenity and certainty of faith!
 
-11. I am the LORD your God, which brought you out of the land of Egypt: open your mouth wide and I will fill it. But My people would not hearken to My voice; and Israel would none of Me. Oh, how plaintive is this lament! Is it not full of sorrow? "Israel would none of Me." Her own God, her own Friend, her own Benefactor, her own Husband has to cry, "Israel would none of Me&mdash;would not have My Law, My promise, My guidance, Myself&mdash;Israel would none of Me."
+11. I am the Lord your God, which brought you out of the land of Egypt: open your mouth wide and I will fill it. But My people would not hearken to My voice; and Israel would none of Me. Oh, how plaintive is this lament! Is it not full of sorrow? "Israel would none of Me." Her own God, her own Friend, her own Benefactor, her own Husband has to cry, "Israel would none of Me&mdash;would not have My Law, My promise, My guidance, Myself&mdash;Israel would none of Me."
 
 So I gave them up&mdash;Dreadful word! If God gives us up, even for a moment, there is no telling into what sin we may plunge! And if He were to give us up altogether&mdash;ah, me, this is the most direful of sentences&mdash;"So I gave them up"&mdash;
 
@@ -127,7 +127,7 @@ Unto their own hearts' lust: and they walked in their own counsels. O God, save 
 
 Oh that My people had listened to Me, and Israel had walked in My ways. And can we not echo that lament and say, "Oh, that we had listened to God, and that we had walked in His ways?" What a happy life would the Believer enjoy if he always had an ear for God's Commandments and a foot for His ways! "Oh that My people had listened to Me, and Israel had walked in My ways!"
 
-15. I should soon have subdued their enemies, and turned My hand against their adversaries. The haters of the LORD should have submitted themselves unto Him; and their time should have endured forever. "Their time"&mdash;the time of His own people&mdash;"should have endured forever." They might have been always conquerors, always kings, always favored of God, always walking in the light, as God is in the light. So might it be with us if we would first, listen to God, and next, walk in His ways. The mark on the ear and the mark on the foot are two of the tokens of Christ's sheep&mdash;"My sheep hear My voice, and I know them, and they follow Me." May we all have both the ear-mark and the foot-mark!
+15. I should soon have subdued their enemies, and turned My hand against their adversaries. The haters of the Lord should have submitted themselves unto Him; and their time should have endured forever. "Their time"&mdash;the time of His own people&mdash;"should have endured forever." They might have been always conquerors, always kings, always favored of God, always walking in the light, as God is in the light. So might it be with us if we would first, listen to God, and next, walk in His ways. The mark on the ear and the mark on the foot are two of the tokens of Christ's sheep&mdash;"My sheep hear My voice, and I know them, and they follow Me." May we all have both the ear-mark and the foot-mark!
 
 He would have fed them, also, with the finest of the wheat. How sweet would Gospel doctrine be if Gospel precepts were observed! When you do not enjoy the preaching of the Word, is it not because you are out of health and your spiritual appetite is impaired? "He would have fed them, also, with the finest of the wheat." When the soul lives near to God, then the Word of the Lord is sweeter than honey and the honeycomb.
 

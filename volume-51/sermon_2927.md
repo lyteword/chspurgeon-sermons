@@ -78,7 +78,7 @@ I cannot preach to you, for the time has gone, but do you know, I think one of t
 
 Here our sermon closes. And may God's blessing rest on it.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 63; LUKE10:38-42; JOHN 12:1-8.
+Exposition by C. H. Spurgeon: Psalm 63; Luke10:38-42; John 12:1-8.
 
 I will read the sixty-third Psalm first, as somewhat representing the state of heart into which I would we could all come tonight.
 

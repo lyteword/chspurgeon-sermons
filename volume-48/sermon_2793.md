@@ -1,6 +1,6 @@
 # Sermon 2793 | Five Divine Declarations
 
-"Surely, shall one say, in the LORD I have righteousness and strength: even to Him shall men come; and all that are incensed against Him shall be ashamed. In the LORD all the seed of Israel shall be justified, and shall glory." Isaiah 45:24,26.
+"Surely, shall one say, in the Lord I have righteousness and strength: even to Him shall men come; and all that are incensed against Him shall be ashamed. In the Lord all the seed of Israel shall be justified, and shall glory." Isaiah 45:24,26.
 
 IF YOU carefully read the chapter from which our text is taken, you must notice the high style which God here adopts. He speaks like a king&mdash;no, more&mdash;He speaks like a God, as He is entitled to do, for He is God. David says, in the twenty-ninth Psalm, "The voice of the Lord is powerful; the voice of the Lord is full of majesty." We can hear that powerful, majestic voice in this Chapter! The Lord here speaks about men coming to Him, confessing to Him and obeying Him without inserting any "if as to their own will in the matter, or raising any question as to whether He can accomplish what He promises. Listen attentively to these words in the verse before our text, for they are very strong and forcible&mdash;"I have sworn by Myself, the word is gone out of My mouth in righteousness, and shall not return, That unto me every knee shall bow, every tongue shall swear." The Lord lays unusual emphasis upon the irrevocable oath which He has sworn and says that He will never recall the word which has gone out of His mouth. He speaks with that same power which said, "Let there be light: and there was light." In a word, He speaks Divinely and, therefore, He can fulfill what He has declared.
 
@@ -8,7 +8,7 @@ IF YOU carefully read the chapter from which our text is taken, you must notice 
 
 It is true that there are two ways in which men shall be made to bow the knee before God. Some of them will bow unwillingly when they shall feel the weight of His iron rod. Others shall bow joyfully before Him when they shall feel the power of His Grace. I am going to read my text in that sweet and merciful manner, and I think the context justifies us in so reading it. I want you to see how God's power over mankind is exerted in a way of Grace, although it is also true that His power is put forth in a way of Judgment towards those who reject His mercy. I read, with delight, the expressions of my text as the decrees, determinations, promises and declarations of the God of Grace, who affirms that men shall say, "In the Lord have we righteousness and strength. Even to Him shall men come and all that are incensed against Him shall be ashamed. In the Lord all the seed of Israel shall be justified and shall glory." There is no doubt about this great Truth of God&mdash;Christ did not die in vain&mdash;the Gospel has not been sent into the world for nothing! There shall be a people "saved in the Lord with an everlasting salvation." There shall be a multitude that no man can number who shall bow before the Savior. There shall be an adequate reward for the travail of His soul which shall satisfy even the infinite heart of the great Son of God Himself!
 
-There are five Divine declarations in the text. The first is this, that THERE SHALL BE a PEOPLE WHO SHALL ACKNOWLEDGE THE TRUTH CONCERNING GOD. Our version says, "Surely, shall one say, in the Lord I have righteousness and strength," but there are other readings which appear to be more accurate. "Men shall say, In the Lord
+There are five Divine declarations in the text. The first is this, that THERE SHALL BE a PEOPLE WHO SHALL ACKNOWLEDGE THE TRuth CONCERNING God. Our version says, "Surely, shall one say, in the Lord I have righteousness and strength," but there are other readings which appear to be more accurate. "Men shall say, In the Lord
 
 is righteousness and strength," would be quite as correct a rendering, or even more so. It means that there shall be a people who shall confess that in God there is righteousness and strength.
 
@@ -87,7 +87,7 @@ Beloved, if you are incensed against God about anything, it is foolish and wicke
 
 1 heard someone say, once, that God might forgive his sin, but that he would never forgive himself&mdash;and I think that is the feeling of all who have been enraged against God, but who have been brought as penitents to His feet. Now that they love Him, they are grievously ashamed of their past conduct and they will never open their mouths in boasting any more. As I look round this place, I notice some who once were very strongly opposed to our dear Lord and Master. Ah, my Brothers and Sisters, I know who they are who now love Him most and desire to serve Him best&mdash;it is you who were formerly exceedingly angry with Him. See that persecuting Saul of Tarsus when the Lord lays His pierced hand upon him&mdash;what a loving, gracious, pleading Paul, the Grace of God makes of him! Oh, that the Lord Jesus would lay hold of somebody this very moment! I am greedy for the souls of some of you who might become my Master's best servants. Even if you are saying, "We want Him not! We hate His religion and the cant that, we believe, always goes with it," you are the very ones whom I pray Him to lead captive, in silken chains of blessed bondage, as trophies of the Irresistible Grace with which His almighty Love wins the hearts of His greatest enemies and transforms them into His faithful friends and willing servants forever and ever!
 
-The fourth Divine declaration is that THE LORD's PEOPLE SHALL ALL BE JUSTIFIED. "In the Lord all the seed of Israel shall be justified."
+The fourth Divine declaration is that THE Lord's PEOPLE SHALL ALL BE JUSTIFIED. "In the Lord all the seed of Israel shall be justified."
 
 What is meant by our being justified? It means that we are made and constituted just before God. "But," someone asks, "can that be done? Can an unjust person be made just in the sight of God?" Yes, it is done, as our text says, "in the Lord."
 
@@ -105,7 +105,7 @@ Every soul that believes in Jesus belongs to the true seed of Israel, so in Him 
 
 I close with the last three words of the text&mdash;"In the Lord all the seed of Israel shall be justified, and shall glory."
 
-Those who find righteousness and strength in the Lord, THOSE WHO COME TO CHRIST AND ARE JUSTIFIED IN HIM, SHALL GLORY.
+Those who find righteousness and strength in the Lord, THOSE WHO COME TO Christ AND ARE JUSTIFIED IN HIM, SHALL GLORY.
 
 What does the text mean when it says that they shall glory? Sometimes, when I have been preaching in Wales or among Methodists&mdash;when I have set before them good, rich, Gospel Truth, perhaps two or three have shouted, at the same time, "Glory!" And though it has not increased the solemnity of the service, it has added a good deal of vivacity to it. And, really, when we see what Divine Grace has done for us, we often feel inclined to cry out, "Glory! Glory be to
 

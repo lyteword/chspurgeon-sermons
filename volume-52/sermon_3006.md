@@ -1,6 +1,6 @@
 # Sermon 3006 | "The Lord Is My Shepherd"
 
-"The LORD is my shepherd."
+"The Lord is my shepherd."
 
 Psalm 23:1.
 

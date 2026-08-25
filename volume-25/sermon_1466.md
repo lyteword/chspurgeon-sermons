@@ -135,10 +135,10 @@ I ask the Lord's people here present and I know that there are many such in the 
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Ephesians 1; 2:1 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;176, 757, 728.
 
-LETTER FROM MR. SPURGEON:
+LETTER FROM MR. Spurgeon:
 
 DEAR FRIENDS&mdash;Accept my most loving salutations. May all Grace abound towards each one of you and may your joy and peace be multiplied thereby. I feel daily improving in health and strength; only my knees remain feeble. I still adhere to my determination, if the Lord wills, to preach on Lord's-Day, April 13. May His Presence, then, be with us. I earnestly entreat the prayers of all who know how to plead with God that when I return among you it may be in the fullness of the power of the Holy Spirit and that my usefulness may be increased a hundredfold. Surely all the suffering I have endured and all the rest I have enjoyed should bring forth some fruit unto God! Yet so feeble are we that we profit nothing unless the Spirit of the Lord quickens us. By all the affectionate interest which you have up to now shown in my ministry, intercede for me, I beseech you, that I may yet be made a blessing to myriads,
 
-Yours in heartiest love, C.H. SPURGEON
+Yours in heartiest love, C.H. Spurgeon
 
 Mentone, March 27, 1879

@@ -2,7 +2,7 @@
 
 "In the multitude of my thoughts within me Your comforts delight my soul." Psalm 94:19.
 
-GODLY people are thoughtful people. Indeed, it is often a sign of the beginning of Grace in a man when he begins to consider. Lack of thought has to do with the ruin of most of those who perish&mdash;it is not so much that they despise as that they neglect the great salvation. They have no time for thinking. They fly through life like mere butterflies and they rush upon destruction like wanton moths. Alas, that they should be so brutish! It is shameful and grievous that men whose noblest attribute is an intellect akin to angels should live like "dumb, driven cattle." Even men who call themselves religious often seek for priests or ministers to do their thinking for them. They cannot be induced to give personal heed to their eternal welfare.
+GodLY people are thoughtful people. Indeed, it is often a sign of the beginning of Grace in a man when he begins to consider. Lack of thought has to do with the ruin of most of those who perish&mdash;it is not so much that they despise as that they neglect the great salvation. They have no time for thinking. They fly through life like mere butterflies and they rush upon destruction like wanton moths. Alas, that they should be so brutish! It is shameful and grievous that men whose noblest attribute is an intellect akin to angels should live like "dumb, driven cattle." Even men who call themselves religious often seek for priests or ministers to do their thinking for them. They cannot be induced to give personal heed to their eternal welfare.
 
 Good men are, none the less, full of thought because they are men of faith&mdash;believing is not the death of thinking, it is the sanctification of it. When our Savior said, according to our version, "Take no thought," He was very far from meaning what those words would seem to imply. He meant take no carking care, no anxious thought. It was anxiety, not prudence, which He condemned. Christians are among the most thoughtful and contemplative of men. It is the foolish man who leaps before he looks and therefore often looks backward with vain regret after he has leaped. Men of Belial hate meditation, but men of God delight in it. The Gospel excites thoughts and perfumes them. It does not allow the mind to lie fallow, but sows it with heavenly seed from which spring meditations of the Truth of God, contemplations of purity and purposes of virtue.
 
@@ -28,7 +28,7 @@ Thought does it all. If thoughts are full of faith in Jesus, confidence in the g
 
 Now, as I may be helped to do it, I shall this morning first speak upon the Psalmist's declarations, setting it out in some of the different lights in which he intended it to be seen. And, secondly, I shall dwell for a little upon the subject in this declaration upon which he lays the greatest stress, "Your comforts delight my soul."
 
-First, then, let us look at THE PSALMIST's DECLARATION. We shall set it forth under five aspects. The first
+First, then, let us look at THE PsalmIST's DECLARATION. We shall set it forth under five aspects. The first
 
 will be this&mdash;May we not, without twisting the text, understand David to mean that when passing many subjects in review before him, he selected the joys of true religion, or the comforts of God as the subjects which he preferred beyond all others?
 

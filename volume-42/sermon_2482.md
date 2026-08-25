@@ -62,7 +62,7 @@ Saintly speech is taught&mdash;not in 12 lessons, as I hear that some teach the 
 
 I saw a Brother this week. I had seen his wife some time ago and I had known how brutally he had treated her. And when I saw him confessing Christ and weeping over his sin, I was ready to weep on his neck to think that he should be among us loving the Savior when once his mouth was full of oaths and cursing and the drunkard's cup seemed to be always at his lips. The Lord does great wonders! If there are any more of these outrageous sinners here, may He come and deal with you till everybody shall say of Tom, or Harry, or Jack, or Polly, "The Lord has made such a change in that great profligate, it was never so seen in Israel." God be thanked for the very hope that such a miracle of mercy may yet be worked! Thus, first, this was an extraordinary case, and next, it was an extraordinary cure.
 
-But, then, it is all accounted for by this fact, IT WAS WROUGHT BY AN EXTRAORDINARY PERSON!
+But, then, it is all accounted for by this fact, IT WAS WROUGHT by AN EXTRAORDINARY PERSON!
 
 There had been many Prophets in Israel and God had worked miracles by them, but now there stood in Israel the Incarnate God Himself. He who had now come to deal with the sick and with those possessed of devils was "The Mighty God." Omnipotence was in His hands, Omniscience was in His eyes, Infinite Love was in His heart and He had come to deal with the woes and needs of men. Surely, Brothers and Sisters, in such a case we might expect that there would be things done that had never before been seen in Israel! Israel was the land of wonders and yet here was a wonder such as Israel never marveled at before and, if it had never been seen in Israel, you may depend upon it that it had never been seen anywhere else in the whole world! So, if Christ comes and saves great sinners and makes even His people wonder and say, "It was never seen like this among us," then, depend upon it, it was never so seen anywhere else!
 
@@ -99,7 +99,7 @@ Who, who shall stop His hand?" Almighty Grace can cast Satan out and keep him ou
 > There is life for a look at the Crucified One! 
 > There is life at this moment for you. 
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 9.
+Exposition by C. H. Spurgeon: Matthew 9.
 
 Verse 1. And He entered into a ship and passed over, and came into His own city. Our Lord had given these Gerge-senes an opportunity of becoming His disciples. The Kingdom of God had come very near to them, but as they accounted themselves unworthy of it and urged Him to depart out of their coasts, He did not force Himself upon them. Take heed, dear Friends, if you do but hear the Gospel, once, that you do not reject it, for you may never have the opportunity of hearing it again!
 

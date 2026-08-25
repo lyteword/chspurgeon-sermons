@@ -10,7 +10,7 @@ IF anyone says that these two texts contradict one another, I say that they do n
 
 I purpose to take our first text as a sincere summary of a godly man's life and our second text as a searching scrutiny, or as the result of a searching scrutiny, which looks below the surface, and then comes to a conclusion, not contradictory to the former one, yet supplementary to it.
 
-First, then, dear Friends, our first text is a SINCERE SUMMARY OF a GODLY MAN's LIFE. Looking back, he can say of it in general, "I have kept Your precepts and Your testimonies: for all my ways are before You."
+First, then, dear Friends, our first text is a SINCERE SUMMARY OF a GodLY MAN's LIFE. Looking back, he can say of it in general, "I have kept Your precepts and Your testimonies: for all my ways are before You."
 
 First, let me say that it is necessary that we should have so lived that this shall be the summary of our life, for if we have not so lived, what evidence have we that we have been born again&mdash;that we have passed from death unto life&mdash;that we have been delivered from the bondage of sin and brought into the way of holiness? If our life is not different from what it used to be, how can we try to deceive ourselves with the idea that we are converted? If our lives are no better than the lives of unregenerate men, what reason can we have for believing that we are regenerate? After all, at the last we shall be judged according to our works. "By their fruits you shall know them," is a test that still stands good and will stand good even to the end. "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." And, in looking back, if our life has been ungodly&mdash;if it has been wanton and unchaste&mdash;if it has not been characterized by sobriety, honesty, prayerfulness, consecration, what can we say of it? We shall have to judge ourselves to be still "out of the way" and to have need that we should turn to God with full purpose of heart and seek what, evidently, we have not at present found. If the Grace which we are supposed to have received has not made us to differ both from our former self and from men of the world, then it is not the true Grace of God.
 
@@ -92,7 +92,7 @@ God bless you, dear Friends, for Christ's sake! Amen.
 
 HYMNS FROM "OUR OWN HYMN BOOK "&mdash;185, 232, 119 (SONG II), 538.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 7; 8:1-4.
+Exposition by C. H. Spurgeon: Romans 7; 8:1-4.
 
 Romans 7:1-3. Know you not, brethren, (for I speak to them that know the Law), how that the Law has dominion over a man as long as he lives? For the woman which has an husband is bound by the law to her husband so long as he lives; but if the husband is dead, she is loosed from the law ofher husband. So then if, while her husband lives, she is married to another man, she shall be called an adulteress, but if her husband is dead, she is free from that law; so that she is no adulteress, though she is married to another man. He merely states this as an illustration.
 

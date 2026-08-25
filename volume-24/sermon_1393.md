@@ -62,7 +62,7 @@ If your gratitude to Him is always at its full heat, I am not afraid but wheneve
 > I'm not ashamed to own my Lord, Or to defend His cause   
 > Maintain the honor of His Word, The glory of His Cross.   
 
-EVERY SAVED MAN AND WOMAN SHOULD WILLINGLY SPEAK FOR HIMSELF ABOUT CHRIST. I
+EVERY SAVED MAN AND WOMAN SHOULD WILLINGLY SPEAK FOR HIMSELF ABOUT Christ. I
 
 have said that you will be driven to it. I have also bid you to be prepared for it when you are driven to it. But now I have to urge that you ought willingly to do it. Are we not all debtors to Christ if, indeed, He has saved us? How can we acknowledge that debt if we are ashamed of Him? His testimony is&mdash;"He that believes and is baptized, shall be saved." Does the Baptism save us? No, verily, but he that believes is bound to be baptized that he may thus confess His Lord! Baptism is the answer of a good conscience towards God. It is the disciple's grateful response to his Master's gracious call. You know how it is put&mdash;"He that with his heart believes, and with his mouth makes confession of Him, shall be saved."
 
@@ -96,7 +96,7 @@ Thus have I tried to show you, dear Friends, that each one has a witness to bear
 
 full musketry fire your bullet has got its billet and the billet for your bullet is not the billet for any other bullet! Therefore let it go, let it go! We must all fire, Brothers and Sisters! Not some, but all must fire and our charge must be this, "One thing I know, whereas I was blind, now I see. Therefore do I bear witness to my Lord. Let who will, deny it, He has opened my eyes."
 
-Lastly, AS EVERY CHRISTIAN, BEING OF AGE, HAS TO SPEAK FOR HIMSELF, WE MEAN TO DO IT.
+Lastly, AS EVERY ChristIAN, BEING OF AGE, HAS TO SPEAK FOR HIMSELF, WE MEAN TO DO IT.
 
 WE MEAN TO DO IT. For my own part, I mean to do so. That which I believe to be true I have spoken to you from my youth up. I have offended a good many at times. I shall offend a good many more, I hope, because that is not a matter I have ever taken into consideration. Is this true? Is it a necessary truth? Is it essential that it be spoken plainly and published widely? Away it goes like a hand grenade flung into the midst of the crowd! May every minister of Christ&mdash; and I trust the rightness of the thing will be more and more recognized&mdash;take courage to speak for his Master! Speak out, never with bated breath, but in the name of Him that sent him&mdash;in the name of God&mdash;with a courage that befits his commission!
 

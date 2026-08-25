@@ -12,7 +12,7 @@ Here is the subject of this morning's discourse. Certain of God's people are in 
 
 If under reproach, their heart ferments towards revenge. They would sooner rush under the guidance of Satan into some questionable policy than, in childlike simplicity, trust in the Lord and do good. It must not be so with you, my Brothers and Sisters&mdash;you must learn a better way. I hope that the sermon of this morning may go some way, by God's Spirit, towards instructing you in the holy art of waiting for the Lord. "Those that wait upon the Lord, they shall inherit the earth." The text divides itself into two parts&mdash;first, it introduces us to a waiting God. And secondly, it speaks of a waiting people.
 
-First, we have here a WAITING GOD. I shall not confine our illustration of this waiting on the part of God to the case of the men of Judah described in the text, but I shall come home to your own experience and speak of how the
+First, we have here a WAITING God. I shall not confine our illustration of this waiting on the part of God to the case of the men of Judah described in the text, but I shall come home to your own experience and speak of how the
 
 Lord has waited that He might be gracious to you. Let us behold His long-suffering towards ourselves. In so doing we shall not be leaving the Scripture, for the text as truly describes our own experience as that of the men of Isaiah's day.
 

@@ -35,7 +35,7 @@ This brings us to the special subject mentioned in our text. "Much more, being r
 
 I want you, dear Friends, to do three things as you think of our text. First, consider what the life of Christ is to us. Secondly, consider why the words, "much more, "may be applied to it. And, thirdly, consider how we can use this life.
 
-First, then, briefly consider WHAT THE LIFE OF CHRIST IS TO US. If a man were to show me a picture of Christ on the Cross, I would say to him, "What is that?" If he were to answer, "A picture of my Lord," I would reply, "It is not a picture of my Savior as He now is. It may be a representation of Him as He once was, but not as He is now, enthroned in Glory." If a person were to carry about in his pocket the likeness of his mother taken after death, and were to draw it out, and say, "That is my mother," I would say, "I would prefer to remember her as she was at her best, not as she was in the agonies of death, or after death." So, I pray you, do not look upon any representation of Christ upon the Cross as the main representation of our Lord Jesus! He was dead but for a very little while. He was on the Cross only for a few hours. Our Savior lives, never more to die! The Christ of the Church of Rome, as I have often told you, is a dead Christ on the Cross, or else a baby Christ in Mary's arms&mdash;but the Christ of the Church of God is a living Christ! We say of the grave, as the angel said to the women, "He is not here: for He is risen, as He said." We say of the Cross, "He is not here. He has put an end to death in making an end of sin by His own death." The main thought concerning Christ, to those of us who really know Him, should be that He is the livingChrist&mdash;
+First, then, briefly consider WHAT THE LIFE OF Christ IS TO US. If a man were to show me a picture of Christ on the Cross, I would say to him, "What is that?" If he were to answer, "A picture of my Lord," I would reply, "It is not a picture of my Savior as He now is. It may be a representation of Him as He once was, but not as He is now, enthroned in Glory." If a person were to carry about in his pocket the likeness of his mother taken after death, and were to draw it out, and say, "That is my mother," I would say, "I would prefer to remember her as she was at her best, not as she was in the agonies of death, or after death." So, I pray you, do not look upon any representation of Christ upon the Cross as the main representation of our Lord Jesus! He was dead but for a very little while. He was on the Cross only for a few hours. Our Savior lives, never more to die! The Christ of the Church of Rome, as I have often told you, is a dead Christ on the Cross, or else a baby Christ in Mary's arms&mdash;but the Christ of the Church of God is a living Christ! We say of the grave, as the angel said to the women, "He is not here: for He is risen, as He said." We say of the Cross, "He is not here. He has put an end to death in making an end of sin by His own death." The main thought concerning Christ, to those of us who really know Him, should be that He is the livingChrist&mdash;
 
 "He lives, the great Redeemer lives, What joy the blest assurance gives!"
 
@@ -100,7 +100,7 @@ Yet once again, when the Savior died, there was a certain aspect of defeat about
 
 Well now, if, when He lay there, all blood-bespattered and dead, defeated as it seemed, He reconciled us to God, my Brothers and Sisters, what can He notdo, now that He is in all the splendor of His majesty, the delight of Heaven and of all holy beings? He must be able to save us! Well may we entrust our souls to Him and say, with the Apostle, "I am not ashamed: for I know whom I have believed, and am persuaded that He is able to keep that which I have committed unto Him against that day."
 
-So now I close by asking you to CONSIDER HOW WE CAN USE THIS LIFE OF CHRIST.
+So now I close by asking you to CONSIDER HOW WE CAN USE THIS LIFE OF Christ.
 
 If Christ is still alive and if there is, in a certain sense, "much more" power to save in His life than there was of power to reconcile in His death, then, first, all fear of our being overcome ought to vanish He is victorious! Therefore we shall be victorious! Christ was assaulted by all the powers of death and Hell, and yet He conquered and He lives. We, too, shall conquer, for He is in us, He is with us, He is over us&mdash;and we shall live though we die&mdash;and we shall win though we are apparently overcome!
 
@@ -118,7 +118,7 @@ In other words, dear Brothers and Sisters, since Christ lives, let us live with 
 
 So may God make it to be, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMAANS5.
+Exposition by C. H. Spurgeon: ROMAANS5.
 
 Verse 1. Therefore being justified by faith, we have peace with God through our Lord Jesus Christ. Do not let us simply read these words, but let us, each one, say in our hearts, "That is true. I have believed in Christ, therefore I am justified in the sight of God and, therefore, I have peace with God through Jesus Christ our Lord." There is nothing in the world that is half as valuable as the two precious gems in this verse&mdash;justification and the peace which follows it.
 

@@ -80,7 +80,7 @@ Now to close, there may be some poor soul here broken down under a sense of sin,
 
 Do look after the broken-hearted ones, dear Friends! Watch for Mr. Feeble-Mind. Be on the look-out for poor Mr. Fearing, do not let them lie outside long. Help them over the wall and, as you have found mercy, administer it, in the name of God, to all who are longing to find it! May God bless you all, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 2 CORINTHIANS 1:1-20.
+Exposition by C. H. Spurgeon: 2 Corinthians 1:1-20.
 
 Verse 1. Paul, an Apostle of Jesus Christ by the will of God. Paul is very careful to remind the Corinthians of that fact, since some of them had gone the length of denying his Apostleship altogether.
 

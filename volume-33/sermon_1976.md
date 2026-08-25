@@ -25,7 +25,7 @@ My Brothers and Sisters, though we pay no homage to an outward and visible revel
 
 Having thus removed your minds from any gross and carnal notion that our Lord is actually what this vision describes, I beg you to note that the spiritual teaching is all the more to be sought out and treasured up. I invite you to consider three of those similitudes by which the Lord Christ is set before us in this Divine Revelation. They stand in very significant relationship, one to the other. "He had in His right hand seven stars: and out of His mouth went a sharp two-edged sword: and His Countenance was as the sun shines in its strength." These are not only in one verse by the will of the translators, but they were intimately connected in the mind of John and were intended to come to us together, blended and united.
 
-Learn from the first sentence THE POSITION OF INSTRUMENTALITY IN REFERENCE TO OUR LORD JESUS&mdash;"He had in His right hand seven stars." The stars are said to be the angels, or messengers, or, as many conceive,
+Learn from the first sentence THE POSITION OF INSTRUMENTALITY IN REFERENCE TO OUR Lord Jesus&mdash;"He had in His right hand seven stars." The stars are said to be the angels, or messengers, or, as many conceive,
 
 the ministers whom God used as messengers to the Churches and from the Churches to the outlying world. The word may mean the entire instructive and enlightening gift of the Church, whether found in one person or in many. God has ordained that there shall be men anointed of His Spirit, who shall, beyond others, be the means of conversion and edifica-tion&mdash;and these are as stars in the sky of the Church.
 

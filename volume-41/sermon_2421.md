@@ -1,6 +1,6 @@
 # Sermon 2421 | Hallelujah! Hallelujah!
 
-"For the LORD takes pleasure in His people: He will beautify the meek with salvation. Let the saints be joyful in glory: let them sing aloud upon their beds. Let the high praises of God be in their mouths and a two-edged sword in their hands." Psalm 149:4-6.
+"For the Lord takes pleasure in His people: He will beautify the meek with salvation. Let the saints be joyful in glory: let them sing aloud upon their beds. Let the high praises of God be in their mouths and a two-edged sword in their hands." Psalm 149:4-6.
 
 I THINK I have read that, once, when the seraphic Samuel Rutherford was preaching, he came, before long, to speak on the high praises of the Lord Jesus Christ. That was a theme upon which he was at home, and when he reached that point, and had spoken a little upon it, the Duke of Argyle, who was in the congregation, cried out, "Now you are on the right strain, man; hold on to that!" I thought that, this morning, we, also, struck the right key.  We were trying to extol our God, our King, and to magnify His holy name and something seemed to say to me, "Hold on to that strain! Let us have the same note, again, tonight, and let us continue to laud and praise and magnify the name of the Most High."
 
@@ -101,11 +101,11 @@ I have been talking all this while about praising God and there are some here wh
 
 Perhaps this may be the beginning of something better, for when you have begun to praise Him, you may begin to dispraise yourself&mdash;and that is next door to feeling your sinfulness, which will lead you to seek the Savior! And if you seek Him, He will be found of you. Seek Him now, this summer's night, while all God's bounty is being poured upon the earth to make it fertile! Oh, that He might pour some heavenly beams on you to make you fruitful to His praise! May He do it and to His name shall be glory, world without end! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 149; 150.
+Exposition by C. H. Spurgeon: PsalmS 149; 150.
 
 The whole Book of Psalms is full of praise, but the praise culminates at the close. There are five "Hallelujah Psalms" at the end of the Book. They are so named because they both begin and conclude with the word, Hallelujah, "Praise you the Lord." It must be to the intense regret of all reverent persons to find the word, Hallelujah, so used today in such a way that it is made to be a commonplace instead of a very sacred word&mdash;Hallelujah, or, Praise be unto Jah, Jehovah! He who uses this word in a flippant manner is guilty of taking the name of the Lord in vain!
 
-Psalm 149:1. Praise you the LORD. Sing unto the LORD a new song. You have had new mercies from the Lord&mdash; give Him, in return, a new song! You have a new apprehension of His mercy. You who live under this Gospel dispensation have something more to sing of than even David experienced! Therefore, "sing unto Jehovah a new song"&mdash;throw your hearts into it! Do not let it be a matter of routine, but let your whole soul, in all its vigor and freshness, address itself to the praise of God!
+Psalm 149:1. Praise you the Lord. Sing unto the Lord a new song. You have had new mercies from the Lord&mdash; give Him, in return, a new song! You have a new apprehension of His mercy. You who live under this Gospel dispensation have something more to sing of than even David experienced! Therefore, "sing unto Jehovah a new song"&mdash;throw your hearts into it! Do not let it be a matter of routine, but let your whole soul, in all its vigor and freshness, address itself to the praise of God!
 
 And His praise in the congregation of saints. All saints praise God&mdash;they are not saints if they do not. The praise of any one saint is sweet to Him, but in the congregation of saints there is a linked sweetness, a wonderful commixture of precious things. Sing His praise, then, in the congregation of His holy ones.
 
@@ -115,7 +115,7 @@ Let Israel rejoice in Him that made him. Adore your Creator for your being and f
 
 Let them sing praises unto Him with the timbrel and harp. The one to be struck and the other to be gently touched to yield its stringed sweetness.
 
-For the LORD takes pleasure in His people. Should not they take pleasure in the condescension on His part to take any pleasure in them? Oh, what a lift up it is for us when we learn to take pleasure in the Lord!
+For the Lord takes pleasure in His people. Should not they take pleasure in the condescension on His part to take any pleasure in them? Oh, what a lift up it is for us when we learn to take pleasure in the Lord!
 
 He will beautify the meek with salvation. He dresses all His children, but the meek are His Josephs, and upon them He puts the coat of many colors. And they shall inherit the earth.
 
@@ -131,9 +131,9 @@ And a two-edged sword in their hands. For we have to fight, today, with principa
 
 To execute upon them the judgment written: this honor have all His saints. Or it may be read, "He is the honor of all His saints." "Unto you that believe He is precious," or, "He is an honor," says the Apostle, and there is no honor like that which comes of being coupled with God, living in Him, and living for Him!
 
-Praise you the LORD. What bursts of praise must have risen from the hosts of Israel when they gathered for their annual festivals and sang together these last great Hallelujah Psalms!
+Praise you the Lord. What bursts of praise must have risen from the hosts of Israel when they gathered for their annual festivals and sang together these last great Hallelujah Psalms!
 
-Psalm 150:1. Praise you the LORD. Praise God in His sanctuary. Notice how, in this last Psalm, it is praise, praise, praise, all the way through! I think we have the word, "praise," some 13 times in the six verses. It is all. "praise Him,
+Psalm 150:1. Praise you the Lord. Praise God in His sanctuary. Notice how, in this last Psalm, it is praise, praise, praise, all the way through! I think we have the word, "praise," some 13 times in the six verses. It is all. "praise Him,
 
 praise Him, praise Him." It is not enough to do it once, or twice, we should keep on praising the Lord till we should make the very heavens ring with the music of His praises! "Praise you the Lord. Praise God in His sanctuary." That is, in His Holy Place where He dwells. Begin, you angels, cherubim and seraphim&mdash;pour forth His praise!
 
@@ -151,4 +151,4 @@ Praise Him upon the loud cymbals. Crash!
 
 Praise Him upon the high sounding cymbals. Then came another crash!
 
-Let everything that has breath praise the LORD. Praise you the LORD. A Jewish Rabbi once remarked to me that the name, Jehovah, was not made up of letters, but only of a series of breaths.  That is the nearest approach to the name of God, three breaths&mdash;therefore since all breath comes from Him&mdash;and His very name can only be pronounced by breath, "Let everything that has breath praise the Lord. Praise you the Lord." Hallelujah!
+Let everything that has breath praise the Lord. Praise you the Lord. A Jewish Rabbi once remarked to me that the name, Jehovah, was not made up of letters, but only of a series of breaths.  That is the nearest approach to the name of God, three breaths&mdash;therefore since all breath comes from Him&mdash;and His very name can only be pronounced by breath, "Let everything that has breath praise the Lord. Praise you the Lord." Hallelujah!

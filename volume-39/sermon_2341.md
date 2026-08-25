@@ -8,7 +8,7 @@ The argument of our text is this&mdash;since the Lord Jesus Christ saved us when
 
 There are three grand points of consolation suggested by the text. The first lies in this one line, "Christ died for the ungodly" The second lies in this sentence, Christ died for us "when we were yet without strength." And there is a rich vein of comfort in the third statement, that Christ died for us "in due time." "In due time Christ died for the ungodly." Time is often a very important element when one is in trouble. In the nick of time Christ came for our deliverance&mdash;and so He will again.
 
-The first point of consolation in our text is this&mdash;if any child of God, here, is in sore dismay and bowed down by reason of trouble, fancying that God will leave him&mdash;let him first meditate on this word, "CHRIST DIED FOR THE UNGODLY."
+The first point of consolation in our text is this&mdash;if any child of God, here, is in sore dismay and bowed down by reason of trouble, fancying that God will leave him&mdash;let him first meditate on this word, "Christ DIED FOR THE UNGodLY."
 
 I should like to have this sentence put up at the corner of every street, "Christ died for the ungodly." I am afraid that it would cause a great many observations to be made. Some would kick at it very heavily, but there are others who would leap very joyfully at the sight of it. "Christ died for the ungodly." Does it mean what it says? The common notion, not expressed in so many words, but harbored in many minds, is that Christ died for the godly&mdash;that Christ died for good people&mdash;but the text says, "Christ died for the ungodly." "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." I say again that the current notion, unexpressed but still believed, is that Christ came into the world to save saints. This is not true. He came into the world to save sinners, or, to come back to the very words of the text, "Christ died for the ungodly."
 
@@ -36,7 +36,7 @@ You say, "O Sir, you do not know what my trial is!" No, I do not, but your heave
 
 I cannot work this out for you. I want you to go home and work it out for yourselves. If any of you are cast down, here is the first well of comfort at which you may drink full draughts of Divine consolation&mdash;"Christ died for the ungodly." Then He must help those who are trusting in Him.
 
-Now we come to a second well, to see whether we can draw waters of comfort out of it, also. According to our text, CHRIST DIED FOR US, "WHEN WE WERE YET WITHOUT STRENGTH."
+Now we come to a second well, to see whether we can draw waters of comfort out of it, also. According to our text, Christ DIED FOR US, "WHEN WE WERE YET WITHOUT STRENGTH."
 
 I must only say a word or two, here, because the time will not allow me to enlarge. First, we were naturally in a lost condition through the Fall, when we were born into this world, and we lived in it for years, "without strength" to do that which was right. When we began to wake up a little to thoughts of God and Divine things, we heard the Truth of God preached, but we were still without power of access even to the Gospel. We were told to repent, but our hard heart would yield no waters of repentance. We were told to believe in Christ&mdash;the preacher might as well have commanded the dead
 
@@ -62,7 +62,7 @@ I know that I must be speaking to somebody, tonight, in great trouble. I am sure
 
 Now I come to the last point, which is also full of consolation. I think that I heard someone heave a deep sigh and say, "Ah! It may be as you say, it may be all true, and I trust that it is, but I am in such trouble that if I do not get help directly, I shall be done for. I have, to cry, 'Make haste, O God, make haste for my help!' I need a God who can do what David's God did when 'He rode upon a cherub and did fly: yes, He did fly upon the wings of the wind.'" That is the kind of God that you need, yes, and that is the kind of God that you have! He will come flying to your deliverance, as I will now try to show you.
 
-Here is the third well of consolation, CHRIST DIED FOR US IN DUE TIME&mdash;"In due time Christ died for the ungodly."
+Here is the third well of consolation, Christ DIED FOR US IN DUE TIME&mdash;"In due time Christ died for the ungodly."
 
 I cannot tell you how much marrow I have found in this bone, "In due time Christ died for the ungodly." The teaching of this verse seems to be something like this. It means, first, that Christ died for us when justice required His death. Suppose that I owe a debt? I am thankful that I do not, but suppose that I did owe a very heavy debt and that it had to be paid, say, on Tuesday morning. And there is a friend who has undertaken to pay it for me. The bill is due at 12 o'clock and he says that he will pay it for me. Now suppose that my friend goes in on Wednesday morning and pays the amount. It is very good of him, but still, you see, I lose my reputation for discharging my liabilities "in due time." I did not meet the bill on Tuesday at twelve. True, there are only 24 hours lost, but still, I am not the man that I was in the trade I fol-low&mdash;I have been a defaulter. Now, I like to think of this fact, that I, a poor sinner, over head and ears in debt to God's Justice, have not only paid Him through my great Surety, but I have paid Him to the minute! "In due time" my Surety came and discharged my debt for me! "In due time Christ died for the ungodly."
 
@@ -92,7 +92,7 @@ The Gospel of sinners is the comfort of saints! That is one observation, and the
 
 May His sweet Spirit bring you! Do not let any of us raise a question about whether we are saints or sinners, but let us all come together&mdash;let us come en masse to the Cross! Let the whole of us now fly to Calvary and stand and look up to Him, the eternal Son of God, bleeding and dying on the Cross! And let us all believe, now, that He can, that He will, that He does save, no, that He has saved our souls. God grant us Grace to do it, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS5.
+Exposition by C. H. Spurgeon: Romans5.
 
 Verse 1. Therefore being justified by faith, we have peace with God&mdash;It is a matter of present possession and present enjoyment. Whatever tribulation there may be in the world, "we have peace with God." Blessed be God for that glorious fact! We may not have peace with all men, though we would seek to have that, but, "we have peace with God."
 

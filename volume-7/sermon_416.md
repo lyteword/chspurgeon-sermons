@@ -113,7 +113,7 @@ I know there are some ministers who seem to teach doubting as a duty. I cannot. 
 
 Oh, the old saints were not always doubting. "My Beloved is mine and I am His," said Solomon. David said&mdash;"Say unto my soul, I am your salvation." "The Lord is my salvation." "The Lord is my shepherd." Job, too, could say, "I know that my Redeemer lives." Paul could speak very confidently in many places. And why should we be content to say&mdash;"I hope, I trust"&mdash;when they said they knew and were persuaded all was well between God and their souls? Let it be so with us. Unbelief dishonors us, weakens us, destroys our comforts, prevents our usefulness. Faith will make us happy and make us useful and what is best of all, it will enable us to honor God on earth and to enjoy His presence while yet we are in the low-lands of this present world.
 
-Lastly, I have a word or two to say by way of conclusion to some POOR SINNER WHO IS COMING TO CHRIST BUT WHO IS GREATLY VEXED WITH THE FIERY DARTS OF THE WICKED ONE.
+Lastly, I have a word or two to say by way of conclusion to some POOR SINNER WHO IS COMING TO Christ BUT WHO IS GREATLY VEXED WITH THE FIERY DARTS OF THE WICKED ONE.
 
 You remember how John Bunyan in his Pilgrim's Progress represents Christiana and Mercy and the children coming to knock at the gate? When they knocked, the enemy who lived in a castle hard by sent out a big dog which barked at them at such a rate that Mercy fainted and Christiana only dared to knock again. And when she obtained entrance, she was all in a tremble. At the same time, hard by in the castle there were men who shot fiery darts at all who would enter. And poor Mercy was exceedingly afraid because of the darts and the dog.
 

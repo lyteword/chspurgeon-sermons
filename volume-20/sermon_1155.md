@@ -72,7 +72,7 @@ It is possible, too, that there is a sick child at home, or a wife lying sufferi
 
 If you were to ask one of the statues in St. Paul's Cathedral how it felt, I have no doubt it would say that it always felt the same because it never had any feeling. Appeal to anything destitute of life and you will find that it has no change. But where there is life, and that which is intensely delicate&mdash;spiritual life&mdash;and where it is placed in circumstances so hostile to it as the circumstances which surround us here, there, I say, you will find that not only the revolutions of the seasons, but the variations of the temperature affect it. And every man who has this life in him experiences such changes. We have read of those who have no changes&mdash;and therefore they do not fear God. The fact that a Believer cannot, at all times, draw near to God as his spirit would desire, becomes accordingly the key which interprets to him the Grace and goodness whereby he sometimes gains access after a manner that surprises and delights his spirit.
 
-This leads cheerfully up to our third observation&mdash;THERE ARE SEASONS WHEN OUR HEART IS SWEETLY MOVED TOWARDS GOD. "Before I was even aware, my soul made me like the chariots of Amminadib."
+This leads cheerfully up to our third observation&mdash;THERE ARE SEASONS WHEN OUR HEART IS SWEETLY MOVED TOWARDS God. "Before I was even aware, my soul made me like the chariots of Amminadib."
 
 Have you not proved welcome opportunities when all your thoughts have been quickened, enlivened and stimulated to activity in the highest degree about your highest interests? We have ceased to moan&mdash;
 

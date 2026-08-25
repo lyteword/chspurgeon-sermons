@@ -118,4 +118,4 @@ MESSAGE:
 
 Beloved Friends&mdash;This is the last sermon to be issued in my absence. I hope to present you next week with a discourse preached on my return. I have been very ill during my absence in foreign lands, but I hope the result will be that on recommencing my work I shall be both physically and mentally all the more fitted for it. And I pray that to these blessings spiritual energy may be added by the abiding power of the Holy Spirit. It is a period of revival&mdash;may the Lord revive His work in each of us! I entreat the prayers of my readers and of my beloved flock. Grace, mercy, and peace be with you all. Amen.
 
-Mentone, Feb. 12,1874 C. H. SPURGEON.
+Mentone, Feb. 12,1874 C. H. Spurgeon.

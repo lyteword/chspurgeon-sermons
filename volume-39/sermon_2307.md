@@ -103,7 +103,7 @@ So then, in closing, I say to you that this Supper is a window, a window of agat
 
 Could you keep on feasting "till He comes," my unsaved Hearer? I think that you had better weep and mourn, repent and believe, and so get ready for His appearance! But those who are ready may just keep on feasting upon Him and rejoicing in Him, till He puts in His last and glorious appearance! God help us to continue so, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. JOHN161-20.
+Exposition by C. H. Spurgeon. John161-20.
 
 This chapter contains some of the most precious Words that the Lord Jesus uttered before He died upon the Cross.
 

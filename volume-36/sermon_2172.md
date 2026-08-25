@@ -64,7 +64,7 @@ Many sin by unbelieving speeches. I have repeated one or two naughty things that
 
 I have no time to say more where so much might be added. The Lord preserve us in trying times from sinning either with heart, or hands, or lips.
 
-Notice, thirdly, that IN ACTS OF MOURNING WE NEED NOT SIN. Listen&mdash;you are allowed to weep. You
+Notice, thirdly, that IN Acts OF MOURNING WE NEED NOT SIN. Listen&mdash;you are allowed to weep. You
 
 are allowed to show that you suffer by your losses. See what Job did. "Job arose and tore his mantle, and shaved his head, and fell down upon the ground, and worshipped." And "in all this Job sinned not." The mother wept much over her child and yet she may not have sinned&mdash;a mother's grief and a mother's love are sacred things. When a dear child is mourned over, those may have been not only perfectly natural tears, but even holy tears.
 
@@ -74,7 +74,7 @@ Job's acts of mourning were moderate and seemly&mdash;toned down by his faith. I
 
 David said, "I opened not my mouth; because You did it." If we cannot maintain a golden silence, yet let our speech be silver&mdash;we must use nothing less than precious metal. Job mourned and yet did not sin, for he mourned and worshipped as he mourned. This is what I commend to you who are mourning at this time. If you must fall on the ground, worship there before the Lord! If your heart is bowed down, emulate the holy ones who fall on their faces and worship God! I believe that some of the truest, purest, sweetest and strongest devotion has come to God from hearts that were breaking with grief. Remember, then, that in acts of mourning there is not, of necessity, any sin.
 
-But, fourthly, IN CHARGING GOD FOOLISHLY WE SIN GREATLY. "Job sinned not" and the phrase which explains it is, "nor charged God foolishly." Here let me say that to call God to our judgment seat at all is a high crime and felony! "No, but, O man, who are you that replies against God?" Woe unto him that contends with his Maker! The Lord is absolutely Sovereign and He gives no account of His matters. We are usurping fools when we pretend to sit in judgment upon the Judge of all the earth!
+But, fourthly, IN CHARGING God FOOLISHLY WE SIN GREATLY. "Job sinned not" and the phrase which explains it is, "nor charged God foolishly." Here let me say that to call God to our judgment seat at all is a high crime and felony! "No, but, O man, who are you that replies against God?" Woe unto him that contends with his Maker! The Lord is absolutely Sovereign and He gives no account of His matters. We are usurping fools when we pretend to sit in judgment upon the Judge of all the earth!
 
 In the next place, we sin in requiring that we should understand God. What? Is God under bonds to explain Himself to us? Do we threaten to revolt unless He will put Himself right with us? Blessed be His name, He is inscrutable and I am glad to have Him so! Do you want your God to explain His dispensations? Are you not content to believe Him? The demand for explanation is unbelief! This is, indeed, making yourselves to be wiser than God! Let us bow before Him without a question.
 

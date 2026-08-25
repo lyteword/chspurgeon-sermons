@@ -10,7 +10,7 @@ Now, in a still higher sense, the Lord Jesus Christ knows all about those in thi
 
 Yes, and there are some of them who know Him already, in a measure, but their measure is a very little one. It is but as a drop compared with the great deep sea. I have been praying and am still praying, and I am not alone in the prayer, that this very hour the Lord Jesus may be pleased to manifest Himself to His own blood-bought ones! To all who have been already called by His Grace and to many not yet called to Him, may He come in the fullness of His own glorious revelation and make Himself known! For know you not this&mdash;that the revelation of Christ in the Word will not save you unless Christ is revealed in you and to you personally. No, more than that&mdash;the Christ born at Bethlehem will not save you unless that Christ is formed in you the hope of Glory&mdash;He must Himself come to you and make Himself known to you. It will not suffice you to read about His healing the sick. He must touch you with His hand or you must touch the hem of His garment with your hand. Somehow there must be personal contract between yourself and the Lord Jesus Christ, or else all that He did will mean nothing to you. Let this be our prayer now&mdash;that to each man and woman and child here the Lord may graciously make Himself known.
 
-Notice, first, that THE LORD JESUS CHRIST, LIKE JOSEPH, REVEALS HIMSELF IN PRIVATE FOR THE MOST PART.
+Notice, first, that THE Lord Jesus Christ, LIKE JOSEPH, REVEALS HIMSELF IN PRIVATE FOR THE MOST PART.
 
 Joseph cried, "Cause every man to go out from me. And there stood no man with him while Joseph made himself known unto his brethren." It would not have been seemly for this great ruler to lose all command of himself in the presence of the Egyptians. His heart was carried away with love to his brothers and the cry that he lifted up was so loud that the people in other parts of the palace could hear that something strange was going on! But he could not bear that they should all stand around and gaze with curious eyes upon their ruler as he revealed himself to his brothers. They would not have understood it. They might have misrepresented it. At any rate, he could not bear that the scene of affection which was now to be enacted should be witnessed by strangers, so he cried, "Cause every man to go out from me."
 
@@ -24,7 +24,7 @@ There is a story told of Mr. Erskine having preached on one occasion before the 
 
 Think of this story when you are remembering the Lord's servants and forgetting their Master, Himself. I believe that as you are sitting here, you whose eyes have already been opened by the Spirit of God, if you will but say, "Cause every man to go out from me. Shut the door, I have entered into my closet even while in the pew. I am alone, now, and I desire to see no man but Jesus, only." You shall see Him, for He manifests Himself to His people all alone! Oh, that each one here would say, "There is nothing but Christ that I desire to see, there is nothing else I wish to remember, I would think only of my Lord Jesus. May He be pleased to reveal Himself to me!"
 
-The second remark I have to make is this&mdash;when the Lord Jesus Christ reveals Himself to any man for the first time, it is usually in the midst of terror. And THAT FIRST REVELATION OFTEN CREATES MUCH SADNESS.
+The second remark I have to make is this&mdash;when the Lord Jesus Christ reveals Himself to any man for the first time, it is usually in the midst of terror. And THAT FIRST Revelation OFTEN CREATES MUCH SADNESS.
 
 When Joseph made himself known to his brethren and said to them, "I am Joseph," "they were troubled in his presence." Judah had made a very plaintive speech when it was threatened that Benjamin should be detained in Egypt and all the brothers were in deep trouble, so that when the great ruler said to them, "I am Joseph," they were not filled with joy by his words. So we read, "His brethren could not answer him, for they were troubled at his presence." He was Joseph, their brother, and he loved every one of them&mdash;yet, "they were troubled at his presence." It was the best thing that could have happened to them, to be in the presence of him who was sent of God to save their lives with a great deliverance. Yet, "they were troubled at his presence."
 
@@ -36,7 +36,7 @@ Dear Friends, if any of you are in this sad state, do not, therefore, be driven 
 
 Now, thirdly, though the first appearance of Jesus, like that of Joseph, may cause sadness, THE FURTHER
 
-REVELATION OF THE LORD JESUS CHRIST TO HIS BRETHREN BRINGS THEM THE GREATEST POSSIBLE
+Revelation OF THE Lord Jesus Christ TO HIS BRETHREN BRINGS THEM THE GREATEST POSSIBLE
 
 JOY.
 
@@ -80,7 +80,7 @@ Come, Beloved, can you not get nearer to your Lord? Can you not speak familiarly
 
 "Come, Holy Spirit, heavenly Dove" and help us now to come near to Jesus! Amen and Amen!
 
-EXPOSITIONS BY C. H. SPURGEON: GENESIS 45:1-13; SONG OFSOLOMON 1:1-7; 3:1-5.
+ExpositionS by C. H. Spurgeon: Genesis 45:1-13; SONG OFSOLOMON 1:1-7; 3:1-5.
 
 Genesis 45:1, 2. Then Joseph could not refrain himself before all them that stood by him: and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren. And he wept aloud. Emotion long pent up grows intense and when, at last, it bursts forth, it cannot be restrained. "He wept aloud."
 

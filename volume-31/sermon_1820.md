@@ -82,4 +82,4 @@ Friends at the Tabernacle, I have heard of one enthusiastic friend who so misses
 
 With Christian love to my dear hearers and readers,
 
-I am yours, for I am Christ's, C. H. SPURGEON.
+I am yours, for I am Christ's, C. H. Spurgeon.

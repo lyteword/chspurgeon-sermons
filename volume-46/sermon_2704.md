@@ -88,7 +88,7 @@ I used to think that if I once told this wondrous story of "Free Grace and dying
 
 No, my Master, by Your Grace, You will never be able to say that to me! With all my faults, infirmities and imperfections, I have sought to declare Your Truth, as far as I knew it, to the sons of men. Therefore, my Hearers, I shake my skirts free of your blood! If any of you shall reject Christ, I will have nothing to do with your damnation! Be spiritual suicides if you will, but I will not be your soul-murderer, nor act like Saul wished his armor-bearer to do when he bade him thrust him through with the sword. I implore you to "flee from the wrath to come!" Escape by quitting your sins and laying hold on Jesus! Do it this very moment, for you may never have another opportunity to do it! May the Lord, in His infinite mercy, grant you Grace to trust in Jesus! Amen and Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 3; 11:20-30; REVELATION 7:9-17.
+Exposition by C. H. Spurgeon: Matthew 3; 11:20-30; Revelation 7:9-17.
 
 Matthew 3:1, 2. In those days came John the Baptist, preaching in the wilderness of Judea, and saying, Repent, for the Kingdom of Heaven is at hand. His was a preparatory ministry. His work was to prepare men's minds for Christ and never is the heart of man so ready to receive Christ as when it is in a state of repentance. When it is weary of sin, then is it that Christ comes in and is welcomed by the soul conscious of its guilt, tired of it, and longing to be rid of it.
 

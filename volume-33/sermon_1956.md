@@ -57,7 +57,7 @@ Let us go further. I see, next, the seal of God set upon unfulfilled prophecy, f
 
 I have said this much upon the fulfillment of the Word concerning our Lord. Let us learn, therefore, a lesson of reverence and confidence in reference to Holy Scripture.
 
-But now, secondly, and briefly, THE IDENTIFICATION OF OUR LORD AS THE MESSIAH was greatly
+But now, secondly, and briefly, THE IDENTIFICATION OF OUR Lord AS THE MESSIAH was greatly
 
 strengthened by that which befell His body after death. It was necessary that He should conclusively be proven to be the Christ spoken of in the Old Testament. Certain marks and tokens are given and those marks and tokens must be found in Him&mdash;they were so found.
 

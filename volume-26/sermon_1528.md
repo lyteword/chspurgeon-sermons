@@ -12,7 +12,7 @@ In temptation there is for the soul all the deadliness which the slaughter weapo
 
 You are being tempted. May the practical words I shall be able to speak be applied with power by the Holy Spirit to your comfort and help.
 
-First I will call attention to THE UNIVERSAL TRUTH OF THE STATEMENT now before us. It is not true that all the saints were scourged, nor all imprisoned. Neither were all stoned, nor all slain with the sword. But it is true of the whole cloud of witnesses that they were all tempted. The word, "tempted," bears two meanings. First of all, that of being tried or afflicted and, secondly, that of being persuaded or enticed to sin. In the first aspect of it God did tempt Abraham, that is, He tried him and this He does with all His people. God had one Son without sin, but He never had a son without trial!
+First I will call attention to THE UNIVERSAL TRuth OF THE STATEMENT now before us. It is not true that all the saints were scourged, nor all imprisoned. Neither were all stoned, nor all slain with the sword. But it is true of the whole cloud of witnesses that they were all tempted. The word, "tempted," bears two meanings. First of all, that of being tried or afflicted and, secondly, that of being persuaded or enticed to sin. In the first aspect of it God did tempt Abraham, that is, He tried him and this He does with all His people. God had one Son without sin, but He never had a son without trial!
 
 "What son is there whom the Father chastened not?" "Of which you are all partakers," says Paul, when he speaks of chastening. "For whom the Lord loves, He corrects, even as a father the son in whom he delights." His own elect are
 

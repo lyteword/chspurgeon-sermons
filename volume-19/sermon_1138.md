@@ -129,7 +129,7 @@ If there is any one topic that you Christians ought to speak about thankfully, b
 
 therefore, to that you should bring the strength of your testimony, that tried saints may know that He does not forsake His people.
 
-And now, to close, I desire in the name of God's people here present, TO SHOW FORTH GOD's FAITHFULNESS THIS VERY NIGHT. My Brothers and Sisters, as a Church, let us declare how faithful God has been to us! Our
+And now, to close, I desire in the name of God's people here present, TO SHOW FORTH God's FAITHFULNESS THIS VERY NIGHT. My Brothers and Sisters, as a Church, let us declare how faithful God has been to us! Our
 
 history as a Church has been very wonderful. When we were few and feeble, and brought low, God appeared for us. Then we began to prosper and we began, also, to pray. And what prayers they were! Surely the more we prayed the more God blessed us. We have now had almost 20 years of uninterrupted blessing. We have had no fits and starts. We have not sponsored revivals and retreats&mdash;but onward has been our course, in the name of God, a steady, continued progress&mdash; like the growth of a cedar upon Lebanon.
 

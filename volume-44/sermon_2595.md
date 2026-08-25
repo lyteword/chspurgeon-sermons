@@ -66,7 +66,7 @@ But there are some of you who have never come to this Table. If you are not God'
 
 Now come, dear Friends, to this Communion Table, seeking your Lord and Master, and may you find Him and your hearts be made glad! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW26:17-30; 1 CORINTHIANS11:20-34.
+Exposition by C. H. Spurgeon: Matthew26:17-30; 1 Corinthians11:20-34.
 
 Matthew 26:17-19. Now the first day of the feast of unleavened bread the disciples came to Jesus, saying unto Him, Where will You that we prepare for You to eat the Passover? And He said, Go into the city to such a man, and say unto him, The Master says, My time is at hand; I will keep the Passover at your house with My discip1es. And the disciples did as Jesus had appointed them; and they made ready the Passover Note their prompt obedience&mdash;"the disciples did as Jesus had appointed them." In this respect, they set an example we shall do well to follow.
 

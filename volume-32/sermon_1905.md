@@ -74,7 +74,7 @@ Believe, once more, that all the eternal penal consequences are gone from the fo
 
 that justifies. Who is he that condemns? It is Christ that died, yes, rather, that is risen again, who is even at the right hand of God, who also makes intercession for us." Sin gone, the root of all evil is gone! "Comfort you, comfort you My people, says your God. Speak you comfortably to Jerusalem and cry unto her, that her warfare is accomplished, that her iniquity is pardoned: for she has received of the Lord's hand double for all her sins."
 
-The specialty of what I want to say lies in my last point&mdash;that THE LORD EVEN CHANGES THE TONE OF
+The specialty of what I want to say lies in my last point&mdash;that THE Lord EVEN CHANGES THE TONE OF
 
 HIS PEOPLE's SPEECH. "The inhabitant shall not say, I am sick." That is the point! Why shall they not say, "I am sick"?
 

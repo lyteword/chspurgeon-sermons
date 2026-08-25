@@ -97,7 +97,7 @@ Is not that what the Apostle meant in the chapter we read?  "Say not in yours he
 
 I think I hear somebody say, "Then, I will do it! I will trust Christ, whether I may or may not." You are a saved man if you only did it while I was speaking the word, for there was never a soul that said, "Christ shall be All-in-All to me," but Christ really was All-in-All to that soul! May the Holy Spirit bring many of you to that blessed decision! And God shall be glorified, and you shall share His joy forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 10.
+Exposition by C. H. Spurgeon: Romans 10.
 
 Verse 1. Brethren, my heart's desire andprayer to God for Israelis that they might be saved. No curse falls from his lips, though they had persecuted him without mercy, hunted him from city to city and gnashed their teeth at the very mention of his name. Yet Paul has no desire for them but their salvation! He utters no malediction against them, but the prayer goes up from his very heart, "that they might be saved." Let that be your worst wish for any living man. Whatever he may do to you, let this be your heart's desire and prayer for him&mdash;that he may be saved!
 

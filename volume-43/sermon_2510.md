@@ -77,7 +77,7 @@ May true holiness spring out of your repentance and may this go side by side wit
 
 God bless you, Beloved! May we meet in Heaven to sing together, though on earth we must mourn apart, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM51.
+Exposition by C. H. Spurgeon: Psalm51.
 
 Although we may have been preserved by Divine Grace from any gross and open sin, yet let us read this Psalm in the spirit of penitence. I always feel afraid of myself if I cannot read this Psalm from my heart. Surely some pride must have entrusted my spirit and taken away its humility and its tenderness, if I cannot join in David's penitential prayer. I think that all of us who have the Spirit of God within us will feel that these words are suited to us as well as to poor brokenhearted David.
 

@@ -8,7 +8,7 @@ THESE ancient words, so simple, yet so sweet, fascinate us with a potent hallowe
 
 We shall proceed accordingly, this evening, to talk to you upon four things. First, the nature of a true Church as it is depicted by Israel in the wilderness. Secondly, the obligation of such a Church to invite suitable persons to join it. Thirdly, the argument that the Church may use, and the inducements it will always have to offer in setting forth the benefits to be conferred on those who heartily respond. And fourthly, the scrupulous fidelity it behooves us, as members of the Church, to observe in keeping our pledge ever afterwards to seek the welfare of such as unite with our fellowship.
 
-First, then, WHAT ARE THE CHARACTERISTICS OF a TRUE CHURCH AS IT IS PICTURED BY ISRAEL IN THE WILDERNESS? We might prolong the answer to this question with many minute features, but it will be unnecessary, at present, to do more than give you a simple broad outline. The people in the wilderness were a redeemed people. They had been redeemed by blood and redeemed by power. The sprinkling of the blood of the paschal lamb over their lintels and their doorposts had secured their safety when the first-born of Egypt was slain.
+First, then, WHAT ARE THE CHARACTERISTICS OF a TRUE CHURCH AS IT IS PICTURED by ISRAEL IN THE WILDERNESS? We might prolong the answer to this question with many minute features, but it will be unnecessary, at present, to do more than give you a simple broad outline. The people in the wilderness were a redeemed people. They had been redeemed by blood and redeemed by power. The sprinkling of the blood of the paschal lamb over their lintels and their doorposts had secured their safety when the first-born of Egypt was slain.
 
 Thus they were redeemed by blood, while wonderful miracles were worked throughout the whole land. And at the last, when threatened and pursued by their oppressors, the whole of the pride and pomp of Egypt was destroyed in the Red Sea. They were, indeed, redeemed by power. So, all the true members of God's Church understand what the blood of sprinkling means. They have enjoyed a Passover through it. God has passed over them&mdash;passed over them in mercy. Justice has executed its warrant upon the Person of the Lamb, and they have escaped&mdash;they have been redeemed by blood.
 
@@ -44,7 +44,7 @@ The bias of the current is not towards Heaven. Alas, it is the other way! "Behol
 
 Here, then, are some of the marks of the Church of Christ. I hope that a part of that Church worships in this House of Prayer. A part of that Church will be found to worship in every House of Prayer where the disciples of our common Lord assemble, and the mystery of God and of the Father and of Christ is acknowledged.
 
-Let us pass on to the second word, which is this, that IT IS THE DUTY OF THE CHRISTIAN CHURCH TO INVITE SUITABLE PERSONS TO JOIN WITH IT. As you read&mdash;"Come you with us, and we will do you good"&mdash;are not these the terms in which any Church should invite a suitable pastor to unite with it? I have always felt that they have a better application to a pastor than they have to the people. For it is said of Hobab, "You know how we are to encamp in the wilderness, and you shall be unto us instead of eyes."
+Let us pass on to the second word, which is this, that IT IS THE DUTY OF THE ChristIAN CHURCH TO INVITE SUITABLE PERSONS TO JOIN WITH IT. As you read&mdash;"Come you with us, and we will do you good"&mdash;are not these the terms in which any Church should invite a suitable pastor to unite with it? I have always felt that they have a better application to a pastor than they have to the people. For it is said of Hobab, "You know how we are to encamp in the wilderness, and you shall be unto us instead of eyes."
 
 It was inviting a really efficient helper, who would be of great service to the Israelites, to come and cast in his lot with them. So should a Church expect to find in its pastor one who may guide them, because he knows how they are to encamp in the wilderness. One who may be to them, in some respects, instead of eyes. Their invitation should come in this way, not only, "Come you with us, that we may get good out of you"&mdash;that is one design&mdash;but it should also be, "Come you with us, that we may do you good. That we may hold up your hands, that we may sustain you by our prayers, that we may back you up by our efforts. That being led onward by you from one work of Christian activity to another, we may never fail you, never betray you, but may stand with you even to the last."
 
@@ -82,7 +82,7 @@ Before I leave this point let me call your attention to a certain sense in which
 
 So, then, the exhortation of our text which, strictly speaking, seems most applicable to the minister, becomes next suitable to the child of God who has not up to now cast in his lot with the company of our Lord's disciples. And after that, in a certain sense, it may be appropriately addressed to all who come under the sound of the Gospel. "Come you with us, and we will do you good."
 
-But now, our third observation is that THE MAIN ARGUMENT&mdash;THE MOST POWERFUL INCENTIVE WE CAN EVER USE IS THAT ASSOCIATION WITH THE CHURCH OF CHRIST WILL DO THOSE WHO ENTER
+But now, our third observation is that THE MAIN ARGUMENT&mdash;THE MOST POWERFUL INCENTIVE WE CAN EVER USE IS THAT ASSOCIATION WITH THE CHURCH OF Christ WILL DO THOSE WHO ENTER
 
 INTO IT GOOD.
 
@@ -118,7 +118,7 @@ Of natives in the Holy Mount;
 
 As one new born and nourished there." Woe unto those who shall have no part with Israel in the day when the lots shall be divided and the portions shall be given! Woe unto such as shall be found among the Amalekites or Canaanites&mdash;strangers to the chosen seed! But happy shall all they be who have God to be their God, for their portion shall be bliss forever. Come you, therefore, with us, for whatever good the Lord shall do unto us you shall be a partaker in it.
 
-And now, lastly. All this being seriously pondered and clearly understood, the last point is a matter of very serious importance. Lest we should be found mere pretenders, LET ALL OF US WHO BELONG TO CHRIST's CHURCH
+And now, lastly. All this being seriously pondered and clearly understood, the last point is a matter of very serious importance. Lest we should be found mere pretenders, LET ALL OF US WHO BELONG TO Christ's CHURCH
 
 TAKE CARE TO MAKE THIS ARGUMENT TRUE.
 

@@ -11,7 +11,7 @@ There is a fullness at all times. A fullness by day and a fullness by night. A f
 
 And now what shall we say to these things? "Of His fullness have all we received." The text seems to me to suggest four reflections. First, an appeal to our gratitude. "Glory be to Christ! For of His fullness have all we received." Secondly, a notion of character, "Thus may you know the people of God, for of His fullness have they all received." Thirdly, a sentence of admonition to believers, "Be wise, oh you people of God, be grateful and be humble, for it is of His fullness you have received." And in the last place here is to the sinner a word of sweet encouragement, "Come, all the saints invite you, for of His fullness have all they received."
 
-To begin with the first the text constrains us to say, "GLORY BE UNTO CHRIST FOR HIS FULLNESS, for of it have all the saints received."
+To begin with the first the text constrains us to say, "GLORY BE UNTO Christ FOR HIS FULLNESS, for of it have all the saints received."
 
 Appeal to those who died before the flood. Ask those who trod in the steps of Enoch. Go forward to Noah, to Abraham, Isaac and Jacob. Put the question to David and Samuel&mdash;come on through the Prophets, to Isaiah and Jeremy&mdash; ask them all, "From where came your faith? From where your power to suffer and your strength to conquer?" With united breath they answer, "Of His fullness who as yet had not come in the flesh we by faith received." Ask the saints in later times. I summon you, oh you bright Apostles of the Lamb, "From where came your noble testimony and your unwavering constancy?" They reply with the voice of John, their leader, "Of His fullness have all we received."
 
@@ -31,7 +31,7 @@ Ah, come at midnight, you whose sun is set, who are lost in the darkness of desp
 
 Though there are many things to say on each division of my subject, you must excuse me if I say but little. You must take the text home and think of it for yourselves. Spirits around the Throne, I hear you sing tonight, "Of His fullness have all we received." Saints on earth, speeding your way to the eternal triumphs, join their song and say, "Of His fullness have all we received." Let no voice be silent, let no tongue be dumb, but let every soul say, "Of His fullness, too, have I received and glory be unto His name."
 
-Now for our second point. The text also teaches us HOW TO KNOW WHO IS THE CHRISTIAN, for it says, "Of His fullness have all we received."
+Now for our second point. The text also teaches us HOW TO KNOW WHO IS THE ChristIAN, for it says, "Of His fullness have all we received."
 
 There are some in this world who obtain their religion from their fathers and mothers. They go to church, or perhaps to chapel, because there is a family pew there and all their family used to go. They speak about "our church" and "our denomination" as though their grandfather had left his religion in his last will and testament for a legacy to them. Let such know that religion is not to be inherited. It is a personal matter. No man can stand sponsor for another. One of the most ridiculous and pestilent of human inventions is the idea of making one man stand representative for another, or an adult for a child&mdash;everyone must appear before God and be judged for ourselves.
 

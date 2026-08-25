@@ -2,7 +2,7 @@
 
 "Nevertheless we made our prayer unto our God, and set a watch against them day and night, because of them." Nehemiah 4:9.
 
-NEHEMIAH and the Jews with him were rebuilding the walls of Jerusalem. Sanballat and others were angry with them and tried to stop the work. They determined to pounce upon the people on a sudden and slay them&mdash;and so put an end to what they were doing. Our text tells us what Nehemiah and his companions did in this emergency&mdash;"Nevertheless we made our prayer unto our God, and set a watch against them day and night, because of them."
+Nehemiah and the Jews with him were rebuilding the walls of Jerusalem. Sanballat and others were angry with them and tried to stop the work. They determined to pounce upon the people on a sudden and slay them&mdash;and so put an end to what they were doing. Our text tells us what Nehemiah and his companions did in this emergency&mdash;"Nevertheless we made our prayer unto our God, and set a watch against them day and night, because of them."
 
 These people had not only to build the wall of Jerusalem, but to watch against their enemies at the same time. Their case is ours. We have to work for Christ. I hope that all of us who love Him are trying to do what we can to build up His Kingdom&mdash;but we also need to watch against deadly foes. If they can destroy us, of course they will also destroy our work. They will do both if they can. The powers of evil are mad against the people of God. If they can in any way injure or annoy us, you may rest assured that they will do so. They will leave no stone unturned if it can serve their purpose. No arrows will be left in the quivers of Hell while there are godly men and women at whom they can be aimed. Satan and his allies aim at our hearts every poisoned dart they have!
 
@@ -94,7 +94,7 @@ The Lord grant that it may come to many of you! "Seek you the Lord while He may 
 
 Portion of Scripture Read before Sermon&mdash;Nehemiah 4. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;994, 999, 668.
 
-EXPOSITION BY C. H. SPURGEON NEHEMIAH 4:1-23
+Exposition by C. H. Spurgeon Nehemiah 4:1-23
 
 Verse 1. But it came to pass, that when Sanballat heard that we built the wall, he was angry and took great indignation, and mocked the Jews. It was necessary to rebuild the wall of Jerusalem which had been lying in ruins. They went on pretty briskly, for everyone had a mind to work. There never was a good work yet but what there were some to oppose it&mdash;and there never will be till the Lord comes! Sanballat heard what the Jews were doing and he was very angry. "He was angry and took great indignation." He was all on fire with anger that God's work was being continued.
 

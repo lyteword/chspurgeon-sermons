@@ -62,7 +62,7 @@ Don't you hear His call? "O My Dove that is in the clefts of the rock, in the se
 
 Stand up, you Slumberers! And now, with heart and soul, seek fellowship with Him! It would be a sad thing if while Christ is with us any should be slumbering, and then should wake up and say, "Surely God was in this place and I knew it not." Rather may you invite Him to come into your souls and abide with you until the day breaks and the shadows flee away, and you behold Him face to face.
 
-Thus much upon the first point. And now may His Holy Spirit help us to view OUR LORD IN HIS CHURCH.
+Thus much upon the first point. And now may His Holy Spirit help us to view OUR Lord IN HIS CHURCH.
 
 The beautiful expressions of the text are capable of many holy meanings, and it is not possible that any expositions of mine could fully unveil their treasures. But let me observe, first, that Christ is delighted with the offerings of His people. He says, "I have gathered My myrrh with My spice." We may consider myrrh and spice as sweet perfumes offered by way of incense to God&mdash;as being indicative of the offerings which His people bring to Him.
 

@@ -78,7 +78,7 @@ PORTIONS OF SCRIPTURE READ BEFORE SERMON'Psalm 34.
 
 HYMNS FROM Our Own Hymn Book'174, 775.
 
-LETTER FROM MR. SPURGEON.
+LETTER FROM MR. Spurgeon.
 
 Dear Friends,'Your continued prayers are sought for the special services at the tabernacle, that by their success any injury occurring through the pastor's enforced absence may be remedied. It would be an affliction indeed if our life-work should suffer through painful sickness, which in itself is a heavy cross to bear. By your prayers this will be averted, and the trial will be turned into a blessing.
 

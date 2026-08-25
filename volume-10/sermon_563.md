@@ -9,7 +9,7 @@ Omitting the sin of the deed, we have here a picture of what is often done by ou
 
 I shall use my text, first of all, in reference to believers; and then, with regard to the unconverted. Oh for help from above!
 
-First of all, brethren, let us use the text WITH REFERENCE TO BELIEVERS IN CHRIST.
+First of all, brethren, let us use the text WITH REFERENCE TO BELIEVERS IN Christ.
 
 My beloved brethren and sisters in Jesus Christ, we cannot expect to avoid tribulation. If other men's barley-fields are not burned, ours will be. If the Father uses the rod nowhere else, he will surely make his true children smart. As Paul saith, and as our hymnster hath rhymed it&mdash;
 

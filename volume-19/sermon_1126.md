@@ -103,7 +103,7 @@ very attempt. But you shall never calculate the multitude of the Lord's tender m
 
 Then look upwards to the trees. Count the myriad leaves which make the forest. Detain the dust which stirs in the summer's gale, count all the grains which make the mountains, all the sands which form the seashore and all the drops which compose the sea. Have you done? Ah, then, you have but begun to estimate the multitude of the loving kindnesses of the Lord! O, my Soul, bless the Lord! Why be silent? "Why should the mercies He has worked be lost in silence and forgot?" Break forth, my Spirit! Break forth my whole Nature! All that is within me be stirred up to magnify and bless His holy name, for He is God and His mercies are unsearchable! Past finding out are His favors! Glory be unto His name!
 
-We close after occupying two or three minutes in hinting at the PRACTICAL REASONS WHY WE SHOULD THUS MENTION THE LOVING KINDNESSES OF THE LORD. First, we should do this that we may have pleas in
+We close after occupying two or three minutes in hinting at the PRACTICAL REASONS WHY WE SHOULD THUS MENTION THE LOVING KINDNESSES OF THE Lord. First, we should do this that we may have pleas in
 
 prayer. This is the best way of praying. "Lord, you have done this for Your servant. You have done that for Your servant, therefore I beseech You, do more!" This is not after the manner of men, for when we once relieve a man's necessities we say to him, "Do not come again." But every gift which God gives is an invitation to come again and the best way in which we can show our gratitude is to seek for further gifts&mdash;
 

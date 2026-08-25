@@ -68,7 +68,7 @@ Then what shall I say to you who have never believed in the Lord Jesus Christ? I
 
 Before that dread event happens, I entreat you, by the very reasonableness of the thing, to consider, repent and turn to the Lord! Look to Jesus Christ upon the Cross, for He is the only way of salvation! Find in Him the power to hate sin and the power to conquer it, for there is no power anywhere but that which comes from His dear streaming wounds and from His ever-living Spirit. Look to Him&mdash;and when you have done so and have trusted Him&mdash;then pray this prayer to the Lord, "Order my steps in Your Word: and let not any iniquity have dominion over me, for Jesus Christ's sake! Amen."
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:129-144; MATTHEW 15:1-13. Psalm 119:129. Your testimonies are wonderful: therefore does my soul keep them. It is very wonderful that God should speak to us at all, but still more marvelous that He should write to us such a book as this Bible. The Book itself is full of wonders and one of those wonders is that it reveals Him whose name is "Wonderful." Observe that the Psalmist, having said to the Lord, "Your testimonies are wonderful," does not add, "Therefore do I sit down and wonder at them." No, his appreciation was practical, let ours be the same&mdash;"Your testimonies are wonderful: therefore does my soul keep them."
+Exposition by C. H. Spurgeon: Psalm119:129-144; Matthew 15:1-13. Psalm 119:129. Your testimonies are wonderful: therefore does my soul keep them. It is very wonderful that God should speak to us at all, but still more marvelous that He should write to us such a book as this Bible. The Book itself is full of wonders and one of those wonders is that it reveals Him whose name is "Wonderful." Observe that the Psalmist, having said to the Lord, "Your testimonies are wonderful," does not add, "Therefore do I sit down and wonder at them." No, his appreciation was practical, let ours be the same&mdash;"Your testimonies are wonderful: therefore does my soul keep them."
 
 The entrance of Your Words gives light. Those who are most ignorant and have least confidence in their own abilities will, nevertheless, become very wise if they study God's Word.
 
@@ -82,7 +82,7 @@ Make Your face to shine upon Your servant. That is the best sunshine for us! Let
 
 135-136. And teach me Your statues. Rivers of waters run down my eyes because they keep not Your Law. The Psalmist felt for others as well as for himself. It was not enough for him to be holy&mdash;he would have others to be the same. Sin in other men brought sorrow to his heart. "Rivers of waters run down my eyes, because theykeep not Your Law."
 
-Righteous are You, O LORD, and upright are Your judgments. After having wept over the sin of men, the Psalmist turns with sweet calmness of spirit to the goodness of God.
+Righteous are You, O Lord, and upright are Your judgments. After having wept over the sin of men, the Psalmist turns with sweet calmness of spirit to the goodness of God.
 
 Your testimonies that You have commanded are righteous and very faithful. "Very faithful." You who have tried and proven God's promises must have found them so&mdash;not only faithful, but very faithful, faithful to the letter, faithful to the moment. God seems rather to exceed His promise than ever to fall short of it.
 

@@ -64,7 +64,7 @@ The worst of these wavering, undecided people is that, like waves of the sea, th
 
 In closing, what shall I say to you who are undecided? I pray you think whether you have not been undecided long enough. Remember that the question you have to decide is by no means a difficult one. Whether you shall serve God or Satan, whether you shall live with Christ in Heaven or lie among the lost in Hell forever&mdash;these are not questions about which there ought to be any choice! Decide, then, foolish waverer! If you are a Believer in the Scriptures, a Believer in the Lord Jesus Christ as the Savior of men, decide to follow the teaching of those Scriptures and to accept that Savior&mdash;and decide at once! May God help you to decide very speedily! All this while you are robbing yourself of happiness, robbing God of glory, robbing His people of your help, you are even robbing this poor wicked world of what little you might do for its benefit, robbing your family of a holy example, robbing your entire life by letting its best days go for nothing. It is time, then, you were decided! O Lord, bring these waverers to decision, for Your dear Son's sake! Amen.
 
-EXPOSITION BY C.H. SPURGEON: JAMES 1.
+Exposition by C.H. Spurgeon: James 1.
 
 Verse 1. James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are scattered abroad, greeting. According to the teaching of some in the present day, the Apostle should have said, "To the two tribes and the ten that are lost," but he does not say so, nor does Scripture say so. "To the twelve tribes which are scattered abroad, greetings."
 

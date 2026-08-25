@@ -90,7 +90,7 @@ Oh, come and believe in Him, poor Sinner! I feel that if I had all your souls, I
 
 before the Throne of God! Only trust Him and you will be saved! May His gracious Spirit lead you to do so now, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON JOHN11-34
+Exposition by C. H. Spurgeon John11-34
 
 May the Holy Spirit, who inspired these Words, inspire us through them as we read them! Verse 1. In the beginning was the Word. The Divine Logos, whom we know as the Christ of God. "In the beginning was the Word." The first words of this Gospel remind us of the first words of the Old Testament&mdash;"In the beginning God created the Heaven and the earth." Even then "the Word" Was&mdash;He existed before all time, even from everlasting.
 

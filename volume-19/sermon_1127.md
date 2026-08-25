@@ -88,7 +88,7 @@ Will you pray it, my Brothers and Sisters? This text is laid on my heart. It lie
 
 But you have taken tenderly and generously to the work and God has blessed you, and at this very moment some 300 of your sons, nursed at your knees, are preaching the same Gospel which we are preaching here, for which let God be praised! While we give let us pray and when we have prayed, let us give, that God may send forth laborers into His harvest.
 
-The last point is this&mdash;THE LORD JESUS HEARD THEIR PRAYERS&mdash;He did sent forth laborers. I feel vexed
+The last point is this&mdash;THE Lord Jesus HEARD THEIR PRAYERS&mdash;He did sent forth laborers. I feel vexed
 
 with the fellow who chopped the Bible up into chapters. I forget his name just now and I am sure it is not worth remembering. I have heard that he did the most of his carving of the new Testament between London and Paris, and rough work he made of it. Surely he was chaptering the Gospel of Matthew while he was crossing the Channel, for he has divided it in such strange places. He has chopped this passage in two. "Pray you therefore the Lord of the harvest, that He will send forth laborers into His harvest."
 

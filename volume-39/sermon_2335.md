@@ -2,9 +2,9 @@
 
 "In the shadow of Your wings will I make my refuge." Psalm 57:1.
 
-"Cast your burden upon the LORD, and He shall sustain you." Psalm 55:22.
+"Cast your burden upon the Lord, and He shall sustain you." Psalm 55:22.
 
-"Let him trust in the name of the LORD, and stay upon his God." Isaiah 50:10.
+"Let him trust in the name of the Lord, and stay upon his God." Isaiah 50:10.
 
 IT is the preacher's business to endeavor to make plain to the people the meaning of the word, FAITH. Inasmuch as salvation comes by believing, it is most important that men should know what believing is&mdash;and though we have to preach upon many topics and take the whole range of the Word of God&mdash;yet it often behooves the minister of Christ to dwell especially upon the way whereby men are saved and to explain what is that step by which they enter into eternal life. You may think that it is very easy to explain faith and so it is, but it is still easier to confuse people with your explanation. There is nothing simpler in the world than to believe in Christ Jesus, yet probably there is nothing more difficult than to explain to a man what it is to believe in the Lord Jesus&mdash;not that the thing, itself, is difficult, but the explaining of it is not so easy.
 
@@ -56,7 +56,7 @@ When I soar through tracks unknown," and see Christ on His Judgement Throne, I h
 
 saves&mdash;it could not be the faith of the Holy Spirit&mdash;it must be the sinner's own faith though it is worked in him by the Spirit of God. Therefore, believe and live unto God!
 
-Having dwelt on that illustration long enough, I ask you, now, to notice another expression in Psalm 55, verse 22&mdash;"Cast your burden upon the Lord and He shall sustain you." This passage sets forth faith as ROLLING OUR BURDEN UPON GOD.
+Having dwelt on that illustration long enough, I ask you, now, to notice another expression in Psalm 55, verse 22&mdash;"Cast your burden upon the Lord and He shall sustain you." This passage sets forth faith as ROLLING OUR BURDEN UPON God.
 
 I believe that this text might be rendered, "Roll your burden upon the Lord." The similar passage in Psalm 37, verse five, "Commit your way unto the Lord," is, in the margin, "Roll your way upon the Lord."
 
@@ -78,7 +78,7 @@ Now then, roll your burden upon the Lord. I really think that if a number of fri
 
 Do that, I pray you! Roll your burden upon the Lord. Trust in Him&mdash;to roll your burden upon Him is to trust Him! I do not know a better figure by which to set faith forth. Oh, that God the Holy Spirit may use it, tonight, to the unburdening of many poor souls!
 
-I said that we would have three of these Old Testament diamonds&mdash;the third is found in the fiftieth chapter of Isaiah, and the tenth verse, where faith is likened to STAYING UPON GOD. I read it to you just now, but we will read the verse again&mdash;"Who is among you that fears the Lord, that obeys the voice of His servant, that walks in darkness and has no light? Let him trust in the name of the Lord, and" (here is the same thing as trusting in the name of the Lord, the explanation of it) "stay upon his God."
+I said that we would have three of these Old Testament diamonds&mdash;the third is found in the fiftieth chapter of Isaiah, and the tenth verse, where faith is likened to STAYING UPON God. I read it to you just now, but we will read the verse again&mdash;"Who is among you that fears the Lord, that obeys the voice of His servant, that walks in darkness and has no light? Let him trust in the name of the Lord, and" (here is the same thing as trusting in the name of the Lord, the explanation of it) "stay upon his God."
 
 The word, "stay," means, "lean." If I cannot stand, if I feel giddy, I naturally put out my hand. And if I feel faint, I lean upon some support and, the more faint I am, the more I lean. At this moment, I lean my whole weight upon this platform rail, just so. If this rail gives way, I must go down. I am leaning, staying myself wholly here. Now that is what you have to do with Christ&mdash;lean on Him with all your weight of sin and sorrow&mdash;lean on Jesus Christ and lean hard! Do not try to hold yourself up, now&mdash;throw yourself right on Him, lean on Him, rest on Him, let Him bear the whole of your weight. Stay yourself upon Him.
 
@@ -98,9 +98,9 @@ There was a famous cardinal, in Luther's day, who fought tremendously against th
 
 O bankrupt Sinner! O Sinner without a hope, come and just stay yourself upon the immovable foundation of the atoning Sacrifice of Christ and you shall find eternal life tonight! Yes, even tonight! God grant it, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ISAIAH50.
+Exposition by C. H. Spurgeon: Isaiah50.
 
-Verse 1. Thus says the LORD. There is always something weighty coming when you have this preface. If God speaks, we ought to hear with reverence, with attention.
+Verse 1. Thus says the Lord. There is always something weighty coming when you have this preface. If God speaks, we ought to hear with reverence, with attention.
 
 Where is the bill of your mother's divorcement, whom I have put away? Or which of My creditors is it to whom I have sold you? God is here addressing His ancient people. They had been given up, as it were, left, forsaken. They compared themselves to a wife who had been divorced by her husband, or to children who bad been sold by their father because of his extreme poverty. The Lord says, "Now, tell Me, have I really put away My chosen people as a man in a pet puts away his wife? Have I really sold you to profit by you? What benefit is it to Me that you are carried away captive and that you are left without comfort?"
 
@@ -112,13 +112,13 @@ Is My hand shortened at all, that it cannot redeem? Or have I no power to delive
 
 Behold, at My rebuke I dry up the sea, I Make the rivers a wilderness, their fish stink because there is no water, and they die of thirst. God divided the Red Sea, He parted the Jordan asunder and made a way for His people to pass over. He who has done this can do anything! When God takes up the case, impossibility is not in the dictionary. However great your sorrow, however deep your misfortune, or however grievous your sin, if God comes to deal with it, He will make short work of all your troubles and all your despair.
 
-3, 4. I clothe the heavens with blackness, and I make sackcloth their covering. The Lord GOD has given Me the tongue of the learned, that I should know how to speak a word in season to him that is weary: He wakens morning by morning, He wakens My ears to hear as the learned. This is Christ speaking again. When He came here, though He found no man able to help Him, none to come and join Him in the redemption of His people, yet He gave Himself up to the tremendous task. He became instructed of the Father. He was taught to speak a word to weary ones. "Never man spoke like this Man." There is no gospel like His Gospel, no doctrine like His Doctrine. He went to God in private "morning by morning." He received His message from His Father and He came and delivered it to the people. Oh, what a glorious Christ we have!
+3, 4. I clothe the heavens with blackness, and I make sackcloth their covering. The Lord God has given Me the tongue of the learned, that I should know how to speak a word in season to him that is weary: He wakens morning by morning, He wakens My ears to hear as the learned. This is Christ speaking again. When He came here, though He found no man able to help Him, none to come and join Him in the redemption of His people, yet He gave Himself up to the tremendous task. He became instructed of the Father. He was taught to speak a word to weary ones. "Never man spoke like this Man." There is no gospel like His Gospel, no doctrine like His Doctrine. He went to God in private "morning by morning." He received His message from His Father and He came and delivered it to the people. Oh, what a glorious Christ we have!
 
-The Lord GOD has opened My ears and I was not rebellious, neither turned away back. He had His ear bored as slaves had when they would not go out free, but meant to remain with their master. Christ had a bored ear, an opened ear. He never rebelled against God's will. He was obedient to the Father, even unto death. If you want to know how obedient He was, hear me read the next verse&mdash;
+The Lord God has opened My ears and I was not rebellious, neither turned away back. He had His ear bored as slaves had when they would not go out free, but meant to remain with their master. Christ had a bored ear, an opened ear. He never rebelled against God's will. He was obedient to the Father, even unto death. If you want to know how obedient He was, hear me read the next verse&mdash;
 
 I gave My back to the smiters, and My checks to them that plucked off the hair: I hid not My face from shame and spitting. Now let me go back a little and read, again, the third verse&mdash;"I clothe the heavens with blackness, and I make sackcloth their covering." "I gave My back to the smiters, and My checks to them that plucked off the hair." It is the same Divine Person who musters the hosts of Heaven till the very skies are blackened with the artillery of God, who here says, "I gave My back to the smiters, bowing down to the brutal Roman scourge, and My cheeks to them that plucked off the hair." You remember the scene that I pictured last Sunday night, the whole band of soldiers mocking Christ and even spitting upon Him?  That was the fulfillment of these words, "I hid not My face front shame and spitting." That same Christ, without whom was not anything made that was made, whose face is the sun of Heaven, whose Glory is matchless and unsearchable, says, "I hid not My face from shame and spitting." Do not say, then, that God has no love to you! Do not say that He has cast you away as a husband divorces his wife. Talk no more as if there were no help for you, no means of your deliverance. Behold how low your Savior stooped, how gracious He was to suffer so much for guilty men&mdash;and be encouraged to trust Him. He who gave His back to the smiters says to you, "The chastisement of your peace was upon Me, and with My stripes you are healed."
 
-For the Lord GOD will help Me. This is Christ still speaking. Though God, Himself, yet as the God-Man, looking to His Father for help in the dread struggle through which He went to save us, He declared, "The Lord God will help
+For the Lord God will help Me. This is Christ still speaking. Though God, Himself, yet as the God-Man, looking to His Father for help in the dread struggle through which He went to save us, He declared, "The Lord God will help
 
 Me."
 
@@ -126,11 +126,11 @@ Therefore shall I not be confounded: therefore have I set My face like a flint, 
 
 mained. He bore the terrible wrath of God, which otherwise would have rested on us forever! God helped Him and He bore it all.
 
-8, 9. He is near that justifies Me; who will contend with Me? Let us stand together: who is My adversary? Let him come near to me. Behold, the Lord GOD will help Me; who is he that shall condemn me? Lo, they all shall wax old as a garment; the moth shall eat them up. Will any now come to battle against Christ and hope to conquer Him? Voltaire used to say, "Crush the Wretch!" but where is Voltaire now? And those who agreed with Voltaire, where are they now? But Jesus always lives and reigns and God is with Him! He who shall once come to battle with our glorious Lord shall soon know the power of Christ's weakness and the Omnipotence of His death!
+8, 9. He is near that justifies Me; who will contend with Me? Let us stand together: who is My adversary? Let him come near to me. Behold, the Lord God will help Me; who is he that shall condemn me? Lo, they all shall wax old as a garment; the moth shall eat them up. Will any now come to battle against Christ and hope to conquer Him? Voltaire used to say, "Crush the Wretch!" but where is Voltaire now? And those who agreed with Voltaire, where are they now? But Jesus always lives and reigns and God is with Him! He who shall once come to battle with our glorious Lord shall soon know the power of Christ's weakness and the Omnipotence of His death!
 
 Who is among you&mdash;Here is a very blessed question. Christ, having passed through all the trouble that could be passed through, and having come out of it triumphant, now looks round on all His followers, on all the children of God, and He says, "Who is among you"&mdash;
 
-That fears the LORD, that obeys the voice of His servant, that walks in darkness, and has no light? Let him trust in the name of the LORD, and stay upon his God. Do you see the drift of it? Our Savior trusted and He was not confounded. He stayed Himself upon God even when He said, "My God, My God, why have You forsaken Me?" and He came off a conqueror! Trust in God and you, also, will be victorious! Let your strength be drawn from that strong and mighty One who is pledged to help all who trust Him and you shall triumph even as Jesus did! Do you refuse to trust God? Then listen to this&mdash;
+That fears the Lord, that obeys the voice of His servant, that walks in darkness, and has no light? Let him trust in the name of the Lord, and stay upon his God. Do you see the drift of it? Our Savior trusted and He was not confounded. He stayed Himself upon God even when He said, "My God, My God, why have You forsaken Me?" and He came off a conqueror! Trust in God and you, also, will be victorious! Let your strength be drawn from that strong and mighty One who is pledged to help all who trust Him and you shall triumph even as Jesus did! Do you refuse to trust God? Then listen to this&mdash;
 
 Behold, all you that kindle a fire, that compass yourselves about with sparks: walk in the light of your fire and in the sparks that you have kindled. If you think to make yourselves happy in sin, go and do it! If you fancy that your own righteousness will save you, go and try it!
 

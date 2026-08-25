@@ -78,7 +78,7 @@ Once more, "He who believes and is baptized shall be saved"&mdash;he shall have 
 
 All this great work is worked by faith in Christ&mdash;that is the one way of salvation! "He who believes on the Son has everlasting life." Believe in Him, as men sometimes say, "up to the hilt." Believe in His Manhood sympathizing with you. Believe in His Godhead able to help you. Believe in His blood cleansing you. Believe in His eternal life bringing everlasting life to you. God bless you, everyone, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN3:1-18.
+Exposition by C. H. Spurgeon: John3:1-18.
 
 If you were called in to see a person who was dying and wished to read a chapter from the Word of God, but you were afraid that the sick one did not know the way of salvation, you could not select a better portion than the one we are about to read. I have chosen it in the hope that some may now learn from it what they must do to be saved.
 

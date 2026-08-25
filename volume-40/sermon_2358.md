@@ -16,7 +16,7 @@ fogies who are left behind in the far distant ages. If we are to go on improving
 
 O Beloved, it almost makes my lips blister to talk after the present evil fashion, for grosser falsehood never could be uttered than the insinuation that we have shifted the everlasting foundations of our faith! Verily, if these foundations were removed, we might ask in many senses, "What shall the righteous do? Whom shall they copy? Whom shall they follow? The landmarks having gone, what remains to us of the holy treasury of example with which the Lord enriches those who follow Christ?"
 
-Coming to our text, "Jesus Christ, the same yesterday, and today, and forever," my first observation is that JESUS CHRIST, HIMSELF, IS ALWAYS THE SAME. He is, was, and will always be the same!
+Coming to our text, "Jesus Christ, the same yesterday, and today, and forever," my first observation is that Jesus Christ, HIMSELF, IS ALWAYS THE SAME. He is, was, and will always be the same!
 
 Changes of position and of circumstances there have been in our Lord, but He is always the same in His great love to His people, whom He loved before the earth was. Before the first star was kindled, before the first living creature began to sing the praise of its Creator, He loved His Church with an everlasting love! He spied her in the glass of predestination, pictured her by His Divine foreknowledge and loved her with all His heart. And it was for this cause that He left His Father and became one with her, that He might redeem her. It was for this cause that He went with her through all this vale of tears, discharged her debts and bore her sins in His own body on the Cross. For her sake He slept in the tomb and with the same love that brought Him down, He has gone up, again, and with the same heart beating true to the same blessed betrothal, He has gone into Glory, waiting for the marriage day when He shall come, again, to receive His perfected spouse who shall have made herself ready by His Grace! Never for a moment, whether as God over all, blessed forever, or as God and Man in one Divine Person, or as dead and buried, or as risen and ascended&mdash;never has He changed in the love He bears to His chosen! He is "Jesus Christ, the same yesterday, and today, and forever."
 
@@ -34,7 +34,7 @@ So also, once more, He is the same in His relationship to all His people. I like
 
 Beloved, I have seen men change&mdash;oh, how they change! A little frost turns the green forest to bronze and every leaf forsakes its hold and yields to it's winter's blast. So fade our friends and the most attached adherents drop away from us in the time of trial. But Jesus is to us what He always was. When we get old and gray-headed and others shut the door on men who have lost their former strength, and can serve their turn no longer, then will He say, "Even to hoar hairs will I carry you: I have made and I will bear; even I will carry, and will deliver you," for He is "Jesus Christ, the same yesterday, and today, and forever." Thus much, Beloved, with regard to Jesus, Himself&mdash;He is always the same!
 
-Now let us go a step farther. JESUS CHRIST IS ALWAYS THE SAME IN HIS DOCTRINE.
+Now let us go a step farther. Jesus Christ IS ALWAYS THE SAME IN HIS DOCTRINE.
 
 This text must refer to the Doctrine of Christ, since it is connected with imitating the saints' faith&mdash;"Whose faith follow, considering the end of their conversation: Jesus Christ, the same yesterday, and today, and forever. Be not carried about with divers and strange doctrines. For it is a good thing that the heart is established with Grace." From the connection it is evident that our text refers to the teaching of Christ, who is "the same yesterday, and today, and forever." This is not according to the "development" folly. Theology, like every other science, is to grow, watered by the splendid wisdom of this enlightened age, fostered by the superlative ability of the gentlemen of light and leading of the present time, so much superior to all who came before them!
 
@@ -56,7 +56,7 @@ If you were to try to think over this matter and imagine for a minute that the G
 
 No, let me go where they praise Jesus Christ and Him, alone, singing, "Unto Him that loved us, and washed us from our sins in His own blood, to Him be glory and dominion forever and ever. Amen." That is what the first Century saints sing&mdash;yes, and it is what the saints of every century will sing, without any exception! And there will be no change in this song forever. The same results will flow from the same Gospel till Heaven and earth shall pass away, for Jesus Christ is "the same yesterday, and today, and forever."
 
-We may sound the same note, again, for a moment, because JESUS CHRIST IS THE SAME AS TO HIS MODES OF WORKING&mdash;"Jesus Christ, the same yesterday, and today, and forever."
+We may sound the same note, again, for a moment, because Jesus Christ IS THE SAME AS TO HIS MODES OF WORKING&mdash;"Jesus Christ, the same yesterday, and today, and forever."
 
 How did Jesus Christ save souls in olden times? "It pleased God by the foolishness of preaching, to save them that believe." And if you will look down through Church history, you will find that, wherever there has been a great revival of religion, it has been linked with the preaching of the Gospel! When the Methodists began to do so much good, what did they call the men who made such a stir? "Methodist preachers," did they not say? That was always the name, "Here comes a Methodist preacher." Ah, my dear Friends, the world will never be saved by Methodist doctors, or by Baptist doctors, or anything of the sort! But multitudes will be saved, by God's Grace, through preachers! It is the preacher to whom God has entrusted this great work! Jesus said, "Preach the Gospel to every creature."
 
@@ -70,7 +70,7 @@ Remember, too, that the Lord Jesus Christ has always been inclined to work by th
 
 All the good that is ever done in the world is worked by the Holy Spirit and, as the Holy Spirit honors Jesus Christ, so He puts great honor upon the Holy Spirit. If you and I try, either as a Church or as individuals, to do without the Holy Spirit, God will soon do without us. Unless we reverently worship Him and believingly trust in Him, we shall find that we shall be like Samson when his locks were shorn. He shook himself as he had done before, but when the Philistines were upon him, he could do nothing against them. Our prayer must always be, "Holy Spirit, dwell with me! Holy Spirit, dwell with Your servants!" We know that we are utterly dependent upon Him. Such is the teaching of our Master and Jesus Christ is "the same yesterday, and today, and forever."
 
-I do not want to weary you, my dear Brothers and Sisters, but may I be helped, just for a few moments, to speak on a fourth point! JESUS CHRIST HAS ALWAYS THE SAME RESOURCES, for He is "the same yesterday, and today, and forever."
+I do not want to weary you, my dear Brothers and Sisters, but may I be helped, just for a few moments, to speak on a fourth point! Jesus Christ HAS ALWAYS THE SAME RESOURCES, for He is "the same yesterday, and today, and forever."
 
 I will repeat what I said&mdash;Jesus Christ has always the same resources. We sit down, sometimes, very sorrowful, and we say, "The times are very dark." I do not think that we can very well exaggerate their darkness and they are full of threatening omens. And I do not think that any of us can really exaggerate those omens, they are so terrible. But still is it true, "The Lord lives, and blessed be my Rock."
 
@@ -80,7 +80,7 @@ Beneath the threat of that brave old man, John Calvin took his place, prompt and
 
 He has also the same resources of Grace. The Holy Spirit is quite as able to convert men, to quicken, enlighten, sanctify and instruct. There is nothing which He has done which He cannot do again! The treasuries of God are as full and as running over, now, as they were in the beginning of the Christian age! If we do not see such great things, where lies the restraining force? It is in our unbelief. "If you believe, all things are possible to him that believes." Before this year has gone, God can make a wave of revival break over England, Scotland and Ireland&mdash;from one end to the other! Yes, and He can deluge the whole world with the Gospel if we will but cry to Him for it! And He wills to do it, for He is "the same yesterday, and today, and forever," in the resources of His Grace.
 
-So I close my sermon with this fifth head, on which I will be very short, indeed. JESUS CHRIST IS ALWAYS
+So I close my sermon with this fifth head, on which I will be very short, indeed. Jesus Christ IS ALWAYS
 
 THE SAME TO ME&mdash;"yesterday, and today, and forever." I will not talk about myself except to help you to think about yourselves. How long have you known the Lord Jesus Christ? Perhaps only a short time. Possibly many years. Do you remember when you first knew Him? Can you point out the spot of ground where Jesus met you? Now, what was He to you at first? I will tell you what He was to me.
 
@@ -96,7 +96,7 @@ Let us go forward, then, to the unchanging Savior, through the changing things o
 
 Oh, do you know Him? Do you know Him? Do you know Him? If not, may He, this night, reveal Himself to you, for His sweet mercy's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS13.
+Exposition by C. H. Spurgeon: Hebrews13.
 
 Verse 1. Let brotherly love continue. It is supposed to already be there&mdash;let it continue, not only love of a common kind, such as we are to have to all men, but that special "brotherly love" which Christians bear to one another as members of one family. "Let brotherly love continue."
 

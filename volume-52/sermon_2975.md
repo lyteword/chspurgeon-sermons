@@ -72,7 +72,7 @@ I cannot say more except just this&mdash;if God is prospering you, keep very clo
 
 if you receive everything as throughHim and then desire to use everything forHim, you may be as rich as the Rothschilds and yet you may be as gracious as the Apostle Paul! You might have all the world given you, and yet, for all that, it would not hurt you. If you had as much of God as you had of gold, God would see that the gold was safe in your hands. He would trust us with prosperity if He saw that all our prosperity only bound us more closely and more completely to the Cross of His dear Son. So, if any of you have forgotten Him, conclude this evening's service by coming to the Cross. And thus Father, Son and Holy Spirit shall get glory from you. May it be so, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HOSEA 13:1-9.
+Exposition by C. H. Spurgeon: Hosea 13:1-9.
 
 Hosea was full of complaints against the people of God, for in his day they had very sadly wandered from the Lord. They had even forgotten Him. In Hosea's prophecy we have the plaintive voice of a loving God chiding His backsliding children.
 
@@ -82,7 +82,7 @@ And now they sin more and more, and have made them molten images of their silver
 
 Therefore they shall be as the morning cloud, and as the early dew that passes away, as the chaff that is driven with the whirlwind out of the floor, and as the smoke out of the chimney. Those who will have gods of their own making shall have but a brief enjoyment of them. He who truly worships the Everlasting God shall have an everlasting blessing! But he who worships gods that he has made himself&mdash;mere objects of this mortal day&mdash;shall have but a short day of it. He shall be as the early dew which glistens brightly, but is soon gone&mdash;or as the morning cloud which is banished by the rising of the sun.
 
-5. Yet I am the LORD your God from the land ofEgypt, and you shall know no god but Me: for there is no Savior beside Me. I did know you in the wilderness, in the land of great drought. The Israelites drew near to God when
+5. Yet I am the Lord your God from the land ofEgypt, and you shall know no god but Me: for there is no Savior beside Me. I did know you in the wilderness, in the land of great drought. The Israelites drew near to God when
 
 they needed bread and water in the wilderness. God says, "I did know you in the wilderness, in the land of great drought." And the Lord might say to His people nowadays, "I did know you when you were very sick, when you were very poor, when you were in great trouble. You sought Me then&mdash;how is it that you are trying to do without Me now?"
 

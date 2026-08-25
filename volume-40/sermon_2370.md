@@ -34,15 +34,7 @@ Our Lord Jesus Christ cannot possibly or conceivably be limited in His love. I w
 
 "Christ first, me last&mdash;nothing between but love." Those words are very sweet to me. I read them somewhere and they cling to my memory. "Who loved me," the first word is, "who." The last word is, "me," and there is "nothing between but love." Oh, that is a blessed position for anyone to be in! Christ shall be first&mdash;I will be glad to be anywhere, to be nothing, to be last&mdash;so long as there shall be this sweet link of love between my soul and my Savior&mdash;"Who loved me and gave Himself for me."
 
-[As the sermon is shorter than usual, we insert the verses referred to by Mr. Spurgeon, from which the title of the discourse has been selected. The lines can be obtained from Messrs. Penman and Co., 33 Furnival Street, London, 6d. per dozen, or 3s. per 100, post free.
 
-"WHO LOVED ME"
-
-GALATIANS 2:20
-
-Three blessed sunbeams, guiding all I see. Three tender chords, each full of melody. Three healing leaves, balm for my agony. HE loved me&mdash;the Father's only Son, He ga ve Himself&mdash;the precious, Spotless One&mdash; He shed His blood and thus the work was done! HE LOVED, not merely pitied. Here I rest. Sorrow may come, I to His heart am pressed&mdash; What should I fear while sheltered on His breast? Wonder of wonders! Jesus loved me! A wretch! Lost, ruined, sunk in misery! He sought me, bound me, raised me, set me free!
-
-My soul the order of the words approve Christ first, me last&mdash;nothing between but love. Lord, keep me always down&mdash;Yourself above! Trusting to You&mdash;not struggling restlessly So shall I daily gain the victory. "I"&mdash;"yet not I but Christ,"&mdash;WHO LOVED ME!]
 
 Let us reflect yet a moment further that this love is an abiding love&mdash;"Who loved me." But He is unchanging, so that He still loves me! He cannot love me more, He will not love me less. He has loved me at no period more than He loves me, now, and if just now I may be groaning because of my imperfections, and mourning because of my tribulations, yet He loved me so as to give Himself for me&mdash;and He has never abated from that love and He never will! It is a very fine thing, no doubt, to have worldly substance, but it melts like the hoar frost in the sun. It is a very great mercy to have bodily health, but how small a thing soon takes it away and turns the joy of life into the shadow of death! But if you get this love of Christ, you have a treasure which can never be lost, a blessing that will never be exhausted. "Who loved me, and gave Himself for me!" Sit down, dear child of God, and say to yourself, "Here I have something which I shall never lose. It cannot be taken from me. Oh, that by Grace I may be enabled to rejoice in it and to return the love of my poor heart to Him who ceases not to love me!"
 
@@ -90,7 +82,7 @@ O my dear Hearers, I stand here and try to talk to you in my feeble way about th
 
 HYMNS FROM "OUR OWN HYMN BOOK"-116 (SONG II), 248, 731.
 
-EXPOSITION BY C. H. SPURGEON: Galatians 2:16-21; 3.
+Exposition by C. H. Spurgeon: Galatians 2:16-21; 3.
 
 Galatians 2:16. Knowing that a man is not justified by the work of the Law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the Law: for by the works of the Law shall no flesh be justified. This is the primary Truth of God to be proclaimed by the Christian ministry. It is the foundation stone of all Gospel preaching and yet, somehow or other, such is the hardness of the human heart, that it is the most difficult thing to induce our hearers to build on this foundation. Many of them are always trying to lean upon their own works and so struggling to get back under the old legal dispensation, instead of rejoicing in the lib-
 

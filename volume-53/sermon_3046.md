@@ -8,7 +8,7 @@ OF course the Master was right, but He appeared to speak unreasonably. It seemed
 
 is no mere wish, no visionary's prayer&mdash;it may be realized&mdash;we need not depart from Jesus! There is no need that the spouse of Christ should wander from beneath the banner of His love. Mary may always sit at Jesus' feet. There is no Law which says to holy fellowship, "To here shall you come, but no further. Here shall your communion cease!" There is no set hour when the gate of communion with Christ must inevitably be closed. We may continue to come up from the wilderness, leaning upon the Beloved. We "need not depart." Yet is it so commonly thought to be a matter of course that we should wander from our Lord that I shall ask for strength from Heaven to combat the injurious opinion.
 
-Brothers and Sisters in Christ, THERE IS NO PRESENT NECESSITY FOR YOUR DEPARTING FROM CHRIST. At this moment we may truthfully say of all the saints of God, "They need not depart."
+Brothers and Sisters in Christ, THERE IS NO PRESENT NECESSITY FOR YOUR DEPARTING FROM Christ. At this moment we may truthfully say of all the saints of God, "They need not depart."
 
 There is nothing in your circumstances which compels you to cease from following hard after your Lord. You are very poor, you say. But you need not depart from Christ because of penury, for, in the depths of distress the saints have enjoyed the richest Presence of their once houseless Lord. Your poverty may be pinching you at this very moment&mdash;to be relieved from that pinch you need not break away from Jesus, for fellowship with Him may be maintained under the direst extremity of need. Indeed, your need increases your necessity to walk closely with your Lord so that patience may have its perfect work and your soul may be sustained by the mighty consolations which flow out of nearness to Jesus. Need shall not separate the soul from communion with Him who hungered in the wilderness and thirsted on the Cross! You tell me that in order to relieve your necessities, you are compelled to exercise great care and anxiety. But all the cares which are useful and allowable are such as will allow of a continuance of fellowship with Christ! You may care as much as you ought to care&mdash;and I need not say how little that is&mdash;and yet you need not depart from Him who cares for you. But you tell me that in addition to deep thought, you have to expend much labor in order to provide things honest in the sight of all men. Yes, but you need not depart from Christ for that reason! The carpenter's Son is not ashamed of the sons of toil&mdash;He who wore the garment without seam does not despise the peasant's smock or the servant's apron. Labor is no enemy to communion&mdash;idleness is a far more likely separator of the soul from Christ. Not to the idlers in Herod's court did Jesus reveal Himself, but to hard-working fishermen by the lake of Galilee. If Satan is never far away from the idle, it
 
@@ -32,7 +32,7 @@ Since He is your home, go no longer abroad!
 
 Lie down on His breast in unbroken repose,
 
-For there you may rest, though surrounded with foes." II. Secondly, NO FUTURE NECESSITY WILL EVER ARISE TO COMPEL YOU TO DEPART FROM JESUS. It will always be true, "You need not depart."
+For there you may rest, though surrounded with foes." II. Secondly, NO FUTURE NECESSITY WILL EVER ARISE TO COMPEL YOU TO DEPART FROM Jesus. It will always be true, "You need not depart."
 
 You do not know what your needs will be and though you are no Prophet, your words will be true if you affirm that no need shall ever necessarily divide you from Jesus because your needs will, instead, bind you to Him. "It pleased the Father that in Him should all fullness dwell." "And of His fullness have we all received, and Grace for Grace." We will draw nearer to Him, in time of need, to obtain the Grace we need! We shall never be forced to go elsewhere to find sup-
 
@@ -62,7 +62,7 @@ And all the woes that assail my mind
 
 Shall drive me to rest in His love." There is no necessity, then, in the present&mdash;and there will be none in the future&mdash;for departing from communion with the Lord!
 
-Thirdly, "they need not depart." that is to say, NO FORCE CAN COMPEL THE CHRISTIAN TO DEPART FROM JESUS.
+Thirdly, "they need not depart." that is to say, NO FORCE CAN COMPEL THE ChristIAN TO DEPART FROM Jesus.
 
 The world can tempt us to depart and, alas, too successfully does it seduce with its fascinating blandishments! Its frowns alarm the cowardly and its smiles delude the unwary, but none need depart. If we have Grace enough to play the man, Madam Bubble cannot lead us astray! "Surely in vain the net is spread in the sight of any bird." We need not be taken in the world's traps&mdash;there is One who can deliver us from the snare of the fowler! We are not ignorant of the devices of Satan and the temptations of the world&mdash;we are not compeled to fall from our steadfastness&mdash;and if we do, it is our willful fault. There is no necessity for it. Many live above the world&mdash;many in as difficult circumstances as ours. There are those in Heaven who have found as hard hand-to-hand fighting in the spiritual life as we do&mdash;yet they were not vanquished, nor need we be&mdash;for the same strength which was given to them is also available for us!
 
@@ -93,9 +93,9 @@ Brothers and Sisters, the way to maintain fellowship with Christ is very simple.
 
 Once more, we "need not depart." That is to say, THERE IS NO REASON THAT CAN BE IMAGINED
 
-WHICH WOULD RENDER IT a WISE, PROPER AND GOOD THING FOR a CHRISTIAN TO DEPART FROM
+WHICH WOULD RENDER IT a WISE, PROPER AND GOOD THING FOR a ChristIAN TO DEPART FROM
 
-CHRIST.
+Christ.
 
 Suppose that the search after happiness is the great drift of our life, as the old philosophers assert&mdash;then we "need not depart" from Jesus to win it, for He is Heaven below! If you desire pleasure, forget not that the pleasures of God which are in Christ&mdash;His joy, the joy that fills His great heart&mdash;are more than enough to fill your heart! I sometimes hear people say, as an excuse for professors going to doubtful places of amusement, "You know, they must have some recreation." Yes, I know, but the re-creation which the Christian experienced when he was born-again has so completely made all things new to him, that the vile rubbish called recreation by the world is so dull to him that he might as well try to fill himself with fog as to satisfy his soul with such utter vanity! No, the Christian finds happiness in Christ Jesus&mdash;and when he needs pleasure, he does not depart from Jesus.
 
@@ -109,7 +109,7 @@ Now, if this is true, do not some of us feel very guilty? I could weep to think 
 
 this, nor blamed to that&mdash;it is our own fault. We "need not depart!" There never was any need for it and there never will be. May God's Grace descend mightily upon us so that we may henceforth abide in our Lord! May those who know Him not, be led to seek Him by faith even now, and find Him, and then even they shall not need to depart from Him at the last.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 14:13-36.
+Exposition by C. H. Spurgeon: Matthew 14:13-36.
 
 Verse 13. When Jesus heard of it, He departed from there by a boat into a desert place apart It is well for us to get alone with God when He takes Home the best and most faithful of His servants. Neither the Church nor the world could afford to lose such a man as John the Baptist&mdash;so it was well for Christ's disciples to retire with Him to a desert place that He might teach them the lesson of that highly favored martyr's death.
 

@@ -2,13 +2,13 @@
 
 "Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenlyplaces in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love." Ephesians 1:3, 4.
 
-GOD blesses us&mdash;let us bless Him! I pray that every heart here may take its own part in this service of praise&mdash;
+God blesses us&mdash;let us bless Him! I pray that every heart here may take its own part in this service of praise&mdash;
 
 "O you, my Soul, bless God the Lord, And all that in me is! Be stirred up His holy name To magnify and bless!"
 
 Sit in your seats and keep on blessing God from the first word of the sermon to the last. And then go on blessing God till the last hour of life and enter into Heaven into the eternal Glory, still blessing God! It should be our life to bless Him who gave us our life. It should be our delight to bless Him who gives us all our delights. So says the text and so let us say, too&mdash;"Blessed be the God and Father of our Lord Jesus Christ."
 
-Our first occupation, at this time, will be that of BLESSING GOD.
+Our first occupation, at this time, will be that of BLESSING God.
 
 But how can we bless God? Without doubt the less is blessed of the Greater. Can the Greater be blessed by the less? Yes, but it must be in a modified sense. God blesses us with all spiritual blessings, but we cannot give Him any blessings. He needs nothing at our hands and if He did, we could not give it. "If I were hungry," says the Lord, "I would not tell you: for the world is Mine, and the fullness thereof." God has an all-sufficiency within Himself and can never be thought of as dependent upon His creatures, or as receiving anything from His creatures which He needs to receive. He is already infinitely blessed&mdash;we cannot add to His blessedness! When He blesses us, He gives us a blessedness that we never had be-fore&mdash;but when we bless Him&mdash;we cannot, by one iota, increase His absolutely Infinite Perfection! David said to the Lord, "My goodness extends not to You." This was as if he had said, Let me be as holy, as devout and as earnest as I may, I can still do nothing for You! You are too high, too holy, too great for me to be really able to bless You in the sense which You bless me.
 
@@ -28,7 +28,7 @@ This word, "blessed," is an attempt to break the narrow circle of our capacity. 
 
 Christ."
 
-But now, secondly, we shall spend a little time in VIEWING GOD in the light in which Paul sets Him before us&mdash; "Blessed be the God and Father of our Lord Jesus Christ."
+But now, secondly, we shall spend a little time in VIEWING God in the light in which Paul sets Him before us&mdash; "Blessed be the God and Father of our Lord Jesus Christ."
 
 We bless the God of Nature. What beauties He has strewn around us! We bless the God of Providence. How bountifully does He send us harvests and fruitful seasons! We bless the God of Grace who has redeemed us and adopted us as His children. But here is a peculiar aspect of God which should call forth our highest praises&mdash;He is called "the God and Father or our Lord Jesus Christ."
 
@@ -90,7 +90,7 @@ Now, I have set before you a rare treasury. Does this treasury belong to you? My
 
 "Praise God from whom all blessings flow."
 
-EXPOSITION BY C. H. SPURGEON EPHESIANS1.
+Exposition by C. H. Spurgeon Ephesians1.
 
 The Epistle to the Ephesians is a complete Body of Divinity. In the first chapter you have the doctrines of the Gospel. In the next, you have the experience of the Christians and, before the Epistle is finished, you have the precepts of the Christian faith. Whoever would see Christianity in one treatise, let him, "read, mark, learn and inwardly digest" the Epistle to the Ephesians!
 

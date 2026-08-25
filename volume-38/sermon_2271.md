@@ -18,7 +18,7 @@ I pray you, therefore, Brothers and Sisters, and I speak to myself as well as to
 
 Now I am going to take you away from that prefatory consideration, still keeping, however, much in the same vein. Let us learn, tonight, from our Lord, first, His trial&mdash;"You shall be scattered every man to his own, and shall leave Me alone." Secondly, His confidence&mdash;"And yet I am not alone, because the Father is with Me." And then, thirdly, His example, for in all this, we are to follow His steps. May we, if we have our Lord's trial, also have His confidence because we imitate His example!
 
-First, then, notice OUR LORD's TRIAL, for the same may happen to you.
+First, then, notice OUR Lord's TRIAL, for the same may happen to you.
 
 He was left alone. Why, those 11 Apostles that are around Him, and to whom He is talking, surely they will not leave their Lord! They are so sure that they will stand any fire that may be directed against them&mdash;and yet not one of them will stand firm. They will all forsake Him and flee. In the Garden, the three who are His bodyguards will fall asleep and the rest of the disciples will do the same! And when He stands before Pilate and Herod, none of them will be there to defend Him&mdash;not a solitary voice will be lifted up for Him.
 
@@ -40,7 +40,7 @@ And if it is not your lot, you may thank God that it is not&mdash;and wonder why
 
 There is the first division of our subject&mdash;our Lord's trial. I say, again, that a like trial may happen to some here. It has happened often to bold defenders of the faith, to find themselves left to hold the bridge alone. And it is a sharp, stern trial to the man who is called to endure it.
 
-More cheery talk shall we have on our second head, which is OUR LORD's CONFIDENCE. He says, "You shall leave Me alone: and yet I am not alone, because the Father is with Me."
+More cheery talk shall we have on our second head, which is OUR Lord's CONFIDENCE. He says, "You shall leave Me alone: and yet I am not alone, because the Father is with Me."
 
 Observe, then, that Christ's confidence was confidence that the Father was with Him, and this confidence kept Him to His purpose. Look at the disciples flee&mdash;they are all scattered, every man to his own. Has Christ gone? Not He! John, Peter, James, Thomas, and all the rest are gone. Has Christ gone? Not He! There He stands. They have left Him alone, but there He is, still standing to His purpose. He has come to save and He will save. He has come to redeem and He will redeem. He has come to overcome the world and He will overcome it. They have left Him alone. They have not taken Him away with them. He is no coward. From His purpose He never flees, blessed be His name! He stood fast in that dread hour when all forsook Him and fled. This was because His confidence was in God.
 
@@ -72,7 +72,7 @@ Crown Him, crown Him;
 
 Crowns become the Victor's brow." Jesus is the focus of all power and wisdom. God is with Him and the day comes when He shall appear in His Glory. In His millennial reign among the sons of God it shall be seen that He is not alone&mdash;and when He shall come in the Glory of the Father and all His holy angels with Him, then shall He be able to say with even greater emphasis, "I am not alone: because the Father is with Me." And when He sits upon the Great White Throne and divides mankind&mdash;His friends to the right, His foes to the left&mdash;and pronounces eternal wrath upon rebels and opens Heaven to Believers, then shall all worlds know that the Man of Nazareth is not alone! Alone? I seem as if I must laugh at the very thought! All Heaven and earth, things present and things to come, time and eternity, life and death, are all with Him. Men may forsake Him, but He is not alone!
 
-Now, I want, in the third place, to teach the lessons of OUR LORD's EXAMPLE. As my time has nearly gone, I must speak very briefly of these lessons.
+Now, I want, in the third place, to teach the lessons of OUR Lord's EXAMPLE. As my time has nearly gone, I must speak very briefly of these lessons.
 
 First, learn fidelity when others fail. Are you a Christian? Do you trust Christ? Do you love Him? Then never desert Him. "Oh, but," says one, "the current runs the other way now." Brother, let it run&mdash;it will leave off when it has run away. I believe in Him who rose again from the dead, whose righteousness does justify me, whose blood does wash me whiter than snow. "But the philosophers tell us that this is not scientific'" I am unscientific, then, and I delight to be unscientific! "Oh, but the deep thinkers say this is inconsistent with progress!" Well, let it be inconsistent with progress. "Oh, but all the world denies it!" So much the worse for the world. Let it deny the Truth of God if it will. That was a grand spirit of Athanasius when he said, "Athanasius contra mundum"&mdash;that is, "Athanasius against the whole world."
 
@@ -122,7 +122,7 @@ But if not literally only an hour, yet certainly the longest reign of persecutio
 
 So it shall seem in Heaven as if we never had suffered anything for Christ. The martyr shall go in the red-hot chariot from the stake&mdash;and when he gets to Heaven, he will have forgotten that he burned to death, in the exceeding joy of beholding his Master! It is but an hour and we shall meet before the golden Throne of God and stand upon the sea of glass, and sing forever, "Unto Him that loved us, and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father&mdash;to Him be Glory and dominion forever and ever. Amen."
 
-EXPOSITION BY C. H. SPURGEON JOHN 16:16-33.
+Exposition by C. H. Spurgeon John 16:16-33.
 
 Verse 16. A little while and you shall not see Me: and again, a little while, and you shall see Me, because I go to the Father. Remember that the disciples were on the verge of great trouble. Their Leader and Friend was about to be taken away from them by a cruel death. They were to be tried as they had never been tried before. The Savior, therefore, prepared their minds for the trial. I have often noticed that before a great trouble comes, the Spirit of God secretly comforts
 

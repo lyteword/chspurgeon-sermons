@@ -70,7 +70,7 @@ I close with this one thought. If, poor Soul, it is your lack of faith that stan
 
 Do I need to ask you, Sirs, a thousand times, to believe the Truth of God? Must I, over and over again, say to you as Jesus said to the Jews, "Because I tell you the truth, you believe me not?" If Christ is not worthy of being believed, then He is a liar. If Christ cannot be trusted, then He is wrongly named. Oh, do not drive us to the inference that you think thus of Him! Commit your soul into His hands this very moment and have done with it, once and for all, for His dear name's sake. Amen!
 
-EXPOSITION BY C. H. SPURGEON: MAARK92-29
+Exposition by C. H. Spurgeon: MAARK92-29
 
 Verses 2-6. And after six days Jesus took with Him Peter, and James, and John, and led them up into an high mountain apart by themselves and He was transfigured before them. And His raiment became shining, exceedingly white as snow, so as no fuller on earth could whiten them. And there appeared unto them Elijah with Moses: and they were talking with Jesus. And Peter answered and said to Jesus, Master, it is good for us to be here: and let us make three tabernacles; one for You, and one for Moses, and one for Elijah. For he knew not what to say; for they were afraid. Brothers and Sisters, like these disciples of our Lord, we are not yet fit to be favored with a sight of His Glory. As we now are, we could not bear it. As our poet says&mdash;
 

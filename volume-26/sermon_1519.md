@@ -82,12 +82,12 @@ Search the Book of God on your own account and abide by what you find there and 
 
 Alas, unconverted people cannot pray after the fashion of my text. They have, first of all, to believe in the Lord Jesus Christ before they can do the will of the Lord. May you all be led to believe in the Savior and when you have done so, then may the Holy Spirit lead you to pray, "Teach me to do Your will; for You are may God." The Lord bless you, for Christ's sake. Amen.
 
-LETTER FROM MR. SPURGEON
+LETTER FROM MR. Spurgeon
 
 DEAR FRIENDS&mdash;I had joyfully expected to set out for home next Monday, but flights of letters have come to warn me against returning while an Arctic temperature freezes our native land. Many matters make me anxious to see my dear home and Church, but I submit to the loving advice of my Deacons, which has just reached me by telegram, and I shall abide in this warm retreat for another week, hoping for a change of weather.
 
 Yours heartily,
 
-H. SPURGEON
+H. Spurgeon
 
 Mentone, January 31, 1880

@@ -25,7 +25,7 @@ There is one special reason given by the Psalmist why the people of God should b
 
 First, what we know the Lord will speak. And, secondly, what we fear may hinder our enjoying the blessing which He speaks to us&mdash;"Let them not turn again to folly"&mdash;a notable word of warning, to which we shall do well to give heed.
 
-First, let us consider WHAT WE KNOW THE LORD WILL SPEAK. "I will hear what God the Lord will speak. For He will speak peace."
+First, let us consider WHAT WE KNOW THE Lord WILL SPEAK. "I will hear what God the Lord will speak. For He will speak peace."
 
 The first point is, He speaks peace to a certain company&mdash;"to His people, and to His saints." Let us, then, ask ourselves, Has the Lord ever spoken peace to us, or will He do so? He will certainly do so if we have an ear to hear His voice. For God will not speak sweet words to those who turn to Him a deaf ear. He that will not hear the Gospel of peace, shall never know the peace of the Gospel. If you will not hear the Holy Spirit when He warns you of your sins, neither shall you hear Him revealing peace through pardon.
 

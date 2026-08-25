@@ -8,7 +8,7 @@ See, from this narrative, how, sometimes, trouble and sorrow bring men to repent
 
 I shall limit my discourse to this one topic&mdash;in our treatment of Christ, we have all been guilty. And I shall try to press this Truth of God home with a demand, in God's name, for repentance on account of the way in which we have dealt with His Son, Jesus Christ, our greater Joseph. I shall be happy if any have come here in trouble, if that trouble should work with my rebuke to stir up their hearts and move them to repentance before God. When a certain man lost his eyesight, that sight being gone deprived him of the power to join in many a merry party and to go on in his former sin. He then began to attend the House of God and there he found the Savior. And he was in the habit, afterwards, of saying that he was always blind while he could see, but after he had lost his sight, then it was that he truly began to see! There may be some here who are afflicted, perhaps not exactly as that man was, but in some other way. If so, I hope that they, too, will soon be able to say with the Psalmist, "Before I was afflicted I went astray: but now have I kept Your Word." It will be a good beginning towards such a blessed consummation if they should now confess that they have been guilty concerning Christ.
 
-I will try to handle my subject in this way. First, let us consider our treatment of Christ. Secondly, let us think of Christ's treatment of us. And thirdly, let us ask the question, What then? I. First, let us consider OUR TREATMENT OF CHRIST.
+I will try to handle my subject in this way. First, let us consider our treatment of Christ. Secondly, let us think of Christ's treatment of us. And thirdly, let us ask the question, What then? I. First, let us consider OUR TREATMENT OF Christ.
 
 Let us begin by taking ourselves in the mass, without any division of character. How have we and the whole human race treated the Lord Jesus Christ? He came to this earth with love in His heart, with love in His eyes, with love in His hands, with love on His lips, He was altogether Love Incarnate and when He made His appearance, what was the reception He met with? You kings, have you not a palace for Him who is the King of Kings? Let the purples of Thyatira, let all the dainty damasks of the East be brought forth to wrap the Holy Child Jesus! No, alas, it is not so! There is no palace,
 
@@ -52,7 +52,7 @@ Sinner, you may never be as strong and healthy as you are today. You may have sa
 
 Thus have I, as it were, brought before you the Truth of the text as it may be applied to the Lord Jesus Christ&mdash;and left it to every man and woman's conscience to decide whether they ought not to join us in saying, "We are truly guilty concerning our Brother."
 
-Now, in the second place, we will, with great brevity, consider CHRIST's TREATMENT OF US.
+Now, in the second place, we will, with great brevity, consider Christ's TREATMENT OF US.
 
 Oh, for an angel's tongue with which to tell this wondrous tale! There is Christ looking down from Heaven and marking all our sin and ill behavior towards Him. He is not weak, for He is very God of very God! He is able to avenge the insults to His name, to cast us off for all our shameful treatment of Him and to make us smart forever under the Divine lash of infinite and inflexible Justice. But how has He treated us?
 
@@ -76,7 +76,7 @@ Further, to those who have been guilty concerning Christ, but who have not repen
 
 May the Lord sanctify to you these solemn meditations and give you Grace to believe in His Son, Jesus Christ, that you may be saved! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 2.
+Exposition by C. H. Spurgeon: Matthew 2.
 
 Verse 1. Now when Jesus was born in Bethlehem of Judaea in the days of Herod the king, behold, there came wise men from the East to Jerusalem.&mdash;Probably from that Assyria which is joined with Israel and Egypt in the remarkable prophecy in Isaiah 19:24, 25&mdash;"In that day shall Israel be the third with Egypt and with Assyria even a blessing in the midst of the land: whom the Lord of Hosts shall bless, saying, Blessed be Egypt, My people, and Assyria, the work of My hands, and Israel, My inheritance. "Behold, there came wise men from the East to Jerusalem."&mdash;
 

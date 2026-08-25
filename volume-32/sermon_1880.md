@@ -24,7 +24,7 @@ Covetousness goes about in disguise. In the "Holy War," we read that when Diabol
 
 I am exceedingly glad that the Apostle Paul had met with certain covetous Hebrews. This Epistle was written by a Hebrew of the Hebrews, to the Hebrews! And Hebrews, from Jacob, downwards, were never quite free from this sin. They are not so today. I am glad he met with some of them because, in giving an exhortation to them, he let drop one of the choicest pearls in all the treasury of God's Word&mdash;a pearl which Gentiles will prize as much as their brethren, the Jews. Here it is&mdash;"For He has said, I will never leave you, nor forsake you." This is the reason why we must not be covetous! There is no room to be covetous, no excuse for being covetous, for God has said, "I will never leave you, nor forsake you." We ought to be content! If we are not content, we are acting insanely, seeing the Lord has said, "I will never leave you, nor forsake you." If we have God's Presence, God's help, God's Covenant favor, God's gracious Providence, God's Covenant engagements for our good&mdash;what more can we need?
 
-The first observation I am going to make upon this most weighty text is this&mdash;THAT a WORD OF THE LORD IS OF GREAT WEIGHT TO a BELIEVER. Paul said, "Let your conversation be without covetousness." And there was weight in that. He added, "Be content with such things as you have." And there was weight in that, also, for there was
+The first observation I am going to make upon this most weighty text is this&mdash;THAT a WORD OF THE Lord IS OF GREAT WEIGHT TO a BELIEVER. Paul said, "Let your conversation be without covetousness." And there was weight in that. He added, "Be content with such things as you have." And there was weight in that, also, for there was
 
 Inspiration at the back of each sentence. But when he went on to say, "FOR HE HAS SAID," and to bring in the Person of God as distinctly speaking to each one of us, saying, "I will never leave you, nor forsake you," then he felt that he had brought the weightiest argument that he, himself, as an Inspired man, could think of! When Jehovah Himself speaks, there is no excuse for doubting, questioning, or, answering back! When God Himself deals with our souls, we are like wax under the seal&mdash;at least we desire to be so.
 
@@ -38,7 +38,7 @@ See then the argument&mdash;"Let your conversation be without covetousness; and 
 
 of God!
 
-My second observation is this&mdash;THE WORD OF THE LORD MAY HAVE a THOUSAND FULFILMENTS. When man makes a promise and he keeps it, that promise is done with. You cannot expect a banker to pay a check a second time. The merchant who duly meets his bill, once, has met it once and for all, and the document is, from that time, of no value. But when God makes a promise He fulfils it, fulfils it and fulfils it, again, and again, and again, to the same man and to hundreds of other men! The Lord's promise once given is never recalled! He does as good as give forth each Inspired promise every moment anew&mdash;He is forever promising that which is once promised in His Word! He has made a promise for all time when He has once made it. So long as there shall be need of such a promise, God will never speak in secret, in a dark place of the earth and revoke what He has said&mdash;
+My second observation is this&mdash;THE WORD OF THE Lord MAY HAVE a THOUSAND FULFILMENTS. When man makes a promise and he keeps it, that promise is done with. You cannot expect a banker to pay a check a second time. The merchant who duly meets his bill, once, has met it once and for all, and the document is, from that time, of no value. But when God makes a promise He fulfils it, fulfils it and fulfils it, again, and again, and again, to the same man and to hundreds of other men! The Lord's promise once given is never recalled! He does as good as give forth each Inspired promise every moment anew&mdash;He is forever promising that which is once promised in His Word! He has made a promise for all time when He has once made it. So long as there shall be need of such a promise, God will never speak in secret, in a dark place of the earth and revoke what He has said&mdash;
 
 > Engraved as in eternal brass   
 > The mighty promise shines!   
@@ -69,7 +69,7 @@ So you see the promise is, in many ways, fulfilled. I have seen a check for a mi
 
 Thus have we had two observations. And I will now make a third with great brevity.
 
-The WORD OF THE LORD IS TO BE APPROPRIATED BY EACH CHILD OF GOD AND ACTED ON. "He
+The WORD OF THE Lord IS TO BE APPROPRIATED by EACH CHILD OF God AND ACTED ON. "He
 
 has said, I will never leave you, nor forsake you."
 
@@ -85,7 +85,7 @@ You smiled just now. I do not think that there was any harm in your doing so, bu
 
 When the service is over, I know who will go away with dancing feet and sparkling eyes, to sleep sweetly through the night and wake tomorrow morning fresh as the lark with a song on his tongue. It is that poor simpleton of a Christian who really believes his God and says, "Yes, He will never leave me, nor forsake me!" Though he has scarcely a shoe to his foot; though he has scarcely a copper in his pocket; and though he is brought very low and has to live from hand to mouth, yet if he has grasped the promise, he has such a wellspring of delight within him that his soul shall be satisfied in time of drought and in the days of famine he shall be filled to the fullest! Oh, to be full of that blessed folly which treats God as He ought to be treated and believes what He says and acts accordingly&mdash;and finds it to be true! If you have a sham god, a sham faith, sham troubles and sham experiences, why, you are, yourself, altogether a sham! But he that believes in a real God and has such a real faith in God as a child has in its mother shall find God's promises to be the verity of verities!
 
-A further observation is this&mdash;EACH WORD OF GOD HAS ITS OWN USEFULNESS. This particular Word,
+A further observation is this&mdash;EACH WORD OF God HAS ITS OWN USEFULNESS. This particular Word,
 
 that we have before us, is an illustration of this fact.
 

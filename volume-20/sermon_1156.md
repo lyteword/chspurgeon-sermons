@@ -129,4 +129,4 @@ MESSAGE:
 
 This sermon I have revised at Mentone after an attack of severe pain from which I am recovering, by God's good hand. I beg, in my great feebleness, to ask the prayers of my friends that I may return to my beloved sphere of labor free from the disease which is my constant cross, and that every personal trial may work in me for the good of others by rendering my ministry more deeply experimental. From this delicious retreat I desire Christian love to all the people of God, of whom I am both the servant and friend."
 
-H. SPURGEON.
+H. Spurgeon.

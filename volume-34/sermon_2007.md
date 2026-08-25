@@ -116,7 +116,7 @@ Use this name and nothing can stand before you. I said that it is our power in l
 
 This name is our one hope of victory. As Constantine, in his dream, saw the Cross and took it for his emblem, with the motto, "By this sign I conquer," so today our only hope of victory for the Gospel is that the Cross of Christ displays it and the name of Jesus is in it. His name is named on us and in His name we will cast out devils and do many mighty works till His name shall be known and honored wherever the sun pursues its course, or the moon cheers the watches of the night.
 
-Now, in closing, I will URGE REASONS FOR HOLDING FAST THE NAME AND FAITH OF JESUS. I hope we
+Now, in closing, I will URGE REASONS FOR HOLDING FAST THE NAME AND FAITH OF Jesus. I hope we
 
 hold it so fast that we can never give it up while reason holds its throne. There is an old Christian legend concerning Igna-tius&mdash;that he never spoke without mentioning the name of Jesus whom he loved. His speech seemed saturated with love to his Lord, and when he died, the name of Jesus was found to be stamped on his heart. It may not have been so literally but no doubt it was true spiritually.
 

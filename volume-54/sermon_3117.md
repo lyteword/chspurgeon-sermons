@@ -1,6 +1,6 @@
 # Sermon 3117 | Eyes Opened
 
-"And Elisha prayed, and said, LORD, I pray you, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire round about Elisha." 2 Kings 6:17.
+"And Elisha prayed, and said, Lord, I pray you, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire round about Elisha." 2 Kings 6:17.
 
 
 
@@ -43,7 +43,7 @@ Until He does so, this blindness of theirs will keep them proud of what should b
 
 This is our first point, that the natural eyes are blind to heavenly things.
 
-The next Truth of God is that GOD ALONE CAN OPEN MEN's EYES.
+The next Truth of God is that God ALONE CAN OPEN MEN's EYES.
 
 We may lead blind men to Jesus, but we cannot open their eyes. We can, in a measure, indicate to them what spiritual sight is and we may explain to them what their own sad condition is&mdash;but we cannot open their eyes! Neither can anyone but God alone open their eyes. There are some who, in mockery, give them artificial eyes and try to make them look as if they could see. They teach them to trust in an imitation of Christianity which has a name to live and yet is dead. But nothing less than vital godliness will avail for them&mdash;nothing but the real work of God the Holy Spirit upon the soul! It is all in vain for you to wash your eyes in baptismal water, whether it is in a few drops or in the deepest river&mdash;you must have your eyes miraculously opened by God or they never will be opened! It is all in vain for you to be orthodox in your creed and to be a member of what you believe to be the best church under Heaven, unless there has been in your soul a
 
@@ -84,7 +84,7 @@ Let us also remember, dear Friends, that when we received our spiritual eyesight
 
 It will glorify God to open the eyes of the blind. Therefore let us pray for them with great confidence. When we are asking for anything about which we are somewhat doubtful as to whether it will glorify God or not, we may well speak with hesitation, but as we are sure that it is for God's Glory that men should see Jesus and rejoice in Him, let us crave this gift for them with great importunity and much holy boldness&mdash;and we shall certainly have our heart's desire.
 
-Now father, mother, sister, brother, friend, just at this moment breathe the prayer to Heaven, "Lord, open my children's eyes! Open my brothers eyes! Open my husband's eyes! Open my wife's eyes!" Let such prayers as those go up perseveringly, eagerly, expectantly, for verily there is a God that hears prayer! Make this the burden of your daily approach to God for anyone in whom you are specially interested, "O Lord, I pray You, open his eyes, that he may see!" IV. Fourthly, there is this blessed fact, in the narrative before us, that GOD DOES OPEN MEN's EYES. God can do it and, according to this narrative, He has done it in an instant a moment before, this young man could see no horses or chariots of fire, but as soon as Elisha's prayer was registered in Heaven, his servant could see what was before invisible to him! The processes of human surgery are often slow. Man requires time for his operations, but the great operation of the soul's salvation is instantaneous! The soul is dead and it is made alive in a single moment! The soul
+Now father, mother, sister, brother, friend, just at this moment breathe the prayer to Heaven, "Lord, open my children's eyes! Open my brothers eyes! Open my husband's eyes! Open my wife's eyes!" Let such prayers as those go up perseveringly, eagerly, expectantly, for verily there is a God that hears prayer! Make this the burden of your daily approach to God for anyone in whom you are specially interested, "O Lord, I pray You, open his eyes, that he may see!" IV. Fourthly, there is this blessed fact, in the narrative before us, that God DOES OPEN MEN's EYES. God can do it and, according to this narrative, He has done it in an instant a moment before, this young man could see no horses or chariots of fire, but as soon as Elisha's prayer was registered in Heaven, his servant could see what was before invisible to him! The processes of human surgery are often slow. Man requires time for his operations, but the great operation of the soul's salvation is instantaneous! The soul is dead and it is made alive in a single moment! The soul
 
 is in total darkness and it is in bright light the next instant! The moment anyone believes in Jesus, spiritual eyesight is given to him with which he can see his God! How I delight to think that whenever anyone comes into this House of Prayer and the Gospel is being preached, my Lord and Master can, at any moment, apply it with power to the soul and give to anyone present, immediate, instantaneous salvation! God's Word, like a hammer, can smite the rocky heart&mdash;and out of it the waters shall gush. The Lord touches the eyes, they look to the bronze serpent and healing is instantly given!
 

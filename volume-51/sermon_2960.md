@@ -72,7 +72,7 @@ O dear Friends, if we could but hope that one in ten in this great city was conv
 
 But, "hope," is the word for tonight, even for the nine! May God be pleased to give you hope within while I utter hope without! Jesus died. His death is your life! Trust Him and you are saved! Rest on Him with your whole weight! Throw yourself flat upon Him&mdash;have nothing to do with standing in your own strength, but prostrate at the foot of His dear Cross, lay yourself down and you shall not be numbered with the nine, but you shall return to give glory to God, even though, up to now, you may have been a Samaritan, a stranger, the chief of sinners! May God add His blessing, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:* ACTS27:11-44.
+Exposition by C. H. Spurgeon:* Acts27:11-44.
 
 *
 

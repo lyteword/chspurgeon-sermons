@@ -52,7 +52,7 @@ It is not every grown-up person who knows the higher doctrines of the Word of Go
 
 Now, if any of you still have an idea in your head hostile to the conversion of children, try and get rid of it, for it is as wrong as wrong can be. If there were two enquirers before me now&mdash;a child and a man&mdash;and I received from each the same testimony, I should have no more right to distrust the child than to suspect the man! In fact, if suspicions must come in anywhere, it ought rather to be exercised towards the adult than in reference to the child who is far less likely to be guilty of hypocrisy than the man and far less likely to have borrowed his words and phrases! At any rate, learn from the Master's words that you are not to try and make the child like yourself, but you are to be transformed till you yourself are like the child.
 
-Now we pass on to our second head, namely, THE OPEN DECLARATION OF OUR LORD wherein He sets
+Now we pass on to our second head, namely, THE OPEN DECLARATION OF OUR Lord wherein He sets
 
 forth His mind upon this matter. Looking at it carefully, we observe, first, that He tells the disciples that the Gospel sets up a kingdom. Was there ever a kingdom which had no children in it? How, then, could it grow? Jesus tells us that children are admitted into the kingdom. No, not only that some few are here and there admitted into it, but, "of such is the kingdom of God." I am not inclined to get away from the plain sense of that expression, nor to suggest that He merely means that the kingdom consists of those who are like children. It is clear that He intended such children as those who were before Him&mdash;babies and young children&mdash;"of such is the kingdom of God."
 

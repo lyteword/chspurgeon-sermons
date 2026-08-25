@@ -79,7 +79,7 @@ It would be a good resolution for you, Brothers, and for myself, to determine to
 
 Determine, Christian, that, by the Grace of God, it shall be your endeavor to keep your eye single, to keep your faith fixed only on the Lord Jesus, without any addition of your own works, or your own strength&mdash;and determining that&mdash; you may go on your way rejoicing, singing of the Cross of Christ as your boast, your glory and your all! We are now coming to the Table of our Master, and I hope that this will be our determination there&mdash;to know nothing except Jesus Christ and Him crucified. And may the Lord give us His blessing! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Psalm 22.
+Exposition by C. H. Spurgeon: Psalm 22.
 
 This Psalm is headed, "To the chief Musician upon Aijeleth Shahar"&mdash;or, as the margin renders it, "the hind of the morning"&mdash;"A Psalm of David." It begins in the very depths of the Master's sorrow, when this great and bitter cry escaped His lips&mdash;
 
@@ -95,7 +95,7 @@ But You are holy, O You that inhabits thepraises ofIsrael. Follow the example of
 
 just that little crimson worm which has simply a life made up of blood. Christ likens Himself to it as He says, "I am a worm, and no man."
 
-7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the LORD that He would deliver Him: let Him deliver Him, seeing He delighted in Him. Oh, these were cruel and cutting words! Like a sharp razor, they cut to the very heart of our Divine Master as He heard His enemies exulting even over His faith, as though it had come to nothing, for now Jehovah, Himself, had forsaken Him and left Him to die alone upon the tree!
+7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him. Oh, these were cruel and cutting words! Like a sharp razor, they cut to the very heart of our Divine Master as He heard His enemies exulting even over His faith, as though it had come to nothing, for now Jehovah, Himself, had forsaken Him and left Him to die alone upon the tree!
 
 9, 10. But You are He that took Me out of the womb: You did make Me hope when I was upon My mother's breasts. I was cast upon You from the womb: You are My God from My mother's belly. Sometimes, we also may derive great comfort from this Truth of God to which our Savior here refers. When we could not help ourselves in the least degree, the Lord preserved us, so will He not again help us when we are at our worst? You who have reached your second childhood may reflect with gratitude and hope upon the way in which God took care of you in your first childhood. Then, you certainly were entirely dependent upon Him, yet you fared well and so you shall if each sense shall fail you&mdash;if the power of moving shall be taken away, and the power of sight, and the power of hearing&mdash;yet the Lord, who blessed you when you were just born, will still preserve you right to the end. You remember how the Lord puts this Truth in Isaiah 46:4&mdash; "Even to your old age I am He; and even to hoar hairs will I carry you: I have made, and I will bear; even I will carry, and will deliver you." Our Savior, having comforted Himself thus, falls to praying again.
 
@@ -113,7 +113,7 @@ They pierced My hands and My feet This little sentence shows that this Psalm mus
 
 I may count all My bones: they look and stare upon Me. He is emaciated through His fasting and all the agony He has endured. And His bones seem to break through His skin by reason of the cruel scourging to which He had been subjected.
 
-19. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O LORD: O My Strength. That is, El&mdash;the name He gave to God in the first verse&mdash;"O My Strong One."
+19. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O Lord: O My Strength. That is, El&mdash;the name He gave to God in the first verse&mdash;"O My Strong One."
 
 19-21. Hasten You to help Me. Deliver My soul from the sword; My precious life from the power of the dog. Save Me from the lion's mouth and from the horns of the wild oxen. You have heard Me. Did You notice that flash of light gleaming through the darkness, "You have heard Me?" Perhaps it was at that moment that the sun again shone forth; at any rate, it is clear that the lost light had returned to our suffering Lord, for the rest of this Divine soliloquy is full of comfort and confidence.
 
@@ -123,13 +123,13 @@ also. I was left for a time, and yet I was not finally left. I cried, 'Lama Saba
 
 In thee midst of thee congregation will I praise You. And you know that He did so. He stood in the midst of His people and told them what God had done! And, spiritually, He stands in our midst at this moment and He leads our songs of praise unto Jehovah.
 
-23, 24. You that fear the LORD, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction of the afflicted; neither has He hidden His face from Him; but when He cried unto Him, He heard. What a change of note! If men could hear us speak when we are in the depths of sorrow, they might conclude that God had forsaken us. But when we get out, again, how quickly we eat our words and how soon we begin to tell the goodness of the Lord! Then we lift up the joyous strain, "O give thanks unto the Lord; for He is good: for His mercy endures forever."
+23, 24. You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction of the afflicted; neither has He hidden His face from Him; but when He cried unto Him, He heard. What a change of note! If men could hear us speak when we are in the depths of sorrow, they might conclude that God had forsaken us. But when we get out, again, how quickly we eat our words and how soon we begin to tell the goodness of the Lord! Then we lift up the joyous strain, "O give thanks unto the Lord; for He is good: for His mercy endures forever."
 
 My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. Christ still praises God in the great congregation. On my way to this evening's service, I called to see one of our dear brethren who is very ill, and I was much refreshed with a sweet thing that he said&mdash;"When we all get to Heaven, we shall feel quite at home there, for you know, Sir, we have worshipped in a great congregation for these many years." And so we shall. There is something most exhilarating and refreshing in going with a multitude to keep holy day&mdash;the more, the merrier! But what shall be the joy in Heaven, where the number of the redeemed cannot be counted, and all shall be continually praising God? This was one of the joys that was set before Christ, for which "He endured the Cross, despising the shame."
 
 The meek shall eat and be satisfied. Even in the time of His great agony, our Lord was thinking of you hidden ones, you little ones who think yourselves worth nothing. Christ says that He was finding bread for you, for He gives us His flesh to eat, that flesh which is meat, indeed.
 
-They shall praise the LORD that seek Him: your heart shall live forever. Because He died, all who trust in Him shall live forever. Oh, how sweetly does He die, with the thought of their eternal bliss upon His mind!
+They shall praise the Lord that seek Him: your heart shall live forever. Because He died, all who trust in Him shall live forever. Oh, how sweetly does He die, with the thought of their eternal bliss upon His mind!
 
 All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before You. He sees the result of His death. He beholds the fruit of His soul-travail and His heart is glad within Him!
 

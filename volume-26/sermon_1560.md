@@ -8,7 +8,7 @@ We read of another who had been dead four days and there seemed to be a clear im
 
 There are cases of conversion which are just as simple as this case of the opening of the eyes of the blind and we are not to doubt the reality of the work of Grace in them because of the remarkable absence of amazing incidents and striking details. We are not to suppose that a conversion is a less genuine work of the Holy Spirit because it is extremely simple. May the Holy Spirit bless our meditation.
 
-To make our discourse useful to many I will begin by remarking, in the first place, that it is an undoubted fact that MANY PERSONS ARE MUCH TROUBLED IN COMING TO CHRIST. It is a fact which must be admitted&mdash;that all do not come quite so readily as these blind men came. There are instances on record in biographies&mdash;there are many known to us and, perhaps, our own cases are among them&mdash;in which coming to Christ was a matter of struggle, of effort, of disappointment, of long waiting and, at last, of a kind of desperation by which we were forced to come.
+To make our discourse useful to many I will begin by remarking, in the first place, that it is an undoubted fact that MANY PERSONS ARE MUCH TROUBLED IN COMING TO Christ. It is a fact which must be admitted&mdash;that all do not come quite so readily as these blind men came. There are instances on record in biographies&mdash;there are many known to us and, perhaps, our own cases are among them&mdash;in which coming to Christ was a matter of struggle, of effort, of disappointment, of long waiting and, at last, of a kind of desperation by which we were forced to come.
 
 You must have read Mr. John Bunyan's description of how the pilgrims came to the wicket gate. They were pointed, you remember, by Evangelist to a light and to a gate and they went that way according to his bidding. I have told you, sometimes, the story of a young man in Edinburgh who was very anxious to speak to others about their souls, so he addressed himself one morning to an old Musselburgh fishwife and he began by saying to her, "Here you are with your burden." "Yes," she said. He asked her, "Did you ever feel a spiritual burden?" "Yes," she said, resting a bit, "I felt the spiritual burden years ago, before you were born, and I got rid of it, too. But I did not go the same way to work that Bunyan's pilgrim did."
 
@@ -50,7 +50,7 @@ Now, if some come to Christ and the devil is not permitted to assail them; if so
 
 It is admitted as an undoubted fact that many are much troubled in coming to Christ but now, secondly, THIS IS
 
-NOT AT ALL ESSENTIAL TO a REAL SAVING COMING TO THE LORD JESUS CHRIST. I mention this because I
+NOT AT ALL ESSENTIAL TO a REAL SAVING COMING TO THE Lord Jesus Christ. I mention this because I
 
 have known Christian men distressed in heart because they fear that they came to Christ too easily. They have half imagined, as they looked back, that they could not have been converted at all because their conversion was not attended with such agony and torment of mind as others speak of.
 
@@ -105,9 +105,9 @@ Do I not solemnly assure you that I have known of many who have come to Christ j
 
 you believe that I am able to do this?" so are you to say to Him, "Yes, Lord." Trust yourself with your Savior and He is your Savior!
 
-I conclude with one more observation&mdash;THOSE PERSONS WHO ARE PRIVILEGED TO COME TO JESUS
+I conclude with one more observation&mdash;THOSE PERSONS WHO ARE PRIVILEGED TO COME TO Jesus
 
-CHRIST SOFTLY, PLEASANTLY AND HAPPILY ARE NOT LOSERS. They do lose something, certainly, but there
+Christ SOFTLY, PLEASANTLY AND HAPPILY ARE NOT LOSERS. They do lose something, certainly, but there
 
 is not much in it. They lose somewhat of the picturesque and they have less to tell. When a man has had a long series of trials to drive him out of himself and, at last, comes to Christ like a wrecked vessel tugged into port, he has a story to talk of and write about and, perhaps, he thinks it interesting to be able to tell. And, if he can tell it to God's Glory, it is quite proper that he should. Many of these stories are found in biographies because they are the incidents which excite interest and make a life worth writing about&mdash;but you must not conclude that all godly lives are of the same sort.
 

@@ -2,7 +2,7 @@
 
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 
-WHEN THE REGULAR CONGREGATION LEFT THEIR SEATS TO BE OCCUPIED BY STRANGERS.
+WHEN THE REGULAR CONGREGATION LEFT THEIR SEATS TO BE OCCUPIED by STRANGERS.
 
 ONE is struck with the personality of this text. There are two persons in it, "you" and "Me"&mdash;that is to say, the laboring one and the tender Savior who entreats him to come, that he may find rest. It is most important, if we wish to see the way of peace, clearly, to understand that we must, each one, come personally to Jesus for rest&mdash;"Come unto Me, all you that labor"&mdash;and that coming, on our part, must be to a personal Christ. In effect He says, "Come, yourselves, to Me. Come not through sponsors, not through men whom you choose to call your priests, not through the petitions of ministers and teachers, but come, yourselves, for yourselves."
 
@@ -105,7 +105,7 @@ Now, then, trust Jesus, so as to be obedient to Him and He will pilot you safely
 
 Shall an adulterer have rest and wallow in his filthiness? Shall a man blaspheme and have rest? Shall a man be a rogue and a liar and have rest? Impossible! These things must be given up by coming to Jesus Christ, who will help you to give them up and make a new man of you&mdash;and then you shall receive rest in your soul. Come to Him, then, in spirit and in truth. Oh, that you would come to Him while I am speaking&mdash;and find instantaneous rest for your souls!
 
-I must not keep you longer and so I want, upon the last point, to briefly call your attention to THE UNSELFISHNESS OF THE LORD, JESUS CHRIST, "Come unto Me," He says, "and I will give you." That is the Gospel. "I
+I must not keep you longer and so I want, upon the last point, to briefly call your attention to THE UNSELFISHNESS OF THE Lord, Jesus Christ, "Come unto Me," He says, "and I will give you." That is the Gospel. "I
 
 will give you." You say, "Lord, I cannot give You anything." He does not need anything! Come to Jesus and He says, "I will give you." Not what you give to God, but what He gives to you, will be your salvation! "I will give you"&mdash;that is the Gospel in four words. Will you come and have it? It lies open before you. Jesus needs nothing from you. Suppose you were to become Christ's disciple and serve Him with all your might throughout your life&mdash;in what way would that enrich Him? He has died for you! How can you ever pay Him for that?
 

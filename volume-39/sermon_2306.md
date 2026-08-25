@@ -44,7 +44,7 @@ I will only refer to one more class of those who have chosen the service of the 
 
 Surveying these different masters, I venture to say, once and for all, and then I leave this part of my subject, that those who have chosen the service of the kingdoms have made a very foolish and evil choice&mdash;and that those who have chosen the service of God may forever bless the Lord with all their hearts!
 
-Here is our second point. SOME SEEM TO BE PINING TO GIVE UP THE SERVICE OF GOD AND TO GO TO THE SERVICE OF THE KINGDOMS.
+Here is our second point. SOME SEEM TO BE PINING TO GIVE UP THE SERVICE OF God AND TO GO TO THE SERVICE OF THE KINGDOMS.
 
 It is a strange thing, but this evil is always breaking out even among the people of God. Some want to change out of sheer love of change. That you should want to change ministers, I do not at all wonder&mdash;my voice must have become very monotonous to some of you&mdash;but that you should want to change gospels, that does distress me! That there should be any man who grows weary of the everlasting chimes of the glorious notes of Free Grace and dying love appalls me. No, no! Let me hear the voice of God through eternity, for it has a perpetual freshness and novelty about it! I can bear with the monotony of the preacher, if the monotone is still full of Jesus and His love. But there are some people who cannot be constant to anything. They are like the moon. You could not measure the moon for a suit of clothes with the hope of ever fitting it and, so, you cannot tell what these men are or where they are, for they are always changing.
 
@@ -60,7 +60,7 @@ There are some who turn aside because religion has brought them to a point where
 
 "Through floods and flames, if Jesus leads, I'll follow where He goes! 'Hinder me not,' shall be my cry, Though earth and Hell oppose."
 
-I am going to finish with this point. THERE IS a GREAT CONTRAST BETWEEN THE SERVICE OF GOD
+I am going to finish with this point. THERE IS a GREAT CONTRAST BETWEEN THE SERVICE OF God
 
 AND ANY OTHER SERVICE.
 
@@ -80,48 +80,48 @@ It is well to be walking in such a way that you can walk right straight on thoug
 
 God bless you, dear Friends, for Christ's sake! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON. 1 KINGS 14:21-24; 2 CHRONICLES 12.
+ExpositionS by C. H. Spurgeon. 1 Kings 14:21-24; 2 Chronicles 12.
 
 1 Kings 14:21. And Rehoboam the son of Solomon reigned in Judah. After great mountains often come low valleys. Solomon was a wise man&mdash;Rehoboam was otherwise.
 
-Rehoboam was forty and one years old when be began to reign, and he reigned seventeen years in Jerusalem, the city which the LORD did choose out of all the tribes of Israel, to put His name there. Rehoboam ought to have been a good king. Jerusalem was the holy city, the chosen city. God put His own name there. It is a sad thing that this king should try to put away God's name from the chosen city.
+Rehoboam was forty and one years old when be began to reign, and he reigned seventeen years in Jerusalem, the city which the Lord did choose out of all the tribes of Israel, to put His name there. Rehoboam ought to have been a good king. Jerusalem was the holy city, the chosen city. God put His own name there. It is a sad thing that this king should try to put away God's name from the chosen city.
 
 And his mother's name was Naamah, an Ammonitess. There was bad blood in him. How often do we find that the good king has a good mother's name mentioned with his own! Bad kings generally come from some stranger, some heathen princess. It was so with Rehoboam.
 
-And Judah did evil in the sight of the LORD, and they provoked Him to jealousy with their sins which they had committed, above all that their fathers had done. Their fathers had been great sinners, but, in the days of David, they had not set up false gods. In the days of Solomon, after the Temple had been built, they began to go astray. It is a curious thing that a high ritualistic service, even if it is right, is usually attended with a coming down in spirituality. When the Temple
+And Judah did evil in the sight of the Lord, and they provoked Him to jealousy with their sins which they had committed, above all that their fathers had done. Their fathers had been great sinners, but, in the days of David, they had not set up false gods. In the days of Solomon, after the Temple had been built, they began to go astray. It is a curious thing that a high ritualistic service, even if it is right, is usually attended with a coming down in spirituality. When the Temple
 
 service was instituted, it was the beginning of a decline, but in Reboboam's day that decline became more apparent, the "down-grade" became more visible.
 
 For they also built them high places, and images, and groves, on every high hill, and under every green tree. They could not have enough of it. When men go wrong, they generally go wrong very greedily&mdash;they cannot have too much of evil.
 
-And there were also Sodomites in the land: and they did according to all the abominations of the nations which the LORD cast out before the children of Israel. When men once turn aside from the living God to follow inventions of their own, there is no telling where they will go. Nothing is too foul, nothing is too filthy for them. Now read the same story as you find it in
+And there were also Sodomites in the land: and they did according to all the abominations of the nations which the Lord cast out before the children of Israel. When men once turn aside from the living God to follow inventions of their own, there is no telling where they will go. Nothing is too foul, nothing is too filthy for them. Now read the same story as you find it in
 
-2 Chronicles 12. Verse 1. And it came to pass, when Rehoboam had established the kingdom. and had strengthened himself, he forsook the Law of the LORD, and all Israel with him. They prospered, at first, by adhering to Jehovah. The good people out of the neighboring land of Israel emigrated to them, strengthening them, but, as soon as they grew strong, they forsook the Law of Jehovah.
+2 Chronicles 12. Verse 1. And it came to pass, when Rehoboam had established the kingdom. and had strengthened himself, he forsook the Law of the Lord, and all Israel with him. They prospered, at first, by adhering to Jehovah. The good people out of the neighboring land of Israel emigrated to them, strengthening them, but, as soon as they grew strong, they forsook the Law of Jehovah.
 
-And it came to pass, that in the fifth year of King Rehoboam, Shishak, king of Egypt, came up against Jerusalem because they had transgressed against the LORD. Shishak did not know that fact, nor did he care about Jehovah. God so ruled in Providence that when His people cast Him off, He soon found a rod with which to chasten them. The King of Egypt determined to conquer them. You do not know, my Friends, how God will strike you, but if you err from His statutes, He will never be long without a rod. You will bring chastisement on yourself if you depart from the living God. You will have yourself to blame if some dire affliction happens to you.
+And it came to pass, that in the fifth year of King Rehoboam, Shishak, king of Egypt, came up against Jerusalem because they had transgressed against the Lord. Shishak did not know that fact, nor did he care about Jehovah. God so ruled in Providence that when His people cast Him off, He soon found a rod with which to chasten them. The King of Egypt determined to conquer them. You do not know, my Friends, how God will strike you, but if you err from His statutes, He will never be long without a rod. You will bring chastisement on yourself if you depart from the living God. You will have yourself to blame if some dire affliction happens to you.
 
 With twelve hundred chariots, and threescore thousand horsemen: and the people were without number that came with him out of Egypt; the Lubims, the Sukkiims, and the Ethiopians. This vast crowd ate up everything! The rule was to quarter on the enemy. They would devour every eatable thing throughout the whole country!
 
 And he took the fenced cities which pertained to Judah, and came to Jerusalem. When God means to chasten a people, He does not take long to do it and neither can their weakened strength successfully oppose their enemy.
 
-Then came Shemaiah the Prophet to Rehoboam, and to the princes of Judah, that were gathered together at Jerusalem because of Shishak, and said unto them, Thus says the LORD, You have forsaken Me, and therefore have I also left you in the hand of Shishak. The Prophet gave them no invitation to repentance, but just an explanation of the sorrow which had come upon them.
+Then came Shemaiah the Prophet to Rehoboam, and to the princes of Judah, that were gathered together at Jerusalem because of Shishak, and said unto them, Thus says the Lord, You have forsaken Me, and therefore have I also left you in the hand of Shishak. The Prophet gave them no invitation to repentance, but just an explanation of the sorrow which had come upon them.
 
-Whereupon the princes of Israel and the King humbled themselves; and they said, The LORD is righteous. That was well done. They had not yet become so confirmed in their rebellion as to reject the Prophet of God and to turn in willful, wanton, resolute disobedience against him.
+Whereupon the princes of Israel and the King humbled themselves; and they said, The Lord is righteous. That was well done. They had not yet become so confirmed in their rebellion as to reject the Prophet of God and to turn in willful, wanton, resolute disobedience against him.
 
-And when the LORD saw that they humbled themselves. Though it was not in a spiritual way, yet
+And when the Lord saw that they humbled themselves. Though it was not in a spiritual way, yet
 
-The Word of the LORD came to Shemaiah saying, They have humbled themselves: therefore I will not destroy them, but I will grant them some deliverance; and My wrath shall not be poured out upon Jerusalem by the hand of Shishak. He shall not storm the city! He shall not destroy it.
+The Word of the Lord came to Shemaiah saying, They have humbled themselves: therefore I will not destroy them, but I will grant them some deliverance; and My wrath shall not be poured out upon Jerusalem by the hand of Shishak. He shall not storm the city! He shall not destroy it.
 
 Nevertheless they shall be his servants; that they may know My service, and the service of the kingdoms of the countries. The Lord's people were to know the difference between the service of God and the service of the kings of the countries round about them. It would be a very sharp contrast and a very bitter one.
 
-So Shishak, king of Egypt, came up against Jerusalem, and took away the treasures of the house of the LORD. The Temple was always very rich. Shishak came and stripped it. Everything there that was really valuable was taken away.
+So Shishak, king of Egypt, came up against Jerusalem, and took away the treasures of the house of the Lord. The Temple was always very rich. Shishak came and stripped it. Everything there that was really valuable was taken away.
 
 And the treasures of the king's house; he took all. He could not very well take any more. That is generally the way with the devil. God is satisfied with tithes, but Shishak and Satan take all.
 
-9-11. He carried away also the shields of gold which Solomon had made. Instead of which king Rehoboam, made shields of brass, and committed them to the hands of the chief of the guard, that kept the entrance of the king's house. And when the king entered into the house of the LORD, the guard came and fetched them, and brought them again into the guard chamber. That was a come-down, indeed, from shield's of gold to shields of copper! That is, I suppose, what is meant here by the brass. This is what the king suffered at the hands of Shishak and it was an emblem of the condition of his people. The golden kingdom had became a bronze one.
+9-11. He carried away also the shields of gold which Solomon had made. Instead of which king Rehoboam, made shields of brass, and committed them to the hands of the chief of the guard, that kept the entrance of the king's house. And when the king entered into the house of the Lord, the guard came and fetched them, and brought them again into the guard chamber. That was a come-down, indeed, from shield's of gold to shields of copper! That is, I suppose, what is meant here by the brass. This is what the king suffered at the hands of Shishak and it was an emblem of the condition of his people. The golden kingdom had became a bronze one.
 
-And when he humbled himself, the wrath of the LORD turned from him, that He would not destroy him altogether: and also in Judah things went well. Or, some behaved well. Even a measure of humiliation is acceptable with God. And though He did not save the nation from being plundered, yet He did rescue it from being altogether struck. Alas for Rehoboam, he did a bad day's work when he turned away from God!
+And when he humbled himself, the wrath of the Lord turned from him, that He would not destroy him altogether: and also in Judah things went well. Or, some behaved well. Even a measure of humiliation is acceptable with God. And though He did not save the nation from being plundered, yet He did rescue it from being altogether struck. Alas for Rehoboam, he did a bad day's work when he turned away from God!
 
-13, 14. So King Rehoboam strengthened himself in Jerusalem, and reigned: for Rehoboam, was one and forty years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which the LORD had chosen out of all the tribes of Israel, to put His name there. And his mother's name was Naamah an Ammonitess. And he did evil because he prepared not his heart to seek the LORD. He was one of that fickle sort, neither here nor there&mdash;a compromising gentleman&mdash;not very definite in anything. He would go right if he were driven that way, and he would go wrong if he were led in that direction. Oh, how many there are who never prepare their hearts to seek the Lord! They are not determinately bad&mdash;they have not enough backbone in them to be leaders in evil&mdash;but they are never good for much because they have never made up their minds to do the right at all costs. They have never had their heart prepared by the Holy Spirit to seek the Lord.
+13, 14. So King Rehoboam strengthened himself in Jerusalem, and reigned: for Rehoboam, was one and forty years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which the Lord had chosen out of all the tribes of Israel, to put His name there. And his mother's name was Naamah an Ammonitess. And he did evil because he prepared not his heart to seek the Lord. He was one of that fickle sort, neither here nor there&mdash;a compromising gentleman&mdash;not very definite in anything. He would go right if he were driven that way, and he would go wrong if he were led in that direction. Oh, how many there are who never prepare their hearts to seek the Lord! They are not determinately bad&mdash;they have not enough backbone in them to be leaders in evil&mdash;but they are never good for much because they have never made up their minds to do the right at all costs. They have never had their heart prepared by the Holy Spirit to seek the Lord.
 
 15, 16. Now the acts of Rehoboam, first and last, are they not written in the book of Shemaiah the Prophet, and of Iddo the Seer concerning genealogies? And there were wars between Rehoboam and Jeroboam continually. And Rehoboam slept with his fathers, and was buried in the city of David: and Abijah, his son, reigned in his stead. So they pass away. One generation dies and another follows. God grant that when we fall asleep it may not be with the sin of Rehoboam lying upon us, neither may we be succeeded by evil sons, but may we serve God in our day and be followed by those who shall serve Him still better! The Lord grant it! Amen.

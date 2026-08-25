@@ -4,7 +4,7 @@
 
 John 18:24.
 
-OUR only subject, on this occasion, is CHRIST IN BONDS&mdash;the Son of God as an Ambassador in bonds, a King in chains&mdash;the God-Man sent, bound&mdash;to take His trial in the court of the high priest, Caiaphas.
+OUR only subject, on this occasion, is Christ IN BONDS&mdash;the Son of God as an Ambassador in bonds, a King in chains&mdash;the God-Man sent, bound&mdash;to take His trial in the court of the high priest, Caiaphas.
 
 It seems to me that this binding of our Lord shows, first, something of fear on the part of His captors. Why did they bind Him? He would not attack them. He had no desire to escape out of their hands, yet, they probably thought that He might break loose from them, or in some way outwit them. Alas, that men should ever have been thus afraid of Him who came alone from Heaven, neither bearing arms nor wearing armor&mdash;who came to injure none, nor even to protect Himself against the harm that any might inflict upon Him&mdash;at first, lying as a Babe in a manger and all His life exhibiting rather the weakness of His Manhood than its strength! Yet His adversaries were often afraid of Him. So it still is&mdash;there is a latent, secret conviction in the minds of men that the Christ is greater than He seems to be. Even when they attack Him with their infidel weapons, they never seem to be satisfied with their own arguments, so they are continually seeking fresh ones. To this very day the ungodly are afraid of Christ and, often, their raging against Him resembles the noise made by the boy who, when hurrying through the graveyard, whistles to keep his courage up!
 
@@ -18,7 +18,7 @@ Out of very wantonness, I say, they must have done it, that they might express t
 
 You who love your Savior will think with tender sympathy of how He was bound by these wicked men. My special objective is to try to find out what are the lessons which we may learn from the bonds of Christ.
 
-The first lesson is this. From the binding of our dear Redeemer, I learn a lesson concerning sin. THE BONDS OF CHRIST TEACH US WHAT SIN WOULD DO TO GOD IF IT COULD.
+The first lesson is this. From the binding of our dear Redeemer, I learn a lesson concerning sin. THE BONDS OF Christ TEACH US WHAT SIN WOULD DO TO God IF IT COULD.
 
 The unregenerate heart, in its enmity against God, would treat Him exactly as the men of 1900 years ago treated the Son of God. What was done to Jesus is just what man would do, if he could, to the Lord God of Heaven and earth, Himself. "What?" you say, "would men bind God?" Ah, Sirs, they would do much more than that if they could, but they would certainly do that! They would annihilate God if they could, for, "the fool has said in his heart, No God"&mdash;that is to say, "No God for me!" He would kill God if it were possible. There would be no gladder news to many men who are living today than for them to be informed, with absolute certainty, that there was no God at all! All their fears would be at once silenced by such tidings. As for us who love and trust Him, all our joys would be gone and our worst fears would be realized if God were gone. But, as for the ungodly, it would be the best news that was ever rung out from church steeples if they could be assured that God was dead! They would kill Him if they could, but, as they cannot kill Him, they seek to bind Him.
 
@@ -95,7 +95,7 @@ And do you not think, dear Friends, that we who love Christ bind His hands when 
 
 And do you not think that whenever we are inconsistent in over conduct&mdash;especially in the family&mdash;we tie the hands of Christ? There is a father praying for his children that they may live before God. Five minutes later, listen to Him! Why, his boys hate the sight of him! He is such a tyrant to them that they cannot endure him. There is a mother, too, who is praying God to save her daughters. She goes upstairs and pleads very earnestly for them. Yet she comes down and lets them have whatever they ask for and never says a word by way of checking them in their evil courses! She acts like a female Eli to everyone of them&mdash;is not she tying the hands of Christ? What can she expect but that God, who works according to rules, will be more likely to let her unkind kindness influence her girls for evil, than to answer her prayers for their conversion? Let us be holy, dear Friends, for then we shall, by faith, see the holy God freely moving and working among us&mdash;and doing great deeds to His own Glory! So may He do, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: BY JOHN 18:12-14,19-26; MARK14:53-65; LUKE22:63-71; 23:1.
+Exposition by C. H. Spurgeon: by John 18:12-14,19-26; Mark14:53-65; Luke22:63-71; 23:1.
 
 The passages which we are about to read from three of the Evangelists, make up a continuous narrative of our Lord's trial before the high priest.
 

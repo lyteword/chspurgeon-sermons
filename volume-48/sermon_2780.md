@@ -8,7 +8,7 @@ This has been the cry of the children of God in all ages. Lot had his ears vexed
 
 I propose, on this occasion, first, to say a word or two in justification of the Psalmist's complaint Secondly, to justify God's dealings with us in having subjected us to this dwelling in the tents of Mesech. And thirdly, a few words, by way of comfort, to those who are sad at heart by reason of those ill times and those ill places in which they abide.
 
-First, then, Brothers and Sisters, a WORD OR TWO IN JUSTIFICATION OF THE PSALMIST's COMPLAINT. I will not say that it is thoroughly commendable, in a Christian, to long to be away from the place where God's Providence has put him. But I will say, and must say, that it is not only excusable, but scarcely needs an apology, for that Christian to sometimes cry out, "My soul is weary. I am almost weary of my life because of the wicked men that surround me on every hand."
+First, then, Brothers and Sisters, a WORD OR TWO IN JUSTIFICATION OF THE PsalmIST's COMPLAINT. I will not say that it is thoroughly commendable, in a Christian, to long to be away from the place where God's Providence has put him. But I will say, and must say, that it is not only excusable, but scarcely needs an apology, for that Christian to sometimes cry out, "My soul is weary. I am almost weary of my life because of the wicked men that surround me on every hand."
 
 Think, my Brothers and Sisters, of what Christians have to suffer from the wicked world, and you will not wonder, you will not feel, I am sure, that they should excuse themselves when they cry, "Woe is me," for think how the wicked world slanders the Christian. There is no falsehood too base for men to utter against the followers of Jesus! There was a shameful slander that was circulated among the heathen, that the early Christians, when they came together, met for the most obscene and even cruel rites&mdash;whereas those holy men and women only gathered together to eat bread and drink wine in remembrance of Him whom they loved. And, to this day, the chosen weapon of Satan with which the Evil One does great mischief, and on which he relies as his masterpiece of hellish ammunition against the Church, is slander! And
 
@@ -31,7 +31,7 @@ Perhaps he would&mdash;but when he has seen you do it, he has become your accuse
 > When shall my labors have an end,   
 > In joy, and peace, and thee?   
 
-Having thus spoken a word of justification for the Psalmist's complaint, I am going, next, TO JUSTIFY THE WAYS OF GOD WITH US, IN HAVING SUBJECTED US TO THIS DWELLING IN THE TENTS OF KEDAR.
+Having thus spoken a word of justification for the Psalmist's complaint, I am going, next, TO JUSTIFY THE WAYS OF God WITH US, IN HAVING SUBJECTED US TO THIS DWELLING IN THE TENTS OF KEDAR.
 
 Well, Brothers and Sisters, whatever God does is right&mdash;we believe that once and for all&mdash;if He should do that which seemed, to our reason, to be the most wrong thing in the world, we would believe our reason to be a liar sooner than imagine that God would either be unkind or unwise. It is a happy thing when we can believe God to be right when we cannot see it, when we can trust Him even if we cannot trace Him. It is pleasant to believe that, but we would rather see it. Now, I think, in this case, we can see a little why God deals thus with us.
 
@@ -58,7 +58,7 @@ because the toil of the day sweetened it. Brothers and Sisters, it will be so wi
 > Far from a world of grief and sin,   
 > With God eternally shut in!   
 
-My third topic is a WORD OF COMFORT TO THE CHRISTIAN WHILE PLACED IN THESE APPARENTLY EVIL CIRCUMSTANCES.
+My third topic is a WORD OF COMFORT TO THE ChristIAN WHILE PLACED IN THESE APPARENTLY EVIL CIRCUMSTANCES.
 
 Well, there is one word in the text that ought to console him in a case like this. "Woe is me, that I sojourn"&mdash;thank God for that word, "sojourn." Yes, I do not live here forever&mdash;I am only a stranger and a sojourner here, as all my fathers were, and though the next sentence does say, "I dwell," yet, thank God, it is a tentI dwell in and that will come down, by-and-by&mdash;"I dwell in the tents of Kedar." You men of this world, you may have your day, but your day will soon be over! And I will have my nights, but my nights will soon be over, too. It is not for long, Christian, it is not for long. They may laugh at you, but every day they laugh, that is one day less for you to be laughed at. They may scoff and mock, and set you in the pillory with cruelty, but you will not be there forever. Perhaps tomorrow you may be in Heaven&mdash;we never know how near we are to the gates of Paradise. But, at any rate, suppose we should live to the longest period of human life? It is not long, after all.
 
@@ -82,7 +82,7 @@ Herod shall be eaten of worms, though his voice is as the voice of a god and not
 
 they shall be as white as snow; though they are red like crimson, they shall be as wool.'" Trust in Jesus and you are safe! Cast yourself, once and for all on Him, and you cannot be lost, for he that relies on Jesus is a saved man! May God add the blessing of His Spirit, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK 16.
+Exposition by C. H. Spurgeon: Mark 16.
 
 Verse 1. And when the Sabbath was past, Mary Magdalene, and Mary, the mother of James, and Salome, had bought sweet spices, that they might come and anoint Him. True love had made a mistake, but it was true love for all that, and the Lord accepted it, although He had no need of the sweet spices that the women brought.
 

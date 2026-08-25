@@ -63,6 +63,6 @@ Mr. Spurgeon earnestly requests the prayers of the Lord's people for his restora
 
 Twentieth Thousand. Price Two Shillings and Sixpence.
 
-"FEATHERS FOR ARROWS;" Or, Illustrations for Preachers and Teachers, from My Note Book. By C. H. SPURGEON.
+"FEATHERS FOR ARROWS;" Or, Illustrations for Preachers and Teachers, from My Note Book. By C. H. Spurgeon.
 
 "A treasury of figures and metaphors&mdash;and plenty of them&mdash;from Mr. Spurgeon's Note Book which he has done well to reduce to 280 pages of type, for the benefit of Christian workers, to whom the book is Now presented as a sincere offering of hearty brother-help.'"&mdash;The Latter Rain.

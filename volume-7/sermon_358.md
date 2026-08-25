@@ -13,7 +13,7 @@ Understand, then, for this is what I am about to speak of this morning; by the H
 
 First, then, THERE ARE SOME WORKS OF THE SPIRIT WHICH ARE PECULIARLY AN EARNEST TO
 
-THE CHILD OF GOD, OF THE BLESSINGS OF HEAVEN.
+THE CHILD OF God, OF THE BLESSINGS OF HEAVEN.
 
 And first, Heaven is a state of rest. It may be because I am constitutionally idle, that I look upon Heaven in the aspect of rest with greater delight than under any other view of it, with but one exception. To let the head which is so continually exercised, for once lie still&mdash;to have no care, no trouble, no need to labor, to strain the intellect, or vex the limbs! I know that many of you, the sons of poverty and of toil, look forward to the Sabbath, because of the enjoyments of the sanctuary, and because of the rest which it affords you. You look for Heaven as Watts did in his song&mdash;
 

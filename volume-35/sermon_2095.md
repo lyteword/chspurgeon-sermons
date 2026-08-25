@@ -29,7 +29,7 @@ He that became a Lamb that He might take away the sin of the world, is not asham
 
 On the contrary, I can boldly say, "God forbid that I should glory, save in the Cross of our Lord Jesus Christ." We do not so believe the doctrine of Atonement as to leave it in the dark as a second-rate article of faith. But we hold it to be the first and foremost teaching of inspiration, the greatest well of the Believer's comfort, the highest hill of God's glory. As our Lord's sacrificial Character is in Heaven most prominent, so would we make it most conspicuous among men. Jesus is to be declared as the Sin Bearer, and then men will believe and live. May God the Holy Spirit help us in our attempt this morning!
 
-Jesus in Heaven appears in His sacrificial Character. And I would have you note that THIS CHARACTER IS ENHANCED BY OTHER CONSPICUOUS POINTS. Its glory is not diminished but enhanced, by all the rest of our Lord's Character&mdash;the attributes, achievements and offices of our Lord all concentrate their glory in His sacrificial Character and all unite in making it a theme for loving wonder.
+Jesus in Heaven appears in His sacrificial Character. And I would have you note that THIS CHARACTER IS ENHANCED by OTHER CONSPICUOUS POINTS. Its glory is not diminished but enhanced, by all the rest of our Lord's Character&mdash;the attributes, achievements and offices of our Lord all concentrate their glory in His sacrificial Character and all unite in making it a theme for loving wonder.
 
 We read that he is the Lion of the tribe of Judah, by which is signified the dignity of His office as King and the majesty of His Person, as Lord. The lion is at home in fight and "the Lord is a man of war&mdash;the Lord is His name." Like a lion, He is courageous. Though He is like a lamb for tenderness, yet not in timidity. He is terrible as a lion&mdash;"who shall rouse Him up?" If any come into conflict with Him, let them beware&mdash;for as He is courageous, so is He full of force and altogether irresistible in might.
 
@@ -66,7 +66,7 @@ Yet, in the glory of His Deity, He disdains not to appear as the Lamb that has b
 
 When you shall see Him at last, you shall say, as John did, "I beheld and, lo, in the midst of the Throne and of the four living creatures, and in the midst of the elders, stood a Lamb as it had been slain." Write, then, the passion of your Lord upon the tablets of your hearts and let none erase the treasured memory. Think of Him mainly and chiefly as the Sacrifice for sin. Set the atonement in the midst of your minds and let it tinge and color all your thoughts and beliefs. Jesus, bleeding and dying in your place, must be to you as the sun in your sky.
 
-In the second place, let us note that, IN THIS CHARACTER, JESUS IS THE CENTER OF ALL. "In the midst of the Throne and of the four living creatures and in the midst of the elders, stood a Lamb as it had been slain."
+In the second place, let us note that, IN THIS CHARACTER, Jesus IS THE CENTER OF ALL. "In the midst of the Throne and of the four living creatures and in the midst of the elders, stood a Lamb as it had been slain."
 
 The Lamb is the center of the wonderful circle which makes up the fellowship of Heaven. From Him, as a standpoint, all things are seen in their places. Looking up at the planets from this earth, which is one of them, it is difficult to comprehend their motions&mdash;progressive, retrograde, or standing still. But the angel in the sun sees all the planets marching in due course and circling about the center of their system. Standing where you please upon this earth and within human range of opinion, you cannot see all things aright, nor understand them till you come to Jesus&mdash;and then you see all things from the center.
 
@@ -108,7 +108,7 @@ We have not lost our Calais but hold still our treasure. For Christ is ours. We 
 > Happy if with my last breath I may but gasp His name; Preach Him to all and cry in death,   
 > Behold, behold the Lamb!'   
 
-Thirdly, our Lord is seen in Heaven as the Lamb slain and IN THIS CHARACTER HE EXHIBITS PECULIAR MARKS. None of those marks derogate from His Glory as the sacrifice for sin. But they tend to instruct us therein.
+Thirdly, our Lord is seen in Heaven as the Lamb slain and IN THIS CHARACTER HE EXHIBITS PECULIAR MarkS. None of those marks derogate from His Glory as the sacrifice for sin. But they tend to instruct us therein.
 
 Note well the words&mdash;"Stood a Lamb as it had been slain." "Stood." Here is the posture of life. "As it had been slain." Here is the memorial of death. Our view of Jesus should be twofold. We should see His death and His life&mdash;we shall never receive a whole Christ in any other way. If you only see Him on the Cross, you behold the power of His death. But He is not now upon the Cross. He is risen, He forever lives to make intercession for us and we need to know the power of His life. We see Him as a lamb&mdash;"as it had been slain." But we worship Him as one that "lives forever and ever."
 

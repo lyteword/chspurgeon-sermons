@@ -12,7 +12,7 @@ Now, that is exactly what the Good Shepherd does with His sheep. He comes to the
 
 I am going to speak upon this text, viewing it from three points.
 
-The first point is that JESUS, THE GOOD SHEPHERD, OFTEN COMES INTO CONTACT WITH HIS SHEEP.
+The first point is that Jesus, THE GOOD SHEPHERD, OFTEN COMES INTO CONTACT WITH HIS SHEEP.
 
 He has bought them, He has paid the full price of their redemption. He has laid down His life for His sheep, so that they are effectually ransomed. He has gone up to Heaven to plead for them and to present before His Father the memorials of His death. Yet He is still with them, according to His Word, "Lo, I am with you always." He has not left His sheep here, below, simply to the care of undershepherds, much less are they in charge of hirelings. He has His under-shepherds,
 
@@ -41,7 +41,7 @@ I may also add that our Lord is always with us in intercession. This Divine fore
 
 So much, then, upon that first point, that Jesus often comes into contact with His sheep.
 
-Secondly, this also is clear from the text, that Jesus CALLS HIS SHEEP BY NAME&mdash;"He calls His own sheep by name." You Thomas, you Mary, and Martha, and Lazarus, and you Matthew, the publican, yes, and you, Mary of Mag-dala&mdash;He calls you all by name! What does this imply?
+Secondly, this also is clear from the text, that Jesus CALLS HIS SHEEP by NAME&mdash;"He calls His own sheep by name." You Thomas, you Mary, and Martha, and Lazarus, and you Matthew, the publican, yes, and you, Mary of Mag-dala&mdash;He calls you all by name! What does this imply?
 
 The first thing that it means is, intimate knowledge. Beloved Friends, I used to have such a trustworthy memory that I not only knew the nearly 6,000 members of this Church by face, which I am still able to do, but I knew them all by name&mdash;and it was a rare thing for me to ever forget or make a mistake, save when certain ladies changed their names and I had not been made aware of it, but even then I soon rectified the error. But now, sometimes, I find myself unable to remember all your names&mdash;perhaps it is because I do not see you often. Our Lord knows all the myriads of His redeemed by name. There is no failure of memory with Him and He always sees them! His eye and His heart are towards each one of His people both night and day&mdash;"He calls His own sheep by name." I do not wish so much to preach upon this passage as I want you to put it into your mouth, or rather, to taste it with your spiritual palate, so as to get the flavor and sweetness of it. "I know My sheep," says the Good Shepherd! He knows not only who they are, but what they are, and where they are! "He calls His own sheep by name." This implies His intimate knowledge of them.
 
@@ -57,7 +57,7 @@ Well now, there is a good deal in that way of personally mentioning people in pr
 
 This call also teaches us the wonderful suitability of Christ's Words to our needs. There will often be, in a text of Scripture, the very message that is needed by a poor wearied spirit. How often, too, will the Lord prepare the mind of a hearer till the preacher's words shall be as suitable as if he had been told all about the unknown person! Friends sometimes write to me and say, "We are going to bring a friend of such and such a sort to the Tabernacle." They let me know in the hope that I may make my message suitable. Do not let me know whom you bring! I do not want to know because I cannot suit my sermon to your friend. Bring your friend, with your own hearty and earnest prayer, but without my knowing anything about it! God will speak through His servant what He wishes to have said&mdash;and it will come with greater force and power than any thoughtful love can suggest. Oh, may God speak to some of you tonight! May you be called out by your name and feel in your heart, "Jesus calls me, and I will go to Him at once, and put my trust in Him"!
 
-Now I am going to close with this third remark, THAT THIS CALL BY NAME COMES AT SPECIAL TIMES. I will mention four special seasons when the Lord's personal call is heard.
+Now I am going to close with this third remark, THAT THIS CALL by NAME COMES AT SPECIAL TIMES. I will mention four special seasons when the Lord's personal call is heard.
 
 First, it comes at conversion. I have, perhaps, already said enough about that. There is a call to sinners by name&mdash;the Gospel preached in general is all very well, but it is the Gospel preached in particular that saves men. If you have come in here, tonight, just to hear as one of a crowd, you will probably get nothing by coming. But when you sit here, saying, "Lord, speak to me! Lord help me to apply every word to my own case! Help me to lay hold of every promise that is quoted!"&mdash;that is the way to gain the blessing! They say that the times are improving and that business is looking up, but when I meet with a friend who is in a certain trade, he says, "Business is not looking up my way. I do not find that I have any more customers than I used to have, or that I can get the slightest increase of profit on my goods." Just so, Friends, you do not profit by the general blessing, do you? You need a particular blessing to come to your own soul, for, in this respect, as it is with temporal things, so it is with eternal things&mdash;we need the blessing for ourselves.
 
@@ -80,7 +80,7 @@ We will close our service by singing this verse&mdash;
 > Forever with the Lord! Amen! So let it be!   
 > Life from the dead is in that word, 'Tis immortality!   
 
-EXPOSITION BY C. H. SPURGEON: John 10:1-31.
+Exposition by C. H. Spurgeon: John 10:1-31.
 
 Verse 1. Verily, verily, I say unto you. When our Divine Lord and Master was about to speak with deep solemnity, He usually commenced His discourse by repeating the word, "verily"&mdash;"Verily verily, I say unto you." The authority of Christ is the basis of our religion. He does not quote from others, but He says, "Verily, verily, I say unto you." Jesus is Incarnate Wisdom, He is God, Himself, and what He says is Infallibly true and is to be accepted without question.
 

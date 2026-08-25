@@ -111,7 +111,7 @@ Thus Moses placed things in their right light and they seemed to undergo a compl
 
 Note once again, that Moses spoke about treasures. And as a great man in Egypt he knew what wealth there was in the land. But he qualifies the treasures by saying, "treasures in Egypt." For an Israelite those treasures were nothing, since they were in a foreign land. Treasures in the land that flows with milk and honey&mdash;these were real treasures. But treasures in Egypt were a mockery. Moses shakes his head at them. He esteemed the reproach of Christ greater riches than the treasures in Egypt. So, you see, most deliberately, with great discrimination, Moses made his choice and kept to it and God blessed him in it. He was preserved in the ark of Grace from the hand of the enemy and was drawn out of the waters of temptation to be consecrated to the high service of God.
 
-I want, in the last place, hurriedly to say that MOSES SHOULD BE IMITATED BY US.
+I want, in the last place, hurriedly to say that MOSES SHOULD BE IMITATED by US.
 
 First, Brethren, we should have Moses' faith. The things which Moses believed are true, and therefore ought still to be believed. They are as important today as when he believed them. Let us lay hold upon them and feel their practical bearings this very morning. Young men, especially&mdash;I entreat you to believe in God and in His work of Grace among His people, that you may be numbered with His chosen now and in the day of His appearing.
 

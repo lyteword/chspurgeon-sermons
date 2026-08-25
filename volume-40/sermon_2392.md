@@ -20,7 +20,7 @@ Then another view, which is the most popular of all, is to refer the passage, fi
 
 This morning, then, I shall take my text as relating to our Lord Jesus Christ, and we have three things, here, about Him. First, the birth. Secondly, the food. And, thirdly, the name of Christ.
 
-Let us commence with THE BIRTH OF CHRIST&mdash;"Behold a virgin shall conceive and bear a Son."
+Let us commence with THE BIRTH OF Christ&mdash;"Behold a virgin shall conceive and bear a Son."
 
 "Let us even now go unto Bethlehem and see this thing which is come to pass," said the shepherds. "Let us follow the star in the sky," said the Eastern Magi, and so say we this morning. Hard by the day when we, as a nation, celebrate the birthday of Christ, let us go and stand by the manger to behold the commencement of the Incarnation of Jesus! Let us recall the time when God first enveloped Himself in mortal form and tabernacled among the sons of men! Let us not blush to go to so humble a spot&mdash;let us stand by that village inn and let us see Jesus Christ, the God-Man, become an Infant of a span long!
 
@@ -52,7 +52,7 @@ Christ's birth is not despicable, even if we consider the visitors who came arou
 
 "Behold, a virgin shall conceive and bear a Son." Thus have we spoken of the birth of Christ.
 
-The second thing that we have to speak of is THE FOOD OF CHRIST&mdash;"Butter and honey shall He eat, that He may know to refuse the evil, and choose the good."
+The second thing that we have to speak of is THE FOOD OF Christ&mdash;"Butter and honey shall He eat, that He may know to refuse the evil, and choose the good."
 
 Our translators were certainly very good scholars and God gave them much wisdom so that they craned up our language to the majesty of the original, but here they were guilty of very great inconsistency. I do not see how butter and honey can make a child choose good and refuse evil. If it is so, I am sure butter and honey ought to go up greatly in price, for good men are very much required! But it does not say, in the original, "Butter and honey shall He eat, that He may know to refuse the evil, and choose the good," but, "Butter and honey shall He eat, till He shall know how to refuse the evil, and choose the good," or, better still, "Butter and honey shall He eat, when He shall know how to refuse the evil, and choose the good."
 
@@ -74,7 +74,7 @@ Your Words, O Christ, are like honey! I, like a bee, have flown from flower to f
 
 And perhaps I ought not to have forgotten to say that the effect of Christ's eating butter and honey was to show us that He would not, in His lifetime, differ from other men in His outward guise. Other Prophets, when they came, were dressed in rough garments and were austere and solemn in manner. Christ came not so&mdash;He came to be a Man among men, a feaster with those that feast, an eater of honey with eaters of honey. He differed from none and, therefore, He was called a gluttonous man and a wine-bibber. Why did Christ do so? Why did He so commit Himself, as men said, though it was verily a slander? It was because He would have His disciples not regard meats and drinks, but despise these things, and live as others do. It was because He would teach them that it is not that which goes into a man, but that which comes out, that defiles him! It is not what a man eats, with temperance, that does him injury&mdash;it is what a man says and thinks. It is not abstaining from meat, it is not the carnal ordinance of, "Touch not, taste not, handle not," that makes the fundamentals of our religion, albeit it may be good addenda thereunto. Butter and honey Christ ate, and butter and honey may His people eat! No, whatever God, in His Providence gives unto them, that is to be the food of the Child Christ.
 
-Now we come to close with THE NAME OF CHRIST&mdash;"And shall call His name Immanuel."
+Now we come to close with THE NAME OF Christ&mdash;"And shall call His name Immanuel."
 
 I hoped, dear Friends, that I would have my voice this morning, that I might talk about my Master's name. I hoped to be allowed to drive along in my swift chariot, but, as the wheels are taken off, I must be content to go as I can. We sometimes creep when we cannot go and go when we cannot run, but oh, here is a sweet name to close up with&mdash;"She shall call His name Immanuel." Others in the olden time called their children by names which had meaning in them. They did not give them the names of eminent persons whom they would very likely grow up to hate, and wish they had never heard of! They had names full of meaning which recorded some circumstance of their birth. There was Cain&mdash;"I have gotten a man from the Lord," said his mother, and she called him Cain, that is, "Gotten," or, "Acquired." There was Seth&mdash;that is, "Appointed," for his mother said, "God has appointed me another seed instead of Abel." Noah means "Rest," or, "Comfort." Ishmael was so called by his mother because God had heard her. Isaac was called, "Laughter," because he brought laughter to Abraham's home. Jacob was called the supplanter, or the crafty one, because he would supplant his brother. We might point out many similar instances&mdash;perhaps this custom was a good one among the Hebrews, though the peculiar formation of our language might not allow us to do the same, except in a certain measure.
 
@@ -112,9 +112,9 @@ That eyes have seen or angels known." Now, a happy Christmas to you all and it w
 
 Remember that your Master ate butter and honey. Go your way, rejoice tomorrow, but, in your feasting, think of the Man in Bethlehem&mdash;let Him have a place in your hearts, give Him the glory, think of the virgin who conceived Him&mdash;but think, most of all, of the Man born, the Child given! I finish by again saying&mdash;
 
-"A HAPPY CHRISTMAS TO YOU ALL!"
+"A HAPPY ChristMAS TO YOU ALL!"
 
-EXPOSITION BY C. H. SPURGEON: Matthew 2:1-12.
+Exposition by C. H. Spurgeon: Matthew 2:1-12.
 
 Verse 1. Now when Jesus was born is Bethlehem of Judea in the days of Herod the king, behold, there came wise men from the East to Jerusalem, Our Lord was born in Bethlehem, an inconsiderable village of Judea. Its name, however, is significant&mdash;it means, "the house of bread." Truly Bethlehem has become, in a spiritual sense, the house of bread to all who feed on Christ. When Jesus was born in Bethlehem, there came wise men from the East to Jerusalem&mdash;
 

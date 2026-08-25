@@ -58,7 +58,7 @@ This kind of faith has grown beyond that which was at first exercised and it has
 
 The Lord give His blessing, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN4:1-42.
+Exposition by C. H. Spurgeon: John4:1-42.
 
 Verses 1-6. When, therefore, the Lord knew how the Pharisees had heard that Jesus made and baptized more disciples than John, (though Jesus Himself baptized not, but His disciples), He left Judea and departed again into Galilee. And He must needs go through Samaria. Then came He to a city of Samaria which is called Sychar, near to the parcel of ground that Jacob gave to his son, Joseph. Now Jacob's well was there. Jesus, therefore, being wearied with His journey, sat thus on the well: and it was about the sixth hour Do not be surprised, dear Brothers and Sisters, if you sometimes grow weary in the Lord's work. I trust that, even then, you will not be weary of it, but that you will believe that your blessed Master can still use even His tired servants and bless their labors. The Lord Jesus Christ worked great marvels even when He sat wearily on the brink of Jacob's well&mdash;and you, perhaps, are at this moment as fatigued and worn as you well can be&mdash;yet, will you not awaken all the energies of your soul if you should see an opportunity of doing good, even if it should be to some poor fallen woman, as in the case here mentioned? It is a blessed thing never to be too tired to pray and to never be too tired to speak to an anxious enquirer!
 

@@ -12,7 +12,7 @@ Our text, however, speaks not of the vanguard, but of the "rereward." There is a
 
 It is but little I have to say to you this evening, but may God make that little profitable to you! We will, first of all, dwell upon the rereward and enquire what it is which is here intended. And, secondly, we will try to show how the Glory of the Lord brings up the rear andprotects the saints on every side.
 
-In the first place, WHAT MAY WE UNDERSTAND BY THE REREWARD?
+In the first place, WHAT MAY WE UNDERSTAND by THE REREWARD?
 
 Taking the text to refer to the Church of God as a body, we remark that there are always some who bring up the rear. God has never left His Church without men to stand in the front. A few choice men have always been raised up by God and they have led the way, both in testimony and in suffering. The race of the Prophets will never be extinct. "The scepter," in this sense, will not depart from the members of the Church until Christ shall come a second time. The teacher shall not be taken out of his place, nor the candlestick be removed, nor the Bread of Life be taken away. But the mass of the Church are rather like the body of the army marching on and fighting well&mdash;but not attaining unto the first three mighties.
 
@@ -55,7 +55,7 @@ We long to be with Christ, for it shall be "far better" there, but that last pin
 
 "Sing when the death-dew lies cold on our brow, If ever we loved You, our Jesus, 'tis now." Perhaps our last day will be our best and brightest day and we shall be surprised to find what floods of Glory there are around and above the floods of death! I see before me many, very many veterans. Your gray hairs tell of your nearness to Heaven. I trust your locks are whitened with the sunlight of Glory! Oh, be not afraid! You shall find it a blessed thing to sleep in Jesus&mdash;and even as you go to that last bed, you shall not tremble, for He shall be so manifestly with you that you shall not be afraid! The Glory of the Lord shall be your rereward and what that Glory shall be, what heart can imagine, what tongue can tell? The Glory that excels the glory of perfection! The Glory of being made like unto the First-Born among many brethren! The Glory of the Well-Beloved which He had with His Father before the world was! "The glory which you gave Me, I have given them." Behold, then, your latter end! Oh, that our last days might be with the righteous and our last end be like theirs! The Glory of the Lord shall be the Christian's rereward.
 
-But now, only for a minute or two, let me show you HOW THE GLORY OF THE LORD thus, both in the case
+But now, only for a minute or two, let me show you HOW THE GLORY OF THE Lord thus, both in the case
 
 of the whole Church of Christ and of each separate Christian, BECOMES THE MEANS OF GRACIOUS PRESERVATION.
 
@@ -77,7 +77,7 @@ And so, let me close these few words of address by entreating you always to fly 
 
 The Lord bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 12:1-44.
+Exposition by C. H. Spurgeon: Luke 12:1-44.
 
 In this chapter our Savior dispels the fears of His disciples concerning temporal things, and especially their fear of persecution and their fear of need.
 

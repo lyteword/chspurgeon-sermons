@@ -127,7 +127,7 @@ Lose all their guilty stains"&mdash; and let all who can sing it from the heart 
 > That, on the Cross, He shed His blood   
 > From sin to set me free!   
 
-EXPOSITION BY C. H. SPURGEON: PSALM 73.
+Exposition by C. H. Spurgeon: Psalm 73.
 
 You may have noticed that the seventy-third Psalm and the thirty-seventh Psalm are on the same subject. It will help you to recall this fact if you remember that the figures are the same, only reversed.
 
@@ -181,4 +181,4 @@ Whom have I in Heaven but You? And there is none upon earth that I desire beside
 
 27. My flesh and my heart fails; but God is the strength of my heart and my portion forever For, lo, they that are far from You shallperish: You have destroyed all them that go a whoring from You. That is, setting their hearts on unlovely things and forgetting to love God.
 
-But it is good for me to draw near to God: I have put my trust in the Lord GOD, that I may declare all Your works. The Psalm ends jubilantly, as it began, though part of it had been in a minor key.
+But it is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works. The Psalm ends jubilantly, as it began, though part of it had been in a minor key.

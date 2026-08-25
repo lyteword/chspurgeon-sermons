@@ -17,7 +17,7 @@ This morning we thought of considering the war with Amalek as a typical represen
 
 We shall use the text three ways. First, as a picture of the experience of each individual Christian. Secondly, as a representation of the history of each separate Church. And thirdly, as a very excellent description of the history of the entire Church of the living God, from its first day even till its close.
 
-First, then, we have here THE EXPERIENCE OF EVERY INDIVIDUAL CHRISTIAN. Observe the children of Israel were emancipated from bondage, and had left Egypt behind even as you and I have been rescued from our natural estate and are no longer the servants of sin. They had been redeemed by blood sprinkled upon the door posts and upon the lintel, and we, too, have had redemption applied to our souls, and have seen that God has looked upon the blood and has passed over us.
+First, then, we have here THE EXPERIENCE OF EVERY INDIVIDUAL ChristIAN. Observe the children of Israel were emancipated from bondage, and had left Egypt behind even as you and I have been rescued from our natural estate and are no longer the servants of sin. They had been redeemed by blood sprinkled upon the door posts and upon the lintel, and we, too, have had redemption applied to our souls, and have seen that God has looked upon the blood and has passed over us.
 
 They had feasted upon the paschal lamb as we have done, for Jesus has become to us our meat and our drink, and our soul is satisfied with Him. They had been pursued by their enemies, even as we were pursued by our old sins, and they had seen these furious foes all drowned in the Red Sea, which they had passed through dry-shod. And we, too, have seen our past sins forever buried in the Red Sea of atoning blood. Our iniquities, which threatened to drive us back into the Egypt of despair, are gone forever! They sank like lead in the mighty waters, the depths have covered them&mdash;there is not one of them left.
 
@@ -87,7 +87,7 @@ Onward to the total destruction of every Amalekite must the child of Israel go! 
 
 I leave the point hoping that some young Christian may have received a lesson in experience. And yet I fear that we must all learn experience for ourselves, and that what is told us by others is but an idle tale. I pray that you who are beginning a new generation may not be as your father's were, a stiff-necked people, but that you may walk before the Lord with greater holiness and smite Amalek with sterner determination than your fathers have done, that so the victory may be unto God through you.
 
-In the second place, the whole narrative may be interpreted AS THE HISTORY OF ANY ONE CHRISTIAN
+In the second place, the whole narrative may be interpreted AS THE HISTORY OF ANY ONE ChristIAN
 
 CHURCH. I draw a distinction between the general Church and any one particular Church. In the olden times the Churches of our Lord Jesus Christ, though acknowledging one another and recognizing their unity, were distinct organizations managing their own affairs.
 
@@ -113,7 +113,7 @@ But some of you do not do it. Some of you neglect prayer in the closet for the C
 
 Oh the untold benefits that come to a Christian Church from the quiet prayerful members&mdash;least known on earth but best known in Heaven! Let us have both at work. May the Lord Jesus help us to advance from strength to strength in earnest effort of every kind, and may He at the same time be our strength upon the mountain while we draw near to God's Throne in prayer.
 
-But lastly, THE HISTORY OF THE WHOLE CHRISTIAN CHURCH IS HERE BEFORE US AS IN a
+But lastly, THE HISTORY OF THE WHOLE ChristIAN CHURCH IS HERE BEFORE US AS IN a
 
 PICTURE. The sacramental host of God's elect is warring, still, on earth&mdash;Jesus Christ being the Captain of their salvation. He has said, "Lo, I am with you always, even to the end of the world." Though this is the dispensation of the Holy Spirit, yet is it not incorrect to say that the Lord Jesus Christ is still at the head of His people? Hark to the shouts of war! Onward come the bands of priest-craft, hooded monks, and shaven priests with an allied host of England's silly clergy arrayed in gaudy vestments and tricked out with childish ornaments!
 

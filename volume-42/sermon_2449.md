@@ -78,7 +78,7 @@ I have preached all this to God's people, but I have not said anything to you wh
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;625, 262, 785.
 
-EXPOSITION BY C. H. SPURGEON: JOHN17.
+Exposition by C. H. Spurgeon: John17.
 
 This chapter contains the marvelous prayer of our Great High Priest. May the Holy Spirit apply its teaching to our hearts as we read it!
 

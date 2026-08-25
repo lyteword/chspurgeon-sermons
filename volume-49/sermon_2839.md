@@ -90,9 +90,9 @@ Oh, what double joy shall come to us when we reach the land Beulah and when we c
 
 What a contrast between where we began and where we are to leave off&mdash;the pit without water and the bliss without alloy! What is the bridge that spans the great gulf between them and carries us over into the Glory Lands? It is the finished work of the Lord Jesus Christ! It the blood of the Everlasting Covenant! So believe in it, trust your souls NOW on Jesus and then rest assured that we will meet on the other side of Jordan, in the land of the hereafter where the Lord shall manifest Himself unto us and fill us with ineffable delight forever and ever! God grant it, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM103.
+Exposition by C. H. Spurgeon: Psalm103.
 
-Verses 1, 2. Bless the LORD, O my soul: andall that is within me, bless His holy name. Bless the LORD, Omysoul, and forget not all His benefits. Three times the Psalmist says, "Bless, bless, bless." Come, my Heart, wake up, awake every faculty, but especially my memory&mdash;"Forget not all His benefits." Here is a list of some of them&mdash;as we read each one, let our hearts say, "Bless the Lord for that."
+Verses 1, 2. Bless the Lord, O my soul: andall that is within me, bless His holy name. Bless the Lord, Omysoul, and forget not all His benefits. Three times the Psalmist says, "Bless, bless, bless." Come, my Heart, wake up, awake every faculty, but especially my memory&mdash;"Forget not all His benefits." Here is a list of some of them&mdash;as we read each one, let our hearts say, "Bless the Lord for that."
 
 Who forgives all your iniquities. Hallelujah, bless the Lord for that! He who has felt the weight of his sin will leap for joy at the thought of the forgiveness of all his iniquities.
 
@@ -104,11 +104,11 @@ Who crowns you with loving kindness and tender mercies. There is about your head
 
 Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. There is an inward satisfaction that God gives to His people. They are not satisfied with themselves, but they are satisfied from themselves, from that "well of water" which springs up within them "unto life eternal." What a mercy it is to be so satisfied as to get young again, to feel your spiritual youth coming back to you&mdash;to be young in heart even if you are old in body. "Your youth is renewed like the eagle's." Let me again pause here and say, "Let us bless the Lord for this." Do not let one of these mercies be passed over as if they made up a dry and uninteresting list like the lots in an auctioneer's catalog, but let us bedew every one of these lines with a tear of heartfelt thankfulness!
 
-The LORD executes righteousness and judgment for all that are oppressed. Bless His name for this. In every age He has broken the oppressor's rod. For a while, His people may be made to smart, but, by-and-by, He hears their cries and He avenges their wrongs.
+The Lord executes righteousness and judgment for all that are oppressed. Bless His name for this. In every age He has broken the oppressor's rod. For a while, His people may be made to smart, but, by-and-by, He hears their cries and He avenges their wrongs.
 
 He made known His ways unto Moses, His acts unto the children of Israel Bless Him for this. He does not hide Himself from His people, so that they do not know "His ways" and "His acts." Revelation is a constant source of thanksgiving to those who understand it through the teaching of the Spirit who inspired it. God might never have spoken to us, or we might not have lived in a world wherein God had deigned to reveal His will. But that is not the case&mdash; "He made known His ways unto Moses, His acts unto the children of Israel."
 
-The LORD is merciful and gracious, slow to anger, and plenteous in mercy. Surely, dear Friends, we can all bless God for this Truth, for, if He had been quick to be angry, where would we have been? If His mercy has been scanty, we should long ago have been destroyed, but He is "slow to anger, and plenteous in mercy."
+The Lord is merciful and gracious, slow to anger, and plenteous in mercy. Surely, dear Friends, we can all bless God for this Truth, for, if He had been quick to be angry, where would we have been? If His mercy has been scanty, we should long ago have been destroyed, but He is "slow to anger, and plenteous in mercy."
 
 He will not always chide: neither will He keep His anger forever Are you, just now, hearing the stern voice of His chiding? Does His anger, like a black cloud, seem to rest upon you and hide His reconciled face from you? Then, bless the Lord that "He will not always chide: neither will He keep His anger forever" against His own chosen ones!
 
@@ -118,7 +118,7 @@ For as the Heaven is high above the earth, so great is His mercy toward them tha
 
 As far as the east is from the west, so far has He removed our transgressions from us. Here again I cannot tell how much we ought to bless Him. It is not merely pardon of a temporary character that is given to us, but our sin is carried right away into a land of forgetfulness, so that it will never come back again to us. "Who shall lay anything to the charge of God's elect? It is God that justifies."
 
-Like as a father pities his children, so the LORD pities them that fear Him. Let us praise Him for His tender pity over our weakness, His forbearance with our infirmity and waywardness.
+Like as a father pities his children, so the Lord pities them that fear Him. Let us praise Him for His tender pity over our weakness, His forbearance with our infirmity and waywardness.
 
 For He knows our frame; He remembers that we are dust. Some people do not remember that&mdash;they try to work us as if we were made of iron. But the Lord is full of pity. He knows that we are nothing but a mass of animated dust which the wind can soon carry away.
 
@@ -126,16 +126,16 @@ For He knows our frame; He remembers that we are dust. Some people do not rememb
 
 this is what will happen to all of us. A breath of fever-bearing wind, or some other disease borne on the wings of the wind will sweep over us and the strongest of us will wither in an hour.
 
-But the mercy of the LORD is from everlasting to everlasting upon them that fear Him. Oh, bless Him for that! He does not die! He does not change! He does not fail any who trust Him!
+But the mercy of the Lord is from everlasting to everlasting upon them that fear Him. Oh, bless Him for that! He does not die! He does not change! He does not fail any who trust Him!
 
 17, 18. And His righteousness unto children's children: to such as keep His covenant, and to those that remember His commandments to do them. Let us bless God for His love to our sons and our daughters. Some of us have great joy in our children. I pray that all of you may have the same joy&mdash;that you may see that the Lord, who is your God, is also the God of your descendants, as the God of Abraham was the God of Isaac, and of Jacob, and of Joseph, and of Ephraim and Manasseh, from generation to generation. Grace does not run in the blood, but it often runs side by side with it. It is often the way with God, when He has blessed the father, to bless the son for the father's sake. So you who are yourselves Believers may pray with great confidence for your sons and daughters. Bless the Lord for this!
 
-The LORD has prepared His throne in the heavens; and His Kingdom rules over all For this, also, we bless Him. If there was any part of the world that He did not rule over. If there were any circumstances which He could not control. If there were any events which happened without His permission. If He were not King everywhere, this would be an intolerable world to live in! But now we bless Him because "His Kingdom rules over all."
+The Lord has prepared His throne in the heavens; and His Kingdom rules over all For this, also, we bless Him. If there was any part of the world that He did not rule over. If there were any circumstances which He could not control. If there were any events which happened without His permission. If He were not King everywhere, this would be an intolerable world to live in! But now we bless Him because "His Kingdom rules over all."
 
-Bless the LORD, you His angels, that excel in strength, that do His commandments, hearkening unto the voice of His word. David calls in the angels to help him to praise the Lord&mdash;he wants to do it well, but feels that he is weak and feeble, so he calls in the best of help. We also sing&mdash;
+Bless the Lord, you His angels, that excel in strength, that do His commandments, hearkening unto the voice of His word. David calls in the angels to help him to praise the Lord&mdash;he wants to do it well, but feels that he is weak and feeble, so he calls in the best of help. We also sing&mdash;
 
 "Angels, assist our mighty joys, Strike all your harps of gold! But when you raise your highest notes, His love can ne'er be told."
 
-Bless you the LORD, all you His hosts; you ministers of His, that do His pleasure. All who wait upon Him, whether angels or men, or the lower creatures, are called upon to glorify His great name&mdash;and they do!
+Bless you the Lord, all you His hosts; you ministers of His, that do His pleasure. All who wait upon Him, whether angels or men, or the lower creatures, are called upon to glorify His great name&mdash;and they do!
 
-Bless the LORD, all His works in all places ofHis dominion: bless the LORD, O my soul Do you notice that there is not a single petition in the whole of this Psalm? It is all praise! And herein it is like Heaven, where they cease to pray, but where they praise God without ceasing! We cannot rise to that height here, but let us both praise and pray when we can.
+Bless the Lord, all His works in all places ofHis dominion: bless the Lord, O my soul Do you notice that there is not a single petition in the whole of this Psalm? It is all praise! And herein it is like Heaven, where they cease to pray, but where they praise God without ceasing! We cannot rise to that height here, but let us both praise and pray when we can.

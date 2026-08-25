@@ -68,7 +68,7 @@ The lambs can have no fellowship with the wolves&mdash;let them stay together an
 
 Go and begin fellowship with him by washing his dear feet. Where there is aliquid Christi, as a good man used to say, anything of Christ, there should your love go forth. Where there is any work of Christ upon the soul of anyone, however uneducated, however poor, however rough he may be, yes, and however bad-tempered he may be, nevertheless endeavor to get to maintain and to increase fellowship with him, seeing that you and he have one calling&mdash;you are both "called to be saints."
 
-Now I come to a close with the third point where I think we shall also find some ground for fellowship, THEIR BLESSEDNESS THROUGH THE FAVOR OF GOD. This was the same with regard to all to whom Paul wrote&mdash;"To all that are in Rome, beloved of God, called saints: Grace to you and peace from God our Father, and the Lord Jesus
+Now I come to a close with the third point where I think we shall also find some ground for fellowship, THEIR BLESSEDNESS THROUGH THE FAVOR OF God. This was the same with regard to all to whom Paul wrote&mdash;"To all that are in Rome, beloved of God, called saints: Grace to you and peace from God our Father, and the Lord Jesus
 
 Christ."
 
@@ -92,7 +92,7 @@ And so have I tried to prepare you to come to this feast. If any of you have any
 
 than at any other time, but there is always a reason for it. There is never a company of men and women, so large as ours, but what they have little jealousies between them. And you may be quite sure that these are displeasing to God and should be put away as speedily as possible. So let it be and thus may we keep the feast in union with Christ and with one another, for our Savior's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. ROMANS11-17
+Exposition by C. H. Spurgeon. Romans11-17
 
 Verse 1. Paul, a servant of Jesus Christ, called to be an Apostle, separated unto the Gospel of God, Paul has many titles and he delights to mention them in writing to these Christians at Rome. He puts, first, his highest title&mdash;"A servant of Jesus Christ." He glories in being a servant of the Crucified Christ, a servant of Him who was despised and rejected of men! So do we. Paul was called out from among men, effectually "called" of God, "to be an Apostle, separated"&mdash;set apart&mdash;"unto the Gospel of God." He believed that he was separated for that purpose at his birth, but he was specially "separated unto the Gospel of God" on the road to Damascus. It is a happy thing when a minister feels that he has nothing to do with anything else but the Gospel&mdash;that commands all his thoughts, all his talents, all his time.
 

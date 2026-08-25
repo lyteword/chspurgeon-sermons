@@ -86,7 +86,7 @@ That is what I want all you, who are spiritually alive, to do&mdash;go forth and
 
 I have finished when I have said just this word to the unsaved. Trust Jesus. Trust Him now! Come to Him, now, even by one gracious stride of faith, for He is able to save to the uttermost all them that come unto God by Him!
 
-EXPOSITION BY C. H. SPURGEON: Ephesians 4.
+Exposition by C. H. Spurgeon: Ephesians 4.
 
 Verse 1. I therefore, the prisoner of the Lord, beseech you. Paul puts force into the argument by his manner of speaking. You can hear in his words the rattle of his chains! Here is a man who, for Christ's sake, has lost his liberty and who, for that reason, pleads with his fellow Christians. "I therefore, the prisoner of the Lord, beseech you"&mdash;
 

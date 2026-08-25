@@ -35,7 +35,7 @@ One word&mdash;one solemn word here, which I would speak with my whole soul. Rem
 
 But, dearly Beloved, if you do know the Lord&mdash;and I trust that many here do, indeed, know Him&mdash;then it is certain that He has manifested Himself to you. Wondrous love! Lord, how is it that You will manifest Yourself to us? You have looked to Him. You have trusted in Him. You have lived upon Him. And all this because He has remembered you in your low estate. You remember Him with joy at this moment because of your past experience of Him. He is so dear to you that you must remember Him. You could not live without Him. He is all your salvation and all your desire. Well, then, it is for you to come to this festival and do this in remembrance of Him.
 
-My first point shall be that THE MAIN OBJECT OF THE LORD's SUPPER IS EVIDENTLY THAT WE SHOULD REMEMBER CHRIST BY IT. Notice this particularly. It is not that you should call to mind a doctrine&mdash; though I would not have you ignorant or unmindful of any Truth of God which the Spirit of God has revealed. Neither is it that you should be mindful of a precept, though, Beloved, I would have you be careful that in all things you do your
+My first point shall be that THE MAIN OBJECT OF THE Lord's SUPPER IS EVIDENTLY THAT WE SHOULD REMEMBER Christ by IT. Notice this particularly. It is not that you should call to mind a doctrine&mdash; though I would not have you ignorant or unmindful of any Truth of God which the Spirit of God has revealed. Neither is it that you should be mindful of a precept, though, Beloved, I would have you be careful that in all things you do your
 
 Savior's will. But the essence of your business at His table is, "This do in remembrance of Me," that is, of Himself&mdash;of His own blessed Person.
 
@@ -73,7 +73,7 @@ Alas, we too much forget Him in all these aspects! I fear that we more easily fo
 
 Let us gather to it as to a most needful, though right royal feast. For we have need to be reminded of our own dear Lord, who sweetly says to us, "This do in remembrance of Me."
 
-And now I take a second point. I want to show you all that THE MODE WHICH OUR LORD HAS ORDAINED OF HELPING OUR MEMORIES IS IN ITSELF EXCEEDINGLY STRIKING. It could not be more so. If I stood opposite to an altar garnished with paper roses and other childish things, and if I were to try and perform before you all: some of these cute little functions which are considered sacred by the followers of Rome&mdash;I should need a long time to explain it all to you.
+And now I take a second point. I want to show you all that THE MODE WHICH OUR Lord HAS ORDAINED OF HELPING OUR MEMORIES IS IN ITSELF EXCEEDINGLY STRIKING. It could not be more so. If I stood opposite to an altar garnished with paper roses and other childish things, and if I were to try and perform before you all: some of these cute little functions which are considered sacred by the followers of Rome&mdash;I should need a long time to explain it all to you.
 
 And when I had done my best, you would not be able to make heads or tails of it. I have stood and watched the Catholic priest at the altar with the earnest desire to see if there was anything to be learned and I could not learn anything. I could not make out what the ornamental person was at. I think I have read as much as most people about such things. But it does seem to me that if the behavior of the priest at the mass is a symbol, it is a very dark one&mdash;if it is intended to teach the people&mdash;they need to know a great deal before they can learn anything from it.
 
@@ -125,7 +125,7 @@ Lord, I cannot love You as I would love You but I can accept Your love. Let Your
 
 my Brethren, come and receive! Come and RECEIVE! I think this is a very sweet intimation to those of you who feel as if you had nothing to come with. You do not need to come with anything except your hunger and thirst. A man that is invited to a meal need not say, "Oh but I have no bread." You are asked to a royal feast and you need not bring bread with you. He that invites you to His table will provide you with all you want. And when you desire to remember Him, your surest and best plan is to enjoy the good things which He sets before you. I have thus shown how suitable the ordinance is to help our memories.
 
-Now, lastly, THE OBJECT FOR WHICH WE ARE TO COME, NAMELY, TO REMEMBER CHRIST, IS ONE
+Now, lastly, THE OBJECT FOR WHICH WE ARE TO COME, NAMELY, TO REMEMBER Christ, IS ONE
 
 WHICH IS IN ITSELF MOST INVITING. Let me show you what I mean. There is one here who cries, "I have forgotten my Savior. I did love Him. I hope my love has not quite gone but I seem to be very cold. Alas, I have forgotten my Lord."
 

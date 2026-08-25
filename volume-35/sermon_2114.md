@@ -39,7 +39,7 @@ God, go forth with this as his happy, joyful, cheerfully borne burden&mdash;&mda
 
 burden, for all that. And of that I am going to speak to you. Much practical Truth of God will come before us while we speak of ''the burden of the Word of the Lord.'' Pray that the Holy Spirit may bless the meditation to our hearts.
 
-And why is the Word of the Lord a burden to him that speaks it? Well, first, it is a burden BECAUSE IT IS THE WORD OF THE LORD. If what we preach is only of man, we may preach as we like and there is no burden about it. But if this Book is inspired&mdash;if Jehovah is the only God, if Jesus Christ is God incarnate, if there is no salvation except through His precious blood&mdash;then there is a great solemnity about that which a minister of Christ is called upon to preach. It therefore becomes a weighty matter with him. Modern thought is a trifle light, as air, but ancient Truths of God are more weighty than gold.
+And why is the Word of the Lord a burden to him that speaks it? Well, first, it is a burden BECAUSE IT IS THE WORD OF THE Lord. If what we preach is only of man, we may preach as we like and there is no burden about it. But if this Book is inspired&mdash;if Jehovah is the only God, if Jesus Christ is God incarnate, if there is no salvation except through His precious blood&mdash;then there is a great solemnity about that which a minister of Christ is called upon to preach. It therefore becomes a weighty matter with him. Modern thought is a trifle light, as air, but ancient Truths of God are more weighty than gold.
 
 And, first, the Word of the Lord becomes a burden in the reception of it. I do not think that any man can ever preach the Gospel aright until he has had it borne into his own soul with overwhelming energy. You cannot preach conviction of sin unless you have suffered it. You cannot preach repentance unless you have practiced it. You cannot preach faith
 
@@ -171,7 +171,7 @@ Well do I remember a great sinner coming into Exeter Hall and I read the hymn be
 
 But I pass on to notice one thing more now. It is often the burden of the Lord, because of THE WAY IN WHICH
 
-MEN TREAT THE WORD OF GOD.
+MEN TREAT THE WORD OF God.
 
 Upon this I will be very brief. Some trifle with it. I was reading last night an account of how people are said to behave who go to Church. It was written by a canon. I dare say he knows. Certainly, some people who go to Nonconformist places are as bad. A servant was asked by her mistress about the sermon. She said it was a very good sermon. ''Where was the text, Martha?'' ''somewhere in the Bible, ma'am.'' ''What was it about?''
 

@@ -88,7 +88,7 @@ Observe that God has not created us that we may talk about our good works, but t
 
 I have known in a certain village, a spot called, "The Poet's Walk," and another called, "The Lovers' Walk." Oh, that ours may be, "The Christian's Walk"! May the good Lord perfect us in every good work to do His will, working in us that which is well-pleasing in His sight!
 
-And now I close with this last head. Fourthly, THE REMARKABLE PREPARATION MADE FOR THAT OBJECTIVE, for so the text may be rendered, "which God has prepared that we should walk in them."
+And now I close with this last head. Fourthly, THE REMarkABLE PREPARATION MADE FOR THAT OBJECTIVE, for so the text may be rendered, "which God has prepared that we should walk in them."
 
 God has decreed the salvation of His people&mdash;but do not accept that statement as it is at times delivered&mdash;but clearly understand what it means. The Lord has decreed everything and He has as much decreed the holy lives of His people as He has decreed their ultimate glorification with Him in Heaven! Concerning good works, "He has before ordained that we should walk in them." If God has really and of a truth met with you in a way of Grace and worked upon you by His Spirit, and new-created you, then take it for certain that you are ordained to be a prayerful, godly, upright, sanctified man. The purpose is one and indivisible&mdash;there is no ordination to salvation apart from sanctification!
 

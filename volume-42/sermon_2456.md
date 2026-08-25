@@ -74,7 +74,7 @@ And if you do this, you must be like He is. Christ and His followers must be of 
 
 Lastly, remember that Jesus came to the Communion Table and His followers should be like He in this respect, also. If there is any child of God who has forgotten this Truth up to now, let him no longer forsake the assembling of himself with God's people in the keeping of this sacred feast. God bless you all, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: REVELATION 14.
+Exposition by C. H. Spurgeon: Revelation 14.
 
 The Church of God had undergone a very great trial. There had arisen a cruel and wicked persecuting system, described by John in his vision as a beast&mdash;a terrible dragon, of which we read that "it was given unto him to make war with the saints, and to overcome them: and power was given him over all kindreds, and tongues, and nations." This was bad enough, but afterwards there arose another system of evil which was even more dangerous, because it was an imitation of the Truth of God. Another beast came up out of the earth, having two horns like a lamb, yet he spoke as a dragon; and of him, John writes, "He causes all, both small and great, rich and poor, free and bond, to receive a mark on their right hand, or on their foreheads." I will not go into the symbolic meaning of these two beasts&mdash;it is sufficient to observe that they had very terrible power and one might have thought that under their successive attacks the Church of God would have been destroyed. Yet note how this chapter begins.
 

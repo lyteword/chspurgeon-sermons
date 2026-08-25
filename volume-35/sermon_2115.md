@@ -106,7 +106,7 @@ But when we are in despair, then all nature echoes our misery. "The ground is di
 
 If you have drawn down the blinds of your heart and your soul sits in the dark, then the heavens are darkened, too. Or if not, the very brightness of nature seems another form of blackness to you&mdash;and her joys mock your griefs and cast salt into your wounds. When men are cast down and their face is covered, then nature covers her face, too, and all the universe is sad. Alas, for the day when the hand of the Lord is sore on the soul! Then our moisture is turned into the drought of summer.
 
-I have brought you so far in the argument. Now I must rush on to the conclusion. Man is a very dependent creature. He may be reduced to dire distress. And thirdly, MAN's ONLY SURE RESORT IS HIS GOD. "God is a refuge for
+I have brought you so far in the argument. Now I must rush on to the conclusion. Man is a very dependent creature. He may be reduced to dire distress. And thirdly, MAN's ONLY SURE RESORT IS HIS God. "God is a refuge for
 
 us."
 

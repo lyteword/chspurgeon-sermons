@@ -47,6 +47,6 @@ PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Jeremiah 15.
 
 Just Published. A Memorial of the Marriage of the Princess Louise, entitled,
 
-THE ROYAL WEDDING: the Banquet and the Guests. By C. H. SPURGEON. Price One Shilling, beautifully bound; or six pence, in paper wrapper.
+THE ROYAL WEDDING: the Banquet and the Guests. By C. H. Spurgeon. Price One Shilling, beautifully bound; or six pence, in paper wrapper.
 
 London: Passamore & Alabaster, 18 Paternoster Row.

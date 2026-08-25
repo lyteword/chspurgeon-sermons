@@ -68,7 +68,7 @@ You may go to the very worst haunts of sin and vice in this city or anywhere els
 
 them."
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW26:14-45.
+Exposition by C. H. Spurgeon: Matthew26:14-45.
 
 Verse 14, 15. Then one of the twelve called Judas Iscariot went unto the chief priests and said unto them, What will you give me, and I will deliver Him unto you? And they covenanted with him for thirty pieces of silver At what a price did the traitor sell our blessed Master! O you who have been redeemed with His precious blood, set a high value upon Him! Think much of Him, say much in praise of Him! Remember these thirty pieces of silver and never be guilty of despising the Lord of Glory, as these chief priests did when they paid the price of a slave for Him.
 

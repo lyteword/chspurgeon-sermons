@@ -62,7 +62,7 @@ found Him so. "The Lord is good unto them that wait for Him, to the soul that se
 
 You would not breathe half a word against His blessed name. Rather you would say, to borrow an expression which Rutherford constantly used, that you are, "drowned debtors to God's mercy." He meant that he was over head and ears in debt to God&mdash;he could not tell how deep his obligations were, so he just called himself, "a drowned debtor" to the loving kindness and the mercy of his God. Well, there is a sum for you. If you want to use your arithmetical faculties, sit down when you can get an hour's quiet, and try to identify all the precious thoughts of God towards you&mdash;all His benefits.
 
-Our second point shall be a CALCULATION OF THE GRATITUDE WHICH IS DUE TO GOD FOR ALL
+Our second point shall be a CALCULATION OF THE GRATITUDE WHICH IS DUE TO God FOR ALL
 
 THIS. I should like to make each man his own assessor tonight, to assess the income of mercy which he has received, and put down what should be the tribute of gratitude which he should return to the revenue of the great King. "What shall I render unto the Lord for all His benefits?"
 

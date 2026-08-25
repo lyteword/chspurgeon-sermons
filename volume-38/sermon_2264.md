@@ -95,7 +95,7 @@ Lastly, let us follow the Lord's mind, come what will. In a word, set your face,
 
 Will some poor sinner, here, tonight, whether he sinks or swims, trust Christ? Come, even if you feel less inclined, tonight, to hope, than you ever did before! Have hope even now! Hope against hope! Believe against belief! Cast yourself on Christ, even though He may seem to stand with a drawn sword in His hand, to run you through! Trust even an angry Christ! Though your sins have grieved Him, come and trust Him. Do not stop for winds to blow over, or clouds to burst. Just as you are, without one trace of anything that is good about you, come and trust Christ as your Lord and Savior, and you are saved! God give you Grace to do so, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON ECCLESIASTES 11-12.
+Exposition by C. H. Spurgeon Ecclesiastes 11-12.
 
 Ecclesiastes 11:1. Cast your bread upon the waters: for you shall find it after many days. Hoard not your bread, for if you do, it will mildew&mdash;it will be of no use to you. Cast it on the waters. Scatter it abroad. Give it to unworthy men if necessary. Some here have seen an allusion to the casting of seed into the Nile when it overflowed its banks. When the waters subsided, the corn would grow and be gathered in, "after many days."
 

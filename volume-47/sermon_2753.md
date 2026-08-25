@@ -94,7 +94,7 @@ Now I must send you away with this mournful reflection&mdash;that there are some
 
 May the Holy Spirit bring you to repent of sin, to believe in Jesus, to cast yourselves wholly upon Him&mdash;may He, by His Grace, cut the links which now bind you to the world and enable you to give yourselves up wholly to Christ, that He may save you! May the Lord do this in His infinite mercy, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 15:1-16.
+Exposition by C. H. Spurgeon: Romans 15:1-16.
 
 Verse 1. We then that are strong ought to bear the infirmities of the weak, and not to please ourselves. When we are free from scruples upon any point and feel that there are things that we may do because we are strong, yet let us not do them if, thereby, we should grieve others who are weak. Let us think of their infirmities and, whatever liberty we may feel entitled to claim for ourselves, let us look at the matter from the standpoint of other people as well as from our own, that we may bear the infirmities of the weak and not seek to please ourselves.
 

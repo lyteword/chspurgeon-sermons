@@ -2,13 +2,13 @@
 
 "And he (that is, Jesus) came and took her by the hand, and lifted her up; and immediately the fever left her, and she ministered unto them." Mark 1:31.
 
-PETER's wife's mother was sick of a very terrible fever. It was no ordinary one, such as, we are told, is common in the district when she lived, but "Luke, the beloved physician," as Paul calls the Evangelist, tells us that "Simon's wife's mother was taken with a great fever." You know that it is the nature of fever to leave the patient prostrate even when the disease departs, but Jesus Christ not only intended to heal Peter's wife's mother and to heal her at once, but He also meant that she should be so completely cured that she should have no lingering prostration. Christ's cures are always perfect cures, not partial ones! He does not cause the fever to go and permit the prostration to remain&mdash;He takes away both the fever and the prostration!
+Peter's wife's mother was sick of a very terrible fever. It was no ordinary one, such as, we are told, is common in the district when she lived, but "Luke, the beloved physician," as Paul calls the Evangelist, tells us that "Simon's wife's mother was taken with a great fever." You know that it is the nature of fever to leave the patient prostrate even when the disease departs, but Jesus Christ not only intended to heal Peter's wife's mother and to heal her at once, but He also meant that she should be so completely cured that she should have no lingering prostration. Christ's cures are always perfect cures, not partial ones! He does not cause the fever to go and permit the prostration to remain&mdash;He takes away both the fever and the prostration!
 
 It is possible that the poor patient had almost given up all hope of recovery and, probably those who were around her would also have despaired if they had not had faith in the Great Physician, the Lord Jesus Christ. It was, therefore, for her encouragement and for theirs, also, that our Lord bent over the bed where the fevered woman lay, took her by the hand, thus cheering her by showing that He was not afraid to come into contact with her and then, gently lifted her up. And she, yielding to the kindly gesture, rose and sat up&mdash;no, not merely sat up, but left the bed, being so perfectly restored that she began at once to minister to them as the housewife whose duty it was to care for their comfort!
 
 I hope that there are many in this congregation whom Jesus Christ means to bless, who are, at present, in a state of utter prostration. They are so despondent that their spirits sink almost to the point of despair. They cannot believe that there is mercy for them&mdash;they have relinquished all hope of that. They did, at one time, have some measure of hope, but it is all gone. They are in the prostrate condition of Peter's mother-in-law and they need Christ to do for them the two things which He did for her. First, He came into contact with her and, secondly, He gently lifted her up and completely restored her. May He do the same for you!
 
-Our first concern, in looking after prostrate souls, is to tell them that JESUS CHRIST COMES INTO CONTACT WITH THEM.
+Our first concern, in looking after prostrate souls, is to tell them that Jesus Christ COMES INTO CONTACT WITH THEM.
 
 You think, my poor distressed Friend, that Jesus Christ will have nothing to do with you. You have read and heard about Him, but He seems to you to be a long way off and you cannot reach Him. Neither does it seem at all probable to you that He will ever come your way and look with pity upon you. Now, listen.
 
@@ -69,7 +69,7 @@ O Sinner, nothing is impossible with God! If you are sick and near death, Jesus 
 
 Oh, that He would bless this word to you! Christ is God as well as Man. He suffered on the Cross in the place of sinners, but He lives after the suffering has been accomplished! He lives as the Savior who is mighty to save and whoever will take Him as his or her own Savior shall find it to be so this very hour!
 
-EXPOSITION BY C. H. SPURGEON: MARK 1:14-35.
+Exposition by C. H. Spurgeon: Mark 1:14-35.
 
 Verse 14. Now after John was put in prison, Jesus came into Galilee, preaching the Gospel of the Kingdom of God. When one servant of God is laid aside, it is a call to the rest to be the more earnest. So after John the Baptist was put into prison, "Jesus came into Galilee." Sometimes a loss may be a gain&mdash;and if the loss of John was the means of bringing out Jesus, certainly both the Church and the world were the gainers! "Jesus came into Galilee, preaching the Gospel of the Kingdom of God."
 

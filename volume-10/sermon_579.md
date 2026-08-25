@@ -103,7 +103,7 @@ These reputations will all rise up! They have washed their robes and made them w
 
 But how different the condition of the poor man who lived and died in undeserved contempt! He who wakes up to find himself a bright and shining spirit and all his adversaries compelled to admit that God has pleaded the causes of his soul and has avenged him of his accusers! Thus, you see, our text is not a small one&mdash;the words are few but full of meaning. And I have but very poorly set forth what our soul, I trust, feels to be the truth&mdash;"You have pleaded the causes of my soul; You have redeemed my life."
 
-Now I want your solemn and earnest attention while for a few minutes I plead for what is our reasonable service, namely, THAT IF THE LORD HAS PLEADED THE CAUSES OF OUR SOUL, WE SHOULD PLEAD HIS CAUSE
+Now I want your solemn and earnest attention while for a few minutes I plead for what is our reasonable service, namely, THAT IF THE Lord HAS PLEADED THE CAUSES OF OUR SOUL, WE SHOULD PLEAD HIS CAUSE
 
 WHILE WE HAVE ANY BREATH TO PRAY OR a TONGUE WITH WHICH TO BEAR WITNESS FOR HIM.
 

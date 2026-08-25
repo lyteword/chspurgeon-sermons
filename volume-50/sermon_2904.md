@@ -1,8 +1,8 @@
 # Sermon 2904 | The Plumb Line
 
-"Thus He showed me: and, behold, the Lordstood upon a wall made by a plumb line, with a plumb line in His hand. And the LORD said unto me, Amos, what do you see? And I said, a plumb line. Then said the Lord, Behold, I will set a plumb line in the midst of My people Israel: I will not again pass by them anymore." Amos 7:7, 8.
+"Thus He showed me: and, behold, the Lordstood upon a wall made by a plumb line, with a plumb line in His hand. And the Lord said unto me, Amos, what do you see? And I said, a plumb line. Then said the Lord, Behold, I will set a plumb line in the midst of My people Israel: I will not again pass by them anymore." Amos 7:7, 8.
 
-GOD usually speaks by men according to their natural capacity. Amos was a herdsman. He was not a man of noble and priestly rank, like Ezekiel, nor a man of gigantic intellect and mighty eloquence, like Isaiah. He was a simple herdsman and, therefore, God did not cause him to see the visions of Isaiah, or dazzle his mind with the wondrous revelations that were given to Ezekiel. God's rule is, "Every man in his own order" and if we depart from that, we get out of place and we are apt to try to make others do that which they are not fit to do and then blame them when they fail to accomplish what they should never have attempted! God always uses His servants in the best possible way and as they ought to be used. And so, when the herdsman Amos had a vision, he simply saw a piece of string with a plumb of lead at the bottom of it&mdash;a plumb line&mdash;a thing which he could easily understand.
+God usually speaks by men according to their natural capacity. Amos was a herdsman. He was not a man of noble and priestly rank, like Ezekiel, nor a man of gigantic intellect and mighty eloquence, like Isaiah. He was a simple herdsman and, therefore, God did not cause him to see the visions of Isaiah, or dazzle his mind with the wondrous revelations that were given to Ezekiel. God's rule is, "Every man in his own order" and if we depart from that, we get out of place and we are apt to try to make others do that which they are not fit to do and then blame them when they fail to accomplish what they should never have attempted! God always uses His servants in the best possible way and as they ought to be used. And so, when the herdsman Amos had a vision, he simply saw a piece of string with a plumb of lead at the bottom of it&mdash;a plumb line&mdash;a thing which he could easily understand.
 
 There was a mystery about the vision, but the vision itself was not mysterious. It was a very simple emblem, indeed, exactly suited to the mind of Amos, just as the visions of Ezekiel and Isaiah were adapted to the more poetic minds of men of another class. You and I, dear Brothers and Sisters, may be very thankful if God should use us as he did Amos and, if He does, we must not be envying the Isaiahs and Ezekiels. If we see a plumb line, let us preach about a plumb line! And if God should ever enable us to understand the visions of Zechariah or Ezekiel, then let us preach about them. Let every preacher or teacher testify according to the measure of the Light of God and Grace that God has given him&mdash;then we shall do well. Amos can see a plumb line and he sees it well&mdash;and when he has seen it, he tells what he has seen&mdash;and leaves God to set His seal upon his testimony.
 
@@ -76,7 +76,7 @@ Sirs, you will never be able to truthfully say that, for I do pray you to escape
 
 May God grant this mercy to each one of you, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGE0N: 1 CORINTHIANS 3.
+Exposition by C. H. SPURGE0N: 1 Corinthians 3.
 
 Verse 1. AndI, brethren, coulddnot speak unto you as unto spiritual, but as unto carnal, even as unto babes in Christ. Their spiritual part had not grown strong. Their old carnal nature still had the preponderance as Paul was obliged to address that which was the bigger half of them.
 

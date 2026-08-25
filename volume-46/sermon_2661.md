@@ -111,7 +111,7 @@ And then follows the justification. Pardon washes away our sin. Justification ma
 
 Now, to close, let me say that if you would be saved, this is the one thing for you to do&mdash;believe in the Lord Jesus Christ. Do not trust in anything else whatever, but rely alone upon Him. Trust in Christ to make you hate sin. Trust in Christ to enable you to overcome every bad habit. Trust in Christ to help you to do everything that is right. Trust in Christ to cause you to stand fast even till you get to Heaven. "He that believes on the Son has everlasting life"&mdash;not, "he shall be saved tomorrow, or ten years hence"&mdash;he is saved now, on the spot! If you have only trusted in Christ since last that clock ticked, you are forgiven, you are a child of God, you are accepted in the Beloved, you are saved! It is an instantaneous, an immediate, but a perfect work&mdash;this washing away of sin&mdash;and this giving to us the righteousness of Jesus Christ. The Lord grant it to each one of you, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 CORINTHIANS 6:1-14.
+Exposition by C. H. Spurgeon: 1 Corinthians 6:1-14.
 
 Verse 1. Dare any of you, having a matter against another, go to law before the unjust, and not before the saints?\n those days, the courts of law were utterly unjust. It was all a matter of who could bribe the most, for he would gain the suit. I think that we cannot say that it is quite like this at the present time in our law courts, neither can this verse be strictly a rule for the guidance of men in these days, except that, in the spirit of Paul's words, all lawsuits among Christians should be avoided if possible.
 

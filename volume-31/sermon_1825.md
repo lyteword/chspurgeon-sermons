@@ -62,7 +62,7 @@ Do not wonder if you are found to be strangers as to usage, for the world uses f
 
 This, then, is the way of Believers&mdash;they live in this world as strangers and foreigners who are hastening as fast as they can towards their own country where they shall hear their own language spoken, and shall abide with their own Father forever. This is the life of faith.
 
-And what is THE FAITH BY WHICH WE ARE ABLE TO ENDURE SUCH a LIFE AS THIS? Why, it is this faith&mdash;"They that say such things declare plainly that they seek a country."
+And what is THE FAITH by WHICH WE ARE ABLE TO ENDURE SUCH a LIFE AS THIS? Why, it is this faith&mdash;"They that say such things declare plainly that they seek a country."
 
 Our faith is one which we dare to declare. We declare plainly that we seek a country! We are not ashamed to say that this is not our rest, that we do not expect to find pleasure here. We are speeding over this stormy sea to the Fair Havens, where we shall cast anchor forever. We are not ashamed to say this, however others may ridicule our hope!
 

@@ -16,7 +16,7 @@ He is not only the God of life but the God of death. He keeps us in life and mak
 
 The outline of this morning's discourse, as indicated by the text, is just this&mdash;first, the sovereign prerogative of God, "To God the Lord belong the issues from death." Secondly, the Character of the Sovereign with whom this prerogative is lodged, "He that is our God is the God of salvation." And then, thirdly, the solemn warning which this great Sovereign gives in reference to the exercise of His prerogative. Weighty are the words! May the Holy Spirit cause us to feel their power&mdash;"God shall wound the head of His enemies and the hairy scalp of such an one as goes on still in his trespasses."
 
-First, then, with deep reverence, let us speak upon THE SOVEREIGN PREROGATIVE OF GOD&mdash;"Unto God
+First, then, with deep reverence, let us speak upon THE SOVEREIGN PREROGATIVE OF God&mdash;"Unto God
 
 the Lord belong the issues from death." Kings have been accustomed to keep the power of life and death in their own hands. The great King of kings, the Sovereign Ruler and absolute Lord of all worlds reserves this to Himself&mdash;that He shall permit men to die, or shall give them an issue or escape from death at His own good will and pleasure. He can alike create and destroy. He sends forth His Spirit and they are created and at His own pleasure He says, "Return, you children of men," and lo, they fall before Him like autumn's faded leaves!
 
@@ -96,7 +96,7 @@ But come just as you are, all guilty, empty, meritless and fall before the great
 
 If you try to purchase His favor, you shall be refused. If you claim it as a right, you shall be rejected. But if you will come and accept salvation of the Divine charity and receive it through the Atonement of Christ Jesus, the Lord will find for you an escape from death! Hear the witness of Jeremiah and be encouraged to cast yourself before the Lord&mdash;"I called upon Your name, O Lord, out of the low dungeon. You have heard my voice. Hide not Your ear at my breathing, at my cry. You drew near in the day that I called upon You&mdash;You said, fear not. O Lord, You have pleaded the causes of my soul; You have redeemed my life."
 
-Our last duty is to hear THE SOLEMN WARNING OF OUR SOVEREIGN LORD. A new god has been lately
+Our last duty is to hear THE SOLEMN WARNING OF OUR SOVEREIGN Lord. A new god has been lately
 
 set up among men, the god of modern Christianity, the god of modern thought, a god made of honey or sugar. He is all leniency, gentleness, mildness and indifferent in the matter of sin. Justice is not in him and as for the punishment of sin, he knows it not. The Old Testament, as you are no doubt made aware by the wise men of this world, takes a very harsh view of God and, therefore, modern wisdom sets it on one side. Indeed, one half the Word of God is out of date and turned to waste paper!
 

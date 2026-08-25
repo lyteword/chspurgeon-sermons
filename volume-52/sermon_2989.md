@@ -79,7 +79,7 @@ To die out of Christ andyour soul to be lost?
 
 So near to the Kingdom! Oh come, we implore!
 
-While Jesus is pleading, come enter the door!" III. I will not say more upon that sad part of my subject. I feel far more at home in trying to speak, for only a minute or two, on the last point, namely, THE ENCOURAGEMENT OF THOSE OF YOU WHO ARE NOT FAR FROM THE KINGDOM OF GOD. May God, in His Infinite mercy, grant that you may enter the Kingdom this very night! May He not allow another morning's sun to rise from the East and look upon you as unconverted men or women!
+While Jesus is pleading, come enter the door!" III. I will not say more upon that sad part of my subject. I feel far more at home in trying to speak, for only a minute or two, on the last point, namely, THE ENCOURAGEMENT OF THOSE OF YOU WHO ARE NOT FAR FROM THE KINGDOM OF God. May God, in His Infinite mercy, grant that you may enter the Kingdom this very night! May He not allow another morning's sun to rise from the East and look upon you as unconverted men or women!
 
 For, first, think how much God has already done for you. You might have been born in one of the back slums of London, or you might even have been born as Hottentots or a cannibal islander! Perhaps upon that matter of your birth depends the fact that you are sitting in this House of Prayer and are not in the gin palace, the prison, or in Hell itself! It may be simply the dispensation of Divine Providence that has made this difference between you and the very worst of men. Be very thankful to God for what He has already done for you&mdash;for this vantage ground on which His Providence and the kind instructions of Christian parents and friends have placed you.
 
@@ -93,7 +93,7 @@ I remember how it seemed to me, when I was under conviction of sin&mdash;as thou
 
 Faith is very much like learning to swim. I have often thought that I could easily swim, but I never could induce myself to take the last toe off the ground&mdash;and there is no swimming till one does that. You must trust yourself wholly to the water. So must you trust yourself to Jesus. But you are afraid to take that last toe off the ground&mdash;you cannot give up just a little confidence in yourself. Oh, for the glorious plunge of faith! You fear that you will drown, but you will not, for you will swim. The everlasting love of Jesus will buoy up the biggest sinner out of Hell if he will but rest himself upon the finished work of Jesus Christ, whom God has set forth to be the Propitiation for the sins of man! Only trust Him and He will save you! May God give you the Grace to trust Him, and He shall have all the glory. Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK 12:12-44.
+Exposition by C. H. Spurgeon: Mark 12:12-44.
 
 Verse 12. And they sought to lay hold on Him, but feared thepeople: for they knew that He had spoken the parable against them: and they left Him, and went their way. Christ's enemies could not injure Him, then, partly because the people heard Him gladly, and were ready to protect Him, but still more because the appointed time for His suffering and death had not fully come.
 

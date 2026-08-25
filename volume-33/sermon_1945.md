@@ -25,7 +25,7 @@ I believe in the final perseverance of the Lord Jesus Christ. I believe in the f
 
 This morning I shall speak to you in the hope that the Spirit of God may fire you with new courage for the holy war. First, let this Truth of God be considered and believed. And then, secondly, let this Truth of God be believed and enjoyed.
 
-First, then, LET THIS TRUTH OF GOD BE CONSIDERED AND BELIEVED.
+First, then, LET THIS TRuth OF God BE CONSIDERED AND BELIEVED.
 
 Will you now thoughtfully turn it over in your minds? It is certainly a very marvelous enterprise which our Lord Jesus Christ has undertaken. The salvation of a single soul involves a miracle. The salvation of myriads upon myriads of the human race&mdash;what shall I call it but a mountain of marvels? The removal of the darkness which has settled over mankind in tenfold night&mdash;what a Divine labor! The ending of the enmity which exists between man and God, the reconciling of man unto his Maker&mdash;what a design! The redeeming of this world from the bondage of corruption, the setting up of a Kingdom of truth and holiness&mdash;what an enterprise! Such wonders has Jesus undertaken and such wonders He will achieve! He died to lay the foundation of His all-conquering Kingdom and He still lives that this Kingdom may be established in its supremacy and all nations may flow to it. Beloved, I fail to conceive, much more to express, the vastness of the task which He has undertaken! Those of you who love your fellow men often mourn your powerlessness with a single individual. What hard work it is to deal with our own countrymen! How are we baffled by their poverty, their ignorance, their misery, their sin! You have only to battle with a single vice, drunkenness, for example, to feel what a monster is to be overcome! Only think for a moment of the social impurity of this city and you are sick at heart as you remember it. Now, the Lord Jesus Christ has come to cleanse this Augean stable and He will cleanse it. The stream of the River of Life shall run through the foulest parts of the earth till even those horrible regions which are comparable to the Dead Sea shall be reclaimed!
 
@@ -67,7 +67,7 @@ There stands the Crucified this day, upon the vantage ground, at the right hand 
 
 Consideration of the statement leads us to believe it firmly.
 
-I want you to give me a few minutes while I say, LET THIS TRUTH BE BELIEVED AND ENJOYED. I want
+I want you to give me a few minutes while I say, LET THIS TRuth BE BELIEVED AND ENJOYED. I want
 
 you to enjoy the fruit of this Truth of God and to be made glad by it.
 

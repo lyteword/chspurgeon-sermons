@@ -14,7 +14,7 @@ After this sort does the sea of life try the sons of men and discern between the
 
 If some of the remarks of this morning should help us to test and try ourselves and so, incidentally, lead some into comfort and others into anxiety, I shall be very grateful and so will you who shall receive the blessing! The first verse seems to me to describe the constancy of God to those who are really His people, and the second, the inconstancy of men in their dealings with their God.
 
-Let us commence with the third verse of our text and accept it as a description of THE CONSTANCY OF GOD TOWARDS THOSE WHO ARE HIS PEOPLE. It is our solemn conviction that the gifts and calling of God are without repentance&mdash;that wherever the Lord bestows spiritual life and salvation He never recalls the gift&mdash;that it is not His wish
+Let us commence with the third verse of our text and accept it as a description of THE CONSTANCY OF God TOWARDS THOSE WHO ARE HIS PEOPLE. It is our solemn conviction that the gifts and calling of God are without repentance&mdash;that wherever the Lord bestows spiritual life and salvation He never recalls the gift&mdash;that it is not His wish
 
 to play fast and loose with the sons of men, to give today and retract tomorrow. We enjoy the doctrine of final perseverance and cannot think how anyone can doubt it. Without doubt or fear we sing&mdash;
 
@@ -82,7 +82,7 @@ This is what our heavenly Father aims at to get praise from the lips of His chil
 
 Poor traveler to Mount Zion, the devil tells you that you will soon turn back unto perdition, but be of good courage, mighty is He that is in you! His Grace is sufficient for you! The Divine life within you will not stop its sacred impulse for the holy and the heavenly till it has brought you up from the wilderness and lodged you within the palace gate of Jehovah!
 
-Now, with too short a time to deal rightly with it, let us take the second text. The second text speaks of THE INCONSTANCY OF MEN TO GOD. Though there are many illustrations of this sad fact, I shall only take one, namely, that which unconverted people so constantly furnish us with. Not many days ago I thought I saw the Alps. I have stood on the platform at Berne and viewed with growing wonder that magnificent range of the snow-clad Alps. and the other
+Now, with too short a time to deal rightly with it, let us take the second text. The second text speaks of THE INCONSTANCY OF MEN TO God. Though there are many illustrations of this sad fact, I shall only take one, namely, that which unconverted people so constantly furnish us with. Not many days ago I thought I saw the Alps. I have stood on the platform at Berne and viewed with growing wonder that magnificent range of the snow-clad Alps. and the other
 
 day within a few miles of this spot, in our own county of Surrey, I saw upon the horizon clouds which were the very facsimile of Switzerland's glorious mountains!
 

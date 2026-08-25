@@ -8,9 +8,9 @@ This is a mark of the effectual calling by Divine Grace&mdash;whenever it comes,
 
 I am going to use, in two ways, one word in my text&mdash;"straightway." First, I suggest that this word, "straightway," should be a motto for all Christians. All disciples of the Lord Jesus Christ should take that word as their guiding star! Secondly, let all seekers take if as their motto, too&mdash;"straightway." If you would find Christ, seek Him at once&mdash; "straightway."
 
-First, then, let this word, "straightway," be THE MOTTO OF EVERY DISCIPLE OF THE LORD JESUS
+First, then, let this word, "straightway," be THE MOTTO OF EVERY DISCIPLE OF THE Lord Jesus
 
-CHRIST.
+Christ.
 
 When I preached, many years ago, in the cathedral at Geneva, after the service was ended, the Brothers presented me with a large bronze commemorative medal of John Calvin, on which is this passage, "He endured, as seeing Him who is invisible," which was a most suitable motto text for him. Upon the covers of his works are these words, which are also truly descriptive of the man, "Prompte et sincere in opere Domini"&mdash;"Prompt and sincere in the work of the Lord." I was pleased with both those mottos and my prayer, then, was, and still is, that they may both be mine as well as Calvin's. I pray that I may endure, as seeing Him who is invisible, and that I may also live to earn that other commendation, "prompt and sincere in the work of the Lord." Sincere, I trust we all are, who love the Savior, but we are not all as prompt as we are sincere! You know, in business, people like a man of prompt payments upon whom they can always depend. We also like persons to be prompt in carrying out their promises, but, oh, to be prompt in the work of the Lord, so as to not only do the right thing, but to do it at the right time&mdash;and that right time almost always is the time suggested by my text, "straightway." "Whatever your hand finds to do, do it with all your might," and do it at once. Leave it not to lie by among the lumber of good intentions, but if you are prompted to do it, set to work and do it immediately!
 
@@ -94,7 +94,7 @@ Have you never noticed, when you have been collecting subscriptions, if you go t
 
 God bless you, dear Friends! May we all meet in Heaven, through Jesus Christ our Lord! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW25:1-13.
+Exposition by C. H. Spurgeon: Matthew25:1-13.
 
 Verses 1, 2. Then shall the Kingdom of Heaven be likened unto ten virgins which took their lamps, and went forth to meet the bridegroom. And five of them were wise, and five were foolish. What a division this makes in the visible Church of God! Let us hope that we are not to gather from this that as many as half the professors of Christianity at any time are like these foolish virgins! Yet our Lord would not have mentioned so high a proportion if there were not a very large mixture of foolish with the wise&mdash;"Five of them were wise, and five were foolish."
 

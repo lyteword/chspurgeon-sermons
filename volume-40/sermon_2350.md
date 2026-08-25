@@ -71,11 +71,11 @@ Do so tonight! Jesus said, "He that believes in Me has everlasting life." He has
 
 "Take, eat! Take, eat! Take, eat!" I should like to say those words so that you people up there in the top gallery would hear them in 20 years' time, if you are alive, so that, as you recollect these lamps and these tiers of people, you might still seem to hear a voice crying, perhaps, from my grave, "Take, eat!" But do not wait 20 years! "Take, eat!" Do it tonight! God help you all to do it, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Psalm 107; Matthew26:6-30.
+Exposition by C. H. Spurgeon: Psalm 107; Matthew26:6-30.
 
-Psalm 107:1. Praise you the LORD. This Psalm begins and ends with Hallelujah. So may this service, and so may our lives commence and conclude with Hallelujah,
+Psalm 107:1. Praise you the Lord. This Psalm begins and ends with Hallelujah. So may this service, and so may our lives commence and conclude with Hallelujah,
 
-2. For it is good to sing praises unto our God, for it is pleasant; and praise is comely. The LORD does build up Jerusalem. Oh, that the Lord would do so here tonight!
+2. For it is good to sing praises unto our God, for it is pleasant; and praise is comely. The Lord does build up Jerusalem. Oh, that the Lord would do so here tonight!
 
 He gathers together the outcasts of Israel. We need that blessing, too. Oh, that some outcasts might be gathered together! It shall make our hearts cry, "Hallelujah," indeed, if there is a building up of the Church and an ingathering of the outcasts.
 
@@ -83,13 +83,13 @@ He heals the broken in heart, and binds up their wounds. As we read that, we may
 
 He counts the number of the stars: He calls them all by their names. And the Hallelujah is not louder because of that fact than it is for the other Truth! What a condescending God&mdash;"He heals the broken in heart." How infinite is His mind&mdash;"He counts the number of the stars."
 
-6. Great is our Lord and of great power: His understanding is infinite. The LORD lifts up the meek. How wonderful it is that the Lord should use the greatness of His power and the infinity of His understanding for the lifting up of those whom men often despise&mdash;"the meek"!
+6. Great is our Lord and of great power: His understanding is infinite. The Lord lifts up the meek. How wonderful it is that the Lord should use the greatness of His power and the infinity of His understanding for the lifting up of those whom men often despise&mdash;"the meek"!
 
-6-11. He casts the wicked down to the ground. Sing unto the LORD with thanksgiving; sing praise upon the harp unto our God: who covers the Heaven with clouds, who prepares rain for the earth, who makes grass to grow upon the mountains. He gives to the beast his food, and to the young ravens which cry. He delights not in the strength of the horse: He takes not pleasure in the legs of a man. The LORD takes pleasure in them that fear Him, in those that hope in His mercy. Other kings tell of their cavalry and infantry, they boast of their regiments of horses and foot soldiers, but our great God finds His delight in
+6-11. He casts the wicked down to the ground. Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God: who covers the Heaven with clouds, who prepares rain for the earth, who makes grass to grow upon the mountains. He gives to the beast his food, and to the young ravens which cry. He delights not in the strength of the horse: He takes not pleasure in the legs of a man. The Lord takes pleasure in them that fear Him, in those that hope in His mercy. Other kings tell of their cavalry and infantry, they boast of their regiments of horses and foot soldiers, but our great God finds His delight in
 
 them that fear Him and even in the feebler sort of these&mdash;"those that hope in His mercy." These are the courtiers of Jehovah. These are the forces of our God, through whom He will win great victories!
 
-12-15. Praise the LORD, O Jerusalem; praise your God, O Zion. For He has strengthened the bars of your gates; He has blessed your children within you. He makes peace in your borders, and fills you with the finest of the wheat. He sends forth His commandment upon earth: His Word runs very swiftly. Our King's warrant runs everywhere, all over the world. He has universal power in Nature, in Providence and in Grace&mdash;"His Word runs very swiftly."
+12-15. Praise the Lord, O Jerusalem; praise your God, O Zion. For He has strengthened the bars of your gates; He has blessed your children within you. He makes peace in your borders, and fills you with the finest of the wheat. He sends forth His commandment upon earth: His Word runs very swiftly. Our King's warrant runs everywhere, all over the world. He has universal power in Nature, in Providence and in Grace&mdash;"His Word runs very swiftly."
 
 He gives snow like wool: He scatters the hoarfrost like ashes. The Hebrews saw God in all the phenomena of Nature&mdash;let us do the same. Let us attribute every snowflake to the Divine hand and every breath of frost to the Divine mouth.
 

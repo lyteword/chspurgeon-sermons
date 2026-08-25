@@ -17,7 +17,7 @@ Come then, Brothers and Sisters, if we have wandered ever so far, let this word 
 
 You may have been unbelieving, but God abides faithful. Up! Enjoy your sure inheritance. Let us feel comforted by the very first word of the text and let it encourage us to lay hold, despite our own unworthiness, upon the great promise of the Lord. The Lord, in order to comfort His people and bring them out of their present state, first, reminds them of what He has done for them. Secondly, He repeats His promise of what He will do. And thirdly, He adds to this a most gracious and full promise of what He will do for their offspring.
 
-First, then, and O may the Lord refresh our memories by revealing to us the way by which He has led us&mdash;first of all HE COMFORTS HIS PEOPLE BY THE REMEMBRANCE OF WHAT HE HAS DONE FOR THEM. Come, my
+First, then, and O may the Lord refresh our memories by revealing to us the way by which He has led us&mdash;first of all HE COMFORTS HIS PEOPLE by THE REMEMBRANCE OF WHAT HE HAS DONE FOR THEM. Come, my
 
 Brothers and Sisters, reach down for your biographies. Turn over your diaries. Go back with me a little while to that spot where first you knew the Savior. Then march on along the way by which the Lord has led you till you reach the day and hour which found you in the House of God, listening to His promise.
 
@@ -69,7 +69,7 @@ As I sat the other night in my study, musing on my message for the coming Sunday
 
 Cannot you use the same argument? You have already slain your adversaries&mdash;what can stand against you? Be of good comfort and dash forward to the fray! Take as your war cry, "His mercy endures forever," and you need never quail, whatever difficulties assail you. So much for the first point. Now let us turn with great brevity to the second.
 
-We are encouraged, in the second place, this morning, by THE PROMISE OF WHAT GOD WILL DO. He says "Fear not, I will help you." And then He adds, "I will pour water upon him that is thirsty and floods upon the dry ground." You feel thirsty this morning, that is, uncomfortable in heart. You have lost much of the joy of religion and your prayer is, "Restore unto me the joy of Your salvation."
+We are encouraged, in the second place, this morning, by THE PROMISE OF WHAT God WILL DO. He says "Fear not, I will help you." And then He adds, "I will pour water upon him that is thirsty and floods upon the dry ground." You feel thirsty this morning, that is, uncomfortable in heart. You have lost much of the joy of religion and your prayer is, "Restore unto me the joy of Your salvation."
 
 You are conscious, also, that you are barren, like the dry ground. You are not bringing forth that fruit unto God which He has a right to expect of you. You are not so useful in the Church nor in the world as your heart desires to be. Well then, here is His promise of what He will do, "I will help you." You cannot pray this morning. You cannot wrestle as you desire&mdash;"I will help you." You feel unable to overcome sin&mdash;"I will help you." You are engaged in service too heavy for you&mdash;"I will help you."
 

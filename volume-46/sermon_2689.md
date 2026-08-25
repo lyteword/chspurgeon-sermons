@@ -40,7 +40,7 @@ One other thing I may note, for it helps to prove the identity of Christ. That i
 
 Let us dwell on that thought for just a minute before we pass on. Christ in Glory is none other than He who was here. No man ever loses anything by going to Heaven&mdash;an ordinary man gains much by going there, so I am sure my Lord is none the worse for entering into His Glory&mdash;He is none the less tender, none the less zealous, none the less mighty to save! And just as we might have been glad to run to Him when He was here, so may we gladly go to Him now, for He is just the same.
 
-Now I must speak very briefly upon the second head, although I might enlarge upon it to almost any extent, for it relates to THE FINISHED WORK OF CHRIST.
+Now I must speak very briefly upon the second head, although I might enlarge upon it to almost any extent, for it relates to THE FINISHED WORK OF Christ.
 
 When our Lord used to John the words, "was dead," and applied them to Himself, He meant that He had performed the crucial part of the Atonement The very central point of the Atonement was death&mdash;there was no way of making atonement for sin except by the shedding of the precious blood of Jesus, as of a lamb without blemish and without spot. There must be life to atone for sin&mdash;and that life sacrificed&mdash;therefore, Christ "was dead." It was no dream, no delusion, no sleep, no swoon, no coma. He "was dead." Though it was not possible for our blessed and glorious Savior to be held by the bands of death, yet He "was dead."
 
@@ -60,7 +60,7 @@ And remember, too, that the merit of His death lives. He "was dead," but all the
 
 This is a glad, a joyous theme over which I would gladly linger&mdash;to think that Christ's work is all done, all finished, all complete&mdash;there is nothing more to be done for His people's redemption! As He Himself said, before He gave up the ghost, "It is finished." That expression, "was dead," comes to me like the sound of a peal of bells tolling the death of death and ringing in the jubilee of all who believe in Jesus! He "was dead," but He is dead no longer! He lives now and He is "alive forevermore!"
 
-With that third word of comfort I am going to conclude. THE ETERNAL EXISTENCE OF CHRIST should always comfort us whenever we think of His Glory. He that was dead is "alive forevermore."
+With that third word of comfort I am going to conclude. THE ETERNAL EXISTENCE OF Christ should always comfort us whenever we think of His Glory. He that was dead is "alive forevermore."
 
 Here, then, you warriors of the Cross, is unique leadership. Never did men before have such a leader as this One, who has proved His ardor for the accomplishment of His purpose by dying to achieve it, and who now lives to see that purpose fully accomplished! When Mohammed was alive&mdash;false prophet though he was&mdash;he inspired his followers with extraordinary enthusiasm when he snatched up a handful of dust from the road and flung it in the faces of his adversaries, crying, as he did so, "Let them be blinded." His followers believed that a miracle would really be worked and they, therefore, rushed upon their enemies and swept them away like chaff before the whirlwind. Yet now that Mohammed is dead and gone, his religion wanes and must, in time, expire. But our Master is not dead, our Leader is alive! He still rides at the head of the army of the Cross and calls us to battle for truth and right. The ungodly hear Him not, but as many as believe in Him still hear His clear voice ringing out the command, "Onward, hosts of God! Forward to the fight! 'Go you into all the world, and preach the Gospel to every creature' until I come."
 
@@ -80,7 +80,7 @@ O Sirs, that must be a dreadful thing which turns the best thing in Heaven into 
 
 prey is love when once it is transformed into wrath! "Kiss the Son, lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him," for their confidence is in Him who still says, "I am He that lives, and was dead, and behold, I am alive forevermore." God bless you, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS5.
+Exposition by C. H. Spurgeon: Hebrews5.
 
 Verse 1. For every high priest taken from among men is ordained for men in things pertaining to God, that he may offer both gifts and sacrifices for sins. Notice that the high priests were taken from among men, not from among angels. Hence, our Lord Jesus Christ took not on Him the nature of angels, but He took on Him the seed of Abraham. The Jewish high priests were ordained for men. They acted on behalf of men and they stood in the place of men. So the Lord Jesus Christ stood in the place of His people that He might offer to God for them two things&mdash;gifts&mdash;that is, such offerings as the Jew made when he presented the fine flour, and oil and other bloodless oblations which were only intended for thanksgiving. Christ offered thanksgiving unto His Father and that offering was a sweet savor unto God. But beside those gifts, the priests offered sacrifices, and our Lord Jesus Christ did the same, for He was made a Sin-Offering for us, though He, Himself knew no sin!
 

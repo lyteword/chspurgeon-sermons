@@ -42,7 +42,7 @@ Listen to me, for a moment or two, while I put together these things of which I 
 
 you will give to Him&mdash;to the question whether you will come to Him or not&mdash;while He says to you, "Draw near to Me, and I will draw near to you."
 
-The second part of our subject is very practical. It is this&mdash;LET US LEARN HOW TO DRAW NEAR TO GOD.
+The second part of our subject is very practical. It is this&mdash;LET US LEARN HOW TO DRAW NEAR TO God.
 
 "How can a man draw near to God?" someone asks. Well, we must begin thus. Draw near to Him by thinking of Him. God is not fixed in any one place so that we need to go on a pilgrimage in order to reach Him. "God is a Spirit," and the way to draw near to a spirit is, first of all, to think of Him in our own spirit. I shall begin to have hope of any man's salvation when he begins to seriously think about God and about his own relationship to God. Will you do so, dear Hearer? Take time to think about your Creator, your Preserver, your Provider, your Guardian, your Friend, your Judge, your Savior. To help you to think of Him, read His Word, for Scripture will both give you the best subject for thought and assist you to understand and know more of God.
 
@@ -66,7 +66,7 @@ Sometimes, you will most appropriately draw near to God by praise&mdash;with swe
 
 when you are thus brought near to God. You will do well to keep on at that praise till there will come a day&mdash;(you need not mind how soon it comes) when the Lord will say to you, in another sense, "Draw near to Me"&mdash;and you will go up to your chamber and gather up your feet in bed and He will draw near to you with such a glorious vision of His Presence that before you are ever aware, you will find yourself at His right hand&mdash;your poor mortal body left behind to wait a little while for the resurrection&mdash;but you, yourself, very near to Him in Heaven! Then, before long, there will sound out that blast of the archangel's trumpet that shall wake even your body from its slumber among the dust into which it had moldered&mdash;and it shall rise again and then there shall come One whom you have known in this life, and known still better in Heaven, who will say to you and to all the redeemed, "Come, you blessed of My Father, inherit the Kingdom prepared for you from the foundation of the world." Then your body, soul and spirit shall draw near to Him as He draws near to you and so shall you be "forever with the Lord!" That is what will come of your drawing near to God&mdash;it will end in your being with Him where He is, that you may behold His Glory forever and forevermore! And therefore do I feel a deep stirring within my soul that every far-off sinner should hear this gracious invitation and obey it at once&mdash;"Draw near to God, and He will draw near to you."
 
-Now I shall conclude by just a few words upon THE PRACTICAL EFFECT WHICH THIS DRAWING NEAR TO GOD WILL HAVE UPON OUR LIVES.
+Now I shall conclude by just a few words upon THE PRACTICAL EFFECT WHICH THIS DRAWING NEAR TO God WILL HAVE UPON OUR LIVES.
 
 Well, now, if we draw near to God, it will have an effect upon our common, everyday life. How? Why, first, if you will follow the run of the chapter, you will see that drawing near to God will help us to resist the devil. The injunction, and promise, "Resist the devil, and he will flee from you," are immediately followed by the words of our text, "Draw near to God, and He will draw near to you." The devil is not quite everywhere, but it is difficult to tell where he is not to be found. He, and the powers of darkness under his control, tempt us in all sorts of ways and all manner of places. And if any one of us would be so armed as to be able to resist the great adversary of souls, the very best thing we can do is to draw near to God! The sheep is never so safe as when it is close to the shepherd. And the prodigal son is never so safe and happy as when he is sitting at his father's table and feasting on the good things provided by his father's love. Draw near to God and you will be able to resist the tempter and drive him away from you!
 
@@ -88,7 +88,7 @@ If you live down in the marshes, you will get the chills and fever. But if you l
 
 May the Lord bless you, Beloved, with all that this drawing near to Him is capable of giving to you, for His dear name and mercy's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JAMES4.
+Exposition by C. H. Spurgeon: James4.
 
 Verse 1. Where do wars and fights come from among you? Whether between nations, or parties or individuals&mdash;if there are wars and fights, where do they come from?
 

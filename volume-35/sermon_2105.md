@@ -86,7 +86,7 @@ You are to take care that you abide in Christ as much as if all depended upon yo
 
 The Holy Spirit brings the Truth of God home to your heart with savor and unction, endearing it to your inmost soul. The Truth of God has so saturated you through the anointing, that you cannot give it up. Has not your Lord said, "The water that I shall give him shall be in him a well of water springing up unto everlasting life?" Thus, you see that what is commanded in one Scripture is promised and provided for in another. To His people, God's commands are en-ablings. As He bids you abide in Him, so by that very bidding He causes you to abide in Him to His praise and glory.
 
-Secondly, notice UNDER WHAT CHARACTER JOHN ADDRESSES THESE BELIEVERS. He says, "And
+Secondly, notice UNDER WHAT CHARACTER John ADDRESSES THESE BELIEVERS. He says, "And
 
 now, little children." This indicates the Apostle's love to them. John lived to a great age. The tradition is that they used to carry him into the assembly, and when he could do nothing else, he would lift his hand, and simply say, "Little children, love one another." Here, to show his tender concern for those to whom he wrote, he called them, "little children." He could not wish them a greater blessing out of the depth of his heart's affection, than that they should faithfully abide in Christ.
 
@@ -106,7 +106,7 @@ Therefore we are bound by our very feebleness to venture less than they do. Let 
 
 Cling to the Lord Jesus in your feebleness, in your fickleness, in your nothingness. And abidingly take Him to be everything to you. "The conies are but a feeble sort, yet they make their houses in the rocks." Be you like they are. Abide in the rifts of the Rock of Ages and let nothing tempt you to quit your stronghold. You are no lion, able to fight your foes and deliver yourself by main strength. You are only a little cony and you will be wise to hide rather than fight. "Little children, abide in Him."
 
-I now come to my last point, which is most important, for it finds steam to drive the engine. Thirdly, we shall consider BY WHAT MOTIVE JOHN EXHORTS US TO THIS PLEASANT AND NECESSARY DUTY OF ABIDING IN CHRIST.
+I now come to my last point, which is most important, for it finds steam to drive the engine. Thirdly, we shall consider by WHAT MOTIVE John EXHORTS US TO THIS PLEASANT AND NECESSARY DUTY OF ABIDING IN Christ.
 
 Kindly look at the text, for there is in it a little word to be noticed. The Apostle exhorts us by a motive in which he takes his share. Let me read it&mdash;"Now, little children, abide in Him. That, when He shall appear, you may have confidence." No, no. Look at that little word&mdash;it runs thus, "that WE may have confidence." The beloved John needed to have confidence at the appearing of the Lord and confidence fetched from the same source as that to which he directed his little children. They must abide in Christ, that they might have confidence&mdash;and the dearest of the Apostles must practice the same abiding. How wisely and yet how sweetly he puts himself upon our level in this matter!
 

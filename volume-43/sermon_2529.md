@@ -58,7 +58,7 @@ This is, I think, the most striking thing of all, men are ignorant through sheer
 
 And there is many a man who says, "No, no. Not just yet, not just now. I will think of it, by-and-by." And, meanwhile, just behind you stands Death, the skeleton king, stretching out his bony hand and, perhaps, tonight, he will lay it on your shoulder and chill you to a corpse! What day you will be buried is not known, just now, on earth, but it is known above! Oh, that you and I, and all of us might have Grace to wish to know everything that makes for our peace! Especially would I ask you to wish to know the very worst about yourself. Pray God that you may never have anything kept from you, but that you may know that which shall lead you at once to Christ, that you may find salvation through the blood of the Lamb!
 
-Now I must conclude by answering a third question&mdash;How DOES OUR LORD SHOW HIS COMPASSION TO
+Now I must conclude by answering a third question&mdash;How DOES OUR Lord SHOW HIS COMPASSION TO
 
 THE IGNORANT?
 
@@ -78,7 +78,7 @@ Another great proof of His compassion is seen in His never casting off those He 
 
 The promise is, "All your children shall be taught of the Lord." Not one of the whole family shall go without an education&mdash;and the very dullest shall still be "taught of the Lord." Will you go home, if you have never been instructed by Him, and seek Him in prayer? Ask Him to teach you. If the Gospel seems all a maze and a mist to you, go and say, "Lord, will You explain it to me?" One touch of Christ is better than years of study! You may try for many an hour to see in the dark, and yet see nothing. But if you go to Him who is the Morning Star and the Sun of Righteousness, you shall soon see. God grant that it may be so, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 4:14-16; 5.
+Exposition by C. H. Spurgeon: Hebrews 4:14-16; 5.
 
 Hebrews 4:14. Seeing, then, that we have a Great High Priest, who has passed through the heavens, Jesus the Son of God, let us holdfast our profession. Why should we let it go? Jesus has triumphed, He has entered into Glory on our be-half&mdash;the victory on our account rests with Him! Therefore let us follow Him as closely as we can. May He help us, just now, if we are in the least dispirited or cast down, to pluck up courage, and press on our way!
 

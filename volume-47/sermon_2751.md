@@ -78,7 +78,7 @@ I have no time for the other part of the sermon. You must come again to hear abo
 
 May the Lord bring us all safely there, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 14:1-12; COLOSSIANS 1:1-19.
+Exposition by C. H. Spurgeon: John 14:1-12; Colossians 1:1-19.
 
 John 14:1. Let not your heart be troubled: This is one of those verses that you may read as slowly as you like and spell out every letter and find honey in it all.
 

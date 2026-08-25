@@ -135,7 +135,7 @@ And where&mdash;
 
 I leave my text with you who love the Lord. As for you who do not love Him, I dare not give it to you. Oh, that you did love Him and that you did trust Him! He waits to be gracious. Seek His face and He will be found of you. Fly to Him and He will not reject you. Trust in Him and He will wash you from all your sins and bring you to His Presence in eternal Glory, to go no more out forever! May He give you this unspeakable blessing, for His love's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 2; 3:1, 2.
+Exposition by C. H. Spurgeon: 1 John 2; 3:1, 2.
 
 1 John 2:1. My little children, these things I write unto you, that you sin not This is one of the great objectives of all that is written by Inspiration&mdash;that we may be kept from sin. O child of God, as you would fear to drink poison, as you would flee from a serpent, dread sin!
 

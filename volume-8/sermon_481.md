@@ -44,7 +44,7 @@ But we must not miss the fifth act. See the rich man, our friend whom lately we 
 
 Dear friends, I have put before your mind's eye a fair picture of that which men who live by sight and not by faith regard as being the chief end of man, and the real object of his being. It is to be married; to pass through the trials and joys of life with decency, to trade and grow rich, and at last to use the comforts of this world without abuse: a very comfortable and quiet picture, by no means the representation we should have to present before you of the profligate, He profane, the dissolute, or the debauched. There is nothing here but what is proper and right, and yet everything is improper and everything becomes wrong at once if these be thought to be the substantial things for which an immortal spirit is to spend its fires, and for which an undying soul is to exhaust its powers.
 
-Let us now take the CHRISTIAN VIEW OF THIS DRAMA.
+Let us now take the ChristIAN VIEW OF THIS DRAMA.
 
 "Life is real; life is earnest:" it is real thus far to the Christian, it is real for work and activity for God; it is real in the solemn responsibility which it brings; it is real in the gratitude which we owe to God for the comforts which he is pleased to bestow; it is real to us so far as we can see God therein, and can turn everything to God's glory. The unreality of this world to a Christian, is found in the fact that time is short. This is the wand which torches the substance and makes it, before the eye of wisdom, dissolve into a shade. Time is short!
 

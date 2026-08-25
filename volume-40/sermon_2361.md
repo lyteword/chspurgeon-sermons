@@ -84,7 +84,7 @@ Will you also believe in Him, dear Friend? Will you trust Him? Will you take Him
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;639, 646, 659.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 8:16-34; 9:1.
+Exposition by C. H. Spurgeon: Matthew 8:16-34; 9:1.
 
 Verse 16. When the even was come, they brought unto Him many that were possessed with devils: and He cast out the spirits with His Word, and healed all that were sick. It was the evening after the Sabbath. They did not venture even to bring out their sick till the day of rest was ended. And the Savior, saying nothing about their lingering superstition, began to work mightily among them. "He cast out the spirits with His Word." What a power there is in the Word of Jesus! There is nothing like it for the casting out of devils. All our philosophies will not do what it does! The enemy will say, "Jesus I know, and Paul I know, but who are you?" He cast out the evil spirits with His Word, and healed all that were
 

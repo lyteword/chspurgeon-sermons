@@ -6,7 +6,7 @@ I EXPLAINED this morning,  why our Savior put that question to Pilate. The Roman
 
 We will, now, forget Pilate for a while, for I want to use this question in two ways with reference to ourselves. First, I shall utilize it as a warning against secondhand quibbles at Christ and His Gospel Some people have a large stock of them and we might say to each one of these quibblers, "Are you speaking for yourself about this, or did others tell you this?" Then, in the second place, I shall use the text as a warning against all secondhand religion, pressing this question home upon each one who speaks up for Christ, "Are you speaking for yourself about this, or did others tell you this?"
 
-We will begin with the opponents of the Lord Jesus and consider our text, first, as a WARNING AGAINST SECONDHAND QUIBBLES AT CHRIST AND HIS GOSPEL.
+We will begin with the opponents of the Lord Jesus and consider our text, first, as a WARNING AGAINST SECONDHAND QUIBBLES AT Christ AND HIS GOSPEL.
 
 There are a great many people in the world who really do not know why they oppose religion&mdash;and if you ask them the reason, they repeat some old bit of scandal, some stale slander upon Jesus and His Cross&mdash;and they give that as their answer. I firmly believe that there are thousands, who are ranked among the opposers of the Gospel who have not anything to say against Christ of their own knowledge, but others have told them something or other, and they go on repeating and reiterating the old exploded obsolete objections that have been demolished thousands of times! And I suppose they and others of their kind will keep on doing the same thing right to the end of time.
 

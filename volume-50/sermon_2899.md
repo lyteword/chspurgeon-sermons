@@ -93,7 +93,7 @@ Do you ask, "What shall I do to be saved?" "Believe on the Lord Jesus Christ, an
 
 So, accept the whole of the Gospel and keep to the command of Christ in every point&mdash;and then you may look to the faithful God to fulfill His promise that you shall be saved! The Lord bless you and save every one of you, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ACTS 13:13-49.
+Exposition by C. H. Spurgeon: Acts 13:13-49.
 
 Verse 13. Now when Paul and his company set sail from Paphos, they came to Perga in Pamphylia: and John, departing from them, returned to Jerusalem. ' 'John"&mdash;that is, John Mark, as we see by chapter 15:37.
 

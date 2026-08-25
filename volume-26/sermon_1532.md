@@ -36,7 +36,7 @@ Yet one more illustration: it is that of a father aiding his boy. Suppose it to 
 
 Thus have I tried to set forth the cheering fact that the Spirit helps the people of God.
 
-Our second subject is THE PRAYER WHICH THE HOLY SPIRIT INSPIRES, or that part of prayer which is especially and peculiarly the work of the Spirit of God. The text says, The Spirit itself maketh intercession for us with groanings which cannot be uttered.' It is not the Spirit that groans, but we that groan; but as I have shown you, the Spirit excited the emotion which causes us to groan.
+Our second subject is THE PRAYER WHICH THE Holy Spirit INSPIRES, or that part of prayer which is especially and peculiarly the work of the Spirit of God. The text says, The Spirit itself maketh intercession for us with groanings which cannot be uttered.' It is not the Spirit that groans, but we that groan; but as I have shown you, the Spirit excited the emotion which causes us to groan.
 
 It is clear then the prayers which are indited in us by the spirit of God are those which arise from our inmost soul. A man's heart is moved when he groans. A groan is a matter about which there is no hypocrisy. A groan cometh not from the lips, but from the heart. A groan then is a part of prayer which we owe to the Holy Ghost, and the same is true of all the prayer which wells up from the deep fountains of our inner life. The prophet cried, My bowels, my bowels, I am pained at my very heart: my heart maketh a noise in me.' This deep ground-swell of desire, this tidal motion of the life-floods is caused by the Holy Spirit. His work is never superficial, but always deep and inward.
 

@@ -6,7 +6,7 @@ I CAN never doubt, or for a moment distrust the affection of my dear people to m
 
 I am going to speak upon our text thus. First, the title which our Lord gave to this commandment. He called it "a new commandment." Secondly, the example by which He expounded it&mdash;"That you love one another as I have loved you." And thirdly, the result by which He enforced it&mdash;"By this all will know that you are My disciples, if you have love for one another."
 
-First, then, THE TITLE WHICH CHRIST GAVE TO THIS COMMANDMENT&mdash;"a new commandment."
+First, then, THE TITLE WHICH Christ GAVE TO THIS COMMANDMENT&mdash;"a new commandment."
 
 Many of you, I do not doubt, have heard the story of Archbishop Usher and Mr. Rutherford. But it is so appropriate to this subject that I cannot help telling it again. The archbishop had heard of the wondrous power of Rutherford's devotion and of the singular beauty of the arrangement of his household, and he wished to witness it himself. But he could not tell how to do so until it occurred to him that he might disguise himself as a poor traveler. Accordingly, at nightfall, he knocked at the door of Mr. Rutherford's house and was received by Mrs. Rutherford. He asked if he could find lodgings there for the night, to which she answered, "Yes," for they entertained strangers. She placed him in the kitchen and gave him something to eat. It was a part of her regular family discipline, on Saturday evening, to catechize the children and the servants and, of course, the poor man in the kitchen came in among them.
 
@@ -40,7 +40,7 @@ And, once more, this is a new commandment because it is a preparation for better
 
 Thus, I think I have said enough concerning the new commandment which Christ gave to His disciples.
 
-Now I must pass on to the second point&mdash;THE EXAMPLE BY WHICH CHRIST EXPOUNDED THIS NEW COMMANDMENT. "As I have loved you, that you also love one another."
+Now I must pass on to the second point&mdash;THE EXAMPLE by WHICH Christ EXPOUNDED THIS NEW COMMANDMENT. "As I have loved you, that you also love one another."
 
 First, Christ loved them unselfishly. He certainly had nothing to gain from associating with them and nothing to learn from them. It is true that He used them to help in the extension of His cause, but He first made them fit to be used. He owed nothing to them and they owed everything to Him. There was nothing in them when He first called them&mdash;and to the very last there was nothing good in them except what His Grace had put there&mdash;and there was not nearly as much of that as there ought to have been, for He had to say, "Have I been so long time with you, and yet have you not known Me, Philip?" Christians, you also are to love one another, not because of the gain which you get from one another, but rather because of the good you can do to one another.
 
@@ -61,7 +61,7 @@ Our Lord also loved His disciples patiently. They must often have grieved Him by
 
 Once more, our Lord loved His disciples practically. His love did not consist in the mere effervescence of transient emotion or in only kind words, but He loved them deeply and shared all that He had with them. He even condescended to wash their feet as though He had been their servant! What more could He do for them? Yet He did far more than that, for He laid down His life for them. He gave up all He had for them. He gave up all the members of His body and all the faculties of His soul&mdash;His entire Nature&mdash;that He might save His people. "Having loved His own which were in the world, He loved them unto the end." "As I have loved you," He said, "even so love you one another." What a marvelous exposition of the precept the whole life and death of Jesus Christ make up for us! May we have the Grace to follow where the path is so plainly marked out for us!
 
-And now, thirdly, I am to speak of THE RESULT BY WHICH THE PRECEPT IS ENFORCED. "By this all will know that you are My disciples, if you have love for one another."
+And now, thirdly, I am to speak of THE RESULT by WHICH THE PRECEPT IS ENFORCED. "By this all will know that you are My disciples, if you have love for one another."
 
 Among all of them who know that we are Christ's disciples, there is one very important person&mdash;and that is yourself. If you have love towards Christ's disciples, you will know that you are one of His disciples, for how does the Beloved Apostle John put it? "We know that we have passed from death unto life, because we love the brethren." It will be one of the clearest evidences to your own heart that you are really a disciple of Jesus when you realize that for Christ's sake, you love the whole redeemed family of God! By this test shall all men know that you are His disciples and you shall begin by knowing it yourself.
 
@@ -79,7 +79,7 @@ shout. And when the day comes for God to let loose the angel of vengeance, woe u
 
 "How can I get love?" asks one. Love comes by the way of faith. First trust the Master and then you will soon learn to love His servants. Rely upon the Savior and you will then feel an affection for all the saved ones. Commit yourself now into the hands that were pierced for sinners and you will soon joyfully give a loving embrace to those for whom Christ's precious blood was shed! May we all meet in Heaven, where love reigns supreme, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN13:1-17.
+Exposition by C. H. Spurgeon: John13:1-17.
 
 Verse 1. Now before the feast of the Passover. Or, just as it was about to begin&mdash;
 

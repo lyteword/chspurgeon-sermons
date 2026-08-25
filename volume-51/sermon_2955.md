@@ -78,7 +78,7 @@ The whole matter is very simple, "Whereas I was blind, now I see." Do you, tonig
 
 It is written, "He that believes on Him is not condemned." Then I am not condemned. Perhaps I feel at this present moment no joy, but then the thought that I am not condemned will make me feel joy, by-and-by. Yet I must not build on my joy, I must not build on my feelings, but simply on this&mdash;that God has said, "He that believes and is baptized shall be saved." I, believing in Christ am saved. And that is true of you, also&mdash;you in the aisle over yonder. You by that door there, and you behind me here. It is true of every man, woman, or child in this place who has now come to put trust in Christ! It is true of the man in the smock frock who did not intend to come here tonight, but who, seeing the people, strolled in and who has been saying in his heart, "I will believe. I will trust Christ." Well, then, you are saved, your sin is blotted out, your iniquity is forgiven, you are a child of God, the Lord accepts you&mdash;if you have really trusted Christ&mdash; you are an heir of Heaven! Go and sin no more! Go and rejoice in pardoning love. And God bless you, for Jesus sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK10:46-52; JOHN 9:1-7.
+Exposition by C. H. Spurgeon: Mark10:46-52; John 9:1-7.
 
 We have several records of blind men being cured by the Lord Jesus Christ. One of them is in Mark 10:46-52.
 

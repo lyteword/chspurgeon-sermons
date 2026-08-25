@@ -6,7 +6,7 @@ THIS is a blessed chain of Gospel experience. Our text is not meant for the men 
 
 The subject upon which I am about to speak to you is one which the preacher cannot handle without the people. I must have God's people with me in spirit to help me while I am dealing with such a topic as this. You know that in the Church of England service there are certain places where the clergyman says, "saying after me," so that it is not simply the minister uttering the prayer or the confession, but he is a sort of preceptor leading the rest of the congregation. In a similar style, I want you people of God, as the Holy Spirit shall enable you, to bend all your thoughts and energies in this direction and step by step climb with me to these distinct spiritual platforms&mdash;ascending from the one to the other by the Spirit's gracious aid&mdash;that your fellowship may be with the Father and with His Son, Jesus Christ.
 
-Our text begins with the first link in this golden chain, namely, LOVE TO CHRIST&mdash;"If a man loves Me."
+Our text begins with the first link in this golden chain, namely, LOVE TO Christ&mdash;"If a man loves Me."
 
 This, "if," seems to me to stand at the portals of our text like a sentinel at the gate of a palace, to prevent anybody from entering who ought not to enter. It is an, "if," that may be passed around the present assembly, for I fear that all in this house do not love the Lord Jesus Christ. If you cannot answer in the affirmative the question asked by the lips of Jesus, Himself, "Do you love Me?" you have nothing to do with the rest of this verse. Indeed, what have you to do with any of the privileges revealed in the Bible, or with any of the blessings promised there, as long as you are without love to Christ? Let that, "if," stand, then, as with a drawn sword&mdash;like the cherubim at the gate of the Garden of Eden&mdash;to keep you from daring to intrude where you have no right to go if you do not love the Lord Jesus Christ! "If a man loves Me."
 
@@ -38,7 +38,7 @@ Then see the soldiers as they spit in His face and mock Him while they thrust a 
 
 As you think of all this, love the Lord, you who are His saints, you who have been washed in His blood, love Him! You who are wearing the spotless robe of His righteousness&mdash;love Him! You who call Him, "Husband," love Him&mdash;you who are married to Him&mdash;united in bonds that can never be severed!
 
-If this is true of you, let us pass on to the next point&mdash;that of KEEPING CHRIST's WORDS. "If any man loves Me, says Christ, "he will keep My words. "Let us see how far we have kept His words.
+If this is true of you, let us pass on to the next point&mdash;that of KEEPING Christ's WORDS. "If any man loves Me, says Christ, "he will keep My words. "Let us see how far we have kept His words.
 
 I trust that, first, we keep His words by treasuring them and prizing them. Brothers and Sisters, I hope that we venerate every word that Christ has ever uttered. I trust that we desire to treasure up every syllable that He has ever spoken. There is not a word of His, recorded in the Gospels, or in any other of the Inspired pages of Revelation, by which we do not set more store than for much fine gold.
 
@@ -106,7 +106,7 @@ Well, they do not quite see it in that light but, still, they return to that sen
 
 "But," says someone, "if I do trust my soul to Christ, will He save me?" Try Him and see. You have His own promise that He will cast out none who come to Him. So, if you believes in the Lord Jesus Christ this very moment&mdash;this very moment you are saved! What more need I say? May the Blessed Spirit cause you to cease, by your unbelief, from practically making God a liar and may you now come and trust in Jesus, the Substitute and Surety for His people! So shall you rest your weary hearts upon His loving bosom and it shall be well with you forever and ever. May God bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 14:15-31.
+Exposition by C. H. Spurgeon: John 14:15-31.
 
 Verses 15, 16. If you love Me, keep My commandments. And I willpray the Father, and He shall give you another Comforter that He may abide with you forever Is it not very sweet to think that the Spirit of God is given to the Church in answer to the prayer of Christ? Prayer is a holy exercise, for Jesus prayed. And what a powerful influence prayer has, for His prayer has brought to us "another Comforter."
 

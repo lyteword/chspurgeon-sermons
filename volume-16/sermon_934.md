@@ -2,7 +2,7 @@
 
 "I drew them with cords of a man, with bands of love: and I was to them as they that take off the yoke on their jaws, and I laid meat unto them." Hosea 11:4.
 
-GOD, by the mouth of His Prophet, is here expostulating with His people for their ungrateful rebellion against Him. He had not treated them in a harsh, tyrannical, overbearing manner, else there might have been some excuse for their revolt. But His rule had always been gentle, tender, and full of pity. Therefore, for them to disobey Him was the very height of wanton wickedness. The Lord had never made His people to suffer hard bondage in mortar and in brick as Pharaoh did, yet we do not find that they raised an insurrection against the Egyptian tyrant. They gave their backs to the burdens, and they bore the lash of the taskmaster without turning upon the hands which oppressed them.
+God, by the mouth of His Prophet, is here expostulating with His people for their ungrateful rebellion against Him. He had not treated them in a harsh, tyrannical, overbearing manner, else there might have been some excuse for their revolt. But His rule had always been gentle, tender, and full of pity. Therefore, for them to disobey Him was the very height of wanton wickedness. The Lord had never made His people to suffer hard bondage in mortar and in brick as Pharaoh did, yet we do not find that they raised an insurrection against the Egyptian tyrant. They gave their backs to the burdens, and they bore the lash of the taskmaster without turning upon the hands which oppressed them.
 
 But when the Lord was gracious to them and delivered them out of the house of bondage, they murmured in the wilderness, and were justly called by Moses, "rebels." They had no such burdens to bear under the government of God as those which loaded the nations under their kings, and yet they willfully determined to have a king for themselves. No taxes were squeezed from them, no servile service was demanded at their hands. Their thank offerings and sacrifices were not ordained upon a scale of oppression. Their liberty was all but boundless&mdash;their lives were spent in peace and happiness, every man under his own vine and fig tree&mdash;none making them afraid.
 
@@ -26,7 +26,7 @@ take off the yoke on their jaws." And, thirdly, the suitable nourishment which H
 
 them."
 
-First, then, THE LORD's WAY OF EXCITING HIS PEOPLE TO ACTION. We who have believed in Jesus Christ have passed into a new condition with regard to God. We were once, at the very best, only His subjects, and having sinned we were scarcely fit to be called subjects, but rebels, traitors&mdash;disgraced with high treason. But now, since Divine Grace has renewed us, we are not only his pardoned subjects, but what is far better, wondrous Grace has made us his Beloved sons and daughters! we are now not so much subjects of His crown as we are children of His care.
+First, then, THE Lord's WAY OF EXCITING HIS PEOPLE TO ACTION. We who have believed in Jesus Christ have passed into a new condition with regard to God. We were once, at the very best, only His subjects, and having sinned we were scarcely fit to be called subjects, but rebels, traitors&mdash;disgraced with high treason. But now, since Divine Grace has renewed us, we are not only his pardoned subjects, but what is far better, wondrous Grace has made us his Beloved sons and daughters! we are now not so much subjects of His crown as we are children of His care.
 
 We are by Grace brought into an entirely different relationship from that of fallen nature, and we are ruled and swayed by motives and regulations altogether unknown to the unregenerate sons of men. The way in which God brings His people to serve Him is that to which I now ask your consideration. It is a way pre-eminently peculiar in its tenderness and kindness. The only cords are cords of a man, and the bands are bands of love. In the heroic days when Xerxes led his army into Greece, there was a remarkable contrast between the way in which the Persian soldiers and the Grecian warriors were urged to combat.
 
@@ -82,7 +82,7 @@ The praises of God's people are poured forth, even as larks give forth their son
 
 Thus I have, without dwelling on the mere words, given you the sense of the first clause of the text, "I drew them with cords of a man, with bands of love." The impelling, urging powers that lead Christians on to consecration and holiness are never those which befit slaves or carnal minds. They are such as are worthy of the dignity of the sons of God, and they are full of tenderness, and kindness, and love. For the gentleness of God is great towards His people.
 
-I shall now ask you to turn to the next sentence, and observe HOW THE LORD GIVES REST TO HIS PEOPLE&mdash;"I was to them as they that take off the yoke on their jaws, and I laid meat unto them."
+I shall now ask you to turn to the next sentence, and observe HOW THE Lord GIVES REST TO HIS PEOPLE&mdash;"I was to them as they that take off the yoke on their jaws, and I laid meat unto them."
 
 Sometimes a common illustration may be more forcible than a more refined comparison, and I shall give you in a moment a very homely one. The passage here means that God treated His people as farmers, when they are merciful, treat the bullocks with which they have been plowing. They lift off the yoke from them, withdraw the muzzle, and then give them their food. But our explanation of it shall be a sight more common. Out there in yonder street stand still and observe. Yonder inn is a common halting place. Watch it a moment. Here comes a huge, heavily loaded van.
 
@@ -118,7 +118,7 @@ So also, I would add, has the Lord often delivered us from the yoke of fear. The
 
 Get near to God, Believer, and you will be calm. Commune with Heaven and be at rest. The peace of God passes all understanding, and it is this which Jesus waits to give you. There is no reason why you should be heavily burdened. Return unto your rest, for the Lord has dealt bountifully with you.
 
-And now we will take the last clause, "And I laid meat unto them." Here we have THE NOURISHMENT WHICH THE LORD GIVES HIS PEOPLE. Humble as my illustration is, I must take you back to it, and point to the
+And now we will take the last clause, "And I laid meat unto them." Here we have THE NOURISHMENT WHICH THE Lord GIVES HIS PEOPLE. Humble as my illustration is, I must take you back to it, and point to the
 
 nose-bags of the horses, for the illustration is just for our country what is meant by the text. The farmer would put up his fodder to the ox when he took off the yoke. Now observe what it is that God gives His people.
 

@@ -64,7 +64,7 @@ I do delight to look back upon the day when I was converted to God. Many of you 
 
 We now come to the second head. WHAT IS THE TRUE SECRET SPOT WHICH INFALLIBLY IDENTIFIES
 
-THE CHILD OF GOD? Beloved, it were vain presumption and blasphemous arrogance for me to set myself up as able to tell you this of my own judgment. But God's Word reveals it to us and therefore we may tread surely where we have Revelation to be our guide.
+THE CHILD OF God? Beloved, it were vain presumption and blasphemous arrogance for me to set myself up as able to tell you this of my own judgment. But God's Word reveals it to us and therefore we may tread surely where we have Revelation to be our guide.
 
 Now, we are told in the Gospel according to John, concerning our Lord&mdash;"As many as received Him, to them gave He power to become the sons of God, even to them that believe on His name." Here it is, then! If I have re-
 

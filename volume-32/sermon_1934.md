@@ -27,7 +27,7 @@ But this, "Behold," is also a note of instruction. It is as if the man of God sa
 
 Thus having introduced the text with its own note of exclamation, I invite you to behold the two wonders which are enshrined within it. I would first say&mdash;Let us behold with joyful wonder our being called the sons of God. And then, secondly, let us behold the equal wonder of our being really so, expressed in those three words, "and we are."
 
-First, then, behold THE WONDER OF OUR BEING CALLED THE SONS OF GOD.
+First, then, behold THE WONDER OF OUR BEING CALLED THE SONS OF God.
 
 Who calls us so? That is the wonder! Men take upon themselves great names without any right to them. There are degrees among men that are degrees of shame because the persons who claim them were never justly entitled to them. It is one thing for us to call ourselves children of God and another thing for the Father to bestow His love so that we are truly called the sons of God. From where does this princely title of "sons of God" come? Who calls the saints, the sons of God?
 
@@ -83,7 +83,7 @@ He did not like to acknowledge his father because he was a laborer. That is mean
 
 There is, moreover, this involved in it, that He claims our loving obedience. Do not put dishonor upon your Father's name! Stand up for your Father. It is one of the marks of a true child that he cannot bear to say or do anything that would place his Father's name under a cloud. God, as it were, stakes His honor upon the character of everyone of His people. He has said, "They shall be called My children." Now, if you do anything that is wrong or base, what will men think of your Father? He has condescended to call you a child&mdash;do not let His name be evilly spoken of through you. He has put this high honor upon us, that we should be called His sons and daughters&mdash;let us seek so to behave ourselves that men may see our good works and glorify our Father who is in Heaven! I have taken up all this time with the first part of the verse, but we must not forget the second part of it, "and we are." I shall only introduce it to your meditation and, indeed, this is all that is needed if you are able to repeat the words on your own account and say, "and we are."
 
-The second and greatest wonder is THE WONDER OF OUR REALLY BEING THE SONS OF GOD. "And we are."
+The second and greatest wonder is THE WONDER OF OUR REALLY BEING THE SONS OF God. "And we are."
 
 Adoption gives us the name of God's children. The new birth gives us the Nature of God's children. And so in both senses we are. Adoption is the legal act by which our Father receives us. Regeneration is that spiritual deed by which we receive the nature of our Father. Every man that is really adopted into the family of God also really becomes a son of God by being begotten, again, unto a lively hope. I want to put it to you, my Hearers, whether you can, on this double ground, join in these Inspired Words, and say, "And we are"?
 

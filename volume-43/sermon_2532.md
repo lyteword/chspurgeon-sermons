@@ -8,7 +8,7 @@ Observe, next, from our text, that the Lord does not like that we should forget 
 
 I am going to show you, dear Friends, that my text has a double bearing and, first, we will view this Truth of God as it relates to the bulk of men. There are some to whom God has been exceedingly kind, who are not yet converted. They do not even profess to be His people, yet He has dealt with them in such a way that He might truly say to them, "I have loved you," in the sense in which we read that great Gospel text, "God so loved the world, that He gave His only begotten Son, that whoever believes in Him should not perish, but have everlasting life." When I have dealt with that point, as God shall help me, we will then view this Truth as it relates to the Lord's people and notice that innermost kind of love of which they have tasted. Yet, though God has loved them emphatically, with a very peculiar kind of love, some of them may be in an ill-humor and may be saying, "In what way have You loved us?" An earnest word with them may not be out of place and may do them good.
 
-First, then, take the broadest meaning of the text and view THIS TRUTH OF GOD AS IT RELATES TO THE BULK OF MEN.
+First, then, take the broadest meaning of the text and view THIS TRuth OF God AS IT RELATES TO THE BULK OF MEN.
 
 God had a love to the nation of Israel, yet many in that nation loved Him not, but turned from Him with ingratitude. Even then He still had a benevolent'affection towards that nation, so that He favored them above all other people, and gave them the means of Grace&mdash;and sent to them the Light of God while the rest of the world remained in darkness. Still, I am not going to speak, just now, particularly concerning Israel, but to show the bearing of my text upon many who are living today, whether Jews or Gentiles.
 
@@ -44,7 +44,7 @@ I have thus put before you God's announcement, and God's complaint.
 
 I close this part of my discourse by reminding you of the suggestion in the text. Does it not suggest to you, my dear Hearer, that you should thank God for all His favors towards you if you have been thus loved? Do not be like the hog that eats the acorns under the oak, but never lifts up its head to bless the tree that gives it its food. It is better, as John Bunyan tells us, to imitate the little chicken that never sips a drop of water without lifting its head as if to thank God for every drop it drinks. God give to every one of you a thankful heart! Should it not also be natural to you to try to please Him? But "without faith it is impossible to please Him." If there were anything you could do for God, would you not do it? "This is the work of God, that you believe on Him whom He has sent." Do you not think that after all His goodness to you, you should trust Him? Do trust Him&mdash;He will never deceive you. Lean upon Him&mdash;He will not fail you. And then love Him. May the Holy Spirit lead you to do so!
 
-Now, in the second place, we are to VIEW THIS TRUTH AS IT RELATES TO THE LORD's PEOPLE, those to whom God can say, emphatically, in the highest, deepest, fullest sense, "I have loved you."
+Now, in the second place, we are to VIEW THIS TRuth AS IT RELATES TO THE Lord's PEOPLE, those to whom God can say, emphatically, in the highest, deepest, fullest sense, "I have loved you."
 
 And, first, we will notice the statement on God's part''I have loved you, says the Lord." Now that I am addressing those who are in Christ, what a fullness there is in my subject! God loved you, my Brothers and Sisters, long before the world was made! The verse from which our text is taken goes on to speak of Jacob and Esau, and of God's choice of Jacob. So, dear Friends, there was an electinglovein your case as well as in Jacob's&mdash;
 
@@ -84,7 +84,7 @@ To use and to improve them too." So we ought to be glad and to rejoice! And if w
 
 I should like to stop just now if you will all think over this one thought. It will not trouble you. It is the sweetest thought and yet it is the simplest that ever can be. Let everyone who believes in Christ try to get the marrow out of this truth. "The Lord loves me." Not merely that the Lord pities me&mdash;thinks of me&mdash;cares for me&mdash;all that is true. But the Lord loves me, the Lord lovesme, the Lordloves me! Oh, the sweet savor of that word, "love"&mdash;to be loved of the great heart which sustains the universe! O child of God, you are as much loved of God as if He had not another child to love! You have all His love, as much as if there were none but you for Him to love! Will you not be glad and rejoice in Him? Cease your murmuring and lift up your soul in song&mdash;and bless and praise His holy name from this time forth, and even for evermore! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS9.
+Exposition by C. H. Spurgeon: Romans9.
 
 Paul begins by expressing his great sorrow because the Jews had rejected Christ.
 

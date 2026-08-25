@@ -16,7 +16,7 @@ Let me also add that sometimes very strange motives may bring people where they 
 
 Thus have I introduced to you the text&mdash;"He received Him joyfully." Now I want to say to you, with regard to the reception of the Savior, that He is not here corporeally or physically, for He has gone back into Glory, to sit at the right hand of the Father. But He is here spirituallyaccording to His promise, "Lo, I am with you always, even unto the end of the world." He enters freely into men's hearts, but He cannot now be received corporeally into your houses, nor can He sit at your tables and partake of your feasts. But He can, by His Spirit, enter into your hearts and He can spiritually dwell there, and make a temple of your bodies, and reign there, finding a happy abode within your renewed nature.
 
-Now, if you would receive Him, I wish to call your attention, first, to the fact that, in order to salvation, THERE MUST BE a PERSONAL RECEPTION OF a PERSONAL CHRIST. "He received Him joyfully." There you have two persons both present. "He"&mdash;that is, Zacchaeus&mdash;"received Him"&mdash;that is, Christ&mdash;"joyfully." That looks very simple, yet there is a great depth of the Truth of God in it, as I will try to show you.
+Now, if you would receive Him, I wish to call your attention, first, to the fact that, in order to salvation, THERE MUST BE a PERSONAL RECEPTION OF a PERSONAL Christ. "He received Him joyfully." There you have two persons both present. "He"&mdash;that is, Zacchaeus&mdash;"received Him"&mdash;that is, Christ&mdash;"joyfully." That looks very simple, yet there is a great depth of the Truth of God in it, as I will try to show you.
 
 For, first, there are some persons who suppose that in order to be saved, they are to receive a creed. That is quite true. You are to have a creed and I urge you to take heed what you believe. Go to the Law and to the Testimony and believe nothing but what is in the Word of God. But I pray you to also remember that a man may receive the most sound creed in Christendom&mdash;and yet be damned! He may believe, as a matter of head knowledge, all that should be believed. And yet, for all that, he may not believe anything with his heart, and so may perish. I believe that the devil is orthodox. In all that he says, he usually seems to propound either the Truth of God or something which shows that he knows what the Truth is, yet, though in that sense, he believes, and even goes as far as trembling, the devil is not changed in heart, nor will he be saved by what he believes! It is not receiving a creed which saves you&mdash;it is receiving a Person into your heart's love. It is not written in our text, "He received it, "but, "He received Him." Mark that&mdash;"He received Him joyfully."
 
@@ -34,7 +34,7 @@ But, further, Zacchaeus received Christ as his Lord. Notice what he said. "Behol
 
 In so doing, Zacchaeus also admitted Christ as His Savior, for Jesus said, "This day is salvation come to this house." You will think it strange, but I have known some who have called Jesus, "Lord," who have not acknowledged Him as their Savior. Thank God it is changed with them, now, but I did know some who came to this house who honored and worshipped Christ according to the light they had&mdash;yet they did not understand their need of Him, nor did they accept Him as their Savior. As I said, just now, this has all been changed with them, and so must it be with any of you who would truly receive Christ. If you do not accept Him in His Character as Savior, you virtually reject Him altogether, since He can never be separated from the merit of His blood, and the love of His heart towards guilty sinners. What? Would you have an unwounded Christ&mdash;an unbleeding Christ&mdash;a Christ that never died for men? There is no such Christ as that except in fiction! The Christ of reality "is come to seek and to save that which was lost." And in that Character He must be received by us if He is received at all.
 
-Now I press on to notice that THE RECEPTION OF CHRIST, TO BE REAL, MUST IN EVERY CASE BE
+Now I press on to notice that THE RECEPTION OF Christ, TO BE REAL, MUST IN EVERY CASE BE
 
 VOLUNTARY. Willingly, Zacchaeus "made haste, and came down, and received Him joyfully." That joyful reception of Christ shows the willingness of Zacchaeus. It proves how cheerfully, how gladly, how willingly&mdash;the words all carry the same sense&mdash;how joyfully, with the full freedom of his will, he received the Savior.
 
@@ -58,7 +58,7 @@ And this blessed voluntariness, this joyous freedom of the will conferred by Sov
 
 This brings me now to close with my third remark, which is, that THE RECEPTION WHICH WE GIVE TO
 
-CHRIST MAY WELL BE a JOYFUL ONE.
+Christ MAY WELL BE a JOYFUL ONE.
 
 To receive Christ into the heart, dear Brothers and Sisters&mdash;ought not that to be as glad a thing as for a man to welcome his long-desired bride, or his firstborn child, or to receive his estate when he comes to the ripeness of manhood? Yes, more than that! Ought it not to be as much joy to receive Christ as to receive Heaven, itself, for would there be any Heaven possible if we had not first received Christ? Ring the bells of Heaven and ring them yet again, for a soul has re-
 
@@ -90,7 +90,7 @@ Look at Zacchaeus. I can see him. As soon as ever Christ says to him, "Come down
 
 That was very sensible on the part of Malachi and I say to you&mdash;Do not be asking about predestination or anything else, but just receive Christ! And when you have accepted Him, you may rest assured that He has given you power to become a son of God! You have believed on His name and, therefore, you are saved! That is the all-important point. So, like Zacchaeus, make haste, and come down, and receive Christ joyfully! The Lord grant that you may do it and unto His name shall be the praise forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 19:1-27.
+Exposition by C. H. Spurgeon: Luke 19:1-27.
 
 Verses 1, 2. And Jesus entered and passed through Jericho. And, behold, there was a man named Zacchaeus, which was the chief among the publicans, and he was rich. Many of those tax-gatherers were rich. They usually farmed the taxes, and took care to extort all that they possibly could out of the poverty of the people.
 

@@ -86,6 +86,6 @@ My one concern is lest the Lord's work should suffer by my absence. I entreat yo
 
 To all of you, from the bottom of my heart, I send my sincere love in Christ Jesus. Yours to serve while there remains any life in me,
 
-H. SPURGEON,
+H. Spurgeon,
 
 Mentone, February 6, 1879.

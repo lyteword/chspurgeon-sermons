@@ -18,7 +18,7 @@ In and around the tent wherein the Lord dwelt in the center of the camp there wa
 
 As the Holy Spirit shall help me, I shall at this time say, first of all, Let us behold this tabernacling of God; and secondly, Let us avail ourselves of this tabernacling of God in all the ways for which it was intended.
 
-First, then, LET US BEHOLD THIS 'TABERNACLING OF GOD WITH US. "We beheld His glory, the glory as of the only begotten of the Father, full of grace and truth. "In Jesus Christ all the attributes of God are to be seen; veiled, but yet verily there. You have only to read the gospels, to look with willing eyes, and you shall behold in Christ all that can possibly be seen of God. It is veiled in human flesh, as it must be; for the glory of God is not to be seen by us absolutely; it is toned down to these dim eyes of ours; but the Godhead is there, the perfect Godhead in union with the perfect manhood of Christ Jesus our Lord, to whom be glory forever and ever.
+First, then, LET US BEHOLD THIS 'TABERNACLING OF God WITH US. "We beheld His glory, the glory as of the only begotten of the Father, full of grace and truth. "In Jesus Christ all the attributes of God are to be seen; veiled, but yet verily there. You have only to read the gospels, to look with willing eyes, and you shall behold in Christ all that can possibly be seen of God. It is veiled in human flesh, as it must be; for the glory of God is not to be seen by us absolutely; it is toned down to these dim eyes of ours; but the Godhead is there, the perfect Godhead in union with the perfect manhood of Christ Jesus our Lord, to whom be glory forever and ever.
 
 Two divine things are more clearly seen in Jesus than aught else. Upon these I would speak at this time, considering the two together, and then each one separately&mdash;"Full of grace and truth."
 
@@ -58,7 +58,7 @@ Nor have I yet quite brought out all the meaning, even if I have succeeded so fa
 
 Thus has our Lord displayed the glory of God in the grace and truth with which He is filled. I am sorry have spoken so feebly on a theme so grand. May the Spirit bless you even through the infirmities of my speech!
 
-Now I want a few minutes to say to you, Come brothers and sisters, LET US AVAIL OURSELVES OF THIS TABERNACLING OF GOD AMONG US.
+Now I want a few minutes to say to you, Come brothers and sisters, LET US AVAIL OURSELVES OF THIS TABERNACLING OF God AMONG US.
 
 First, then, if God has come to dwell among men by the Word made flesh let us pitch our tent around this central tabernacle; do not let us live as if God were a long way off. To the Israelites God was equally near from every near from every quarter of the camp. The tabernacle was in the center, and the center is equally near to every point of the circumference. No true Israelite could say, "I must go across the sea, or soar up into the air, or dive into the depths to find my God." Every Israelite could say "He dwelleth between the cherubim: I have but to go to His tabernacle to be in His presence and speak with Him." Our God is not far from any one of His people this day. We are made nigh by the blood of Christ. God is everywhere present, but there is a higher presence of effectual grace in the person of the only begotten. Do not let us feel as if we worshiped a far-off God. Let us not repine as if we were deserted. Let us not feel alone, for the Father is with us.
 
@@ -74,6 +74,6 @@ Once more: if this be so, and God really in Christ dwell in the midst of His peo
 
 One more lesson remains, And that is&mdash;what manner of people ought we to be among whom Jehovah dwells? It must have been a very solemn thing to be a member of that great camp of two million in the wilderness of Sinai. God's presence in the midst of the camp must have made every tent sacred. As we walked through the streets of that canvas city, if we had been Israelites, and in our right minds, we should have said, "These tents are none other than the house the house of God and the very gate of heaven; for see, Jehovah is in the midst of us. Mark you not the bright light that shines about His sanctuary?" We should have felt that in such in such a camp all should be holy. The pollution of sin should be unknown there. In such a camp constant prayer and praise should be presented to Him whose presence was its glory and defense. Today let our congregation be a holy convocation; and as for ourselves, let us be holiness unto the Lord. We are consecrated men and women, seeing the Lord has come so very near to us. I spoke of solemnity; I meant not dread and sorrow, but a solemnity full of joy. It is a solemn thing to have God so near, but the joy is equal to the solemnity. Glory be unto God most high, for He is here! Let us spend our days and nights in gladness and delight. God is reconciled to us in the person of His dear Son, and we have fellowship with God in Christ Jesus; Wherefore let us rejoice evermore. Amen and amen.
 
-PORTIONS OF SCRIPTURE READ BEFORE THE SERMON&mdash;Exodus 34:1-8; 40:34-38; JOHN 1:1-18.
+PORTIONS OF SCRIPTURE READ BEFORE THE SERMON&mdash;Exodus 34:1-8; 40:34-38; John 1:1-18.
 
 HYMNS FROM "OUR OWN HYMN BOOK"-249, 256, 250.

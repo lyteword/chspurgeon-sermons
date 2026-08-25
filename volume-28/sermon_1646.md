@@ -99,7 +99,7 @@ Oh, be not as the chaff, which is covered up and so hidden among the wheat! Turn
 
 What I say to myself I think I hear each one of you say to himself or herself, "Better far that we die than that we deny our Lord."
 
-I shall close with my third head and consider THE ANSWER WHICH QUICK-VOICED PETER GAVE&mdash;the
+I shall close with my third head and consider THE ANSWER WHICH QUICK-VOICED Peter GAVE&mdash;the
 
 answer which I hope we are prepared to give to our Divine Leader, "Lord, to whom shall we go? You have the words of eternal life. And we believe and are sure that you are the Christ, the Son of the living God." It is threefold. "Lord, to whom shall we go?" This is the first answer. Observe that Peter does not appear to think it possible, or think it less than abominable, for a man to go back&mdash;for the natural answer to Peter's question, "To whom shall we go?" is, "Go back?" No, but Peter does not tolerate the idea of going back.
 

@@ -1,6 +1,6 @@
 # Sermon 2391 | The Keeper of the Vineyard
 
-"I the LORD keep it. I will water it every moment: lest any hurt it, I will keep it night and day." Isaiah 27:3.
+"I the Lord keep it. I will water it every moment: lest any hurt it, I will keep it night and day." Isaiah 27:3.
 
 MY discourse this evening can hardly be called a sermon. It will be just a simple talk about a few experimental Truths of God, but I trust that it will be useful to some of the Lord's people.
 
@@ -98,7 +98,7 @@ Now, as I close my discourse, I fear that there are some of you who are not save
 
 May we, who are about to gather around the Communion Table, have our Master's special Presence and blessing! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Isaiah 64.
+Exposition by C. H. Spurgeon: Isaiah 64.
 
 Verse 1. Oh that You would rend the heavens. God's ancient people were in great trouble and the Prophet saw no way out of their perplexity. But God can make a way of escape where there is not one, He can rend even Heaven, itself, if need be, in order to deliver His saints. Therefore, the Prophet, or the people, pray, "Oh that You would rend the heavens"&mdash;
 
@@ -126,12 +126,12 @@ And we all do fade as a leaf; and our iniquities, like the wind, have taken us a
 
 And there is none that calls upon Your name, that stirs up himself to take hold of You. We have not come quite to that condition, yet. There are still some who stir themselves up to take hold upon God and who call upon His name. We are not left in so sad a state as the favored nation was in in Isaiah's days. It is a terrible thing when intercession fails! Perhaps the dark day that will mark the world's final doom will be a day unwhitened by prayer. Certainly, while prayer remains, the world is blessed, but when prayer shall cease, when that Divine disinfectant is taken away from this poor leper house, then the pestilence of sin will rage and destroy most terribly! It was so in the Prophet's day&mdash;"There is none that calls upon Your name, that stirs up himself to take hold of You."
 
-7, 8. For You have hid Your face from us, and have consumed us, because of our iniquities. But now, O LORD, You are our Father. The Prophet, himself, begins to plead with God. Jehovah was known as the God of the children of Abraham. He was not recognized as the God of the Assyrian, Sennacherib worshipped Nisroch as his God&mdash;"But now, O Jehovah, You are our Father."
+7, 8. For You have hid Your face from us, and have consumed us, because of our iniquities. But now, O Lord, You are our Father. The Prophet, himself, begins to plead with God. Jehovah was known as the God of the children of Abraham. He was not recognized as the God of the Assyrian, Sennacherib worshipped Nisroch as his God&mdash;"But now, O Jehovah, You are our Father."
 
-8, 9. We are the clay, and You our potter; and we all are the work of Your hands. Do not be furious, O LORD, neither remember iniquity forever! Behold, see, we beseech You, we are all Your people. Isaiah could plead that, in a certain way, they were nominally the people of God. But if we can plead this truly and spiritually on the behalf of any man. If we can plead it for ourselves, what a mighty plea it is! "Lord, You have made us. You have new-made us and You can keep us. We are the clay and You are our potter; we belong to You. Oh, break not the vessels that You have made! Cast not away the people You have chosen. Be merciful to us, O God, for we are Your people!" Then the Prophet gives a pitiful description of the condition unto which the land of Judah was reduced.
+8, 9. We are the clay, and You our potter; and we all are the work of Your hands. Do not be furious, O Lord, neither remember iniquity forever! Behold, see, we beseech You, we are all Your people. Isaiah could plead that, in a certain way, they were nominally the people of God. But if we can plead this truly and spiritually on the behalf of any man. If we can plead it for ourselves, what a mighty plea it is! "Lord, You have made us. You have new-made us and You can keep us. We are the clay and You are our potter; we belong to You. Oh, break not the vessels that You have made! Cast not away the people You have chosen. Be merciful to us, O God, for we are Your people!" Then the Prophet gives a pitiful description of the condition unto which the land of Judah was reduced.
 
 10, 11. Your holy cities are a wilderness, Zion is a wilderness, Jerusalem a desolation. Our holy and our beautiful house, where our fathers praised You, is burned up with fire: and all our pleasant things are laid waste. Their houses and God's House went together to destruction. When their houses were burnt, God's House did not escape. This is the most bitter part of the trial to a genuine Believer&mdash;when his own estate is impoverished, he can bear it, but when the Kingdom of God suffers damage&mdash;this cuts him to the quick! God's House is our house, the Prophet thus speaks of it&mdash;"Our holy and our beautiful house, where our fathers praised You, is burned up with fire: and all our pleasant things are laid waste."
 
-Will you refrain Yourself for these things, O LORD? "Can You stand still and see all this?" This is the kind of pleading for the people of God to use when sin abounds. When the Truth of God is trampled like mire in the street, we may come before the Lord and say, "Will You refrain Yourself for these things, O Jehovah?"
+Will you refrain Yourself for these things, O Lord? "Can You stand still and see all this?" This is the kind of pleading for the people of God to use when sin abounds. When the Truth of God is trampled like mire in the street, we may come before the Lord and say, "Will You refrain Yourself for these things, O Jehovah?"
 
 Will You hold Your peace and afflict us very severely? May God teach us how to plead for His people and make us great intercessors on behalf of His Church and His cause in these evil days! Amen.

@@ -72,7 +72,7 @@ And, so Brothers and Sisters, let the name of Christ and your memory of it becom
 
 If any of you have not yet believed in Jesus, oh, how I wish you would! As I am going away for a while, I shall not be able to speak personally to you for some time to come, but I hope that those whom my voice has failed to influence, may be reached by some other servant of the Lord Jesus Christ who shall occupy this pulpit to speak to you in my absence. Oh, that you all knew my Lord! There is none like Him! His bonds are freedom! His service is rest! To die for Him is life! To live for Him is Heaven! God bring you to Him and fasten you to Him forever! Amen, and Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN14:1-21.
+Exposition by C. H. Spurgeon: John14:1-21.
 
 We have often read this chapter, both in our private meditations and at our public worship, but we cannot read it too often. It is sweet as honey and the honeycomb. It contains the very quintessence of consolation. Every word in the chapter is rich and full of meaning. Perhaps they understand it best who cannot read it quickly, but are obliged to spell over every word of it and so are like those who feast upon marrow and fatness.
 

@@ -76,7 +76,7 @@ A real passion for winning souls reveals the many sides of our manhood and uses 
 
 On the sea there are great rams which run down the enemy, torpedoes under water, gunboats and steam frigates. One ship is broken up by a single blow. Another needs a broadside. A third must have a shot between wind and water. A fourth must be driven on shore. Even thus must we adapt ourselves and use the Sacred Force entrusted to us with grave consideration and solemn judgment, looking ever to the Lord for guidance and for power. All the real power is in the Lord's hands! We must put ourselves fully at the disposal of the Divine Worker, that He may work in us both to will and to do of His good pleasure&mdash;so shall we, by all means, save some.
 
-WHY IS NOT THIS PASSION MORE LARGELY DEVELOPED AMONG CHRISTIANS? The preacher needs
+WHY IS NOT THIS PASSION MORE LARGELY DEVELOPED AMONG ChristIANS? The preacher needs
 
 not answer that question&mdash;each of his hearers may do that for himself. Why is it that we do not yearn more over the perishing souls of men? Is it not that we have but very little Grace? We are dwarfish Christians with little faith, little love, little care for the Glory of God&mdash;and therefore with little concern for perishing sinners. We are spiritually naked and poor. We are spiritually miserable when we might be rich and increased in goods if we had but more faith. That is the secret of the matter and is the fountain of all the mischief.
 

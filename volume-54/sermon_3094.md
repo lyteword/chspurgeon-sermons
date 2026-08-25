@@ -38,7 +38,7 @@ All this followed because they had been "pricked in their heart." It was a sorro
 
 A faith that has no tears in its eyes is a blind faith, for where there is sight there will be weeping. Never did a soul look to Christ, whom it had pierced, without weeping and mourning because of its sin. Faith and repentance are twins&mdash;they are born together and they will live together&mdash;and as long as a Christian is in this world both will be needed. Rowland Hill used to say that the only thing that he would be sorry to leave when he went to Heaven was that sweet, lovely, sorrowful Grace of repentance&mdash;he supposed he could not repent in Heaven, but it was such a sweet experience to keep on repenting that he would wish to repent forever if such a thing might be.
 
-Now, in the second place, let us notice WHAT TRUTHS GOD USES AS DAGGERS TO PRICK SINNERS IN
+Now, in the second place, let us notice WHAT TRuthS God USES AS DAGGERS TO PRICK SINNERS IN
 
 THE HEART.
 

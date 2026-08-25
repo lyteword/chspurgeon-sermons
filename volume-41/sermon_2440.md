@@ -107,7 +107,7 @@ But oh, you who are unbelievers&mdash;do you not see that your portion is that w
 
 Oh, fly to Jesus at once, for He has said, "Him that comes to Me I will in no wise cast out." God help you to trust to Christ, tonight, and to go out of this Tabernacle saved men and saved women, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE12:35-48.
+Exposition by C. H. Spurgeon: Luke12:35-48.
 
 Verses 35-37. Let your loins be girded about and your lights burning; and you yourselves like unto men that wait for their master, when he will return from the wedding; that when he comes and knocks, they may open unto him immediately. Blessed are those servants whom the master, when he comes, shall find watching: verily I say unto you, that he shall gird himself, and make them to sit down to meat, and will come forth and serve them. This is a wonderful passage. Christ has already had one turn as a Servitor. He was Master and Lord, yet He washed His disciples' feet. But He says that if we are watchful and faithful, if we truly serve Him, the day shall come when, in all His robes of Glory, He shall gird Himself and serve us.
 

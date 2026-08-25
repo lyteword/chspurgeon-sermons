@@ -1,6 +1,6 @@
 # Sermon 3525 | God's Overtaking Mercy
 
-> And He [the Angel of the Lord] said, Hagar, Sarah's maid, where have you come from? And where will you go? And she said, I flee from the face of my mistress Sarah.  
+> And He  said, Hagar, Sarah's maid, where have you come from? And where will you go? And she said, I flee from the face of my mistress Sarah.  
 > Genesis 16:8
 
 > And she called the name of the Lord that spoke unto her, You-Are-the-God-Who-Sees, for she said, Have I also here seen Him who sees me?  

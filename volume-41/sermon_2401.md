@@ -78,7 +78,7 @@ But give me a large Church consisting of thousands, if there are in it many whos
 
 Now, if any here are living in fellowship with those unfruitful works of darkness, I pray them to escape for their lives from them! May they fly to Christ, who alone can save them! And when they have once found healing through His wounds and life through His death, then let them pray to be kept from all sin that they may lead a holy and gracious life to the glory of Him who has washed them in His own most precious blood! The Lord send a blessing, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS5.
+Exposition by C. H. Spurgeon: Ephesians5.
 
 Verse 1. Be you, therefore, followers of God. Or, imitators of God&mdash;
 

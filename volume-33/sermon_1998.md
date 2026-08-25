@@ -82,7 +82,7 @@ There is yet one other sense. "The Word of God is not bound" so that it cannot e
 
 Who is to bind it? With what will they bind it? Green willow branches, ropes and bars of brass cannot hold this greater than Samson! It shall snap them in pieces as twigs! There is no overcoming the free Gospel! They dreamed that they had bound it many times before and they cried in mockery, "The Philistines are upon you, Samson," but they have had to learn its might when least they expected it and so they shall yet again! Philosophy and heresy are in league and they gather their armies in haste. The Lord shall make them as the sheaves of the threshing floor. Therefore, let us be of good comfort, Brothers, and rest quite sure that, though we are beaten, the Word of God is not beaten! And though we are in a minority and our preaching at a discount, it does not matter&mdash;"The Word of God is not bound."
 
-For a moment or two I have further to enquire, WHAT ARE THE REASONS WHY THE WORD OF GOD IS
+For a moment or two I have further to enquire, WHAT ARE THE REASONS WHY THE WORD OF God IS
 
 NOT BOUND? It is not bound because it is the voice of the Almighty. If the Gospel is, indeed, the Gospel of God, and these Truths are Revelations of God, Omnipotence is in them! It is not possible that the Omnipotent Word can be bound. Who will attempt the deed? Go bit the tempest! Put a chain about the hurricane, control the winds and bridle the raging sea! And when you have done these, you are but at the beginning of your task&mdash;you cannot, even then, hinder the Omnipotence of God which finds a chariot for itself in the Word of God and rides forth conquering and to conquer!
 
@@ -100,7 +100,7 @@ Look at the many that gathered together in the desert in the South of France in 
 
 There is Master Bunyan. They have put him in prison and his family is nearly starving. They bring him up and they say, "You shall go out of prison, John, if you won't preach. Go home and tag your laces, that is what you have to do, and leave the Gospel alone. What have you got to do with that?" But honest John answers, "I cannot help it. If you let me out of prison today, I will preach again tomorrow, by the help of God. I will lie here till the moss grows on my eyelids, but I will never promise to cease preaching the Gospel." They could sooner bind the sweet influences of the Pleiades, or loose the bands of Orion, than govern the movements of the Spirit of God in men! The love of Christ is such that when it once pours into a man's heart, it must run out at his lips in loving testimony! Has He not put rivers of Living Water into the midst of those who once drink of the life-giving stream? And they must speak of it, even till they die!
 
-Now I come to the close. ONE OR TWO OTHER FACTS RUN PARALLEL TO THE TEXT. Paul is bound, but the Word of God is not bound. Read it thus&mdash;the preacher has had a bad week. He is full of aches and pains. He feels ill, but the Word of God is not ill. Oh, what a blessing that is! We preach a healthy Gospel even though we are unhealthy ourselves. In this, let the invalid rejoice! Dear suffering worker, your work shall not suffer, for it is a sound Gospel which you preach, though you, yourself, are hampered by a poor, weak body!
+Now I come to the close. ONE OR TWO OTHER FActs RUN PARALLEL TO THE TEXT. Paul is bound, but the Word of God is not bound. Read it thus&mdash;the preacher has had a bad week. He is full of aches and pains. He feels ill, but the Word of God is not ill. Oh, what a blessing that is! We preach a healthy Gospel even though we are unhealthy ourselves. In this, let the invalid rejoice! Dear suffering worker, your work shall not suffer, for it is a sound Gospel which you preach, though you, yourself, are hampered by a poor, weak body!
 
 "What will become of the congregation when a certain minister dies?" Well, he will be dead, but the Word of God is not dead. God buries His workmen, but His work goes on. One light goes out, but another torch flames forth. Star by star sinks beneath the horizon, but another star appears on the other side to make glad the night. The Word of God is not dead when the preacher is dead!
 
@@ -118,7 +118,7 @@ Do not try to war against the Gospel! Choose some other adversary than the Lord 
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;2 Timothy 2. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;184, 766, 478.
 
-LETTER FROM MR. SPURGEON:
+LETTER FROM MR. Spurgeon:
 
 BELOVED FRIENDS&mdash;I would not have written this week, only you desire it. I have suffered much from neuralgic pain, for the weather was wet and windy. Today a summer's sun is shining and we hope for better things.
 

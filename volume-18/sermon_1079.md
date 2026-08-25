@@ -2,7 +2,7 @@
 
 "Your Words were found, and I did eat them; and Your Word was unto me the joy and rejoicing of my heart: for I am called by Your name, O Lord God of Hosts." Jeremiah 15:16.
 
-JEREMIAH had been greatly persecuted for his faithfulness in delivering the Word of God. He tells us the reason for his continuance in a work which brought him so sorrowful a reward. He makes us understand that he had been faithful in delivering God's Word because that Word had been overpoweringly precious to his own soul. He could not do otherwise than speak the Truth of God, because that Truth had been his own daily food. He had met with nothing but ill-treatment from those whom he addressed. They had vilified him in every way&mdash;he had been put into the most noisome dungeon. He had been denied even bread and water&mdash;everything short of actually putting him to death had been inflicted upon him by his ungrateful countrymen.
+Jeremiah had been greatly persecuted for his faithfulness in delivering the Word of God. He tells us the reason for his continuance in a work which brought him so sorrowful a reward. He makes us understand that he had been faithful in delivering God's Word because that Word had been overpoweringly precious to his own soul. He could not do otherwise than speak the Truth of God, because that Truth had been his own daily food. He had met with nothing but ill-treatment from those whom he addressed. They had vilified him in every way&mdash;he had been put into the most noisome dungeon. He had been denied even bread and water&mdash;everything short of actually putting him to death had been inflicted upon him by his ungrateful countrymen.
 
 But still he went on prophesying. He could not be silent. Though his prophesying brought him nothing but tears, yet he continued still to prophesy, for God's Word came with such sweetness to his own soul and filled his heart with such ravishing joy and delight that he could not do otherwise than go and tell his fellow men what had been so delightful to himself. I believe this to be the secret of every living ministry. The ministry that is fed upon flattery and flatters those who flatter it is a poor feeble counterfeit and God will never bless it. But the ministry which under great difficulties and fierce opposition is still sustained because the preacher cannot help continuing in it is that which God will bless.
 
@@ -102,7 +102,7 @@ I'll call then vanities and lies,
 
 And bind the Gospel to my heart." These three things are the secret of a strong spiritual life&mdash;to find, to eat, and to rejoice, in God's Word.
 
-Now, very briefly, we shall describe THE CHRISTIAN IN HIS OUTWARD LIFE, as he is mentioned here&mdash;"I
+Now, very briefly, we shall describe THE ChristIAN IN HIS OUTWARD LIFE, as he is mentioned here&mdash;"I
 
 am called by Your name, O Lord God of Hosts." Now I think these words may be used in three ways. First, the condition of Jeremiah was one which he had attained by his conduct. He was so continually preaching about Jehovah, so constantly insisting upon Jehovah's will and going upon Jehovah's errands, that they came to call him, "Jehovah's Man," and he was known by Jehovah's name.
 

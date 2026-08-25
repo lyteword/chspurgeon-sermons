@@ -59,7 +59,7 @@ If any of you are under the power of despair at this moment, I pray you, do not 
 
 So you see, my Brethren, judgments may produce a certain likeness of repentance&mdash;but then, secondly, THEY
 
-DO NOT AND THEY CANNOT OF THEMSELVES PRODUCE a REPENTANCE SUCH AS GIVES GOD GLORY.
+DO NOT AND THEY CANNOT OF THEMSELVES PRODUCE a REPENTANCE SUCH AS GIVES God GLORY.
 
 "They repented not to give Him glory."
 
@@ -108,7 +108,7 @@ It is a sense of blood-bought pardon
 
 That dissolves the heart of stone." You see, then, how a gracious repentance glorifies God&mdash;do you know anything of such a repentance? Answer, I pray you, as before the Lord, whom no man can deceive.
 
-But now, thirdly, I go a step further&mdash;THE JUDGMENTS OF GOD APART FROM DIVINE GRACE, MAY, THROUGH OUR HARDNESS OF HEART, INVOLVE US IN GREATER SIN.
+But now, thirdly, I go a step further&mdash;THE JUDGMENTS OF God APART FROM DIVINE GRACE, MAY, THROUGH OUR HARDNESS OF HEART, INVOLVE US IN GREATER SIN.
 
 Listen to me, any of you that have been much tried and afflicted and yet have never come to Jesus. I tell you, if God has chastened you very much until He is saying tonight, "O Ephraim, what shall I do unto you?" then all this chastening which you have despised involves you in deeper sin&mdash;because you now sin with a clearer knowledge of what sin really is.
 
@@ -130,7 +130,7 @@ O God, have mercy upon such! Many in this city are breaking a father's heart and
 
 thought of some of you! Will you never repent and give God glory? Will you pursue your follies even into the unquenchable fires? Now this is a dreadful thing&mdash;that the judgments of God should, through the wickedness of men&mdash;even lead them to still greater sin.
 
-Therefore, in the last place&mdash;and with this I finish&mdash;THE JUDGMENTS OF GOD ARE TO BE VIEWED
+Therefore, in the last place&mdash;and with this I finish&mdash;THE JUDGMENTS OF God ARE TO BE VIEWED
 
 WITH GREAT DISCRETION. He who studies them must do it with solemn care.
 

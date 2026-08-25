@@ -108,23 +108,23 @@ And if my Lord will come anywhere, tonight, it is to you who think yourselves un
 
 The Lord grant you such a visitation that you may be constrained to believe, for Jesus' sake! Amen and Amen.
 
-EXPOSITIONS BY C. H. SPURGEON. PSALMS 6, 8.
+ExpositionS by C. H. Spurgeon. PsalmS 6, 8.
 
 Psalm 6: Here the Psalmist asks for a visit from God, for he is sick at heart, heavy and depressed. Be very thankful if that is not your case, but if it is, be very grateful that here is a prayer ready-made for you. Here you are taught how to cry to God and what to expect from Him. If you are very sick and sad, you are not worse off than David was. Send for David's Physician&mdash;you cannot have a better doctor than the royal Physician! He who waited on King David is prepared to wait on you.
 
-O LORD, rebuke me not in Your anger. "Rebuke me. It will do me good. I need it, Lord, but not in anger! Be gentle and tender with me&mdash;'Rebuke me not in Your anger.'"
+O Lord, rebuke me not in Your anger. "Rebuke me. It will do me good. I need it, Lord, but not in anger! Be gentle and tender with me&mdash;'Rebuke me not in Your anger.'"
 
 Neither chasten me in Your hot displeasure. "Chasten me. It may be that the rod will be very curative to me, but let not the chastening be given in Your hot displeasure. Be not very angry with Your poor sinful servant. If You do not turn away Your rod, yet turn away Your wrath. It is a sweet prayer. Some people cry to God about their sickness. It is much better to cry to God about the cause of it&mdash;that is to say if it is a chastisement for sin, get rid of the sin&mdash;and the rod will then be removed.
 
-Have mercy upon me, O LORD; for I am weak: O LORD, heal me; for my bones are vexed. "Have mercy upon me, O Lord, for I am weak." This was a sweet reason for David to urge&mdash;"For I am weak." He could not say, "For I am worthy." He would not have dared to say that. He could not say that when he said, "Have mercy," for mercy is for the unworthy. Justice is for the good! MERCY is for those who are guilty! "Have mercy upon me, O Lord, for I am weak: O Lord, heal me; for my bones are vexed." Plead the greatness of your disease as a reason for the remedy. Do not come with your self-righteousness&mdash;that will hinder you. Come with your sorrow and your sin, your weakness and your pain, and plead these before God.
+Have mercy upon me, O Lord; for I am weak: O Lord, heal me; for my bones are vexed. "Have mercy upon me, O Lord, for I am weak." This was a sweet reason for David to urge&mdash;"For I am weak." He could not say, "For I am worthy." He would not have dared to say that. He could not say that when he said, "Have mercy," for mercy is for the unworthy. Justice is for the good! MERCY is for those who are guilty! "Have mercy upon me, O Lord, for I am weak: O Lord, heal me; for my bones are vexed." Plead the greatness of your disease as a reason for the remedy. Do not come with your self-righteousness&mdash;that will hinder you. Come with your sorrow and your sin, your weakness and your pain, and plead these before God.
 
 My soul is also sorely vexed. That is worse than the bones being vexed. "The spirit of a man will sustain his infirmity, but a wounded spirit who can bear?"
 
-But You, O LORD, how long? There is the pith of the prayer. David is troubled because God is away from him. He has lost communion with his Lord. He has gotten out of fellowship with his God and here comes the most necessary cry of
+But You, O Lord, how long? There is the pith of the prayer. David is troubled because God is away from him. He has lost communion with his Lord. He has gotten out of fellowship with his God and here comes the most necessary cry of
 
 all&mdash;
 
-Return, O LORD, deliver my soul: oh save me for Your mercies' sake. Will not that prayer suit you who are here, tonight, you who are full of sin and are heart-broken about it, and dread the wrath to come? I put this prayer into your mouths and pray the Holy Spirit to put it into your hearts&mdash;"Oh save me for Your mercies' sake."
+Return, O Lord, deliver my soul: oh save me for Your mercies' sake. Will not that prayer suit you who are here, tonight, you who are full of sin and are heart-broken about it, and dread the wrath to come? I put this prayer into your mouths and pray the Holy Spirit to put it into your hearts&mdash;"Oh save me for Your mercies' sake."
 
 For in death there is no remembrance of You: in the grave who shall give You thanks? As much as to say, "If You let me die, You will lose one singer out of Your earthly choir. But if You will let me live, I will remember You&mdash;I will praise You; I will give You thanks." Do you feel like saying, tonight, "Lord, if You shall destroy me, You will gain nothing by it. But if You will save me, there will be one who will give You thanks forever?" I have told you, sometimes, of that old woman who said, "If the Lord saves me, He shall never hear the last of it." And you and I can also say that if He saves us, He shall never hear the last of it&mdash;we will praise Him throughout eternity for His great salvation!
 
@@ -147,13 +147,13 @@ It waxes old because of all my enemies. His eyesight grew dim, like that of an o
 
 Depart from me, all you workers of iniquity. He needs his God to come to him, so he bids God's enemies clear out. If we keep company with the wicked, we cannot invite God to our house and expect Him to come. "Depart from me," says David, "all you workers of iniquity." "You who are singing what you call a jolly song, be off with you! You who are merry with your jokes against religion, be gone far from me."
 
-For the LORD has heard the voice of my weeping. "And if He has heard my tears, I do not need you to be here. I cannot associate with God's enemies, now that He has heard the voice of my weeping." Is not that a beautiful expression, "The voice of my weeping?" Why, there was no sound, was there? Yet there are songs without words and there are voices without sounds.
+For the Lord has heard the voice of my weeping. "And if He has heard my tears, I do not need you to be here. I cannot associate with God's enemies, now that He has heard the voice of my weeping." Is not that a beautiful expression, "The voice of my weeping?" Why, there was no sound, was there? Yet there are songs without words and there are voices without sounds.
 
-The LORD has heard my supplication; the LORD will receive my prayer. "I thought at first that He would not take my petition; but I see He stretches out His right hand. He receives my prayer&mdash;and if He receives my prayer, I shall soon receive His answer."
+The Lord has heard my supplication; the Lord will receive my prayer. "I thought at first that He would not take my petition; but I see He stretches out His right hand. He receives my prayer&mdash;and if He receives my prayer, I shall soon receive His answer."
 
 Let all my enemies be ashamed and sorely vexed: let them return and be suddenly ashamed. Now let us read the Eighth Psalm in which David expresses great wonder that God, whom he had asked to visit him, should deign to do so. I think I see him sitting with his window open. It is night and he is feeling better&mdash;and he bids them throw open the window and he sits and looks at the stars, glad of the cool, fresh air.
 
-Psalm 8:1. O LORD our Lord, how excellent is Your name in all the earth! Who has set Your Glory above the heavens? They are very high, but Your Glory is higher than the heavens.
+Psalm 8:1. O Lord our Lord, how excellent is Your name in all the earth! Who has set Your Glory above the heavens? They are very high, but Your Glory is higher than the heavens.
 
 2-4. Out of the mouth of babes and sucklings have You ordained strength because of Your enemies, that You might still the enemy and the avenger. When I consider Your heavens, the work of Your fingers, the moon and the stars, which You have ordained; what is man, that You are mindful of Him? And the son of man, that You visit him? He, whose voice rolls the stars along, who makes those bright worlds to fly like sparks from the anvil of His Omnipotence, how can He stoop so low as to regard His fallen creature, man, who is so small, so insignificant?
 
@@ -161,4 +161,4 @@ Psalm 8:1. O LORD our Lord, how excellent is Your name in all the earth! Who has
 
 7, 8. All sheep and oxen, yes, and the beasts of the field; the fowl of the air, and the fish of the sea, and whatever passes through the paths of the seas. What a king, man is! Let him not be cruel to the beasts of the field; let him not be a tyrant; God did not make him for that purpose. Let his reign be generous and kind&mdash;and if the animals must suffer, yet spare them as much suffering as possible. O man, be you a generous viceroy, for you are under a most generous King who is, Himself, the happy God and who delights in the happiness of all His creatures!
 
-O LORD our Lord, how excellent is Your name in all the earth! Thus does the Psalmist finish as he began the Psalm, by praising the name of the Lord.
+O Lord our Lord, how excellent is Your name in all the earth! Thus does the Psalmist finish as he began the Psalm, by praising the name of the Lord.

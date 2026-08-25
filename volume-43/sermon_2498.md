@@ -34,7 +34,7 @@ Is not this the highest honor any man can have, that he should be in Christ's ri
 
 So much, then, concerning the ministers of Christ. Brothers and Sisters, pray for us, and pray for all the preachers of the Word, that they may be stars in the right hand of Christ!
 
-But now, secondly&mdash;and upon this I would dwell with great emphasis. Notice THE SWORD WHICH COMES OUT OF CHRIST's MOUTH&mdash;
+But now, secondly&mdash;and upon this I would dwell with great emphasis. Notice THE SWORD WHICH COMES OUT OF Christ's MOUTH&mdash;
 
 "Out of His mouth went a sharp two-edged sword."
 
@@ -56,7 +56,7 @@ It is also two-edged, for the text calls it, "a sharp two-edged sword." There is
 
 I beg all of you who try to bring sinners to Christ, to stick to that old sword, the two-edged sword that goes out of Christ's mouth! If souls are not saved by the preaching of the Truth of God, they will not be saved by the telling of lies. I have sometimes heard really awful doctrine preached at revival services and an easy-going Brother has said, "Well, you see, it was an evangelistic meeting." Yes, but you should not tell lies at evangelistic meetings! "Oh, but if we were to preach the same Truth of God to these sinners that you would proclaim to a company of Believers, it would not do them any good!" Well, then, nothing else will, depend upon it! If the Truths of God will not have any effect upon them, your toning down of those Truths, or your screwing them up will not improve them, but will spoil them. I believe that the very Gospel that comforts saints is the Gospel that saves sinners&mdash;that there is but one Gospel for all purposes and all people and that, therefore, two gospels will never be required! You have only to strike this way with one edge of the sword, and that way with the other edge of it&mdash;or to swing it to and fro like that ancient warrior did with his great two-handed sword&mdash;and you will strike sinners down right and left, smiting the self-righteous this way, and the licentious the other way! Only keep to that grand old sword which the Apostles used, which was in the martyrs' hands, and by which Christ, Himself, triumphed, is triumphing and will triumph even to the end!
 
-The third part of my subject will have but few words from me and, perhaps, the fewer I shall say, the better it will be. The point to which it refers is THE GLORY OF CHRIST's FACE&mdash;"His countenance was as the sun shines in its strength." I will not attempt to explain these words, but will only call your attention to one or two thoughts concerning them.
+The third part of my subject will have but few words from me and, perhaps, the fewer I shall say, the better it will be. The point to which it refers is THE GLORY OF Christ's FACE&mdash;"His countenance was as the sun shines in its strength." I will not attempt to explain these words, but will only call your attention to one or two thoughts concerning them.
 
 First, what do you see in Christ's right hand? Seven stars, yet how insignificant they appear when you get a sight of His face! They are stars and there are seven of them&mdash;but who can see seven stars, or, for that matter&mdash;seventy thousand stars when the sun shines in its strength? How sweet it is, when the Lord, Himself, is so present in a congregation that the preacher, whoever he may be, is altogether forgotten! I pray, dear Friends, when you go to a place of worship, always try to see the Lord's face rather than the stars in His hand! Look at the sun and you will forget the stars. If you look for the stars, it may be that you will see neither star nor sun, for the Lord may withdraw His light from His servants because you are looking to them rather than to Him. In Christ's hand are the stars, but His countenance is "as the sun shines in its strength."
 
@@ -70,7 +70,7 @@ Yet this figure of the sun has in it something justly terrible. Who could fight 
 
 Dear Friends, are you on the Lord's side? Are you on Jesus Christ's side? If so, be happy that you have such a Savior! Are you an opponent of His? Then tremble and bow before Him! "Kiss the Son, lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him." May He send this choice blessing to you all, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: REVELATION 1
+Exposition by C. H. Spurgeon: Revelation 1
 
 Verses 1, 2. The Revelation of Jesus Christ which Godgave unto Him, to show unto His servants things which must shortly come to pass. And He sent and signified it by His angel unto His servant John who bore record of the Word of
 

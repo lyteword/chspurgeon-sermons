@@ -4,7 +4,7 @@
 
 (The second Sermon in commemoration of the completion of 25 years of his Ministry in the midst of the Church assembling in the Tabernacle).
 
-GODLY men in olden times felt God to be very near them and they attributed everything they saw in Nature to the direct operation of His hand. They were not accustomed to speak of "the laws of matter," "the operation of natural forces" and "the outcome of different causes." They thought more of the First Cause, the foundation and pillar of all existence&mdash;and they saw Him at work on all sides. Hear how the Psalmist sings, "You make the outgoings of the morning and evening to rejoice. You visit the earth and water it. You prepare them corn when you have so provided for it. You water the ridges thereof abundantly; you settle the furrows thereof: you make it soft with showers; you bless the springing thereof. You crown the year with Your goodness."
+GodLY men in olden times felt God to be very near them and they attributed everything they saw in Nature to the direct operation of His hand. They were not accustomed to speak of "the laws of matter," "the operation of natural forces" and "the outcome of different causes." They thought more of the First Cause, the foundation and pillar of all existence&mdash;and they saw Him at work on all sides. Hear how the Psalmist sings, "You make the outgoings of the morning and evening to rejoice. You visit the earth and water it. You prepare them corn when you have so provided for it. You water the ridges thereof abundantly; you settle the furrows thereof: you make it soft with showers; you bless the springing thereof. You crown the year with Your goodness."
 
 God was very near in those days. As Herbert says&mdash;
 

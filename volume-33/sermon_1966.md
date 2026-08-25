@@ -15,7 +15,7 @@ The manner of Moses' death is exceedingly remarkable. I suppose that no subject 
 
 are not poets, but simple Believers, desiring to learn some holy lesson from the death of one who, though the greatest of men, knew no higher honor than to be the servant of the Lord! Oh that the Spirit of Grace and Truth who has come to us by Christ Jesus may help us find instruction in the death of him who brought the Law from the mouth of God to men!
 
-We are told in the text that, "Moses, the servant of the Lord, died there in the land of Moab, according to the Word of the Lord." This I shall read, first, as meaning that Moses died on Pisgah ACCORDING TO THE WARNING OF THE LORD.
+We are told in the text that, "Moses, the servant of the Lord, died there in the land of Moab, according to the Word of the Lord." This I shall read, first, as meaning that Moses died on Pisgah ACCORDING TO THE WARNING OF THE Lord.
 
 His death was long foreseen. Moses knew some time before that he must die without setting foot in Canaan. Read in the first chapter of Deuteronomy his own account of the sin of the people at Meribah and the Lord's sentence, then and there pronounced&mdash;"Surely there shall not one of these men of this evil generation see that good land, which I swore to give unto your fathers, save Caleb, the son of Jephunneh; he shall see it, and to him will I give the land that he has trodden upon, and to his children, because he has wholly followed the Lord." "Also," adds Moses, "the Lord was angry with me for your sakes, saying, You also shall not go in there.'
 
@@ -73,7 +73,7 @@ Trained by the Law, we learn our place,
 
 But gain the inheritance by Grace." Thus there was a mysterious reason why Moses should die in Moab, according to the eternal purpose of God. Not without such Divine decree shall any other of the servants of the Lord depart out of the camp of Israel. We also shall, in life and death, answer some gracious purpose of the Lord. Are we not glad to have it so? Yes, Lord, Your will be done! III. I have conducted you a little out of the dark, now, and the sky is clearing around us. In the third place, Moses
 
-died ACCORDING TO THE LOVING WISDOM OF THE LORD. It was a meet thing, a wise thing and a kind thing
+died ACCORDING TO THE LOVING WISDOM OF THE Lord. It was a meet thing, a wise thing and a kind thing
 
 that Moses should not go over Jordan.
 
@@ -91,7 +91,7 @@ Was it so very desirable to be there? Would Moses really have desired that dread
 
 "But," you say, "perhaps he might have been there to watch with joy the victories of Joshua." Is that always an easy thing to one who has been in the front rank, himself? At least it is not an unmixed privilege&mdash;there is a mixture of trial in the blessing. Moses did not "lag superfluous on the stage." He did not survive his work. Who wishes to do so? He passed away on the crest of the wave before any ebb had set in, or any weakness had been discoverable. He died so as to be missed. Israel wept for him and no man said that he had lived too long. That prayer of his, after all, was a mistake. What would have been the particular joy of merely treading the soil of Canaan? The land looked far more beautiful from Pis-gah than it would have done had he stood by Jericho. Assuredly, at the present day, you and I who have never seen Palestine, have a much more delightful idea of it than those who have endured its noonday heats and midnight frosts! Moses had more joy in gazing upon it from above than in actually warring among its hills.
 
-I must hasten on to say that while the death of Moses thus exhibits the loving wisdom of God, the way in which he died abundantly displays THE GRACE OF GOD.
+I must hasten on to say that while the death of Moses thus exhibits the loving wisdom of God, the way in which he died abundantly displays THE GRACE OF God.
 
 After Moses had been well assured that he must die, you never hear a complaint of it, nor even a prayer against it. Remember that he, himself, wrote the story and it is charming to see how he recorded his own fault, his prayer to be allowed entrance into Canaan and its denial. Had he murmured, he would also have recorded this. He seems to me always to write about Moses as if he were somebody he had known&mdash;he is strictly impartial in his praise or blame of himself. He calls himself, "king in Jeshurun." He says that the man Moses was very meek and yet he records his outbursts of anger. No man was ever less self-conscious, or lived so little for himself as Moses did! Therefore, when once the Lord told him he must die, he acquiesced without a word.
 

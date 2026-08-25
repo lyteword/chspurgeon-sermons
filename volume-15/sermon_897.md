@@ -3,7 +3,7 @@
 > "Then said Jesus, Father, forgive them; for they know not what they do."  
 > Luke 23:34.  
 
-OUR LORD WAS at that moment enduring the first pains of crucifixion; the executioners had just then driven the nails through his hands and feet. He must have been, moreover, greatly depressed, and brought into a condition of extreme weakness by the agony of the night in Gethsemane, and by the scourgings and cruel mockings which he had endured all through the morning, from Caiaphas, Pilate, Herod, and the Praetorian guards. Yet neither the weakness of the past, nor the pain of the present, could prevent him from continuing in prayer. The Lamb of God was silent to men, but he was not silent to God. Dumb as sheep before her shearers, he had not a word to say in his own defense to man, but he continues in his heart crying unto his Father, and no pain and no weakness can silence his holy supplications. Beloved, what an example our Lord herein presents to us! Let us continue in prayer so long as our heart beats; let no excess of suffering drive us away from the throne of grace, but rather let it drive us closer to it.
+OUR Lord WAS at that moment enduring the first pains of crucifixion; the executioners had just then driven the nails through his hands and feet. He must have been, moreover, greatly depressed, and brought into a condition of extreme weakness by the agony of the night in Gethsemane, and by the scourgings and cruel mockings which he had endured all through the morning, from Caiaphas, Pilate, Herod, and the Praetorian guards. Yet neither the weakness of the past, nor the pain of the present, could prevent him from continuing in prayer. The Lamb of God was silent to men, but he was not silent to God. Dumb as sheep before her shearers, he had not a word to say in his own defense to man, but he continues in his heart crying unto his Father, and no pain and no weakness can silence his holy supplications. Beloved, what an example our Lord herein presents to us! Let us continue in prayer so long as our heart beats; let no excess of suffering drive us away from the throne of grace, but rather let it drive us closer to it.
 
 > Long as they live should Christians pray,   
 > For only while they pray they live.   
@@ -18,7 +18,7 @@ There is, however, a crowning jewel in this diadem of glorious love. The Son of 
 
 Thus I have introduced to you our Lord's first vocal prayer upon the cross. I shall now, if we are helped by God's Holy Spirit, make some use of it. First, we shall view it as illustrative of our Saviour's intercession; secondly, we shall regard the text as instructive to the church's work; thirdly, we shall consider it as suggestive to the unconverted.
 
-First, my dear brethren, let us look at this very wonderful text as ILLUSTRATIVE OF OUR LORD's INTERCESSION.
+First, my dear brethren, let us look at this very wonderful text as ILLUSTRATIVE OF OUR Lord's INTERCESSION.
 
 He prayed for his enemies then, he is praying for his enemies now; the past on the cross was an earnest of the present on the throne. He is in a higher place, and in a nobler condition, but his occupation is the same; he continues still before the eternal throne to present pleas on the behalf of guilty men, crying, "Father, O forgive them." All his intercession is in a measure like the intercession on Calvary, and Calvary's cries may help us to guess the character of the whole of his intercession above.
 

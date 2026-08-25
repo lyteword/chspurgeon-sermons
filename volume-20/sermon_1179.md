@@ -120,4 +120,4 @@ Lastly, we ought, for the future, to show more confidence in God if we have had 
 
 Would God you were all His people! Would God you all trusted Him for all things, for those who do so shall find good. The Lord bless you, for Christ's sake. Amen.
 
-PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Deuteronomy 8. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;PSALM 23 (VERSION III), 152, 214.
+PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Deuteronomy 8. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;Psalm 23 (VERSION III), 152, 214.

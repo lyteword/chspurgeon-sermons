@@ -48,9 +48,7 @@ Still, with all this joy of harvest, there is one mortifying reflection. I would
 
 And there is another grievous thought. While so many are gathered in, there are many who are left out Some of you have been with us in our best days and I am afraid I shall have to ring that text again in your ears, as I have done before&mdash;"The harvest is past, the summer is ended, but you are not saved, you are not saved." Your sister is saved, but you are not saved! Your wife is saved, but you are not! Two of you sleep in one bed&mdash;one has been taken and the other left. Two of you grind at one mill in your daily work&mdash;one has been taken and the other left. You are not saved, you are not saved! And when the time comes for you to die, these will be sad words to ring in your ears with a more doleful sound than death-knell ever knew, "Not saved! Not saved!" Amidst the joy of harvest, let us not forget to pray for those who are still wandering in the paths of sin or pandering to the vanities of the world.
 
-Another harvest is coming when Christ shall gather together His people. There will be, first of all, the ingathering of the righteous. Do not make a mistake about the Day of Judgment, as though the righteous and the wicked were to be judged together, for remember that first of all there will come the day when the righteous shall be gathered. If you read the fourteenth Chapter of the Book of Revelation, you will find that the harvest precedes the vintage. [See Sermon #2910, Volume 50&mdash;the
-
-HARVEST AND THE VINTAGE.] The righteous are gathered as the
+Another harvest is coming when Christ shall gather together His people. There will be, first of all, the ingathering of the righteous. Do not make a mistake about the Day of Judgment, as though the righteous and the wicked were to be judged together, for remember that first of all there will come the day when the righteous shall be gathered. If you read the fourteenth Chapter of the Book of Revelation, you will find that the harvest precedes the vintage.  The righteous are gathered as the
 
 harvest of the earth and afterwards the vintage of the world is gathered&mdash;that is, the wicked. The harvest is gathered into the garner of God&mdash;and the vintage "into the great winepress of the Wrath of God"&mdash;and there the grapes are trodden under foot till the blood flows out, even up to the horses' bridles! Well, there is to come a harvest of the righteous and what joy there will be when you see the countless number that swells the ranks of the blessed! O you angels, you had need to be twice ten thousand times ten thousand when, at the ingathering of sheaves that no man can number, you welcome the multitudes of the redeemed! What shouts there will be when millions upon millions mount to the upper skies! It was a time of great joy when all Israel passed through the Red Sea, but how much greater joy will there be when ten thousand times ten thousand, even myriads of myriads, shall enter into their eternal rest!
 
@@ -62,7 +60,7 @@ To where will they be gathered? Gathered to their Savior, to the general assembl
 
 And they sing again and yet again, "Hallelujah, hallelujah, hallelujah, for the Lord God Omnipotent reigns." May you and I be partakers of the joy of harvest and not be yonder with those among whom there is weeping, wailing, and gnashing of teeth because they would not trust the Lamb, because they would not come to Him that they might have life&mdash;but chose their own delusion and followed out their own corruptions till they met with the due dessert of their evil deeds! God bless you, dear Friends, every one of you, and make you partakers of the present joy and the everlasting felicity of the saints, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW9:35-38; 10:1; 13:3-8; 18-23.
+Exposition by C. H. Spurgeon: Matthew9:35-38; 10:1; 13:3-8; 18-23.
 
 Matthew 9:35. And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the Gospel of the Kingdom, and healing every sickness and every disease among the people. This was His answer to the blasphemous slanders of the Pharisees. A glorious reply it was! Let us answer calumny by greater zeal in doing good! Small places were not despised by our Lord&mdash;He went about the villages as well as the cities. Village piety is of the utmost importance and has a close relation to city life. Jesus turned old institutions to good account&mdash;the "synagogues" became His seminaries. Three-fold was His ministry&mdash;expounding the old, proclaiming the new, healing the diseased.
 
@@ -100,4 +98,4 @@ But he that received seed into the good ground is he that hears the Word and und
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

@@ -86,7 +86,7 @@ Then there is the devil. We put him last, for he is the most terrible foe. When 
 
 It is difficult for us to persevere for awhile, but it is difficult in the extreme to do so to the end. To get to Heaven is no child's work. He that gets there will have to fight for every inch of the road. And when he gets there, oh, how he will clap his hands as he looks back upon the danger! How he will shout with them that triumph when he once finds himself emancipated from 10,000 dangers, and "with God eternally shut in."
 
-Thirdly, and, I trust, most comforting to our souls, the PERSEVERANCE OF THE CHRISTIAN IS GUARANTEED. Would you
+Thirdly, and, I trust, most comforting to our souls, the PERSEVERANCE OF THE ChristIAN IS GUARANTEED. Would you
 
 prefer to hear one or two of the passages of Scripture read which guarantee the perseverance of Believers? I have little time this morning, but here is one, the thirty-second chapter of Jeremiah, fortieth verse: "And I will make an everlasting covenant with them, that I will not turn away from them, to do them good; but I will put My fear into their hearts, that they shall not depart from Me."
 

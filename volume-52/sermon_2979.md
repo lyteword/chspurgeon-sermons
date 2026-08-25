@@ -4,7 +4,7 @@
 
 MOST writers upon this Psalm, after having referred the banner to the Kingdom of David, say that there is here a reference to the Messiah. We believe there is. Nor is that reference an obscure allusion. In the Lord Jesus we find the clue to the history and the solution of the prophecy. He is the banner&mdash;He is the ensign that is lifted up before the people. He is Jehovah-Nissi, "the Lord My Banner," whom it is our joy to follow and around whom it is our delight to rally. We shall not stay to prove&mdash;though we might readily do so&mdash;that the banner here intended is no other than the Lord Jesus Christ in the majesty of His Person&mdash;in the efficacy of His merit&mdash;in the completeness of His righteousness&mdash;in the success of His triumph&mdash;in the glory of His advent. If you read it with an eye to Him, you have the meaning at once&mdash; "You has given Christ as a banner to those who fear You, to be displayed because of the truth." So let us consider our Lord Jesus Christ, first, as He is compared to a banner. Secondly, by whom Hie is given. Thirdly, to whom Hie is given. And fourthly, for what purpose.
 
-Let us consider OUR LORD JESUS CHRIST AS HE IS COMPARED TO a BANNER.
+Let us consider OUR Lord Jesus Christ AS HE IS COMPARED TO a BANNER.
 
 The banner was far more useful, I suppose, in ancient, than it is in modern warfare. Times have changed and we are changed by them. Yet we still speak with reverence of the old flag. There is much meaning in the phrase, "the flag that's braved a thousand years the battle and the breeze." The soldier still waves the flag of his country and the sailor still looks with patriotic pride to the flag that has so long floated at England's masthead. Our metaphor, perhaps, rather points to ancient than present use.
 
@@ -38,7 +38,7 @@ And, lastly, the banner is the emblem of victory. When the fighting is over and 
 
 And then Jesus, high above us all, shall be exalted! And through the streets of the holy city, the acclamations shall ring, "Hosanna, Hosanna, blessed is He that comes in the name of the Lord!"
 
-Let us turn to our second point for a few moments. It is this&mdash;Who gave us this Banner? BY WHOM WAS CHRIST GIVEN TO US?
+Let us turn to our second point for a few moments. It is this&mdash;Who gave us this Banner? by WHOM WAS Christ GIVEN TO US?
 
 Soldiers often esteem the colors for the sake of the person who first bestowed them. You and I ought greatly to esteem our precious Christ for the sake of God who gave Him to us&mdash;"You have given a Banner to those who fear You." God gave us this Banner in old eternity. Christ was given by the eternal Father, from everlasting, before the earth was, to His elect people, to be the Messiah of God, the Savior of the world! He was given in the manger, when "the Word was made flesh, and dwelt among us." He was given upon the Cross when the Father bestowed every drop of His Son's blood, and every nerve of His body, and every power of His soul to bleed and die, "the Just for the unjust, that He might bring us to God." " You have given a banner."
 

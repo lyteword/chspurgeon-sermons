@@ -14,7 +14,7 @@ I believe that we are going to have a great many converts. We are praying over t
 
 Now, first, there are some would-be followers of Christ who do not consider, as in the first case. Secondly, there are some would-be followers of Christ who do not put Christ first, as in the second case. And, thirdly, there are some would-be followers of Christ who still hanker after the world&mdash;and want to have Christ and the world, too. Neither of these three sets of followers will ever prove a comfort to us or a glory to God.
 
-First, THERE ARE SOME WOULD-BE FOLLOWERS OF CHRIST WHO DO NOT CONSIDER. The first man, and he was a scribe, too, said, "Lord, I will follow You wherever You go." What that might mean&mdash;what that might involve&mdash;he did not ask and, therefore, did not know. He was sincere as far as he knew&mdash;but then he did not know much. Had he known more, he would have said less.
+First, THERE ARE SOME WOULD-BE FOLLOWERS OF Christ WHO DO NOT CONSIDER. The first man, and he was a scribe, too, said, "Lord, I will follow You wherever You go." What that might mean&mdash;what that might involve&mdash;he did not ask and, therefore, did not know. He was sincere as far as he knew&mdash;but then he did not know much. Had he known more, he would have said less.
 
 Like our Lord, we meet with many persons who are great at resolving! "I will. That I will. Solemnly, I declare that I will." They are willing to make that declaration as publicly as you like&mdash;and stand up, or fall down&mdash;or do anything else to declare that they have resolved. I frequently hear persons exhorted to give their hearts to Christ, which is a very proper exhortation. But that is not the Gospel! Salvation comes from something that Christ gives you, not something that you give to Christ! The giving of your heart to Christ follows after the receiving from Christ of eternal life by faith. It is easy to work our friends up so that they say, "We will give our hearts to Christ," but they may never do it, after all. If, with broken heart and contrite sigh, they had confessed their guilt and had penitently cried, "God be merciful to me a sinner," they might not have looked quite so well, but there would have been more hope for them. We cannot come to Christ unless Christ comes to us and gives us a broken heart and a contrite spirit! If there is no repentance, depend upon it that that faith which we think we have is not the faith that will save us! Give me Faith with tears in her eyes&mdash;I know her to be the true child of God. The faith that makes me feel my ruin, confess my sin and lay hold of eternal life because otherwise my merits will bring me to eternal death&mdash;this is the faith which saves! But some people are very great at resolving rather than repenting and believing.
 
@@ -36,7 +36,7 @@ Now, as the Church hastily counts up her numbers and says, "So many were convert
 
 Do not dare to be added to the Church of God, unless heart, soul, and spirit&mdash;your whole nature goes with your profession&mdash;and you become truly and really a follower of Christ. The enthusiastic often comfort a preacher, but they as often delude him. Let him be on his guard and try well, with searching Truths of God and with the untiring preaching of the whole Gospel to those who come to him, lest the great heap on the threshing floor should suddenly prove to be nothing but chaff, when God's great fan comes to blow upon it! We must keep the fan of the Gospel going, that the chaff may be divided from the wheat, for God would have us separate between the precious and the vile&mdash;and then shall we be as His mouth.
 
-Now, secondly, THERE ARE SOME WOULD-BE FOLLOWERS OF CHRIST WHO DO NOT PUT CHRIST
+Now, secondly, THERE ARE SOME WOULD-BE FOLLOWERS OF Christ WHO DO NOT PUT Christ
 
 FIRST.
 
@@ -60,7 +60,7 @@ If you judge the man's life as it really is, you will find there is something th
 
 May God save us from that state of heart and life! If Christ is not first, He ought to be, and if we do not make Him first, above all other things put together, we do not know Him at all. You are no Christian if you are not altogether a Christian. If every part of you is not consecrated to Christ, I fear that no part of you is consecrated to Him! At all events, this faulty discipleship will never produce much fruit, or bring much glory to God. With this second class of would-be disciples, our Master was troubled, and so are we.
 
-Now, thirdly, THERE ARE SOME WOULD-BE FOLLOWERS OF CHRIST WHO STILL HANKER AFTER
+Now, thirdly, THERE ARE SOME WOULD-BE FOLLOWERS OF Christ WHO STILL HANKER AFTER
 
 THE WORLD. "And another also said, Lord, I will follow You." He is another volunteer&mdash;"but let me first." Something must be done first by him, too. There would have been no hurt in what he said if he had not put in that word "first." "Let me first go bid them farewell, which are at home at my house." Well, now, the objection to this was that he did not intend to come right straight out from the world. He did not mean to come out then and there for Christ&mdash;but he must first go home and bid them farewell.
 
@@ -80,7 +80,7 @@ If there is anything in this discourse that belongs to any of you, will you kind
 
 May God bless these words of mine to the warning of many, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON LUKE937-62.
+Exposition by C. H. Spurgeon Luke937-62.
 
 Our Lord had been on the mountain and had been transfigured. When He came down, the first person that He met was the devil, with whom He had to come in contact. Whenever you or I get up on the mountaintop and have a very happy and delightful experience, we may expect to be in a battle before long. Our joy is, however, a preparation for the conflict&mdash;it nerves our spirit and makes us strong to meet the great enemy of our souls.
 

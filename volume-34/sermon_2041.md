@@ -33,7 +33,7 @@ Consider whether the Father has revealed the Son unto you. If you belong to this
 
 You have now fully before you the subject of our morning's meditation. May the Spirit of God guide us into it!
 
-Our first observation is this&mdash;THE KNOWLEDGE OF THE DISCIPLES OF JESUS DIFFERS FROM THAT OF THE WORLD.
+Our first observation is this&mdash;THE KNOWLEDGE OF THE DISCIPLES OF Jesus DIFFERS FROM THAT OF THE WORLD.
 
 It is more serious, more thoughtful, more personal. Men of the world said, "We do not know who Jesus may be. He is a very remarkable Person&mdash;He disturbs the quiet of the age and He is certainly out of His element among us. We do not know who He may be and we do not particularly care." Herod came to the hasty conclusion that John the Baptist was risen from the dead. Others said, "It is very likely Elijah, who was to appear before the coming of the Messiah." A third party, hearing of His sorrows, thought that he might be Jeremiah come back to life.
 
@@ -72,7 +72,7 @@ Come, angels and archangels and help us with your burning words! No, even you mu
 
 This is no inert opinion but a living, active principle. I leave these things with you that you may search yourselves and see whether you belong to the mass outside, guessing and blundering. Or whether you are of the inner circle, who are taught of the Father and therefore know the Son.
 
-Secondly and this is a very important point&mdash;THE KNOWLEDGE OF CHRIST POSSESSED BY TRUE DISCIPLES IS RECEIVED IN a SPECIAL WAY. "Flesh and blood has not revealed it unto you."
+Secondly and this is a very important point&mdash;THE KNOWLEDGE OF Christ POSSESSED by TRUE DISCIPLES IS RECEIVED IN a SPECIAL WAY. "Flesh and blood has not revealed it unto you."
 
 Beloved, if we know the Savior aright, we have not learned it by the instruction of other men. Peter had heard others speak but he did not know Jesus as the Christ till the Father revealed Him. Paul tells us concerning the Gospel that he neither received it of man, neither was he taught it, but he received it by the Revelation of Jesus Christ. I grant you that God uses men to instruct us. But all the Prophets and Apostles could not teach us Christ if the Father did not reveal His Son in us personally. Holy men are the pens but God Himself must write with them, or they will write nothing on our hearts. God must reveal Jesus to us, or we shall never see Him, however faithful the minister may be.
 
@@ -94,7 +94,7 @@ This Revelation of Christ must be given to each one of you, or else you will mis
 
 it best. May you enjoy a personal Revelation in your souls by which the Divine Revelation in this Book shall be made your own forever.
 
-Thirdly, THIS KNOWLEDGE HAS ITS OWN PECULIAR MARKS! It comes not by flesh and blood but by the teaching of the Father and it has characteristics all its own.
+Thirdly, THIS KNOWLEDGE HAS ITS OWN PECULIAR MarkS! It comes not by flesh and blood but by the teaching of the Father and it has characteristics all its own.
 
 First, it has this mark&mdash;it comes with an infallible certainty to the heart. If you read of Jesus in books, or hear of Him from ministers, it is well. But if the Father reveals Him to you, it is infinitely better. For then no shadow of suspicion rests upon the testimony. The witness of God cannot be questioned. Men must not wonder that we grow indignant when the glorious Truths concerning our Lord are questioned. For to our hearts they are not in the region of things to be disputed. There is constructive blasphemy in discussing those facts concerning the Son of God which the Father has revealed to us.
 

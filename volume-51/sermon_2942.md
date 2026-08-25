@@ -14,7 +14,7 @@ Just in passing, notice that it is bread that they eat and it is wine that they 
 
 This will suffice upon the words of the text. And, now, the doctrine that I want to draw from it is that at all times when we come to the Communion Table, we show or proclaim the death of Christ. That is the great end and objective of the Lord's Supper&mdash;to set forth&mdash;to yell out anew&mdash;to proclaim afresh the death of our Lord Jesus Christ!
 
-First, let us consider HOW THIS ORDINANCE DOES PROCLAIM THE DEATH OF CHRIST.
+First, let us consider HOW THIS ORDINANCE DOES PROCLAIM THE DEATH OF Christ.
 
 It is all very simple. There is nothing but bread broken and eaten, and wine poured out and afterwards drunk. How can this proclaim the death of Christ? Well, it does. It has done so ever since it was instituted and there are multitudes of Believers who delight to see that death set forth by it!
 
@@ -32,7 +32,7 @@ We also say to dear friends who may look on at this feast that the death of Jesu
 
 And once more, Beloved, when we come to the Lord's Table to proclaim Christ's death, we show it as the bond of Christian union. The point of union among Christians is the death of the Lord Jesus Christ. I am afraid that it will be many long years before we shall get all Believers to agree concerning Baptism. I hope right views of that ordinance are spreading, but it does not seem to me to be a point where all Christians are likely yet to unite. But, concerning our Lord's death, all who really are His people are agreed! If we are in Him, we rejoice in that grand foundational Truth, "that Christ died for our sins according to the Scriptures," and we delight to think that by His death He has redeemed us from death. So, dear Brothers and Sisters, if you cannot meet your fellow Christians on certain doctrines because some of you are strong men in Christ and others are but babes&mdash;and the babes cannot crack the nuts or eat the strong meat upon which swine feed&mdash;you can all unite in Christ! He is like the manna which suited all the Israelites in the wilderness&mdash; young or old, they could all feed on the manna and so can all the saints feed on Christ! And when we sit at the Communion Table, we say to all the world, "We are all one in Christ Jesus. We do not come to this Table as Baptists, or Episcopalians, or Methodists, or Presbyterians&mdash;we come here simply as those who form one body in Christ&mdash;they who agree to show forth to all mankind the death of our adorable Lord."
 
-Secondly, let us consider WHY THE LORD HAS TAKEN MEANS TO SHOW THIS TRUTH.
+Secondly, let us consider WHY THE Lord HAS TAKEN MEANS TO SHOW THIS TRuth.
 
 There are a great many important Truths in the Bible and every Truth of God ought to be kept in remembrance, but it is not concerning every Truth that the Lord has appointed an ordinance to keep it in memory. The Doctrine of Election is one that we firmly believe, but we have no special token, type, or symbol to set it forth.
 
@@ -85,9 +85,9 @@ But I must also speak to those who do observe the ordinance in a fashion, but wh
 
 Come then, Beloved, unworthy as you are, come to His Table! Come trembling because of your sin, but rejoicing in His Sacrifice and grateful for His great love! Come and trust Him over again! Come and give yourselves up to Him once more. Come and renew your vows of affection and devotion. Come and put your finger into the print of the nails and thrust your hand into His pierced side. No, more than that, say what the spouse does as she begins the song of songs, "Let Him kiss me with the kisses of His mouth: for Your love is better than wine." Seek to get near to Him, to come into close contact with Him and when you do so, hold Him fast and do not let Him go, but call together your friends and Christian Brothers and Sisters and say to them, "Here is the Master! Come with me and let us together have sweet fellowship with Him." If, tonight, at the Communion Table, I might thus lay hold of the great Angel of the Covenant, I think I should feel inclined to hold Him till the break of day, as Jacob did at Jabbok. And if He should make my sinews shrink, yet would I bless His name for condescending to tarry and wrestle with me! If you can get into contact with Him, make this your resolve, that you will hold fast and will say to Him, "I will not let You go, except You bless me."
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-PSALM 22:1-9; MATTHEW27:33-44.
+Psalm 22:1-9; Matthew27:33-44.
 
 Psalm 22:1. My God, My God, why have You forsaken Me? What a dolorous cry! How terrible it must have been to have heard that cry! How much more terrible to have uttered it! For the dear Son of God, the Well-Beloved, with whom the Father is always pleased, to be forsaken of His God was, indeed, unfathomable grief!
 
@@ -101,7 +101,7 @@ But You are holy, O You that inhabits the praises of Israel Settle it in your he
 
 But I am a worm, and no man; a reproach of men, and despised of the people. There is a little red worm which seems to be nothing else but blood when it is crushed. It seems all gone except a blood-stain and the Savior, in the deep humiliation of His spirit, compares Himself to that little red worm. How true it is that, "He made Himself of no reputation" for our sakes! He emptied Himself of all His Glory and if there is any glory natural to manhood, He emptied Himself even of that! Not only the glories of His Godhead, but the honors of His Manhood He laid aside that it might be seen that, "though He was rich, yet for our sakes He became poor."
 
-7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head saying, He trusted on the LORD that He would deliver Him: let Him deliver Him, seeing He delighted in Him. Or, as the passage is quoted in Matthew, "Let Him deliver Him now, if He will have Him."
+7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head saying, He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him. Or, as the passage is quoted in Matthew, "Let Him deliver Him now, if He will have Him."
 
 But You are He that took Me out of the womb: You did make Me hope when I was upon My mother's breasts. This is a very amazing thing. I do not think we remember as we ought that for years after our birth, we could do nothing to help ourselves, yet we were taken care of even then. He who has passed safely through his infancy need not be afraid that God will not help him through the rest of his life. And if we should live so long that we come to a second infancy, the God who carried us through the first will carry us through the second! He has already done so much for us that we are bound to trust Him for all the future. Now let us see, as I reminded You just now, how this passage is referred to in the Gospel according to Matthew.
 
@@ -109,7 +109,7 @@ Matthew 27:33, 34. And when they were come unto a place called Golgotha, that is
 
 And they crucified Him, and parted His garments, casting lots that it might be fulfilled which was spoken by the Prophet, They parted My garments among them, and upon My vesture did they cast lots. This is a point upon which we cannot say much, but, to the peculiarly sensitive soul of Jesus, it must have been a great part of His shame thus to be stripped of every garment and hung up before the sun.
 
-36, 37. Andsitting down theey watcheedHim here; andset up over His heeadHis accusation written: THIS IS JESUS THE KING OF THE JEWS. By their own confession, He died for being a King and He died for being too greatly good, too royal in His love. He, being King of kings, died that you and I might live forever and be kings and priests unto God.
+36, 37. Andsitting down theey watcheedHim here; andset up over His heeadHis accusation written: THIS IS Jesus THE KING OF THE JEWS. By their own confession, He died for being a King and He died for being too greatly good, too royal in His love. He, being King of kings, died that you and I might live forever and be kings and priests unto God.
 
 38, 39. Then were there two thieves crucified with Him, one on the right hand, and another on the left And they that passed by reviled Him, wagging their heads. Not only they that sat there, such as the scribes, and Pharisee, and soldiers, and they that hung there, the thieves that were crucified with Him, but the passers-by reviled Him, indulging in a sneer.
 

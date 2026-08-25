@@ -1,6 +1,6 @@
 # Sermon 2342 | A New Year's Retrospect And Prospect
 
-"LORD, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear." Psalm 10:17.
+"Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear." Psalm 10:17.
 
 IT has been sometimes said that a good Sabbath makes a good week. Sir Matthew Hale long ago said&mdash;
 
@@ -96,13 +96,13 @@ When it is said, "You will cause Your ear to hear," does it not mean that the Lo
 
 And as for such as were not saved when they came into the Tabernacle this evening, I trust that God will, this very night, make them desire to believe on the Lord Jesus Christ&mdash;and He will hear their desire and lead them to look to the Lamb of God who takes away the sin of the world! As we who love the Lord come to the Communion Table, we can use our text, for I am sure the desire of the humble is that they may see Christ in the Supper. "Lord, You have heard the desire of the humble: You will prepare their heart." Oh, it is sad to go to the Lord's Table with an unprepared heart! Lord, prepare our heart to come to Your banqueting table, tonight and then, "You will cause Your ear to hear." You will grant us Grace to feed upon Christ and to be satisfied! May it be so to every communicant! The Lord bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: PSALM103.
+ExpositionS by C. H. Spurgeon: Psalm103.
 
 One's heart naturally turns to this passage when one desires to magnify the Lord. It is specially suitable for a New Year's meditation.
 
 Verse 1. Bless the Lord, O my Soul: and all that is within me, bless His holy name. Come, my Soul, wake up! Bestir yourself! You have great work to do, such work as angels do forever and ever before the Throne of God. Let no power or faculty exempt itself from this Divine service! Come, my memory, my will, my judgment, my intellect, my heart&mdash;all that is in me, be stirred up to magnify and bless His holy name! "Bless the Lord, O my Soul"&mdash;for the music must begin deep down in the center of my being&mdash;it must be myself, my very self, that praises God!
 
-Bless the LORD, O my Soul, and forget not all His benefits. This shall be the first note&mdash;"We love Him because He first loved us." We have not to go abroad for materials for praise, they lie at home. Forget not all His benefits to you, my Soul&mdash;His overwhelming, His innumerable benefits which have to be summed up in the gross as "all His benefits"&mdash;forget them not!
+Bless the Lord, O my Soul, and forget not all His benefits. This shall be the first note&mdash;"We love Him because He first loved us." We have not to go abroad for materials for praise, they lie at home. Forget not all His benefits to you, my Soul&mdash;His overwhelming, His innumerable benefits which have to be summed up in the gross as "all His benefits"&mdash;forget them not!
 
 Who forgives all your iniquities. Come, come, my Soul, can you not praise God for sin forgiven? That is the first note, and it is the sweetest note in our song of praise. "Who forgives all your iniquities"&mdash;not some of them but the blessed Scapegoat has carried into the, "No man's land of oblivion," the whole mass!
 
@@ -116,11 +116,11 @@ Lord."
 
 Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. Heavenly feasting on heavenly bread! Divine satisfaction from the finished work of Christ! Oh, my Soul, pray to God to give you new life, tonight, so that your youth may be renewed, so that your wing feathers may grow, again, and that you may mount as eagles do! Surely, dear Friends, this little list of mercies, so small in number, contains an immensity of mercy! Let us bless the Lord for every one of them.
 
-The LORD executes righteousness and judgment for all that are oppressed. Let the poor and the down-trodden sing unto the Lord. He will take care of you! He is the Executor of the needy and the Executioner of the proud. "The Lord executes righteousness and judgment for all that are oppressed."
+The Lord executes righteousness and judgment for all that are oppressed. Let the poor and the down-trodden sing unto the Lord. He will take care of you! He is the Executor of the needy and the Executioner of the proud. "The Lord executes righteousness and judgment for all that are oppressed."
 
 He made known His ways unto Moses, His acts unto the children of Israel. Therefore, let us bless Him, the God of Revelation, who does not hide Himself from His creatures, but who makes known His ways and His acts unto His people! An unknown God is an unpraised God, but when He shows Himself to His people, they cannot refrain from blessing His name.
 
-The LORD is merciful and gracious, slow to anger, and plenteous in mercy. Praise Him for this! Bless His name at every single mention of His Divine attributes. Let your hearts beat to the music of praise tonight!
+The Lord is merciful and gracious, slow to anger, and plenteous in mercy. Praise Him for this! Bless His name at every single mention of His Divine attributes. Let your hearts beat to the music of praise tonight!
 
 He will not always chide: neither will He keep His anger forever. Let the afflicted praise Him! Let the downcast and the despondent sinner praise Him! If he cannot sing about anything else, let him bless the name of the Lord that He will not keep His anger forever.
 
@@ -142,10 +142,10 @@ For the wind passes over it, and it is gone; and the place thereof shall know it
 
 Covenant mercy. Oh, if we do not praise God when we think of the Covenant, what has happened to us? We must be possessed with a dumb devil if we do not praise the name of Him whose mercy is from everlasting to everlasting!
 
-The LORD has prepared His Throne in the heavens; and His Kingdom rules over all. Now, children of a King, will you go mourning all your days? You that dwell in the Light of His Throne, will you not be glad? Rejoice, O Zion, for your King lives and reigns forever! "The Lord reigns, let the earth rejoice."
+The Lord has prepared His Throne in the heavens; and His Kingdom rules over all. Now, children of a King, will you go mourning all your days? You that dwell in the Light of His Throne, will you not be glad? Rejoice, O Zion, for your King lives and reigns forever! "The Lord reigns, let the earth rejoice."
 
-Bless the LORD, you His angels, that excel in strength, that do His commandments, hearkening unto the voice of His word. "Bless the Lord, you His angels." We cannot do it well enough, but help us, then, you angels that excel in strength. Put out all your strength when you praise Him, "you that do His commandments, hearkening unto the voice of His word." Your actions are your praises, O you angels! Would God that we had learned to do His commandments as you do them! We are praying for this, even as our Lord taught His disciples to say, "Your will be done in earth, as it is in Heaven."
+Bless the Lord, you His angels, that excel in strength, that do His commandments, hearkening unto the voice of His word. "Bless the Lord, you His angels." We cannot do it well enough, but help us, then, you angels that excel in strength. Put out all your strength when you praise Him, "you that do His commandments, hearkening unto the voice of His word." Your actions are your praises, O you angels! Would God that we had learned to do His commandments as you do them! We are praying for this, even as our Lord taught His disciples to say, "Your will be done in earth, as it is in Heaven."
 
-Bless you the LORD, all you His host; you ministers of His, that do His pleasure. All living things, and all the forces and powers of Nature are calling upon men to praise the Lord! And all the hosts of God, the organs of Omnipotence, ring out the grand chorus, "Bless you the Lord."
+Bless you the Lord, all you His host; you ministers of His, that do His pleasure. All living things, and all the forces and powers of Nature are calling upon men to praise the Lord! And all the hosts of God, the organs of Omnipotence, ring out the grand chorus, "Bless you the Lord."
 
-Bless the LORD, all His work, in all places of His dominion: bless the LORD, O my Soul. I must not go grumbling up to Heaven, nor stumbling among the works of God. I must gratefully come to Him and, myself, praise Him! And so, with the Psalmist, I cry, "Bless the Lord, O my Soul."
+Bless the Lord, all His work, in all places of His dominion: bless the Lord, O my Soul. I must not go grumbling up to Heaven, nor stumbling among the works of God. I must gratefully come to Him and, myself, praise Him! And so, with the Psalmist, I cry, "Bless the Lord, O my Soul."

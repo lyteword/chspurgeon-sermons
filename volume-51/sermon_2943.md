@@ -28,7 +28,7 @@ thousand such, should be constantly going up from our hearts to the Throne of Go
 
 state of prayer&mdash;you must not leave this undone. Oh, that we prayed more, that we set apart more time for it! Good Bishop Farrar had an idea in his head which he carried out. Being a man of some substance and having some 24 persons in his household, he divided the day and there was always some person engaged either in holy song or else in devout supplication through the whole of the 24 hours! There was never a moment when the censor ceased to smoke, or the altar was without its sacrifice. Happy shall it be for us when, day and night, we shall circle the Throne of God rejoicing, but till then, let us emulate the ceaseless praise of seraphs before the Throne of God, continually drawing near unto God and making supplication and thanksgiving.
 
-But to proceed to a second remark, dear Friends, I think it will be very clear, upon a little reflection, that we constantly restrain or neglect prayer BY NOT HAVING OUR HEARTS IN a PROPER STATE WHEN WE COME TO ITS EXERCISE.
+But to proceed to a second remark, dear Friends, I think it will be very clear, upon a little reflection, that we constantly restrain or neglect prayer by NOT HAVING OUR HEARTS IN a PROPER STATE WHEN WE COME TO ITS EXERCISE.
 
 We rush into prayer too often. We would think it necessary, if we were to address the Queen, that our petition should be prepared. But often we dash before the Throne of God as though it were but some common house of call, without even having a thought in our minds of what we are going for. Now, just let me suggest some few things which I think should always be subjects of meditation before our season of prayer and I think if you confess that you have not thought of these things, you will also be obliged to acknowledge that you have restrained prayer.
 
@@ -89,7 +89,7 @@ God of Heaven, grant this! Oh, let us restrain prayer no longer! You that have n
 > To Him there's music in a groan,   
 > And beauty in a tear.   
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 2.
+Exposition by C. H. Spurgeon: 1 John 2.
 
 1 John 2:1-4. My little children, these things I write unto you, that you sin not. And if any man sins, we have an Advocate with the Father, Jesus Christ the righteous. And He is the propitiation for our sins: and not for ours only, but also for the sins of the whole world. And hereby do know that we know Him, if we keep His commandments. He that says, I know Him, and keeps not His commandments, is a liar, and the truth is not in him. Holy living is the sure fruit and proof of anyone being in Christ. Where it is not manifest, the profession of being in Christ is a lie.
 

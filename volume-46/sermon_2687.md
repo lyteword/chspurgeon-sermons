@@ -76,7 +76,7 @@ O Sirs, I pray you, if pride is keeping you out of Heaven, give it up and cast y
 
 "There is life for a look at the Crucified One, There is life at this moment for you"&mdash; if you will but look there for it! But if you will look only to yourself for it, you will perish in your iniquity and your blood will be upon your own head. God bless this word to all whom it concerns, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 18:1-14.
+Exposition by C. H. Spurgeon: Luke 18:1-14.
 
 Verse 1. And He spoke a parable unto them to this end, that men ought always to pray and not to faint. ' 'Not to faint" in their expectation of answers to their supplications and, therefore, give up prayer, but to persevere in presenting their petitions at the Throne of Grace because prayer is never lost labor. There may be a time during which God does not appear to answer prayer, but He will ultimately answer it. Therefore "men ought always to pray, and not to faint" in prayer. If they do not pray, they will faint in many ways. Their courage will faint. All their hope as to the future will faint and fall into a dead swoon, as it were. So, dear Friends, you have your choice between praying and fainting! The doctrine our Savior laid down was "that men ought always to pray, and not to faint." And this is the parable which He related in illustration of that Truth of God.
 

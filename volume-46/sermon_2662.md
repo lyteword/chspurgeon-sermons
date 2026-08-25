@@ -8,7 +8,7 @@ Just now, when I see these signs of a stir among the people, I think it is my bu
 
 The verse before my text describes God's ancient people when they were assembled in the order of their tribes. "There is little Benjamin with their ruler, the princes of Judah and their council, the princes of Zebulun, and the princes of Naphtali." They belonged to various tribes of the children of Israel, but they were all numbered among the Lord's people. And it is said of the whole of them, as if they were but one, "Your God has commanded your strength." These words apply to all the armies of Israel, so you and I, dear Friends, had better consider and see whether we belong to His armies or not.
 
-From our text, I learn that the first mark of the people of God is that THE LORD IS THEIR GOD.
+From our text, I learn that the first mark of the people of God is that THE Lord IS THEIR God.
 
 Notice, the first two words&mdash;"Your God." This proves that they have a God. We cannot be God's people unless we know His name and know that He is the living and true God&mdash;and that all the rest of the so-called gods are but fictions or idols of the heathen! There is one God who made Heaven and earth, the sea and all that is therein. There is one God who has made us and from whom the breath in our nostrils has come. There is one God who has ruled in all past history and who is still the God of Providence, the Preserver and Director of His chosen people&mdash;the one God who, in the fullness of time, sent His only begotten Son, who was equal with Himself, but who lived and died that the guilty sons of men might have their sins pardoned and their wandering feet directed back to the great Father's house. The God of the Old
 
@@ -32,7 +32,7 @@ Genuine people of God, then, have the Lord to be their God according to the firs
 
 That, then, is the first mark of the Lord's people&mdash;the Lord is their God.
 
-A second mark of the Lord's people is given in our text. Read the whole of the first sentence and you will see that he who feels that God has called upon him, to serve him with all his strength, is one of the Lord's servants&mdash;"Your God has commanded your strength." That is to say, ALL THE STRENGTH OF a CHRISTIAN&mdash;physically, mentally, morally, spiritually&mdash;IS AT GOD's DISPOSAL.
+A second mark of the Lord's people is given in our text. Read the whole of the first sentence and you will see that he who feels that God has called upon him, to serve him with all his strength, is one of the Lord's servants&mdash;"Your God has commanded your strength." That is to say, ALL THE STRENGTH OF a ChristIAN&mdash;physically, mentally, morally, spiritually&mdash;IS AT God's DISPOSAL.
 
 A true Christian acknowledges that all he has, and the best of all that he has, should always be consecrated and dedicated to his Lord. First, we are heartily to obey God's commands. There is no part of our strength that we may reserve for ourselves&mdash;it all belongs to our Lord. We are to be like a soldier who, when he goes to war, thinks of nothing but how he shall discharge his duties so as to please his commanding officer.
 
@@ -88,7 +88,7 @@ from all of us, "Not unto us, O Lord, not unto us, but unto Your name give glory
 
 Let us begin to learn that song, now, and let us sing it in life, in death and forever, for our Lord Jesus Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM68
+Exposition by C. H. Spurgeon: Psalm68
 
 This was a Psalm sung at the removing of the Ark when it was taken up to its resting place on Mount Zion. All the tribes were gathered together and, in full pomp, they marched along, bearing the sacred chest. As they marched forward, the trumpets sounded and this Psalm rose up to God.
 
@@ -116,9 +116,9 @@ When the Almighty scattered kings in it, it was white as snow in Salmon. Driven 
 
 The hill of God is as the hill of Bashan; an high hill as the hill of Bashan. This hill of Zion is not high at all&mdash;it is a mere knoll compared with the lofty peaks&mdash;yet it was highly favored. So, to carnal eyes, Christ's Kingdom on earth was little in comparison with the kingdoms of this world, yet, in the sight of God, it is greater than all of them!
 
-Why leap you, you high hills? This is the hill which God desires to dwell in. Yes, the LORD will dwell in it forever. There are grander places than Zion, but if God chooses to dwell there, His Presence gives her a glory and a greatness that no other spot can have. The forces at the disposal of Zion's King are boundless&mdash;note how the Psalmist enumerates some of them.
+Why leap you, you high hills? This is the hill which God desires to dwell in. Yes, the Lord will dwell in it forever. There are grander places than Zion, but if God chooses to dwell there, His Presence gives her a glory and a greatness that no other spot can have. The forces at the disposal of Zion's King are boundless&mdash;note how the Psalmist enumerates some of them.
 
-18. The chariots of God are twenty thousand, even thousands of angels: the Lord is among them, as in Sinai, in the holy place. You have ascended on high, You have led captivity captive: You have received gifts for men, yes, for the rebellious, also, that the LORD God might dweel among them. As the Ark went up the hill of Zion, so has Christ ascended to eternal Glory! He is the true Ark of the Covenant and He is also the true Mercy Seat. Therefore, let our hearts rejoice in our ascended Savior who has "led captivity captive." "You have received gifts for men, yes, for the rebellious, also." "In due time, Christ died for the ungodly." "He made intercession for the transgressors." Let rebellious sinners catch at this great Truth of God and, touched by the love and Grace of God, let them cease to rebel any longer.
+18. The chariots of God are twenty thousand, even thousands of angels: the Lord is among them, as in Sinai, in the holy place. You have ascended on high, You have led captivity captive: You have received gifts for men, yes, for the rebellious, also, that the Lord God might dweel among them. As the Ark went up the hill of Zion, so has Christ ascended to eternal Glory! He is the true Ark of the Covenant and He is also the true Mercy Seat. Therefore, let our hearts rejoice in our ascended Savior who has "led captivity captive." "You have received gifts for men, yes, for the rebellious, also." "In due time, Christ died for the ungodly." "He made intercession for the transgressors." Let rebellious sinners catch at this great Truth of God and, touched by the love and Grace of God, let them cease to rebel any longer.
 
 19, 20. Blessed be the Lord who daily loads us with benefits, even the God of our salvation. Selah. He that is our God is the God of salvation; and unto God the Lord belong the issues from death. All glory be to His thrice-blessed name for all that this verse includes!
 

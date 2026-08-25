@@ -65,7 +65,7 @@ O child of God, take this with you for your safe conduct everywhere! When men tr
 
 Oh, cheering words! I could weep them all out, but I will say no more. I hope many of you will enjoy the sweetness of them while we gather around the Lord's Table, in obedience to His gracious command, "This do in remembrance of Me."
 
-EXPOSITION BY C. H. SPURGEON: JOHN 17; 18:1-9.
+Exposition by C. H. Spurgeon: John 17; 18:1-9.
 
 John 17:1. These words spoke Jesus, and lifted up His eyes to Heaven, and said, Father, the hour is come; glorify Your Son, that Your Son may also glorify You. Jesus is going forth to die and He knows it, yet He prays to His Father, "Glorify Your Son." There was no way of His coming to that Glory except by passing through tears, blood, agony and death. He only asks that He may be glorified in what He is about to do and suffer&mdash;and He is ready for it all&mdash;"Father, the hour is come; glorify Your Son, that Your Son may also glorify You."
 

@@ -6,7 +6,7 @@ THAT which is the most simple lesson the Gospel has to teach is often the most d
 
 I want to try to teach you this lesson again. And to also learn it myself, for I need to learn it as much as you do&mdash;the lesson of looking away from our temptations and from our own weakness and inability to repel those temptations&mdash;to Him who, having Himself suffered in being tempted, "is able to aid those who are tempted." Let us fix our eyes upon our great High Priest and leave Satan and all his insinuations, his blasphemies and his temptations out of the question. Or, rather, let us bring them to Christ and see them all finished in Him! I am going to address three separate characters that are represented here&mdash;first, the confirmed Believer Secondly, the young beginner. And, thirdly, the backslider And then, summoning the attention of the whole company here assembled, I shall try to commend the comfort and instruction of the text to you all.
 
-First, let me speak TO ADVANCED CHRISTIANS.
+First, let me speak TO ADVANCED ChristIANS.
 
 You all have your trials and those trials are of an advanced character. The troubles with which the plants of God's right-hand planting are assailed when they are saplings are quite inconsiderable compared with those which come upon them when they are like cedars firmly rooted. As surely as our strength increases, so will our sufferings, our trials, our labors, or our temptations. God's power is never given to a man to be stored up unused. The heavenly food that is sent to strengthen us, like the manna given to the Israelites in the wilderness, is intended for immediate use. If the Lord sends you much, you shall have nothing beyond what you can use for Him though, blessed be His holy name, if you have but little, you shall have no need! When the Lord puts upon our feet the shoes of iron and brass which He has promised us in His ancient Covenant, He intends that we should wear them and walk in them&mdash;not that we should put them into our museum and gaze upon them as curiosities. If He gives us a strong hand, it is because we have a strong foe to fight. If He gives us a great meal&mdash;like that which He gave to Elijah&mdash;it is in order that, in the strength of that meal, we may go for 40 days or even longer.
 
@@ -105,7 +105,7 @@ And breathe my life out sweetly there." In this sense, our text shines like a cl
 > To die in the Lord is a Covenant blessing,   
 > Since Jesus to Glory through death led the way.   
 
-EXPOSITION BY C. H. SPURGEON: 2 CORINTHIANS 6:1-18.
+Exposition by C. H. Spurgeon: 2 Corinthians 6:1-18.
 
 2 Corinthians 6:1. We then, as workers together with Him, beseech you also that you receive not the Grace of God in vain. God's servants are called to take many different positions. They are ambassadors under one aspect. They are workers under another. As ambassadors, they are ambassadors for Christ. As workers, they are workers together with God. Oh, how much it costs to win a soul! I mean, not only how much it cost the Savior, so that He broke His very heart over it and poured out His life's blood&mdash;but also how much it must cost the messenger of peace! He must know how to beseech and implore&mdash;and when even this fails, he must still go on toiling, laboring as a worker together with God.
 

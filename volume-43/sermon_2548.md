@@ -80,9 +80,9 @@ Now, Beloved, have you honored God? He says in our text, "Neither have you honor
 
 "Chosen of Him before time began," and then redeemed with the heart's blood of the Son of the Highest. It is the least we can do, to make every faculty we possess subordinate to this end of honoring and glorifying God! It is for this He has created us, for this He has called us, for this He has redeemed us, for this He has sanctified us! Therefore let us set about it at once and think and plan within our hearts what we can do for the glory and honor of Him who has redeemed us unto Himself. The Lord bless this message to all here present, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-ISAIAH 43:1-7; 21-28; 44:1-5.
+Isaiah 43:1-7; 21-28; 44:1-5.
 
 Isaiah 43:1. But now thus says the Lord that createdyou, O Jacob, andHe that formedyou, OIsrael, fearnot: forI have redeemed you, I have called you by your name; you are Mine. "Fear not," is a command of God and is a command which brings its own power of performance with it. God, who created and formed us, says to us, "fear not," and a secret whisper is heard in the heart by which that heart is so comforted that fear is driven away. "Fear not: for I have redeemed you." That is a good reason why we should never fear again! Redemption is a well of consolation and the redeemed of the Lord have nothing whatever to fear.
 

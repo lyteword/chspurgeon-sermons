@@ -69,7 +69,7 @@ So, you see, one gets hold of him, and the other, too. He cannot be in both plac
 
 And now we come to the Supper of our Master! Oh, may the Master give us fellowship with Him! Poor sinners that know not Christ, I have hardly a moment in which to address you, but remember, the separation which will be made between you and the Church, tonight, is but a picture of an awful separation which shall be made between you and the Church at the Last Great Day! You will sit upstairs, some of you, to look down upon the solemnity&mdash;remember, you may look upon it here, but you will not look upon it in Heaven unless your hearts are made new by Christ and unless you are washed in His precious blood!
 
-EXPOSITION BY C. H. SPURGEON: MARK 15:15-39; LUKE23:27-49.
+Exposition by C. H. Spurgeon: Mark 15:15-39; Luke23:27-49.
 
 We will read two short passages from the Gospels this evening. May the blessed Spirit, who taught the Evangelists to record the sad story of our Lord's sufferings and death, help us to fully enter into the blessed meaning of it while we read it! First turn to Mark 15, verse 15.
 

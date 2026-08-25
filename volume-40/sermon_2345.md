@@ -1,6 +1,6 @@
 # Sermon 2345 | Moses' Dying Charge to Israel
 
-"And you shall remember all the way which the LORD your God led you these forty years in the wilderness, to humble you, and to prove you, to know what was in your heart, whether you would keep His commandments, or no." Deuteronomy 8:2.
+"And you shall remember all the way which the Lord your God led you these forty years in the wilderness, to humble you, and to prove you, to know what was in your heart, whether you would keep His commandments, or no." Deuteronomy 8:2.
 
 These are the words of Moses, the man of God, when he was near his departure. They make up a part of what has been called his "swan song." He did not often sing&mdash;he did give us at least one song, but when he came near the time he was to die, like the fabled swan, he began to sing&mdash;and most sweetly did he sing!
 
@@ -98,9 +98,9 @@ And I believe that the Lord has some design of love towards some of you who are 
 
 "All hail the po wer of Jesus 'name, Let angels prostrate fall! Bring forth the royal diadem, And crown Him Lord of all."
 
-EXPOSITION BY C. H. SPURGEON: PSALM139:1-18.
+Exposition by C. H. Spurgeon: Psalm139:1-18.
 
-Verse 1. O LORD, You have searched me, and known me. "You have explored me, as men dig in mines and make subterranean excavations. You have searched into my secret parts and known me."
+Verse 1. O Lord, You have searched me, and known me. "You have explored me, as men dig in mines and make subterranean excavations. You have searched into my secret parts and known me."
 
 You knew my sitting down and my raising up. "My simplest acts, those which I scarcely premeditated."
 
@@ -110,7 +110,7 @@ You compass my path and my lying down. "Making a ring around me, so that I am en
 
 And are acquainted with all my ways. "My habits, and the exceptions from my habits, are all known to You."
 
-For there is not a word on my tongue, but, You, O LORD, You knew it altogether. "When it is on my tongue, and not spoken, like a seed sown, hidden away, not yet sprouted, You, O Jehovah, knew it altogether!"
+For there is not a word on my tongue, but, You, O Lord, You knew it altogether. "When it is on my tongue, and not spoken, like a seed sown, hidden away, not yet sprouted, You, O Jehovah, knew it altogether!"
 
 You have beset me behind and before, and laid Your hand upon me. "I am like a prisoner, with guards before me and behind me, and the officer's hand upon my shoulder all the while. You have arrested me, O Lord. I can never get away from
 

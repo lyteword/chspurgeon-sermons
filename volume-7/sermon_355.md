@@ -9,7 +9,7 @@ Perhaps nothing in the world is a surer sign of littleness than a slavish imitat
 
 In what sense? Why? And is itpossible? Three points each interesting.
 
-IN WHAT SENSE IS a BELIEVER TO BE CONFORMED TO THE IMAGE OF CHRIST?
+IN WHAT SENSE IS a BELIEVER TO BE CONFORMED TO THE IMAGE OF Christ?
 
 There are some views which would be taken of this subject, which I think would be shallow and would not reach the full meaning of the Word of God. Some men conceive that they are to bear the image of Christ to warrant them as being His followers, although their works tell another tale! They are to be called Christians, and then under the garb and cover of Christianity, they are to make their vices appear like virtues, and their crimes are to be dignified as though they were of the highest morality. Now a Christian is not to bear the image of Christ as a penny bears the superscription of the Queen! That image is put there to make the coin current among men. but a penny is not the image of the Queen, it is only stamped with it. There are some Christians who think that they have the seal of the Spirit upon them, the stamp of Christ's warranty, and that they can claim to be accepted as Christians because they imagine they have the seal of the
 

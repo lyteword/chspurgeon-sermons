@@ -72,7 +72,7 @@ Best of all, this woman believed in Jesus. When He said that He was the Christ, 
 
 God bless you, Beloved, and bring you to the Savior, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN4:1-29.
+Exposition by C. H. Spurgeon: John4:1-29.
 
 I have often read this chapter in your hearing and you have often read it yourselves, but the Word of God is not like the grapes of an earthly vine which, when once trodden, are exhausted. You may come to Holy Scripture again and again&mdash;it is like an ever-flowing fountain&mdash;the more you draw from it, the more you may draw.
 

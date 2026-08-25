@@ -120,9 +120,9 @@ Oh, "what must it be to be there?" To be there is to be with Christ! Wait but a 
 
 Do you believe that concerning yourselves, my dear Christian Brothers and Sisters? Then, why are you afraid to die? Why are you so often fearing? What? Men and women, Brothers and Sisters, do you believe that in a few more days you will be in Heaven&mdash;and see all you love and all you live for here below? Do you believe that in a few more months or years, you will clasp your Savior and be blessed forever? Why, Beloved, it is enough to make you leap for joy and clap your hands in ecstasy! What? You are troubled? You are desponding? No, go your way, eat your bread with joy, be happy all your life, for you know that your Redeemer lives and though after your flesh, worms shall destroy this body, yet in your flesh you shall see God!
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-1 CORINTHIANS 12:12-31.
+1 Corinthians 12:12-31.
 
 Verses 12, 13. For as the body is one, and has many members, and all the members of that one body, being many, are one body: so also is Christ For by one Spirit are we all baptized into one body, whether we are Jews or Gentiles, whether we are bond or free; and have been all made to drink into one Spirit Oh, what a sacred oneness that is which subsists between all the Lord's people! We are not simply Brothers and Sisters, but we are one! We are not allied by affinity, but by actual identity! We are parts of the same body. We are brought into spiritual membership with each other as real and as effectual as that membership which subsists between the various parts of the body. Yet we are not all alike, although we are all of one body. Some are Jews, some are Gentiles, some are bond, some are free. And yet, in some things, we are all alike, for we have all been baptized by one Spirit. And, moreover, we have all been made to drink into one Spirit&mdash;we have had one spiritual baptism, and we have had one spiritual drinking. Would to God that we felt more one, that our hearts beat more in tune with each other, that we had a sympathy with each other in woes and sufferings, that we had a fellow feeling with all who love the Lord and could at all times weep with those that weep, as well as rejoice with those that rejoice
 

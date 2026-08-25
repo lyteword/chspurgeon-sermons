@@ -17,7 +17,7 @@ The veil grows thinner and thinner, and our faith in the unseen grows stronger. 
 
 With regard to the spirits before the Throne of God, we shall have three things to say this morning. First, a little concerning their state and enjoyments. Then, further, concerning their occupations and spirit. And a few words with regard to their testimony and precepts to us, as, speaking from the upper spheres, they urge us to follow their example.
 
-First, then, Brethren with regard to THE STATE AND ENJOYMENTS OF THE SPIRITS BEFORE THE THRONE OF GOD. In John's vision, you perceive that the Church of Christ is represented by the four and twenty elders who sat round the Throne of God. We are to look upon them as being the representatives of the great body of the faithful gathered to their eternal rest.
+First, then, Brethren with regard to THE STATE AND ENJOYMENTS OF THE SPIRITS BEFORE THE THRONE OF God. In John's vision, you perceive that the Church of Christ is represented by the four and twenty elders who sat round the Throne of God. We are to look upon them as being the representatives of the great body of the faithful gathered to their eternal rest.
 
 Mark, then, in the first place, that the saints in Heaven are represented as "elders," which we take to refer not merely to the office of the eldership, as it is exercised among us, although it seems most fitting that the officers should be the representatives of the whole body&mdash;but the reference is rather to the fullness of growth of Believers before the Throne of God. Here we have elders and those who are elders in office should be chosen, because they have had spiritual experience, are well taught in the things of the kingdom of Heaven and are, therefore, elders by Divine Grace as well as elders by office.
 
@@ -91,7 +91,7 @@ Christians, perhaps some of you have not reigned as kings during the last week. 
 
 Let, then, the state of the saints above, while it is the theme of our delightful thought&mdash;while we anticipate the time when we shall fully partake of it&mdash;be also an example to us while in these lands below.
 
-Briefly upon our second point&mdash;THE OCCUPATION AND SPIRIT OF THOSE GLORIFIED ONES, AS THEY SHOULD BE IMITATED BY US BELOW.
+Briefly upon our second point&mdash;THE OCCUPATION AND SPIRIT OF THOSE GLORIFIED ONES, AS THEY SHOULD BE IMITATED by US BELOW.
 
 Notice their occupation. First of all it is one of humility. At the tenth verse in our fourth chapter we perceive it is written, "They fall down before Him." They are kings but yet they fall down. They wear royal crowns, but yet they prostrate themselves. They are second to none in God's universe. They stand as first in the peerage of creation. Yet before the King they have no honor and no esteem. As if they were slaves and menials, they cast themselves upon their faces before His Throne, having nothing of their own whereof to glory but boasting alone in Him.
 

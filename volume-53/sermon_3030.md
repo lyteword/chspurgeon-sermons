@@ -6,7 +6,7 @@ THOUGH the shepherd cares for the lambs and carries them in his arms, he does no
 
 In endeavoring, by God's help, to speak upon this subject, we shall have three points. There is here, first, a fact stated concerning Believers&mdash;they have "received Christ Jesus the Lord." Then there is an exhortation, or a counsel, offered to such&mdash;"walk in Him." Besides which we have a model held up for our imitation. How are we to walk in Him? Why, just in the same way as we at first received Him! Let our first coming to Christ be to us the mirror of how we shall walk in Him all our days.
 
-All true Christians are here described in the text as HAVING RECEIVED CHRIST JESUS THE LORD.
+All true Christians are here described in the text as HAVING RECEIVED Christ Jesus THE Lord.
 
 The first point to which I would particularly direct your attention is the personality of this reception. Believers have, it is true, received Christ's words. They prize every precept, they value every Doctrine, but this is not all. They have received Christ Himself. While they have received Christ's ordinances and are not slow to walk in obedience to the things which He has commanded, they do not stay here. They have received Christ Himself&mdash;His Person, His Godhead and His Humanity. They have "received Christ Jesus the Lord." And, mark you, there is a very great distinction here&mdash;and also a great mystery. A great distinction, I say, for there are some who do, I think, wholly believe the doctrines which Christ has taught, and are profoundly orthodox, full of an earnest controversial spirit for the faith once delivered to the saints and yet, for all that, they do not seem to have received Him, the very Christ of God! And, truly, there are many who have received both Baptism and the Lord's Supper, yet, despite what any may say, we believe that they have not received Christ, but are still as great strangers to Him as though they had only passed through the rites common to mankind, or the rites in which heathens indulge! There is a vast difference between the outward reception of the Doctrine, or the ordinance, and the inward reception of Christ.
 
@@ -135,13 +135,13 @@ And I think, Brothers and Sisters, though the flesh struggles, we may pray tonig
 
 But oh, some of you have never received Him, so my last word is to them. Do you ask, "What is the way of salvation?" It is by receiving Christ. Oh, then come and receive Him! May the Holy Spirit's power lead sinners to Christ! You need not bring anything to Him. You need not bring a soft heart to Him. You need not bring tears of repentance to Him. But just come and take Christ. Remember, it is not what you are, but it is what Christ is that saves you! Never look at yourself, but look at the wounds of Jesus! There is life there. God help you to look&mdash;to look tonight! And if you shall find Him, our prayer shall be that from this day forth, you shall walk in Him and He shall have the glory!
 
-EXPOSITION BY C. H. SPURGEON: PSALM90.
+Exposition by C. H. Spurgeon: Psalm90.
 
 A Prayer of Moses, the Man of God.
 
 It may help us to understand this Psalm if we recollect the circumstances which surrounded Moses when he was in the desert. For forty years he had to see a whole generation of people die in the wilderness. In addition to the deaths which might occur among those who were born in the wilderness, the whole of that great host which came out of Egypt, numbering, probably, between two and three million persons, must lie in their graves in the desert so that there must have been constant funerals&mdash;and the march of the children of Israel could be perceived along the desert track by the graves which they left behind them. You do not wonder, therefore, at this expression of the awe of "Moses, the man of God" as he was so continually reminded of the mortality of mankind. And note how reverently and trustfully he turns to the ever-living and eternal God and rests in Him.
 
-Verse 1. LORD, You have been our dwelling place in all generations. "Did not Abraham, and Isaac, and Jacob, and all our fathers dwell in You? And though we are now weary-footed pilgrims who have no fixed dwelling place on earth, we do dwell in You. You, Lord, are the true home of all the generations of Your people."
+Verse 1. Lord, You have been our dwelling place in all generations. "Did not Abraham, and Isaac, and Jacob, and all our fathers dwell in You? And though we are now weary-footed pilgrims who have no fixed dwelling place on earth, we do dwell in You. You, Lord, are the true home of all the generations of Your people."
 
 Before the mountains were brought forth, or before You had formed the earth and the world, even from everlasting to everlasting, You are God. God is the only Being who has had eternal and essential Existence independently of all others&mdash;and all others have owed their existence to Him.
 
@@ -169,7 +169,7 @@ And if by reason of strength they are fourscore years, yet is their strength lab
 
 11, 12. Who knows the power of Your anger? Even according to Your fear, so is Your wrath. So teach us to number our days, that we may apply our hearts unto wisdom. It has been well said that many men will number their cows, and number their coins, but forget to number their days! Yet that is a kind of arithmetic that would be exceedingly profitable to those who practiced it aright. Counting our days and finding them but few, we should seek to use them discreetly&mdash;we should not reckon that we could afford to lose so much as one of them! Who would be a spendthrift with so small a store as that which belongs to us?
 
-13, 14. Return, O LORD, how long? And let it repent You concerning Your servants. O satisfy us early with Your mercy that we may rejoice and be glad all our days. "If they are but few, yet let them be happy. Give us an abundance of Your mercy, O Lord, and let us have it at once, so that however few our days may be, every one of them may be spent in the ways of wisdom and, consequently, in the ways of peace and happiness."
+13, 14. Return, O Lord, how long? And let it repent You concerning Your servants. O satisfy us early with Your mercy that we may rejoice and be glad all our days. "If they are but few, yet let them be happy. Give us an abundance of Your mercy, O Lord, and let us have it at once, so that however few our days may be, every one of them may be spent in the ways of wisdom and, consequently, in the ways of peace and happiness."
 
 Make us glad according to the days wherein You have afflicted us, and the years wherein we have seen evil "Balance our sorrows with an equal weight of joys. Give us Grace equivalent to our griefs and if You have given us a bitter cup of woe, now let us drink from the golden chalice of Your love, and so let our fainting spirits be refreshed."
 
@@ -177,6 +177,6 @@ Let Your work appear unto Your servants. May we have Grace to devote ourselves e
 
 And Your glory unto their children. If we may not live to see the success of our efforts, may our children see it! If the glory of that bright millennial age, which is certain to come in due time, shall not gladden our eyes before we fall asleep in Jesus, let us do the Lord's work as far as we can that our children may see His Glory.
 
-And let the beauty of the LORD our God be upon us: and establish You the work of our hands upon us. Even if we die, let our work live. May there be something permanent remaining after we are gone&mdash;not wood, hay, and stubble, which the fire will consume, but a building of gold, silver, and precious stones which will endure the fire that, sooner or later, will "try every man's work of what sort it is."
+And let the beauty of the Lord our God be upon us: and establish You the work of our hands upon us. Even if we die, let our work live. May there be something permanent remaining after we are gone&mdash;not wood, hay, and stubble, which the fire will consume, but a building of gold, silver, and precious stones which will endure the fire that, sooner or later, will "try every man's work of what sort it is."
 
 Yes, the work of our hands establish You it

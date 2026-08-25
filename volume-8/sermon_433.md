@@ -25,7 +25,7 @@ I feel that very many Christians are not Christians with all their hearts. I fee
 
 This morning we shall notice the effects of whole-heartedness upon the Christian. I shall then endeavor to stir you up with many arguments to be earnest in your work offaith and labor of love. And when I have so done, I shall address those to whom religion has as yet been a trifling matter. And God grant that they may be ready to seek the Lord with all their hearts, for then He will surely be found of them.
 
-First, then, let us notice THE SPHERE WHICH CHRISTIAN EARNESTNESS OCCUPIES IN THE DIVINE
+First, then, let us notice THE SPHERE WHICH ChristIAN EARNESTNESS OCCUPIES IN THE DIVINE
 
 LIFE. Mark, I speak now only to those who are really and savingly converted to God, for if we are not first right with God, zeal for God is but a pretense.
 
@@ -59,7 +59,7 @@ My dear Friends, I shall not enlarge further to show you the proper sphere of ea
 
 Oh for more of this fire! Jesus! Master! Baptize us with the Holy Spirit and with fire! Fill our souls with fervor! Restore unto us the indomitable energy of our ancestors. Give us back the northern iron and steel, to which their resolute natures may be likened&mdash;deliver us from these willow days in which men bend before every blast&mdash;make us strong men to run the race of righteousness, and mighty men made mighty through Your Spirit, with earnestness to serve You among the sons of men!
 
-I shall want your earnest attention while I labor TO STIR YOU UP BY CERTAIN ARGUMENTS WHICH MAY PROVOKE YOU TO THIS EARNESTNESS.
+I shall want your earnest attention while I labor TO STIR YOU UP by CERTAIN ARGUMENTS WHICH MAY PROVOKE YOU TO THIS EARNESTNESS.
 
 Either our religion is the grossest impostor that was ever palmed upon mankind, or else it is one which deserves the whole life and force and strength of every man who has been blessed by it. I would today, if I were not sure that God's Word is true and that the precious Doctrines of Grace are the very revelation of Heaven, renounce them boldly. Oh, I could not, I hope&mdash;I speak before God&mdash;hold the religion of Christ and yet be sleepy about it. It does seem to me that if religion is worth anything, it is worth everything&mdash;and that for man to keep his godliness as some great farmers do their little off-hand farms, which they merely farm for pleasure, while their very life and substance is spent in another place, seems to me to be the height of wickedness and the topmost ridge of absurdity.
 

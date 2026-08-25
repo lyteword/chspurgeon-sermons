@@ -21,7 +21,7 @@ I entreat you, dear Friends, to learn practically from these Thessalonians by be
 
 First, let us carefully look at the trumpeters. What sort of men are these who make God's Word to sound out? When we have talked about the men we will look at their trumpets and see how it is that they give forth so telling a sound. Next, we will speak of the need of such a trumpet blast just now. And close by enquiring whether we are not called to give forth that trumpet sound.
 
-We begin by looking at THE TRUMPETERS. Who are these by whom the Word of the Lord is sounded out? I shall hastily give you a picture of these Thessalonians drawn from Paul's letters to them.
+We begin by looking at THE TRUMPeterS. Who are these by whom the Word of the Lord is sounded out? I shall hastily give you a picture of these Thessalonians drawn from Paul's letters to them.
 
 Observe at the outset that they were a people whom the three cardinal Graces were conspicuous. Kindly look at the third verse&mdash;"Remembering without ceasing your work of faith and labor of love and patience of hope." The three Divine sisters&mdash;Faith, Hope, Love&mdash;linked hands in their lives. These were with them in their best condition&mdash;faith working, love laboring, hope enduring. Faith without works is dead. Faith performing her work with energy is healthy and alive. Paul saw the Thessalonian Believers to be fulfilling the lifework of a true faith.
 

@@ -52,7 +52,7 @@ At times a wick burns low because a very strong wind has blown upon it. Many men
 
 There are many other reasons why we grow dim at times&mdash;reasons, but none of them sufficient to be an excuse. If we were what we ought to be, we would always be burning and shining lights&mdash;and there would be no times in which we would be like the smoking flax. But then we are not what we ought to be&mdash;we fall short of the true standard&mdash;and we become feeble Believers.
 
-I desire to finish with a word of promise. WHAT DOES JESUS DO WITH THOSE WHO ARE IN THIS
+I desire to finish with a word of promise. WHAT DOES Jesus DO WITH THOSE WHO ARE IN THIS
 
 STATE? He says that He will not quench the smoking flax. What a world of mercy lies in that Word of God! Everybody else would quench us but Christ! I am sure that some Christians get into such a state that the most loving Christian friends find it hard to bear with them and fear that such a state of mind cannot be consistent with Grace at all. Thus your friend would give you over as lost. But Jesus Christ says that He will not do so.
 

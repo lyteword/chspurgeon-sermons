@@ -96,7 +96,7 @@ I know that I have been speaking to some who do not love the Lord. I wonder what
 
 He says that whoever believes on the Lord Jesus Christ shall not perish, but shall have everlasting life. May the Eternal Spirit bring you to believe in the Lord Jesus now&mdash;and if you do so believe you shall be saved at once! But do not think that the plan of salvation will be altered to please you. It will not be made according to your mind. There is the Gospel&mdash;take it or leave it, but change it you cannot! May the Lord grant that you may accept it and rejoice in it for His dear Son' s sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: GALATIANS 6:6-18.
+Exposition by C. H. Spurgeon: Galatians 6:6-18.
 
 Verses 6, 7. Let him that is taught in the word communicate unto him that teaches in all good things. Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap. Paul puts that in connection with the support of those who are teachers of the Truth. And I have sometimes thought that in certain Churches where God's ministers have starved, it was not very surprising that the people should starve, too. They thought so little about the pastor that they left him in need, so it was not strange that, as they sowed little, they reaped little. One of these misers said that his religion did not cost him more than a shilling a year&mdash;and somebody replied that he thought it was a shilling wasted on a bad thing, for his poor religion was not worth even that small amount!
 

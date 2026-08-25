@@ -36,7 +36,7 @@ in which to wash away crimson stains. There will be no Redeemer to cover a naked
 
 We, who now trouble you by desiring to do you good, will soon be out of your way. Ah, poor Souls! Poor Souls! Soon you will be out of God's way, and out of Christ's way, and out of Mercy's way&mdash;banished from the Savior's Presence&mdash;and that because the kingdom of God came near to you, but you put it away from you, for you would have none of the Lord's reproofs. You turned, every one to his own way, and rejected the counsels of God against yourselves. Beloved Hearers, may none of you stand in that plight! While I breathe the prayer that it may not be so, may I ask you to pray for yourselves that it will not be so? Will you let me whisper in your ear, as though I stood close by each one of you now, and I will softly and lovingly say&mdash;Repent, and believe in Jesus, now, with all your might. God help you, "for there is no work, nor device, nor knowledge, nor wisdom in the grave where you go."
 
-But now I have another task, and that is to set forth my text as a STIMULATING VOICE TO GOD's OWN
+But now I have another task, and that is to set forth my text as a STIMULATING VOICE TO God's OWN
 
 PEOPLE. Beloved Brothers and Sisters, our text reminds you that you have a work to do. You have not the work to do of saving yourselves. That is done&mdash;the dear Redeemer has finished it. "It is finished," says the Savior, and that is joy for you. But now you have another work to do because you are saved. Man was not created to be idle. He was not elected to be idle. He was not redeemed to be idle. He was not quickened to be idle and he is not sanctified by God's Grace to be
 

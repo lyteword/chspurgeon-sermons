@@ -1,12 +1,12 @@
 # Sermon 2993 | "That King Ahaz"
 
-"And in the time of his distress did he trespass yet more against the LORD: this is that king Ahaz." 2 Chronicles 28:22.
+"And in the time of his distress did he trespass yet more against the Lord: this is that king Ahaz." 2 Chronicles 28:22.
 
 IT is absolutely certain, dear Friends, that whatever our personal characters may be, we shall have to know, by practical experience, the meaning of the word, "trouble." Saint or sinner, "man is born unto trouble, as the sparks fly upward." The road to Heaven is rough and the path to Hell is not always smooth. There are some tribulations which belong especially to the people of God, yet it is also true that "many sorrows shall be to the wicked." If a man, trying to escape from sorrow, should take the wings of the morning and fly to the uttermost parts of the sea, he would find that sorrow was even there upon the sea! Should he go to the frozen regions of the North, he would find sorrow there, for there have some of the fondest human hopes been wrecked. Let him journey to the sultry South and trouble shall pursue him there, for plagues, fevers and disease haunt that region and the gates of death are near. Until we mount to Heaven, we shall never be able to escape from sorrow and sighing&mdash;only there shall we obtain joy and gladness, when our somber companions shall have fled away forever.
 
 Since, dear Friends, the stream of sorrow is here, and we cannot make it flow in any other direction, what shall we do with it? Let us try to put it to profitable uses! Let us lift up our heart in prayer to God that all our sorrows may be sanctified&mdash;that, with all other things, they may work together for our lasting good&mdash;and that we, who are the children of God, may be perfected in the image of Christ according to the Divine Purpose. Let us remember, however, that sorrow will not of itself be beneficial to us. It is possible to endure afflictions on earth and afterwards to endure eternal damnation in Hell. Sinners may go from beds of languishing to beds of flame, from toil and poverty here, to torment and all despair hereafter. There is nothing at all in sorrow that can burn out sin&mdash;there is no power in human suffering to remove the wrath of God!
 
-I shall commence my discourse with this very simple remark&mdash;IN THEIR TIMES OF DISTRESS, GOD's PEOPLE HAVE OFTEN FOUND VERY GREAT PROFIT.
+I shall commence my discourse with this very simple remark&mdash;IN THEIR TIMES OF DISTRESS, God's PEOPLE HAVE OFTEN FOUND VERY GREAT PROFIT.
 
 Suffering is one of the things which is written in the Covenant of Grace as a blessing. The rod was promised to us when we became the children of God and we cannot escape it. And I think the poet Cowper was right when he said that "the trueborn child of God" would not escape it if he might. The distress of Believers, when it is sanctified to them, loosens their hold upon this world. Trials cut the ropes which fasten our souls to earthly things and so enable us to mount. They file the chains which, as on the eagle's foot, will not let her spread her wings and soar upward toward the sun. Trouble, like a sharp spade, digs up the earth that is about our roots and then we bring forth more fruit. Were it not for the thorns in our nest, we would be so content with its soft lining that we would sit in it till we died. But the sharp thorns prick our breasts and then we turn our eyes aloft and learn to try our wings, ready for the time when they shall have fully grown and we shall mount to joys above!
 
@@ -22,9 +22,9 @@ We also get our sweetest comforts in the time of trouble. Do not mothers often g
 
 "Sweet affliction Thus to bring my Savior near." Christ is superlatively sweet to us and the next sweetest thing in all the world is Christ's dear Cross. He is, Himself, most precious, but next to the kisses of His lips are the blows&mdash;the love pats&mdash;of His pierced hands!
 
-Now I advance another step and remind you that VERY OFTEN, THROUGH THE GRACE OF GOD,
+Now I advance another step and remind you that VERY OFTEN, THROUGH THE GRACE OF God,
 
-UNGODLY PERSONS HAVE HAD REASON TO BLESS THE LORD FOR THEIR AFFLICTIONS.
+UNGodLY PERSONS HAVE HAD REASON TO BLESS THE Lord FOR THEIR AFFLICTIONS.
 
 Not infrequently have I heard a story of this kind from a man who has passed the prime of life, whose garments bear evidence, though he still looks respectable, that he is one who has seen many sorrows and trials&mdash;and who carries on his brow the marks of the plowshare of grief. He has come to unite in fellowship with the Church and he begins telling the story of his conversion, which is something like this&mdash;"I was once a flourishing tradesman. I had a large business and was a wealthy man, but, alas, I was foolish. Worse than that, I was wicked. I misspent my time, I delighted in the ways of sin and became a profligate. My companions thought me generous and I did not wish to be less than they thought me to be, so I wasted my substance in riotous living. My business suffered and, at last, there came a crash. All I had went where all must go when a man squanders his time and money as I squandered mine. I became poor. I had not previously known what it was to eat the bread of dependence, but I did eat it for a few months. Friends assisted me for a time, but they grew
 
@@ -91,7 +91,7 @@ A loving Father waits with outstretched arms to welcome the returning prodigal t
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;509, 473, 514.
 
-EXPOSITION BY C. H. SPURGEON: 2 THESSALONIANS 1; 2:1-4.
+Exposition by C. H. Spurgeon: 2 Thessalonians 1; 2:1-4.
 
 
 2 Thessalonians 1:1, 2. Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians in God our Father and the Lord Jesus Christ Grace unto you, and peace, from God our Father and the Lord Jesus Christ. All nations have their special forms of salutation and this is the Christian's greeting to his fellow Christians&mdash;"Grace unto you, and peace." How much there is in this prayer! "Grace"&mdash;the free favor of God, the active energy of the Divine Power. And, "peace"&mdash;reconciliation to God, peace of conscience, peace with all men! My Brothers and Sisters, what better things could I desire for you, and what better things could you wish for your best beloved friends than these, "Grace unto you, and peace from God our Father and the Lord Jesus Christ"?

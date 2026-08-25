@@ -14,7 +14,7 @@ He, whose talk was still that of childhood, becomes a mouth for God, while the v
 
 We will now use Eli's question, by which he extracted from Samuel the message of God, and we will view it in three lights. First, as put to Samuel. Secondly, as coming from Eli. And, thirdly, as capable of being turned upon ourselves. We will ask it of ourselves, as another might ask it. And we will answer it to our own hearts, so that we may, by a rehearsal, become ready to give an answer to him that shall ask us in days to come. Come, my heart, answer to yourself, "What is the thing that the Lord has said to you?" May the Holy Spirit help you by bringing all things to your remembrance, whatever He has said to you!
 
-First, let us view this question as addressed TO SAMUEL.
+First, let us view this question as addressed TO Samuel.
 
 The first remark which we shall make upon it is that God does speak to men. Otherwise this would be a senseless ques-tion&mdash;"What is the thing that the Lord has said unto you?" God does communicate with mortals. He is not shut up all alone by Himself in sublime solitude. He has not placed His creatures at an immeasurable distance, with an impassable abyss between their littleness and His own grandeur. It is not true that He cannot hear their cries, nor respond to them in tones of love. In ways suitable to their feeble nature, the Lord has spoken to men.
 

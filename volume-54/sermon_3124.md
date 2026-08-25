@@ -8,7 +8,7 @@ Ah, my Master, it may be so again this evening! These Sabbath mornings and these
 
 Jesus said, "Somebody touched Me," from which we observe that in the use of means and ordinances, we should never be satisfied unless we get into personal contact with Christ, s o that we touch Him, as this woman touched His garment. Secondly, if we get into such personal contact, we shall have a blessing. "I perceived power going out from Me." And thirdly, if we do get a blessing, Christ will know it However obscure our case may be, He will know it and He will have us let others know it&mdash;He will speak, and ask such questions as will draw us out and manifest us to the world!
 
-First, then, IN THE USE OF ALL MEANS AND ORDINANCES, LET IT BE OUR CHIEF AIM AND OBJECTIVE TO COME INTO PERSONAL CONTACT WITH THE LORD JESUS CHRIST.
+First, then, IN THE USE OF ALL MEANS AND ORDINANCES, LET IT BE OUR CHIEF AIM AND OBJECTIVE TO COME INTO PERSONAL CONTACT WITH THE Lord Jesus Christ.
 
 Peter said, "The multitude throng You and press You," and that is true of the multitudes to this very day. But of those who come where Christ is in the assembly of His saints, a large proportion only come because it is their custom to do so. Perhaps they hardly know why they go to a place of worship. They go because they always did and they think it wrong not to go. They are just like the doors which swing upon their hinges. They take interest only in the exterior parts of the service&mdash;into the heart and soul of the business they do not enter&mdash;and cannot enter. They are glad if the sermon
 
@@ -38,7 +38,7 @@ You see, the woman did really touch Christ, and so I come back to that. Whatever
 
 This brings me to the second part of my discourse, upon which I will only say a little.
 
-THE WOMAN IN THE CROWD DID TOUCH JESUS AND, HAVING DONE SO, SHE RECEIVED POWER FROM HIM.
+THE WOMAN IN THE CROWD DID TOUCH Jesus AND, HAVING DONE SO, SHE RECEIVED POWER FROM HIM.
 
 The healing energy streamed at once though the finger of faith into the woman. In Christ, there is healing for all spiritual diseases. There is a speedy healing, a healing which will not take months nor years, but which is complete in one second! There is in Christ a sufficient healing, though your diseases should be multiplied beyond all bounds. There is in Christ an all-conquering power to drive out every ill. Though, like this woman, you baffle physicians and your case is reckoned desperate beyond all parallel, yet a touch of Christ will heal you! What a precious, glorious Gospel I have to preach to sinners! If they touch Jesus, no matter though the devil himself were in them, that touch of faith would drive the devil out of them! Though you were like the man into whom there had entered a legion of devils, the word of Jesus would cast then all into the deep and you would sit at His feet, clothed, and in your right mind! There is no excess or extravagance of sin which the power of Jesus Christ cannot overcome. If you can believe, whatever you may have been, you shall be saved! If you can believe, though you have been lying in the scarlet dye till the warp and woof of your being are ingrained therewith, yet shall the precious blood of Jesus make you white as snow! Though you have become black as Hell itself, and only fit to be cast into the Pit, yet if you trust Jesus, that simple faith shall give to your soul the healing which shall make you fit to tread the streets of Heaven and to stand before Jehovah-Rophi's face, magnifying the Lord that heals you!
 
@@ -48,7 +48,7 @@ And now, child of God, I want you to learn the same lesson. Very likely when you
 
 "Yes," says another, "but my sins come to my remembrance, my sins since conversion." Well, then, return to Jesus when your guilt seems to return. The fountain is still open and that fountain, you will remember, is not only open for sinners, but for saints! What do the Scriptures say? "There shall be a fountain opened for the house of David and for the inhabitants of Jerusalem"&mdash;that is, for you Church members&mdash;for you Believers in Jesus! The fountain is still open! Come, Beloved, come to Jesus anew, and whatever your sins are, or doubts, or heaviness, they shall all depart as soon as you can touch your Lord!
 
-And now the last point is&mdash;and I will not detain you long upon it&mdash;IF SOMEBODY SHALL TOUCH JESUS, THE LORD WILL KNOW IT.
+And now the last point is&mdash;and I will not detain you long upon it&mdash;IF SOMEBODY SHALL TOUCH Jesus, THE Lord WILL KNOW IT.
 
 I do not know your names. A great number of you are perfect strangers to me. It matters nothing&mdash;your name is "somebody," and Christ will know you! You are a total stranger, perhaps, to everybody in this place, but if you get a blessing, there will be two who will know it&mdash;you will and Christ will. Oh, if you should look to Jesus this day, it may not be registered in our Church book, and we may not hear of it, but it will still be registered in the courts of Heaven and they will set all the bells of the New Jerusalem ringing and all the harps of angels will take a fresh lease of music as soon as they know that you are born-again!&mdash;
 
@@ -78,7 +78,7 @@ And you, Believers, when you come to the Lord's Table, if you draw near to Chris
 
 Whoever you may be, my dear Friend, though you may be nothing but a poor "somebody," yet if you have touched Christ, tell others about it in order that they may come and touch Him, too! And the Lord bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN3.1-21.
+Exposition by C. H. Spurgeon: John3.1-21.
 
 
 
@@ -130,4 +130,4 @@ look at the Crucified Savior, be saved at once and forever!
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

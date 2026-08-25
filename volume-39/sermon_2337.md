@@ -2,9 +2,9 @@
 
 "And, behold, they brought to Him a man sick of the palsy, lying on a bed: and Jesus, seeing their faith, said unto the sick of thepalsy; Son, be of good cheer;your sins are forgiven you. And, behold, certain of the scribes said within themselves, This Man blasphemes. And Jesus, knowing their thoughts, said, Why do you think evil in your hearts? For which is easier, to say, Your sins are forgiven you; or to say, Arise, and walk? But that you may know that the Son of Man has power on earth to forgive sins, (then He said to the man sick of thepalsy), Arise, take up your bed, and go to you house. And he arose, and departed to his house." Matthew 9:2-7.
 
-I REMARKED in the reading that the Gospel of Matthew is especially the Gospel of the Kingdom and of the King. All through Matthew's writing, the title of King constantly occurs in connection with Christ, and His kingliness is prominent from the opening chapter to the close. Here we see the King exercising His royal prerogatives. In this passage we have several instances of Christ acting as He could not have acted if He had not possessed a royal and Divine Power.
+I REMarkED in the reading that the Gospel of Matthew is especially the Gospel of the Kingdom and of the King. All through Matthew's writing, the title of King constantly occurs in connection with Christ, and His kingliness is prominent from the opening chapter to the close. Here we see the King exercising His royal prerogatives. In this passage we have several instances of Christ acting as He could not have acted if He had not possessed a royal and Divine Power.
 
-I will go at once to my text and note, first, that JESUS DEALT WITH THE PALSIED MAN IN a TRULY ROYAL AND DIVINE WAY.
+I will go at once to my text and note, first, that Jesus DEALT WITH THE PALSIED MAN IN a TRULY ROYAL AND DIVINE WAY.
 
 The bearers of the man sick of the palsy, had broken through the tiling, whatever that may have been, to get him near the Savior. They had dropped him down over the heads of the eager throng and there he lay upon his pallet before Christ, unable to stir hand or foot, but looking up with that gaze of eager expectancy which Christ so well understood.
 
@@ -22,7 +22,7 @@ Notice, also, that Jesus did absolutely forgive that man&mdash;"Son, be of good 
 
 This is how Christ behaves towards poor, palsied, sin-bound men and women. He sees their faith and then puts their sin away where it shall be seen no more, forever, for He is King, He is God and He is able to forgive and blot out all iniquity. I have heard of one who, having been under a great sense of sin and being relieved of it, could, for a long time, only cry out, "He is a great Forgiver!" When there were other things to be attended to, he could not see to them, nor speak of any other kind of business but this, "He is a great Forgiver!" I do not feel as if, tonight, I need to say anything else to you but this, "He is a great Forgiver! I have found Him so. Many here have found Him so and all who will trust His great atoning Sacrifice shall also know that He is a great Forgiver."
 
-The second division of my subject diverges a little from the first, but it follows the text, and so it is no real divergence. By His royal and Divine Power, CHRIST READ AND JUDGED MEN's THOUGHTS. See those scribes, those
+The second division of my subject diverges a little from the first, but it follows the text, and so it is no real divergence. By His royal and Divine Power, Christ READ AND JUDGED MEN's THOUGHTS. See those scribes, those
 
 students of the letter of the Word, who know how many letters there are in every Book of the Old Testament and have counted them so accurately that they can tell which is the middle letter! Wonderfully wise men, those! Do you see them? They are very vexed and angry and they think hard thoughts of Christ. They did not dare to speak out what they thought&mdash;the people would not have listened to them, just then, if they had spoken, so they held their tongues, but they
 
@@ -40,7 +40,7 @@ And observe, once more, that, in dealing with these scribes, our Lord spoke righ
 
 if He has gone into Glory, and you know that He is at His Father's right hand, and is there making intercession for the transgressors, how can you say that He cannot forgive you? "Why do you think evil in your hearts" in limiting my Master's power? He can forgive everyone here present! He can forgive every soul in whom He sees faith in Himself, whoever He may be and however dire his guilt!
 
-Now we come back to the palsied man and our Master and notice, in the third place, that right royally JESUS OPENLY DECLARED HIS COMMISSION. He seems to me to read the letters patent which His Father gave Him when He sent Him on His errand of love and mercy&mdash;"The Son of Man has power on earth to forgive sins."
+Now we come back to the palsied man and our Master and notice, in the third place, that right royally Jesus OPENLY DECLARED HIS COMMISSION. He seems to me to read the letters patent which His Father gave Him when He sent Him on His errand of love and mercy&mdash;"The Son of Man has power on earth to forgive sins."
 
 First, Jesus is the Son of Man. He does not conceal that fact. One would have thought that He would have said, "I am the Son of God," but here He still chooses to hold His Godhead in abeyance, so He says, "The Son of Man has power on earth to forgive sins. I, the Son of Mary. I, the carpenter's Son. I who dwelt at Nazareth 30 years. I who have gone up and down among you, worn with sufferings, pained by your hostility, wearied by labor for you, I, the Son of Man, have power to forgive sins." Think of that! He puts Himself on His very lowest standing and declares that as the Son of Man there is bestowed upon Him, by reason of His Godhead, the power to forgive sins!
 
@@ -54,7 +54,7 @@ I think that men would readily give up all the pleasures of this world and count
 
 Thus it was that Christ publicly unrolled His Divine commission, declaring that He had power on earth to forgive sins. He came here on purpose to forgive human guilt&mdash;not to condemn, no, not even to condemn her who was caught in the act of adultery&mdash;"Neither do I condemn you," He said&mdash;"Go, and sin no more." Jesus came not to condemn the thief who was dying on the Cross and confessing that He deserved to die. No, He said to him, "Today shall you be with Me in Paradise." It is Christ's business to pardon! It is His bliss to pardon! It is His glory to pardon! He came here on purpose that He might pardon the guilty. Oh, that all sinful ones would go to Him for forgiveness!
 
-After having thus declared His commission, let us note, in the fourth place, that JESUS EXHIBITED HIS CREDENTIALS.
+After having thus declared His commission, let us note, in the fourth place, that Jesus EXHIBITED HIS CREDENTIALS.
 
 Since the scribes disputed His power to pardon, He gave them a practical proof that He could forgive&mdash;and I need your special attention to this point. He said to them, in effect, "To forgive sin is a Divine act. Now, which is easier to say, Your sins are forgiven you, or to say, Arise, and walk?" I put it to you, dear Friends, which is the easier of the two? Mark that Jesus does not ask, "Which is the easier, to forgive sin, or to heal the palsy? No. He said, "Which is easier to say, Your sins are forgiven you or to say, Arise, and walk?"
 
@@ -82,7 +82,7 @@ of the best of a very bad make." Now, I do not like to have to say that of anybo
 
 "Ah!" says one, "I came here seeking the pardon of sin and now, Sir, you have got off to moral conduct." Quite so and that is where I want you to get off, too! Seek the pardon of sin, tonight&mdash;it is to be had, as I have told you, by faith. "Jesus, seeing their faith, said unto the sick of the palsy, Son, be of good cheer; your sins are forgiven you." But if you want to make sure that Christ is really able to forgive your sin, the very best evidence to you, and the only evidence to the outside scribes, will be that you take up your bed and walk. "Oh," you say, sometimes, "I still have many sins, but I am not what I used to be. I am a changed man at heart. I could not bear what I once enjoyed. I could not do what I once commonly did and the things that I loathed and despised are now delightful to me." I am glad that it is so with you and I pray that it may be so with all my hearers. May God work that great and gracious change in many who are in this Tabernacle tonight, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW8223-34,9:1-13.
+Exposition by C. H. Spurgeon: Matthew8223-34,9:1-13.
 
 Matthew's Gospel is the Gospel of the Kingdom, and of the King. Here you see the King amid the storms of Nature.
 

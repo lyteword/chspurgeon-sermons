@@ -11,7 +11,7 @@ Personally, I am glad of this comfort. I would gladly be at peace with all men: 
 
 Now to proceed at once to our text, seeing that the occasion of it is a sufficient preface. Let us notice, first, where God's people may be, and yet be God's people. They may be by God's own hand "scattered among the countries, and cast far off among the heathen." And, secondly, what God will be to them when they are is such circumstances. "Yet will I be to them as a little sanctuary in the countries where they shall come." May the Holy Spirit, who spake by Ezekiel, speak through these words to our hearts!
 
-First, then, WHERE GOD's PEOPLE MAY BE.
+First, then, WHERE God's PEOPLE MAY BE.
 
 If you ask where they may be, the answer to the question is, first, they may be under chastisment.
 
@@ -35,7 +35,7 @@ He made the fiend to fly"?
 
 You see where God's people may be, and yet may be none the less, but all the more, under the divine protection. Are you in difficult places? Be not dismayed, for this way runs the road to glory. Sigh not for the dove's wing to hurry to your rest, but take the appointed path: the footsteps of your Lord are there.
 
-So, now, I hasten at once into the sweet part of the subject, which consists of this: WHAT GOD WILL BE TO HIS PEOPLE WHEN THEY GET INTO THESE CIRCUMSTANCES. "Yet will I be to them as a little sanctuary in the countries where they shall come."
+So, now, I hasten at once into the sweet part of the subject, which consists of this: WHAT God WILL BE TO HIS PEOPLE WHEN THEY GET INTO THESE CIRCUMSTANCES. "Yet will I be to them as a little sanctuary in the countries where they shall come."
 
 Brethren, the great sanctuary stood on Mount Sion, "beautiful for situation, the joy of the whole earth." That glorious place which Solomon had builded was the shrine to which the Hebrew turned his eye: he prayed with his window open toward Jerusalem. Alas! when the tribes were carried away captive, they could not carry the holy and beautiful house with them, neither could they set up its like within the brazen gates of the haughty city. "Now," says the Lord God in infinite condescension, "I will be a travelling temple to them. I will be as a little sanctuary to each one of them. They shall carry my temple about with them. Wherever they are, I will be, as it were a holy place to them." In using the word "little," the gracious God would seem to say, "I will condescend to them, and I will be as they are. I will bow down to their littleness, and I will be to each little one of them a little sanctuary." Even the temple which Solomon builded was not a fit habitation for the infinite Jehovah, and so the Lord will stoop a little further, and be unto his people, not as the sanctuary "exceedingly magnifical," but as a little temple suitable for the most humble individual, rather than as a great temple in which vast multitudes could gather. "I will be to them as a little sanctuary" is a greatly condescending promise, implying an infinite stoop of love. There is a good deal more in my text than I shall be able to bring out, and I may seem, in making the attempt, to give you the same thought twice over. Please bear with me. Let me begin at the beginning.
 

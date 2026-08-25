@@ -10,7 +10,7 @@ Having thus comprehended all God's mercies under these two heads, the Psalmist a
 
 thereof."
 
-In considering these words, let us think, first, of THIS THING WHICH WE DO NOT KNOW, NAMELY, THE NUMBER OF GOD's MERCIES.
+In considering these words, let us think, first, of THIS THING WHICH WE DO NOT KNOW, NAMELY, THE NUMBER OF God's MERCIES.
 
 Have you ever tried to count them? Probably you never did that for even any dayin your life. I would like you to undertake that task and to jot down every mercy you receive from God in a single day&mdash;from the moment when the eyelids of the morning are opened till the moment when the curtains of the night are drawn. If your judgment were sufficiently enlightened to discern all the items, you would find that your arithmetic would fail to tell the total of them. But, Brothers and Sisters, the days of most of us have been many and there are some here who are approaching the longest period of human life. If the mercies of one da/would surpass their computation, what shall we say of the mercies of all these days in which they have been living as gentlemen-commoners upon the bounty of God, pensioners upon the loving kindness and faithfulness of the Most High? Truly, they may say, in the retrospect of all the loving kindness of the Lord, "We know not the numbers thereof."
 
@@ -125,7 +125,7 @@ I wish that all of us here, constantly receiving, as we do, so many mercies, had
 
 May God bless you all, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 71.
+Exposition by C. H. Spurgeon: Psalm 71.
 
 This Psalm, written by an old man, is especially suitable for an old man. It is numbered seventy-one and it may suit those who have reached that age&mdash;but it is also appropriate to us all in prospect of the days of feebleness that will come to us, sooner or later, if we are spared to grow old.
 
@@ -139,7 +139,7 @@ Be You my strong habitation, whereunto I may continually resort You have given c
 
 "You have commanded angels and men, 'Touch not My anointed, and do My Prophets no harm.'" And each Believer can say to Him, "You have given commandment to save me; for You are my rock and my fortress."
 
-4, 5. Deliver me, O my God, out of the hands of the wicked, out of the hands of the unrighteous and cruel man. For You are my hope, O Lord GOD: You are my trust from my youth Happy is the man who can truthfully say that, "You are my trust from my youth." God does not cast off His old servants, as men often do. Those who give Him the best of their days will not find that He will desert them when the feebleness of age creeps over them.
+4, 5. Deliver me, O my God, out of the hands of the wicked, out of the hands of the unrighteous and cruel man. For You are my hope, O Lord God: You are my trust from my youth Happy is the man who can truthfully say that, "You are my trust from my youth." God does not cast off His old servants, as men often do. Those who give Him the best of their days will not find that He will desert them when the feebleness of age creeps over them.
 
 By You have I been held up from the womb: You are He that took me out of my mother's womb: my praise shall be continually of You. We do not think, as often as we should, of what we owe to God for His care over us at the time of our birth. Our mothers returned thanks on their own behalf and ours, but, as we look back, we are bound to return thanks, too, for that kindly care of God in our most extreme weakness&mdash;when the little candle of life was scarcely lighted and might have been so easily blown out. Then, as God took care of us in our first infancy, do You not think that He will take care of us when we get into our second childhood? We are never likely to be quite as weak as we were then, but, as the Lord guarded us at that time, will He not guard us in those dark days which are already looming before some of us? Of course He will! Therefore, be of good courage, for He shall strengthen your heart and your praise shall be continually of Him.
 
@@ -159,7 +159,7 @@ O God, be not far from me: O my God, make haste for my help. Notice the still mo
 
 My mouth shall show forth Your righteousness and Your salvation all the day; for I know not the numbers thereof When David spoke of those who hated him without a cause, he said that they were more than the hairs of his head. He could not count them, but he went as near to doing so as he could. But when he began to speak of God's mercies as displayed in His righteousness and His salvation, he did not draw any comparison, or attempt to number them. This is a calculation in which we are utterly lost&mdash;our system of numeration fails us altogether when we come to deal with the loving kindness of the Lord!
 
-I will go in the strength of the LORD GOD: I will make mention of Your righteousness, even of Yours only. He did not reckon that any other righteousness was worth mentioning&mdash;and certainly not his own. The best of men, those who have been the most noted for their good works, have always been the first to feel that they had no works in which they could put any trust! One godly man, when he was dying, said to a friend, I have been trying to separate my good
+I will go in the strength of the Lord God: I will make mention of Your righteousness, even of Yours only. He did not reckon that any other righteousness was worth mentioning&mdash;and certainly not his own. The best of men, those who have been the most noted for their good works, have always been the first to feel that they had no works in which they could put any trust! One godly man, when he was dying, said to a friend, I have been trying to separate my good
 
 Volume 53 www.spurgeongems.org 7
 

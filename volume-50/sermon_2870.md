@@ -1,6 +1,6 @@
 # Sermon 2870 | Revelation and Conversion
 
-"The Law of the LORD is perfect, converting the soul." Psalm 19:7.
+"The Law of the Lord is perfect, converting the soul." Psalm 19:7.
 
 WHEN he spoke of "the Law of the Lord, David did not merely mean the Law as it was given in the Ten Commandments, although that also is perfect and is used, to some extent, in the conversion of souls. The term includes the entire Doctrine of God&mdash;the whole Divine Revelation and though, in David's day, there was not so full and clear a Revelation as we have&mdash;for the New Testament was not then given, nor much of the Old Testament, yet the text has lost none of its former force, but has rather gained more. So I shall use it as applicable to the entire Scriptures&mdash;to the Law and to the Gospel&mdash;and to all that God has revealed. And speaking of it in that sense, I may truly say that it is perfect and that it converts the soul.
 
@@ -10,7 +10,7 @@ The Word of God must be tested, like other books, by the effect which it produce
 
 My first objective will be to show how the Word of God converts the soul Then to show the excellence of the work of conversion. And, therefore, thirdly, the excellence of that Book which produces conversion.
 
-First, then, I am to show HOW THE WORD OF GOD CONVERTS THE SOUL.
+First, then, I am to show HOW THE WORD OF God CONVERTS THE SOUL.
 
 Man's face is turned away from his Maker. Ever since the fatal day when our first parents broke the Law of God, we have been, all of us, guilty of the same great crime. We stand as men who have their backs to the light and we are going the downward road, the road which leads to destruction. What we need is to be turned around, for that is the meaning of the word, "converted"&mdash;turned right about. We need to hear the command, "Right about face," and to march in the opposite direction from any in which we have ever marched before. Our text truly says that the Word of God turns us around. It does not mean that the Word alone does that apart from the Spirit of God, because a man may read the Bible through 50 times and, for 50 years hear sermons that have all come out of the Bible, and yet they will never turn him unless the Spirit of God makes use of the Word of God or the preacher's sermons. But when the Spirit of God goes with the Word, then the Word becomes the instrument of the conversion of the souls of men.
 
@@ -74,7 +74,7 @@ True conversion, likewise, gives a harmony to all the duties of Christian life. 
 
 True conversion brings a man to live for God. He does everything for the Glory of God&mdash;whether he eats, or drinks, or whatever he does. True conversion makes a man live before God. He used to try to fancy that God did not see him. But now he desires to live as in God's sight at all times and he is glad to be there&mdash;glad even that God should see his sin&mdash; that He may blot it out as soon as ever He beholds it. And such a man now comes to live with God. He has blessed communion with Him, He talks with Him as a man talks with his friend and, by-and-by, he shall dwell with God throughout eternity in the palace above! This ought to convince you what an excellent thing true and real conversion is.
 
-I have no need to say much, in the third place, concerning THE CONSEQUENT EXCELLENCE OF THE WORD OF GOD. The Law of the Lord which accomplishes such an excellent work, must itself be excellent. I will, therefore, only make one or two brief remarks and then close.
+I have no need to say much, in the third place, concerning THE CONSEQUENT EXCELLENCE OF THE WORD OF God. The Law of the Lord which accomplishes such an excellent work, must itself be excellent. I will, therefore, only make one or two brief remarks and then close.
 
 "The Law of the Lord is perfect, converting the soul," right away from the beginning of conversion to the end. Whenever we want to have converts&mdash;and I hope that is always&mdash;the best thing for us to do is to "preach the Word." There is nothing better! There can be nothing more&mdash;there must be nothing less! I do not wonder that in some churches and chapels, there are no conversions&mdash;because the sermons that are preached there are not adapted to that end. They
 
@@ -94,7 +94,7 @@ preached to him. As I have already told you, the promise is, "Hear, and your sou
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;551, 658, 561.
 
-EXPOSITION BY C. H. SPURGEON: PSALM19.
+Exposition by C. H. Spurgeon: Psalm19.
 
 This Psalm teaches us the excellence of the two Revelations which God has made to man. The first is the Revelation which He has made in Nature, and the second is that which He has made in His Inspired Word. The Psalmist first sings of God as He displays Himself in His works in Creation.
 
@@ -106,13 +106,13 @@ Day unto day utters speech, and night unto night shows knowledge. Every day spea
 
 4-6. In them has He set a tabernacle for the sun, which is as a bridegroom coming out of his chamber, and rejoices as a strong man to run a race. Its rising from one end of Heaven, and its circuit to the other end: and there is nothing hid from the heat thereof. All this is emblematical of the spread of the Gospel&mdash;so Paul tells us in the Epistle to the Romans, "Their souls went into all the earth, and their words unto the ends of the world." Our Lord Jesus, springing up from the couch where He slept awhile, has sent His Light even to the ends of the earth&mdash;
 
-"Nor shall His spreading Gospel rest Till through the world His Truth has run&mdash; Till Christ has all the nations blest, That see the light, or feel the sun." There are brighter days yet to come to us! The strength of Christ, as He daily runs the Gospel race, has not diminished. Indeed, He puts it out yet more and more, and the day shall come when, as the full sunlight makes the perfect day, so shall the full Revelation of the Gospel to the eyes of all men fill the whole earth with the praises of God! Now let us read concerning the Book of God. We have read about His works, now let us read about His words. 7. The law of the LORD is perfect. "The Doctrine of the Lord (as it may be read) is perfect." 7. Converting  the soul the testimony of the LORD is sure. Oh, what a mercy that is! What could our souls do with ifs and buts and perhapses? But the teachings of God's Word are certain, positive, Infallible!
+"Nor shall His spreading Gospel rest Till through the world His Truth has run&mdash; Till Christ has all the nations blest, That see the light, or feel the sun." There are brighter days yet to come to us! The strength of Christ, as He daily runs the Gospel race, has not diminished. Indeed, He puts it out yet more and more, and the day shall come when, as the full sunlight makes the perfect day, so shall the full Revelation of the Gospel to the eyes of all men fill the whole earth with the praises of God! Now let us read concerning the Book of God. We have read about His works, now let us read about His words. 7. The law of the Lord is perfect. "The Doctrine of the Lord (as it may be read) is perfect." 7. Converting  the soul the testimony of the Lord is sure. Oh, what a mercy that is! What could our souls do with ifs and buts and perhapses? But the teachings of God's Word are certain, positive, Infallible!
 
 Making wise the simple. No matter how foolish, how childlike we may be to begin with, so long as our minds are free from cunning and craftiness, and so are simple and sincere, this Book will make us truly wise.
 
-The statutes of the LORD are right, rejoicing the heart. You know they do. Oftentimes has your heart leaped for joy when the statutes of the Lord have been made known to you.
+The statutes of the Lord are right, rejoicing the heart. You know they do. Oftentimes has your heart leaped for joy when the statutes of the Lord have been made known to you.
 
-8-11. The commandment of the LORD is pure, enlightening the eyes. The fear of the LORD is clean, enduring forever: the judgments of the LORD are true and righteous altogether. More to be desired are they than gold, yes, than much fine gold: sweeter also than honey and the honeycomb. Moreover by them is Your servant warned. Do you not find it so&mdash;that oftentimes a text of Scripture comes to your mind just at the moment when you were about to suffer spiritual shipwreck? When you would have done something that would have caused you lifelong grief and vast damage, the Word of God has stepped before you with the flaming danger signal and you have been stopped in time!
+8-11. The commandment of the Lord is pure, enlightening the eyes. The fear of the Lord is clean, enduring forever: the judgments of the Lord are true and righteous altogether. More to be desired are they than gold, yes, than much fine gold: sweeter also than honey and the honeycomb. Moreover by them is Your servant warned. Do you not find it so&mdash;that oftentimes a text of Scripture comes to your mind just at the moment when you were about to suffer spiritual shipwreck? When you would have done something that would have caused you lifelong grief and vast damage, the Word of God has stepped before you with the flaming danger signal and you have been stopped in time!
 
 And in keeping of them there is great reward. Not forkeeping of them, for it is not of debt, but, "in keeping of them." It is always best to do as God bids you. You never forget a duty, or refuse to do it without suffering loss, and every mistake you make, with regard to your Lord's will, is a damage to yourselves. The keeping of His commands is most soul-enriching. The most profitable business that a child of God can carry on is the business of obedience to his Lord's commands. "In keeping of them there is great reward."
 
@@ -122,4 +122,4 @@ Keep back Your servant also from presumptuous sins. "Let me never dare to do wha
 
 Let them not have dominion over me: then shall I be upright, and I shall be innocent from the great transgression. You will never go into apostasy if you are watchful against presumption. Those men who, like Judas, commit the great transgression and utterly perish, are men who knew nothing about watching their own hearts, but who presumed, and were sinfully bold and self-confident&mdash;and so came to an ill end. You know where John Bunyan says Heedless and Too-Bold went&mdash;and there are many like them.
 
-Let the word of my mouth, and the meditation of my heart, be acceptable in Your sight; O LORD, my strength, and my Redeemer.
+Let the word of my mouth, and the meditation of my heart, be acceptable in Your sight; O Lord, my strength, and my Redeemer.

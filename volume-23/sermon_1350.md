@@ -92,7 +92,7 @@ are there"! Ah, it is ill to have "the means of Grace" without the Grace of the 
 
 I refer to those that are not here. When you get home tell them so&mdash;tell them what I have said about it&mdash;and then perhaps they will say, "Well, if the pastor always speaks severely of those who are not there we had better go, so as to escape his censures."
 
-Now let us mention briefly SOME OF THE WAYS BY WHICH THIS QUICKENING MAY BE WORKED IN
+Now let us mention briefly SOME OF THE WAYS by WHICH THIS QUICKENING MAY BE WORKED IN
 
 US. Of course the Lord, Himself, must do it. In prayer it must be sought because by His power it must be worked. The prayer is, "Quicken me, O Lord, according to Your Word." He does not expect the quickening from any but a Divine source. From where can life come but from the ever living God? How can we expect that we should get life if, while we seek the gratuity, we totally forget the Divine energy of Him who alone can bestow it? In the thirty-seventh verse we are told how the Lord often quickens His people, namely, by turning off their eyes from beholding vanity. "Turn away my eyes from beholding vanity; and quicken me in Your way."
 
@@ -110,7 +110,7 @@ When very despondent and sad at heart, I have felt a soft stream, as though it w
 
 "Your mercy is more than a match for my heart, Which wonders to feel its own hardness depart, Dissolved by Your goodness, I fall to the ground, And weep to the praise of the mercy I've found." You will often have proved, I doubt not, how God uses the comfort of His Spirit to quicken His children.
 
-Our last point is to enquire WHAT ARE OUR PLEAS WHEN WE COME BEFORE GOD TO ASK FOR
+Our last point is to enquire WHAT ARE OUR PLEAS WHEN WE COME BEFORE God TO ASK FOR
 
 QUICKENING? What arguments shall we use? Well, Brothers and Sisters, use first the argument of your necessity. Whatever that necessity is, particularize it, as David does in the one hundred and seventh verse&mdash;"I am afflicted very much; quicken me." Or take our text, "My soul cleaves to the dust, quicken me." Plead your necessities! Your needs shall be the argument for the oil and wine. Your emaciation and your hunger shall be the argument for a festival. Show the Lord what you are and where you are. Confess it before Him and this shall be good pleading.
 

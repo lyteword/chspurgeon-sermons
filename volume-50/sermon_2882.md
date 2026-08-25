@@ -80,15 +80,15 @@ Suppose he had been hanged? What would his parents have said? Well, they might h
 
 Blessed Spirit, apply this message to the Lord's own chosen ones and save many precious souls through it, for the Redeemer's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 32; 130.
+Exposition by C. H. Spurgeon: PsalmS 32; 130.
 
 Psalm 32:1. Blessed is he whose transgression is forgiven, whose sin is covered. No man knows the blessedness of pardoned sin but the man who has felt the weight of guilt upon his conscience. If you have ever been burdened and crushed under a load of sin, it will be a joy worth more than ten thousand worlds for you to get the burden lifted from your shoulders! "Blessed"&mdash;blessed beyond description&mdash;"is he whose transgression is forgiven, whose sin is covered."
 
-Blessed is the man unto whom the LORD imputes not iniquity, and in whose spirit there is no guile. He has no need to dissemble, for his sin is forgiven. David had tried to tamper with his conscience after his great sin. He invented all sorts of excuses and schemes to try to hide his guilt, but when, at last, he was fully convinced of the awful sinfulness of his sin, and when God had put it away forever&mdash;then&mdash;when the guilt was gone, the guile went, too.
+Blessed is the man unto whom the Lord imputes not iniquity, and in whose spirit there is no guile. He has no need to dissemble, for his sin is forgiven. David had tried to tamper with his conscience after his great sin. He invented all sorts of excuses and schemes to try to hide his guilt, but when, at last, he was fully convinced of the awful sinfulness of his sin, and when God had put it away forever&mdash;then&mdash;when the guilt was gone, the guile went, too.
 
 3, 4. When I kept silence, my bones waxed old through my roaring all the day long. For day and night Your hand was heavy upon me: my vitality was turned into the drought of summer Selah. As if he was parched and scorched with inward grief. The agony of his soul kept him from sleeping, prevented him from taking his necessary food and made him seem like a prematurely old man.
 
-I acknowledged my sin unto You, and my iniquity I have not hidden. I said I will confess my transgressions unto the LORD; and You forgave the iniquity of my sin. Selah. O blessed termination of a terrible condition of heart! Confession pulled up the floodgates of his soul and God caused the black stream to flow away and disappear! Friend, are you trying to conceal any sin or to excuse yourself in any wrong course? Then your soul will fret and worry more and more. But make a clean breast of it before God&mdash;in the humblest and most honest language you can use&mdash;and then you shall receive the Lord's full and free forgiveness!
+I acknowledged my sin unto You, and my iniquity I have not hidden. I said I will confess my transgressions unto the Lord; and You forgave the iniquity of my sin. Selah. O blessed termination of a terrible condition of heart! Confession pulled up the floodgates of his soul and God caused the black stream to flow away and disappear! Friend, are you trying to conceal any sin or to excuse yourself in any wrong course? Then your soul will fret and worry more and more. But make a clean breast of it before God&mdash;in the humblest and most honest language you can use&mdash;and then you shall receive the Lord's full and free forgiveness!
 
 For this shall everyone who is godly pray unto You in a time when You may be found. Surely in the floods of great waters they shall not come near unto him. A man who can pray shall see even the ocean driven back, as Moses did! If you get near to God and stay near to Him, the floods of great waters shall never get near to you.
 
@@ -100,17 +100,17 @@ Be you not as the horse, or as the mule, which have no understanding: whose mout
 
 Many sorrows shall be to the wicked. Wicked man, that is the portion that is to come to you&mdash;and it will surely come to you if you continue in your present evil course. This is the title deed of your future inheritance&mdash;do you like the prospect of such a possession as that? "Many sorrows shall be to the wicked."
 
-10, 11. But he that trusts in the LORD, mercy shall compass him about Be glad in the LORD, and rejoice, you righteous, and shout for joy, all you that are upright in heart. Let your joy be demonstrative! Do not be ashamed to let others see how happy you are. The Lord has done great things for you&mdash;therefore, "be glad in the Lord, and rejoice, you righteous, and shout for joy, all you that are upright in heart." Be so jubilant that others shall be compelled to glorify God with you and to ask, "May not we also share this great blessing with you?"
+10, 11. But he that trusts in the Lord, mercy shall compass him about Be glad in the Lord, and rejoice, you righteous, and shout for joy, all you that are upright in heart. Let your joy be demonstrative! Do not be ashamed to let others see how happy you are. The Lord has done great things for you&mdash;therefore, "be glad in the Lord, and rejoice, you righteous, and shout for joy, all you that are upright in heart." Be so jubilant that others shall be compelled to glorify God with you and to ask, "May not we also share this great blessing with you?"
 
-Psalm 130:1. Out of the depths have I cried unto You, O LORD. "Sinking, sinking, sinking&mdash;drowning, dying&mdash; hope all but gone, almost everything gone&mdash;yet I have cried unto You with much fear and little hope. 'Out of the depths have I cried unto You, O Lord.'"
+Psalm 130:1. Out of the depths have I cried unto You, O Lord. "Sinking, sinking, sinking&mdash;drowning, dying&mdash; hope all but gone, almost everything gone&mdash;yet I have cried unto You with much fear and little hope. 'Out of the depths have I cried unto You, O Lord.'"
 
-2, 3. Lord, hear my voice: let Your ears be attentive to the voice of my supplications. If You, LORD, should mark iniquities, O Lord, who shall stand? Judged by ourselves, on the ground of absolute justice, none of us can hope to stand before His Judgment Seat without being condemned. I trust that we all know and feel that this is true.
+2, 3. Lord, hear my voice: let Your ears be attentive to the voice of my supplications. If You, Lord, should mark iniquities, O Lord, who shall stand? Judged by ourselves, on the ground of absolute justice, none of us can hope to stand before His Judgment Seat without being condemned. I trust that we all know and feel that this is true.
 
-4, 5. But there is forgiveness with You, that You may be feared. I wait for the LORD, my soul does wait, andin His word do I hope. Never yet has any poor soul perished that could use such language as this! It may be a long while before you get the full comfort of all the Lord's promises, but you are sure to have it, sooner or later, if you can but hope "in His Word." Well did good John Newton sing&mdash;
+4, 5. But there is forgiveness with You, that You may be feared. I wait for the Lord, my soul does wait, andin His word do I hope. Never yet has any poor soul perished that could use such language as this! It may be a long while before you get the full comfort of all the Lord's promises, but you are sure to have it, sooner or later, if you can but hope "in His Word." Well did good John Newton sing&mdash;
 
 "Rejoice, Believer, in the Lord, Who makes your cause His own! The hope that's built upon His Word Can never be overthrown!"
 
-6-8. My soul waits for the Lord more than they that watch for the morning: I say, more than they that watch for the morning. Let Israel hope in the LORD: for with the LORD there is mercy, and with Him is plenteous redemption. And
+6-8. My soul waits for the Lord more than they that watch for the morning: I say, more than they that watch for the morning. Let Israel hope in the Lord: for with the Lord there is mercy, and with Him is plenteous redemption. And
 
 He shall redeem Israel from all her iniquities. Children of God, plead that precious promise&mdash;"He shall redeem Israel from all her iniquities." And never rest till you are fully freed from the bondage of sin, for God will work a perfect work in you and then He will take you Home to be with Him forevermore!
 
@@ -118,7 +118,7 @@ HYMNS FROM "OUR OWN HYMN BOOK"&mdash;202, 556, 559.
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.Sermon #2883
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.Sermon #2883
 
 Metropolitan Tabernacle Pulpit
 
@@ -126,9 +126,9 @@ Prisoners Delivered
 
 a SERMON PUBLISHED ON THURSDAY, MAY 12, 1904.
 
-DELIVERED BY C. H. SPURGEON,
+DELIVERED by C. H. Spurgeon,
 
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON, LORD's-DAY EVENING, APRIL 2, 1876.
+AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON, Lord's-DAY EVENING, APRIL 2, 1876.
 
 "As for you also, by the blood of your covenant Ihave sent forth yourr prisoners from the waterless pit. Return to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you."
 
@@ -215,11 +215,11 @@ Finally, note how true the promise is. When God says, "Even today do I declare t
 
 God grant that this may be the happy experience of many of you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ZECHARIAH9.
+Exposition by C. H. Spurgeon: Zechariah9.
 
-Verse 1. The burden of the word of the LORD in the land of Hadrach. Or Syria.
+Verse 1. The burden of the word of the Lord in the land of Hadrach. Or Syria.
 
-1, 2. And Damascus shall be the rest thereof: when the eyes of man, as of all the tribes of Israel, shall be toward the LORD. And Hamath also shall border thereby. Tyrus. That is, Tyre.
+1, 2. And Damascus shall be the rest thereof: when the eyes of man, as of all the tribes of Israel, shall be toward the Lord. And Hamath also shall border thereby. Tyrus. That is, Tyre.
 
 2-4. And ZidOon, though it is very wise. And Tyrus did build herself a stronghold, and heaped up silver and the dust, and fine gold as the mire of the streets. Behold, the Lord will cast her out and He will smite her power in the sea; and she shall be devoured with fire. This prophecy was literally fulfilled. Tyre was attacked by Alexander the Great and after withstanding a long siege, was destroyed by him. The strength of the city lay in the fact that it was built right out into the sea and that it was protected by a vast, massive hole. Also, as a great trading center, it possessed enormous wealth and so was able to hire mercenary soldiers. But all its power and its wealth could not preserve it from destruction! And although we read of Tyre in the New Testament, it is now only a place for the drying of the nets of a few poor fishermen, even as Ezekiel foretold that it would be (26:14). When God foretells destruction, it always comes. But, blessed be His holy name, when He promises blessing, that comes just as surely!
 
@@ -249,6 +249,6 @@ And the Lord shall be seen over them. As He has in the midst of His people of ol
 
 And His arrows shall go forth as the lightning: and the Lord God shall blow the trumpet, and shall go with whirlwinds of the south. Here you have a foresight of Pentecost and the grand era which succeeded the outpouring of the Spirit. Oh, that we might once again prove what God's Almighty Spirit can do!
 
-The LORD ofHosts shall defend them; and they shall devour, and subdue with sling stones and they shall drink, and make a noise as through wine; and they shall be filled like bowls, and as the corners of the altar You remember that the mockers said, on the day of Pentecost, "These men are full of new wine." They were not, as Peter plainly declared, "these are not drunken, as you suppose." Neither does this prophesy mean that they would be so, but that the Spirit of God should fall so copiously upon them as to fill them, like bowls brimming over with precious liquid, or like the corners of the altar drenched for Elijah's sacrifice. It is a grand thing when Believers in Christ are thus filled to overflowing with the Spirit of God and Divine energy&mdash;they are the men who will win the battle for the cause of God and His Truth.
+The Lord ofHosts shall defend them; and they shall devour, and subdue with sling stones and they shall drink, and make a noise as through wine; and they shall be filled like bowls, and as the corners of the altar You remember that the mockers said, on the day of Pentecost, "These men are full of new wine." They were not, as Peter plainly declared, "these are not drunken, as you suppose." Neither does this prophesy mean that they would be so, but that the Spirit of God should fall so copiously upon them as to fill them, like bowls brimming over with precious liquid, or like the corners of the altar drenched for Elijah's sacrifice. It is a grand thing when Believers in Christ are thus filled to overflowing with the Spirit of God and Divine energy&mdash;they are the men who will win the battle for the cause of God and His Truth.
 
-17. And the LORD their God shall sa ve them in that day as the flock of His people; for they shall be as the stones of a crown, lifted up as an ensign upon His land. For how great is His goodness, and how great is His beauty! Corn shall make the young men cheerful, and new wine the maids.
+17. And the Lord their God shall sa ve them in that day as the flock of His people; for they shall be as the stones of a crown, lifted up as an ensign upon His land. For how great is His goodness, and how great is His beauty! Corn shall make the young men cheerful, and new wine the maids.

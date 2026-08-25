@@ -76,7 +76,7 @@ Come, then, and do not depart from the living God by an evil heart of unbelief. 
 
 And this shall be the punishment of your sin&mdash;you shall reap it fully developed, for Hell is sin full grown! God save us from the baby, which is sin, that we may not know the man, which is Hell! God save us from the seed, which is sin, that we may not know the harvest, which is Hell! God save us from the spark, which is sin, that we may not know the conflagration, which is eternal damnation! God save and bless you, dear Friends, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 3:1-16.
+Exposition by C. H. Spurgeon: Hebrews 3:1-16.
 
 Verse 1. Therefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus. Oh, that He had more consideration at our hands! Consider Him&mdash;you cannot know all His excellence, all His value to you, unless He is the subject of your constant meditation. Consider Him&mdash;think of His Nature, His offices, His work, His promises, His relation to you. "Consider the Apostle and High Priest of our profession, Christ Jesus.
 

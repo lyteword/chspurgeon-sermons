@@ -76,7 +76,7 @@ That is what you have to be, dear Friends. When you cannot do anything, then you
 
 Some of you will have to go down once or twice more before the Lord Jesus Christ will give you eternal salvation. You are still too good. You are still too big. You are too strong&mdash;you have such a very respectable character that you are not content to come in at Christ's back door, where He receives none but poor, guilty sinners! You are not quite naked yet&mdash;there is a rag or two of your own righteousness about you. You will have to be stripped and then you shall put on the robe of Christ's righteousness! You have only a bone or two broken and you can crawl about a little&mdash;you have yet to be ground to powder! When you become nothing&mdash;when you have no good feelings, no good desires, or anything you can bring to Christ&mdash;when you come to Christ, not with a broken heart, but for a broken heart, then He will receive you! Then you will be the kind of man that Christ came to save! Oh, that He would bring you to that point very speedily, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ISAIAH3.
+Exposition by C. H. Spurgeon: Isaiah3.
 
 Verse 1. The Spirit of the Lord God is upon Me. These are the words of the Lord Jesus Christ. The Prophet, looking forward to the time of His coming into the world, put them into His mouth and, in due time, our Savior read them and applied them to Himself in the synagogue at Nazareth as He said, "This day is this Scripture fulfilled in your ears." "The Spirit of the Lord God is upon Me."
 

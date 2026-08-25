@@ -10,7 +10,7 @@ So I admire the wisdom of Paul. When he would bring these Corinthians up to a hi
 
 Now, this text, tonight, gives me three things to speak of. The first is, that Christ is a Gift. And, secondly, that as a Gift, Christ is unspeakable. And, thirdly, that as a Gift unspeakable, Christ calls forth praise to God from us.
 
-First, then, CHRIST IS a GIFT.
+First, then, Christ IS a GIFT.
 
 How often you hear people speak about Christ and His salvation as though they were the reward of merit&mdash;as though we did something by which to win his Divine favor! If they do not teach that salvation comes through our own merits, yet, according to them, it is the effect of our feelings and our experiences. Somehow or other, according to this common notion, we must get fit to receive God's Gift and thus, what comes to us is more our due than an alms of heavenly charity! I hesitate not to say that this teaching flies in the teeth of the entire Word of God. Everywhere in the Scriptures the great word is not merit, but GRACE&mdash;not deserving, but receiving freely of the great mercy of our God!
 
@@ -38,7 +38,7 @@ I was surprised, the other day, when I found that a poor soul in deep despair ha
 
 Thus much, and perhaps too much, considering our time, on the first point, that Christ is a Gift, the free Gift of God's Grace.
 
-Now, in the second place, let us consider the fact that, AS a GIFT, CHRIST IS UNSPEAKABLE. "Thanks be
+Now, in the second place, let us consider the fact that, AS a GIFT, Christ IS UNSPEAKABLE. "Thanks be
 
 unto God for His unspeakable Gift," said the Apostle Paul&mdash;and so say we. "Why," asks one, "do you speak about Him, then?" Well, principally because He is unspeakable. By this time, after nearly 1900 years, if the theme we have to preach about were speakable, we should have exhausted it&mdash;but as it is unspeakable, a sea without a shore, an ocean without a bottom&mdash;we will keep on preaching for another 1900 years, if the Lord does not come&mdash;and we shall never get to the end of this theme, I am quite sure!
 
@@ -62,7 +62,7 @@ I know a man, an eminent painter, and a person sat for him 13 times for his port
 
 I have come so far and reached my last point. I wish that we had more time for such a glorious theme.
 
-Now, thirdly, AS a GIFT UNSPEAKABLE, CHRIST CALLS FORTH PRAISE TO GOD FROM US. "Thanks
+Now, thirdly, AS a GIFT UNSPEAKABLE, Christ CALLS FORTH PRAISE TO God FROM US. "Thanks
 
 be unto God for His unspeakable Gift."
 
@@ -111,11 +111,11 @@ Now I am the blackbird that would start the praise tonight. There are birds of a
 > Praise Him above, you heavenly host,   
 > Praise Father, Son, and Holy Ghost.   
 
-EXPOSITION BY C. H. SPURGEON. ISAIAH53.
+Exposition by C. H. Spurgeon. Isaiah53.
 
 Mr. Moody was once asked whether his creed was in print. In his own prompt way, he replied, "Yes, Sir. You will find it in the fifty-third Chapter of Isaiah." A condensed Bible is in this chapter. You have the whole Gospel here.
 
-Verse 1. Who has believed our report? and to whom is the arm of the LORD revealed? Nobody ever does believe either Prophets or preachers except through the work of God's Spirit and Grace. The Lord's arm must be revealed, or else His Truth proclaimed by His servants will never be accepted. All the Prophets speak in these words of Isaiah, as if they all stood together, and lifted up this wail, "Who has believed our report? And to whom is the arm of the Lord revealed?"
+Verse 1. Who has believed our report? and to whom is the arm of the Lord revealed? Nobody ever does believe either Prophets or preachers except through the work of God's Spirit and Grace. The Lord's arm must be revealed, or else His Truth proclaimed by His servants will never be accepted. All the Prophets speak in these words of Isaiah, as if they all stood together, and lifted up this wail, "Who has believed our report? And to whom is the arm of the Lord revealed?"
 
 For He shall grow up before Him as a tender plant, and as a root out of a dry ground: He has no form nor comeliness; and when we shall see Him, there is no beauty that we should desire Him. This is Israel's King, the long-promised Messiah! Yet when He comes to Bethlehem, see what "a tender plant" He is! Look at the house of David, almost extinct, and see what "a root out of a dry ground" is&mdash;
 
@@ -136,7 +136,7 @@ His own people, yes, His own chosen ones, turned away from Him! And you and I di
 
 4, 5. Surely He has borne our griefs, and carried our sorrows: yet we did esteem Him stricken, smitten of God, and afflicted. But He was wounded for our transgressions, He was bruised for our iniquities: the chastisement of our peace was upon Him; and with His stripes we are healed. What a joyous note there is in that sorrowful line, "With His stripes we are healed"! Glory be to God, we are healed of our soul-sickness, cured of the disease of sin by this strange surgery, not by stripes upon ourselves, but by stripes upon our Lord!
 
-All we like sheep have gone astray; we have turned, everyone, to his own way; and the LORD has laid on Him the iniquity of us all. The general sin of the race, the special sin of the individual&mdash;all gathered, heap upon heap, mountain upon mountain&mdash;and laid by God on Christ! We sometimes sing&mdash;
+All we like sheep have gone astray; we have turned, everyone, to his own way; and the Lord has laid on Him the iniquity of us all. The general sin of the race, the special sin of the individual&mdash;all gathered, heap upon heap, mountain upon mountain&mdash;and laid by God on Christ! We sometimes sing&mdash;
 
 "I lay my sins on Jesus, The spotless Lamb of God. He bears them all and frees us From the accursed load. I bring my guilt to Jesus, To wash my crimson stains White in His blood most precious, Till not a spot remains,"
 
@@ -146,7 +146,7 @@ He was oppressed, and He was afflicted, yet He opened not His mouth: He is broug
 
 9. He was taken from prison and from judgment: and who shall declare His generation? for He was cut off out of the land of the living: for the transgression of My people was He stricken. And He made His grave with the wicked, and with the rich in His death; because He had done no violence, neither was any deceit in His mouth. Therefore He was allowed to be buried in the tomb of Joseph of Arimathaea. He was no felon, whose body must be cast out to the kites and jackals, but "He made His grave with the wicked, and with the rich in His death; because He had done no violence, neither was any deceit in His mouth."
 
-Yet it pleased the LORD to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, He shall prolong His days, and the pleasure of the LORD shall prosper in His hand. Wicked men slew our Lord, and their crime was the blackest in the world's history, but, unconsciously, they were carrying out "the determinate counsel and foreknowledge of God." "It pleased the Lord to bruise Him; He has put Him to grief." Christ died
+Yet it pleased the Lord to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, He shall prolong His days, and the pleasure of the Lord shall prosper in His hand. Wicked men slew our Lord, and their crime was the blackest in the world's history, but, unconsciously, they were carrying out "the determinate counsel and foreknowledge of God." "It pleased the Lord to bruise Him; He has put Him to grief." Christ died
 
 for others, but He lives, again, and through Him a godly seed shall live forever and ever&mdash;"When You shall make His soul an offering for sin, He shall see His seed, He shall prolong His days, and the pleasure of the Lord shall prosper in His hand." He is made to prosper because He died.
 

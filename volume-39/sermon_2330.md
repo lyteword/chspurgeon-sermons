@@ -88,7 +88,7 @@ And, specially, I want to bear my witness, not, of course, a personal one, but t
 
 May the Spirit of God rest upon you, Beloved in the Lord, and may you hear your Master say to you, "You shall be witnesses unto Me." Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: LUKE 4:16-30; 9:57-62 AND MATTHEW 28:16-20.
+ExpositionS by C. H. Spurgeon: Luke 4:16-30; 9:57-62 AND Matthew 28:16-20.
 
 We will read three short passages of Scripture, all relating to Christ's service. The first concerns the ministry of the Lord Jesus, Himself.
 

@@ -54,7 +54,7 @@ Some of us have been, for years, engaged in the Master's work, but I suppose we 
 
 Get up, O Babe, up on your Father's knee and ask Him to make you a young man! And rise, O young Man, and pray the Lord to make you a father in the midst of Israel, and a blessing to many, for we have not many fathers in the Church of God. Aspire to live to the utmost of life's possibilities and let this be the resolve of every Brother and Sister here&mdash; that, by God's Grace, you will drink in as much of love, of life, of light and of power from God as you can hold&mdash;and that you will endeavor to reflect as much of God's Light and Glory among the sons of men as He is pleased to bestow upon you. "I will strengthen them in the Lord." So much for that first point.
 
-Now I want to come, in the second place, to a matter with which I have very great personal sympathy just now. "I will strengthen them in the Lord"&mdash;I call your attention here TO a VERY REMARKABLE OPERATION. Strength is given, of that we have spoken. But here is the giving of the strength, God Himself declaring that He will bestow it. The Lord Himself says, "/ will strengthen them." God Himself will impart strength to His chosen and, therefore, it will be fitly infused and wisely balanced!
+Now I want to come, in the second place, to a matter with which I have very great personal sympathy just now. "I will strengthen them in the Lord"&mdash;I call your attention here TO a VERY REMarkABLE OPERATION. Strength is given, of that we have spoken. But here is the giving of the strength, God Himself declaring that He will bestow it. The Lord Himself says, "/ will strengthen them." God Himself will impart strength to His chosen and, therefore, it will be fitly infused and wisely balanced!
 
 I would say of this operation, that it is painfully needed. You know how it is with our bodies&mdash;if we suffer long from illness, when the pain is gone there is a dreadful weakness left and we require time to regain strength. Restoration is a long process. The weakened limbs only recover strength by slow degrees. The man that long has tossed upon the weary bed of pain does not, at once, run and leap as he did before the chill hand of disease was laid upon him. You may crush in a moment, but you cannot so speedily cure. Our soul, like our body, is sometimes grievously diseased, and we fall into sin and backsliding, doubt and fear, lukewarmness and grief and we are brought to death's door. Then it is that we need this text, "I will strengthen them in the Lord." Brother, your sin is forgiven by the Grace of God! Your great grief is taken from you by the kind application of the blood of Christ by the Holy Spirit, but you are dreadfully feeble and can hardly crawl to the Mercy Seat.
 
@@ -105,7 +105,7 @@ PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Psalm 23. HYMNS FROM "OUR OWN HYMN
 
 Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-Just Published. Price 1s. 6d. THE GOSPEL OF THE GRACE OF GOD
+Just Published. Price 1s. 6d. THE GOSPEL OF THE GRACE OF God
 
 BEING
 

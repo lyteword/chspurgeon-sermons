@@ -85,7 +85,7 @@ And I pray you will not go away to talk of this and that which you have marked i
 
 How else shall your life be spared when the wicked are judged? How else shall you find shelter when the tempest of Divine wrath rages? How else shall you stand in the lot of the righteous at the end of the days?
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS1.
+Exposition by C. H. Spurgeon: Ephesians1.
 
 Verses 1, 2. Paul, an Apostle of Jesus Christ by the will of God, to the saints, which are at Ephesus, and to the faithful in Christ Jesus, Grace be to you, andpeace, from God our Father, and from the Lord Jesus Christ The Apostle desires the same blessing for us who are "the faithful in Christ Jesus," as he did for the saints at Ephesus. He longs that we, also, may be filled with Grace and peace "from God our Father, and from the Lord Jesus Christ." And the wish of the Apostle is according to the will of God who would have us abound in Grace and in peace. Some of you Christian people are troubled in mind, yet your Lord said to His disciples and through them to you, "Peace I leave with you, My peace I give unto you...Let not your heart be troubled, neither let it be afraid." Jesus knew that in the world you would have tribulation, but He willed that in Him you would have peace. And the way to get that peace is by getting Divine Grace. "Grace be to you, and peace." The more gracious you are, the more easily will you bear the trying circumstances which surround you. Look not for peace apart from Grace&mdash;when you have Grace, you have a right to peace.
 

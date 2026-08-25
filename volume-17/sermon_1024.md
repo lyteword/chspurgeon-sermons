@@ -95,4 +95,4 @@ As I have trodden the Appian way I have rejoiced that Jesus, whom Paul preached,
 
 Yours, for Jesus' sake,
 
-H. SPURGEON.
+H. Spurgeon.

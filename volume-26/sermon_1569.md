@@ -14,7 +14,7 @@ Now, I think the vision of Zechariah may remove all fear on that score. Rest you
 
 do, or devise to extinguish it. This one thought I beseech you so to grasp that it may strengthen your faith and comfort your hearts&mdash;the light of God's Grace has been kindled never to be quenched! To this end I invite your attention to the interesting parable contained in the marvelous vision which Zechariah the Prophet beheld and described.
 
-First, turn aside and see this great sight! Look, I beseech you, at THE WONDERFUL LAMP WHICH GOD HAS
+First, turn aside and see this great sight! Look, I beseech you, at THE WONDERFUL LAMP WHICH God HAS
 
 PROVIDED TO LIGHT THE SONS OF MEN. "He said unto me, What do you see? And I said, I have looked and behold a candlestick all of gold, with a bowl upon the top of it and it has seven lamps thereon and seven pipes to its seven lamps, which are upon the top." Here is a candlestick that must challenge the notice of all who gaze at it, for it is of costly material and curious form&mdash;the work of wisdom fitted for the Holy Place of the tabernacle of the Most High! It resembles the candlestick whose pattern Moses received from God and yet, in some respects, it differs, as we shall see.
 
@@ -74,7 +74,7 @@ The pews will respond to the pulpit! Fire will kindle to a flame and the flame w
 
 Look well, then, to every portion of the apparatus of this golden lamp&mdash;examine its details&mdash;keep it well trimmed and abundantly supplied. Remember its unity, for with all its many pipes, it is but one candlestick.
 
-But the most remarkable disclosure in this vision was THE MYSTERIOUS SUPPLY BY WHICH THESE
+But the most remarkable disclosure in this vision was THE MYSTERIOUS SUPPLY by WHICH THESE
 
 LAMPS ARE KEPT BURNING. There were no priests to trim these lamps, nor is mention made of anyone being appointed to keep them in order! No golden snuffers nor golden snuff dishes were used. Nor was any oil brought by any living man to replenish them. That is remarkable! Moreover there is no mention of oil being given by the people. The lamp in the Temple was fed by the offerings of the people&mdash;they brought the best oil to keep the lamp perpetually burning before the altar. There is nothing of the kind here&mdash;that is not the way by which this oil gets to the lamp in the vision before us. Neither by priest nor people is it supplied.
 

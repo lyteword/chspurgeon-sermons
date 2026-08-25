@@ -68,7 +68,7 @@ With some, too, there is a hardness produced by what I might almost call the opp
 
 I might thus multiply reasons why some are harder than others, but it is a well-assured fact that they are so and there I leave it to notice a third point.
 
-I shall now ask everybody to judge whether this running of horses upon a rock and this plowing there with oxen shall always be continued? I assert that IT IS UNREASONABLE TO EXPECT THAT GOD's SERVANTS SHOULD
+I shall now ask everybody to judge whether this running of horses upon a rock and this plowing there with oxen shall always be continued? I assert that IT IS UNREASONABLE TO EXPECT THAT God's SERVANTS SHOULD
 
 ALWAYS CONTINUE TO LABOR IN VAIN. These people have been preached to, taught, instructed, admonished,
 

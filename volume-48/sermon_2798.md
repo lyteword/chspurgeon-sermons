@@ -107,7 +107,7 @@ Floating in His languid eyes." Yet you, who have been at the foot of the Cross, 
 
 If there are any here who are strangers to all these things, I can only wish that they might even know our sorrows, in order that they might have an experience of our joys to treasure up in remembrance. Believers in Jesus are not a miserable crew&mdash;they have songs to sing and they have good reason to sing them! They have enough to make them blessed on earth and to make them blessed forever and ever!
 
-EXPOSITION BY C. H. SPURGEON: PSALM 119:17-28.
+Exposition by C. H. Spurgeon: Psalm 119:17-28.
 
 Verse 17. Deal bountifully with Your servant, that I may live, and keep Your word. O Lord, I am Your servant, yet, I pray You, do not pay me wages according to my deserts, but according to the greatness of Your mercy! "Deal bountifully with Your servant." Little mercy will not be enough for such great sins and such great needs as mine. Deal very generously with Your poor servant who is so full of necessities, "that I may live," for, if You will only let me live, it will be of Your bounty since I deserve not even that gift. Only to have my life still spared shall be regarded by me as a great favor from You. I want not to live to please myself, for that would not be living at all, but "that I may live, and keep Your word." A holy life is the only true life, the only life that is really worth having&mdash;and he that has it has been dealt bountifully with by his God. I commend this verse to each servant of the Lord as a prayer that may be continually presented to Him.
 

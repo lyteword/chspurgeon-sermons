@@ -66,7 +66,7 @@ Sometimes, when I am thinking about my Hearers and my work, I seem to take God's
 
 Oh, come to Him! In the name of Jesus of Nazareth, I beseech you, come! By amazing love and amazing pity, by wondrous Grace that abounds over sin, come and welcome! Jesus said, "He that comes to Me, I will in no wise cast out." Then come to Him and come now! Blessed Spirit, draw them! Draw them now, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOB27
+Exposition by C. H. Spurgeon: Job27
 
 Remember that Job's friends had accused him of having committed some great sin which would account for his great sorrows. The good man is naturally very indignant and he uses the strongest possible language to cast away from himself with horror the charges which they brought against him in the day of his grief.
 

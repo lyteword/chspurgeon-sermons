@@ -26,7 +26,7 @@ Let me pause, just a minute, to put this question to each one here&mdash;Do you,
 
 not know any Doctrine which my experience more fully confirms than that to which Jonah gave utterance when he was in the whale's belly&mdash;"Salvation is of the Lord." It is, as our text reminds us, a Divine Salvation!
 
-Now, secondly, I come to the subject which I desire to impress most deeply upon your memory, that is, THE GLORY OF CHRIST IN THE SALVATION OF GOD&mdash;"His glory is great in Your salvation."
+Now, secondly, I come to the subject which I desire to impress most deeply upon your memory, that is, THE GLORY OF Christ IN THE SALVATION OF God&mdash;"His glory is great in Your salvation."
 
 Ah, Brothers and Sisters, the tongues of men and angels can never fully tell the glory of Christ in salvation! It is a subject to be thought over by the loftiest intellects! It is a theme for men who lie awake at nights to meditate upon! It is a topic worthy of the thoughts of those who linger on the verge of Heaven! Dr. John Owen's pen was somewhat heavy in its style, but it never glowed and burned as much as when he wrote upon the Glory of Christ. This is a theme which the glo-rifled spirits before the Throne of God perpetually contemplate. And the more fit we are to be among them, the more delightful will this subject be to us. As to that Glory, oh, if I had the allotting and the measuring of it, what glory I would give to my dear Lord and Master! I read, the other day&mdash;I cannot exactly quote the words, though I give the sense&mdash;a sentence by Samuel Rutherford in which he said that he would like to pile up ten thousand million heavens upon the top of the third Heaven to which Paul was caught up&mdash;and put Christ in that high place&mdash;and then He would not be as high as He deserved to be put and, truly, no honors seem sufficient for Him who stripped Himself of all He had that He might become the Savior of sinners!
 
@@ -54,7 +54,7 @@ You would have thought that many rulers would have obtained a permanent place in
 
 Truly, Brothers and Sisters, to rule over other men is a great thing. To have moral power over men is no mean matter. But to get men to so love you that they would willingly die for you&mdash;to get them to so love you that they would sooner cease to live than cease to love you&mdash;this is to occupy a glorious high throne! And such is the throne upon which Christ sits in the hearts of all His people! Such is the dominion which He wields over all the hosts that He has purchased with His precious blood! Well says the Prophet in our text&mdash;for the Psalmist was a true Prophet&mdash;"His glory is great in Your salvation."
 
-Now, thirdly, Our text REVEALS THE REWARD WHICH JESUS HAS OBTAINED FOR THIS GREAT
+Now, thirdly, Our text REVEALS THE REWARD WHICH Jesus HAS OBTAINED FOR THIS GREAT
 
 SALVATION&mdash;"Honor and majesty have You laid upon Him." I do not intend to preach upon this last point, but only to give you a few sentences by way of an outline of the honor and majesty which God the Father has laid upon Christ.
 
@@ -70,7 +70,7 @@ There will have to appear, before the Judgment Seat of the Nazarene, the spirits
 
 But are we all His people? Do not desire that day if you are not His, for the Day of the Lord will be darkness, not light, to all who are His enemies! The more glorious Christ is to His own people, the more dreadful will His appearance be to you if you live as unbelievers and if you die without trusting in Him! O Christians, I bid you be glad in your Lord, and I also bid you pray for the unsaved, that they may trust, and love, and serve Jesus, too&mdash;and rejoice with you in recollecting that He is coming again to receive unto Himself all to whom He is both Lord and Savior! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 7:18-50.
+Exposition by C. H. Spurgeon: Luke 7:18-50.
 
 Verse 18. And the disciples of John showed him of all these thing. John was in prison and, possibly, troubled in spirit.
 

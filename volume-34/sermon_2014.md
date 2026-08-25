@@ -67,7 +67,7 @@ God must be presented by prayerful faith to the Lord Himself. The sacred promise
 
 The best hearing is that which leads to seeing. When a man says, "The Word of God tells me so and I will test it for my-self"&mdash;that man is in a very hopeful state. To this we invite our hearers. The banquet is spread and rich are the provisions. But do not so trust our testimony as to stay away. Come and see for yourselves. We tell you that there is a great atonement made by the blood of Jesus which will at once wash out the most scarlet sins. Believe our message so far as to come and try it for yourselves and you will soon exclaim, "As we have heard, so have we seen."
 
-I beg your attention to the third point, which is this&mdash;that SEEING WONDERFULLY CONFIRMS THE TRUTH
+I beg your attention to the third point, which is this&mdash;that SEEING WONDERFULLY CONFIRMS THE TRuth
 
 OF WHAT WE HEAR. We are bound to believe God, even when we cannot see. That the Lord has said it would be quite enough for us if we reverenced Him as we ought. But it does help us very much when, having implicitly believed in God's testimony, He grants us grace to see that what we have believed is most surely true. Let me show how the experience of a believing man confirms the truth of what he has heard.
 
@@ -117,7 +117,7 @@ Saintly deathbeds are grand evidences of Christianity. It is something to say in
 
 Our knowing is far better than our theorizing. And whatever our theorizing may have done, our actual knowledge has never been on the side of the baptized infidelity of the advanced school. All our experience makes us say, "As we have heard, so have we seen in the city of the Lord of Hosts." On this point I have spent the strength of my discourse. The remaining two heads shall be treated briefly, although they are of great practical value.
 
-WHEN HEARING TURNS TO SEEING AND IS CONFIRMED BY IT, THEN IT LEADS TO WITNESSING.
+WHEN HEARING TURNS TO SEEING AND IS CONFIRMED by IT, THEN IT LEADS TO WITNESSING.
 
 The text, you see, is itself a testimony&mdash;"As we have heard, so have we seen." In these days every man that can witness for the Truth of God ought to do so&mdash;even if he stammers, he must not be silent. So many are decrying the Truth of God that, if in your heart and conscience you have proved it true, you are bound to give to the Lord the testimony of even a stammerer. I suppose Moses could do no more than that for he was a man slow in speech. But when he would have preferred to be quiet the Lord said to him, "Who has made man's mouth?" Your mouth is as God made it&mdash;use it as best you can, and speak up for His name and cause.
 
@@ -137,7 +137,7 @@ Without fruitfulness the vine becomes the most worthless of all trees. And witho
 
 "Stand up, stand up for Jesus!" in this day of blasphemy and rebuke.
 
-AND LASTLY, HEARING, SEEING, WITNESSING&mdash;GOD WILL GIVE YOU a FULLER ASSURANCE
+AND LASTLY, HEARING, SEEING, WITNESSING&mdash;God WILL GIVE YOU a FULLER ASSURANCE
 
 THAN YOU HAVE AS YET. Permit me to read the text again&mdash;"As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God: God will establish it forever." That is the conclusion which the saint comes to when he has tried the Truth of God for himself and borne witness to the result of his trial. God will never leave His Church. God will never forfeit His Word. God will never desert His Gospel. He is Jehovah of Hosts and changes not and has all power at His disposal. He is our Lord, our God in Covenant. He cannot desert the work of His own hands, nor leave the people of His love.
 

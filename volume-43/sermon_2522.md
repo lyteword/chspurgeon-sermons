@@ -46,7 +46,7 @@ Remember, too, that the paschal lamb furnished food for a supper. I t was both a
 
 Beloved, let us bless our Lord for the true Passover! It was a night to be remembered when Israel came out of Egypt, but it is a night to be remembered even more when you and I, by the sprinkling of the blood of Jesus, are once and for all passed over by the angel of avenging justice and we live when others die&mdash;a night to be remembered when our eager lips begin to feed on Him whose flesh is meat, indeed, and we eat and live forever! Is not that the teaching of this text? Did not the Savior mean this when He said, "You know that after two days is the Passover, and the Son of Man will be delivered up to be crucified?" These two things are bracketed together, as in mathematics there is a sort of mark of "equals" put between them to signify that the one is equal to the other&mdash;the feast of THE Passover, and the fact that the Son of Man will be delivered up to be crucified.
 
-Now I turn to a third point and I think I shall have your earnest attention upon it because there is something in it which very deeply interests all of us who belong to Christ. I have already asked you to admire your Savior and to consider your sacrifice. Now, dear Friends, ADORE YOUR LORD.
+Now I turn to a third point and I think I shall have your earnest attention upon it because there is something in it which very deeply interests all of us who belong to Christ. I have already asked you to admire your Savior and to consider your sacrifice. Now, dear Friends, ADORE YOUR Lord.
 
 1 ask you to adore your Lord, first, for His foresight. "After two days the Son of Man will be delivered up to be crucified." We cannot prophesy concerning the future. The man who can tell me what will happen in two days must be something more than man. As to many events, it is as difficult to foresee two minutes as to foresee two centuries, unless there are some causes operating which must produce certain effects. In our Lord's case, the influences seemed all to point away from betrayal and crucifixion. He was extremely popular. To all appearances He was beloved by the mass of the people and even the scribes and Pharisees, who sought His death, were thoroughly afraid of Him! Yet, with that clear foresight of the eyes which shine in no head but that which is Divine, Jesus says, "After two days the Son of Man will be betrayed." He sees it all as if it had already happened. He does not say, "shall be," but He so fully sees it, He is such a true Seer, that He says, "The Son of Man will be delivered up to be crucified."
 
@@ -86,7 +86,7 @@ I should not wonder if those around us should hear us say, "Well, it is only two
 
 So may it be with you all, for Christ's sake! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: LUKE 4:16-30; JOHN8:37-59. (R. V.)
+ExpositionS by C. H. Spurgeon: Luke 4:16-30; John8:37-59. (R. V.)
 
 We will read, from the Revised Version, two passages which record attempts made to kill our Lord before His time had come. You will see, from the sermon, why we read them.  
 

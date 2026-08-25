@@ -70,7 +70,7 @@ Thus have I described the fathers. They are never very numerous&mdash;they are n
 
 Such men we have in the Church of God and such we need&mdash;men that are not flattered by opposition, nor made to lose their heads by excitement. They believe in God and if others doubt, they are not infected by their folly. They know! They are certain! They have put their feet down and will not move from their persuasion. When the time comes for action, they are ready for it and throw their whole weight so heartily into the war that every charge advances! God send us more regiments of these in this evil day and preserve to us such as we have!
 
-Secondly. WHAT IS THE PROMINENT CHARACTERISTIC OF a FATHER IN CHRIST? Read the text. "I
+Secondly. WHAT IS THE PROMINENT CHARACTERISTIC OF a FATHER IN Christ? Read the text. "I
 
 write unto you, fathers, because you have known Him that is from the beginning." He repeats the expression without alteration. Observe, here, the concentration of their knowledge. Twice he says "You have known Him that is from the beginning." Now, a babe in Grace knows 20 things&mdash;a young man in Christ knows 10 things&mdash;but a father in Christ knows one thing and that one thing he knows thoroughly! It is very natural for us, at first, to divide our little stream into many rivulets, but as we grow gray in Grace, we pour it all into one channel&mdash;and then it runs with a force efficient for our lifework. I trust I know many doctrines, many precepts and many teachings&mdash;but more and more my knowledge gathers about my Lord even as the bees swarm around their queen!
 

@@ -86,7 +86,7 @@ Dear Brother, you never live a truly holy, happy, blessed day except by Divine G
 
 Thirdly, the last inference I draw from the text is that our whole life should be filled with praise of God our Deliverer How does it run? He delivered us and now we deliver ourselves? No, no, no! He delivered us. He does deliver us&mdash; but what about the future? We must deliver ourselves? No, no, no! He has delivered! He does deliver and He will still deliver&mdash;the same Person, working in the beginning, in the center and at the close. It is all of God from first to last! There is not one deliverance which you have ever had which you can ascribe to anyone but the Lord, alone. Inside Heaven's gate all the praise is given to the Triune Jehovah&mdash;"Glory be to the Father, and to the Son, and to the Holy Spirit, as it was in the beginning, is now, and ever shall be." And outside Heaven's gate, let us sing the same song, to the same tune! Let it always be to the praise of Grace, Grace, GRACE. To the God of Grace, the Father of Grace, the Christ of Grace, the Holy Spirit and His Grace and to God be all the glory, forever and for ever! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: PSALMS 16; 63.
+ExpositionS by C. H. Spurgeon: PsalmS 16; 63.
 
 Psalm 16:1. Preserve me, O God: for in You Iput my trust. Ah, Brothers and Sisters! When we think of our daily dangers and when we remember the sinfulness of our nature, this petition may well be our frequent prayer! "Preserve me, O God." And this may well be our plea, as well as the Psalmist's, "for in You I put my trust." We trust in the name of the Lord, for we can never expect to be preserved except by His protecting Grace.
 
@@ -94,7 +94,7 @@ Psalm 16:1. Preserve me, O God: for in You Iput my trust. Ah, Brothers and Siste
 
 Their sorrows shall be multiplied that hasten after another god: their drink offerings of blood will I not offer, nor take up their names on my lips. He who sincerely loves the true God cannot have any regard for His rivals. He will have no communion with false gods in any shape or form.
 
-The LORD is the portion of my inheritance and of my cup. That is the Believer's portion&mdash;his God. The Levites, as a tribe, had no inheritance in the land of Canaan, but God was their portion&mdash;and who shall dare to say that they had not the best of it? Now, child of God, if you could have your choice, what would you choose&mdash;goods or God? Earthly wealth, or the God who is the source of all good things?
+The Lord is the portion of my inheritance and of my cup. That is the Believer's portion&mdash;his God. The Levites, as a tribe, had no inheritance in the land of Canaan, but God was their portion&mdash;and who shall dare to say that they had not the best of it? Now, child of God, if you could have your choice, what would you choose&mdash;goods or God? Earthly wealth, or the God who is the source of all good things?
 
 You maintain my lot. One of our great men has for his motto, "I will maintain it." But the Psalmist's is a much better one&mdash;"You maintain my lot." It is better to have God for our Guardian than to have all possible human strength with which to defend ourselves.
 
@@ -104,7 +104,7 @@ I will bless the Lord who has given me counsel ' 'He has talked with me, checked
 
 My heart also instructs me in the night seasons. "God makes my heart, my conscience, my inmost being to give me instruction. What a blessing that must have been to David! A man who has no inward monitor because he has stifled his conscience so that it no longer holds him by the ear, and speaks with him, is poor, indeed! But blessed is he who has his God and his conscience to counsel and instruct him.
 
-Ihave set the LORD always before me. Because He is at my right hand, Ishallnot be moved. Brother, have you always acted on the straight? Have you so conducted your business that you need not be ashamed of God Himself to look at it? Then do not be afraid of anything that may happen to you, for you will come out all right at the last. There may be great trouble in store for you and you may be stripped of all that you possess&mdash;but you shall never be ashamed.
+Ihave set the Lord always before me. Because He is at my right hand, Ishallnot be moved. Brother, have you always acted on the straight? Have you so conducted your business that you need not be ashamed of God Himself to look at it? Then do not be afraid of anything that may happen to you, for you will come out all right at the last. There may be great trouble in store for you and you may be stripped of all that you possess&mdash;but you shall never be ashamed.
 
 Therefore my heart is glad and my glory rejoices: my flesh also shall rest in hope. Every good thing belongs to the man who belongs to God! He need not be afraid even of the grave, for he can adopt the language which is here Prophetically used for Christ, Himself. He is not afraid to die, for he can say&mdash;
 

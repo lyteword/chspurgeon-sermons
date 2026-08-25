@@ -1,6 +1,6 @@
 # Sermon 3088 | The Storm and the Shower
 
-"Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the LORD of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones." Zechariah 13:7.
+"Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones." Zechariah 13:7.
 
 WE are sure that we understand this passage, for we have our Lord Jesus Christ's application of it to Himself&mdash;"All you," He said to His disciples, "shall be offended because of Me this night: for it is written, I will smite the Shepherd, and the sheep shall be scattered." It is always well, when we are considering a text in the Old Testament which we think may refer to Christ, if we can be certified that it does so by some declaration of the Holy Spirit in the New Testament, or by some testimony from the lips of the Master, Himself, as we have in this case.
 
@@ -76,7 +76,7 @@ As for you who are saved by Christ, see what you owe Him. By every groan He suff
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;291, 406.
 
-EXPOSITION BY C. H. SPURGEON: PSALM22.
+Exposition by C. H. Spurgeon: Psalm22.
 
 This Psalm so sweetly and so accurately pictures the inward griefs of our Divine Savior that it might have been
 
@@ -98,7 +98,7 @@ the name of the Lord."
 
 4-6. Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and no man.&mdash;So low did Christ stoop, for our sake, that He became less than man! There is a little crimson worm, to which this passage alludes, which seems to be made altogether of blood&mdash;and Christ felt as if He were nothing but a mass of suffering, a poor trodden "worm, and no man."
 
-6-8. A reproach of men, and despised of the people. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the LORD that He would deliver Him: let Him deliver Him, seeing He delighted in Him. It is very easy to read these words, or to hear them read, but it is not so easy to realize the sorrow they must have caused Christ. He was dying, in unutterable agonies, yet His cruel enemies thrust out their tongues at Him, hissed their bitter taunts and made a jest even of His prayers. If you have ever been in great suffering and have then been ridiculed, you know something of the acute anguish that must have been felt by our Savior when He was dying amidst mockery and scorn without a friend to help Him.
+6-8. A reproach of men, and despised of the people. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him. It is very easy to read these words, or to hear them read, but it is not so easy to realize the sorrow they must have caused Christ. He was dying, in unutterable agonies, yet His cruel enemies thrust out their tongues at Him, hissed their bitter taunts and made a jest even of His prayers. If you have ever been in great suffering and have then been ridiculed, you know something of the acute anguish that must have been felt by our Savior when He was dying amidst mockery and scorn without a friend to help Him.
 
 9-11. But You are He that took Me out ofthe womb: You didmake Me hope when I was upon Mymother's breasts. I was cast upon You from the womb: You are My God from My mother's belly. Be not far from Me; for trouble is near; for there is none to help. Men recollect how God took care of them in the time of their infancy. And when they are brought very low, they look to Him who guarded them in the times when they could not lift a finger to help themselves. The Savior did so. He was peculiarly born of God&mdash;there was a specialty about His birth which entitled Him to plead it when He was in His death throes.
 
@@ -122,7 +122,7 @@ For dogs have compassed Me. There is the ribald crowd, the common multitude, how
 
 They part My garments among them, and cast lots upon My vesture. Now He returns to prayer&mdash;
 
-19-21. But be not You far from Me, O LORD: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power ofthe dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. He had been delivered before and He expected deliverance again. And He had it, but He had to pass through the iron gates of death to get it and to win the victory over death by His own death! Now there is a change in the Psalm. The Savior's griefs are drawing to an end and He begins to look at the result of His passion. He sees what is to follow from His Crucifixion and He talks thus to Himself&mdash;
+19-21. But be not You far from Me, O Lord: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power ofthe dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. He had been delivered before and He expected deliverance again. And He had it, but He had to pass through the iron gates of death to get it and to win the victory over death by His own death! Now there is a change in the Psalm. The Savior's griefs are drawing to an end and He begins to look at the result of His passion. He sees what is to follow from His Crucifixion and He talks thus to Himself&mdash;
 
 I will declare Your name unto My brethren. "I shall live again. I shall see Peter and James and John, and many more whom I have loved&mdash;and I will talk with them about My Father."
 
@@ -130,17 +130,17 @@ In the midst of the congregation will I praise You. He knew that He would rise f
 
 praise God in the midst of His brethren.
 
-23, 24. You that fear the LORD, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction ofthe afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. He is telling Himself, in the little quiet interval just before He breathed out His soul, what His testimony would be concerning God&mdash;how He did hear Him and help Him at the last.
+23, 24. You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction ofthe afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. He is telling Himself, in the little quiet interval just before He breathed out His soul, what His testimony would be concerning God&mdash;how He did hear Him and help Him at the last.
 
-25, 26. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the LORD that seek Him. . He is Still talking to Himself about what WOuld happen after
+25, 26. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the Lord that seek Him. . He is Still talking to Himself about what WOuld happen after
 
 His death and Resurrection&mdash;how gracious men would praise the Lord and how He, Himself, would live again to praise God among them! He so realizes the existence of those whom He has redeemed, that He seems to talk to them as if they were actually present. He says&mdash;
 
 Your heart shall live forever. "I die, but by My death you shall live forever." He sees them, as it were, gathered around His Cross and He congratulates Himself upon the fact that He has bought eternal life for them.
 
-All the ends of the world shall remember and turn unto the LORD; and all the kindreds of the nations shall worship before You. The conversion of the nations shall be the fruit of His death.
+All the ends of the world shall remember and turn unto the Lord; and all the kindreds of the nations shall worship before You. The conversion of the nations shall be the fruit of His death.
 
-For the Kingdom is the LORD's: and He is the governor among the nations. See how He distributes crowns, and talks of thrones, just as He is about to die&mdash;so sure is He that His soul shall not rest in Hades, neither shall His holy body see corruption, but that He shall rise again and be forever "King of kings, and Lord of lords."
+For the Kingdom is the Lord's: and He is the governor among the nations. See how He distributes crowns, and talks of thrones, just as He is about to die&mdash;so sure is He that His soul shall not rest in Hades, neither shall His holy body see corruption, but that He shall rise again and be forever "King of kings, and Lord of lords."
 
 29-31. All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive His own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. They shall come. I should have liked to hear those syllables fall from those dear lips of His. "They shall come," He says to Himself. "They shall come"&mdash;
 

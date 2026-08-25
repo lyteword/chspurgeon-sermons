@@ -99,7 +99,7 @@ And now, tonight, in the recollection of that strange vision of the shadow of de
 
 Oh, will not you be persuaded to think on those things that make for your eternal peace? The gates of Heaven are up there! The gates of Hell are down yonder! The Cross of Christ points you to Heaven&mdash;follow its guidance! Look to the wounds of Jesus! These are the gates of pearl through which you must enter Heaven. But if you will turn to your vanities and to your sins and follow them&mdash;and delight yourself in worldly pleasures&mdash;then Hell is your portion as surely as you sin! May the Lord give faith to those who have none and help us who have believed through Grace, to walk in His ways&mdash;and unto His name shall be the Glory, world without, end! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 119:81-88.
+Exposition by C. H. Spurgeon: Psalm 119:81-88.
 
 Verse 81. My soul faints for Your salvation: but I hope in Your word. The Psalmist was so full of longing, hungering, thirsting, for God's salvation that he had come even to faintness through the strength of his desire. Yet, in his faintness, he was not too far gone to hope&mdash;and we, also, have good ground for hoping and believing that God, who gave us His Word, will stand to it, for He is both able and willing to fulfill all that He has promised!
 

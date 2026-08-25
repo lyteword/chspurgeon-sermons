@@ -14,7 +14,7 @@ In case there should be any persons of that sort here unwarned, I am going to sp
 
 of the sun?'And, thirdly, how can we avoid the evil of having no deepness of earth and so being withered by the scorching of the sun?
 
-First, then, WHAT IS MEANT BY HAVING NO DEEPNESS OF EARTH?
+First, then, WHAT IS MEANT by HAVING NO DEEPNESS OF EARTH?
 
 I think it is, with some people, a general superficiality of character There are some persons whom you ought to be able to see through, for there is so little substance in them. I do not say that you can always see all there is in them, for a pool, if it is not deep, may be very muddy and you may not be able to see to the bottom of it, even though it is quite shallow. And I think I know some people in whom there is as much deception as there is superficiality. Probably we all know some persons who, from their very early days, have always been superficial and changeable, like the man described by Dryden&mdash;"Everything by starts and nothing long." Even in business they have been about 20 different things, "Jack of all trades and master of none." Nobody knows what they are going to be next and they, themselves, have no idea. The weathercock does not shift more often than they do! When they went to school, they pretended to learn a thing, but they forgot it the next day. Even in their play, they never put any heart&mdash;there never was any earnestness about them in anything! And now they are just thin, shallow, vapid, empty. Like the baseless fabric of a vision, "such stuff as dreams are made of," there is nothing in them.
 
@@ -42,7 +42,7 @@ This lack of depth of earth also means lack of reality. There is no soul in what
 
 earth means heart&mdash;putting our heart into whatever we do. But where there is no faith in the heart, no repentance in the heart, when everything is from the lips and outward, instead of being from the very heart, and upward, then it all comes to nothing in a very short time!
 
-I shall only occupy a few minutes in trying to answer the second question, WHAT IS MEANT BY THE SCORCHING OF THE SUN?
+I shall only occupy a few minutes in trying to answer the second question, WHAT IS MEANT by THE SCORCHING OF THE SUN?
 
 Our Lord told His disciples that it meant that tribulation arises. The man was so joyful and felt so happy at being converted that, on the next Sunday, he shut his shop up. But, on the Monday night, he said to himself, "I lost so much yesterday that I shall not close my shop next Sunday." So he returns to his Sunday trading, or in some other way, if there is any trouble for the sake of the Gospel, the sudden convert who has not much depth of earth finds that he has made a mistake and he tries to retrieve his position and to get back to where he was before.
 
@@ -85,7 +85,7 @@ I suggest to you this prayer, "Lord, show me the worst of my case. Put me in the
 
 The Lord hear that prayer, and bless every soul here now, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK9:14-32, 43-48.
+Exposition by C. H. Spurgeon: Mark9:14-32, 43-48.
 
 Our Lord had been absent from the people and transfigured on the top of the mountain. When He came down from this manifestation of His Glory, He was brought face to face with Satan's work at almost the first step He took. Let us read about what He did.
 

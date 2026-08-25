@@ -23,7 +23,7 @@ May the Holy Spirit help us reverently to think of the wondrous coming of our bl
 
 There are three things in the text. They will seem commonplace to some of you and, indeed, they are the commonplace of our divine faith&mdash;and yet nothing can be of greater importance! The first is, our Lord Jesus comes&mdash;"Behold He comes with clouds." The second is, our Lord Jesus Christ's coming will be seen of all&mdash; "Every eye shall see Him, and they also which pierced Him." And, in the third place, this coming will cause great sorrow&mdash;"All kindreds of the earth shall wail because of Him."
 
-May the Holy Spirit help us while, in the first place, we remember that OUR LORD JESUS CHRIST COMES!
+May the Holy Spirit help us while, in the first place, we remember that OUR Lord Jesus Christ COMES!
 
 This announcement is thought worthy of a note of admiration. As the Latins would say, there is an "Ecce" placed here&mdash;"Behold, He comes!" As in the old books, the printers put hands in the margin pointing to special passages, such is this, "behold!" It is a Nota Bene calling upon us to note well what we are reading. Here is something which we are to hold and behold. We now hear a voice crying, "Come and see!" The Holy Spirit never uses superfluous words, nor redundant notes of exclamation&mdash;when He cries, "Behold!"&mdash;it is because there is reason for deep and lasting attention. Will you turn away when He bids you pause and ponder, linger and look? Oh, you that have been beholding vanity, come and behold the fact that Jesus comes! You that have been beholding this and beholding that&mdash;and thinking of nothing worthy of your thoughts, forget these passing sights and spectacles&mdash;and, for once, behold a scene which has no parallel!
 
@@ -71,7 +71,7 @@ The clouds, also, denote the terror of His coming to the ungodly. His saints sha
 
 I am in happy circumstances, tonight, because my subject requires no effort of imagination from me. To indulge fancy on such a theme would be a wretched profanation of so sublime a subject which, in its own simplicity, should come home to all hearts. Think clearly for a moment, till the meaning becomes real to you. Jesus Christ is coming, coming in unknown splendor! When He comes, He will be enthroned far above the attacks of His enemies, the persecutions of the godless and the sneers of skeptics. He is coming in the clouds of Heaven and we shall be among the witnesses of His appearing! Let us dwell upon this Truth of God!
 
-Our second observation is this&mdash;OUR LORD's COMING WILL BE SEEN BY ALL. "Behold, He comes with
+Our second observation is this&mdash;OUR Lord's COMING WILL BE SEEN by ALL. "Behold, He comes with
 
 clouds, and every eye shall see Him, and they also which pierced Him."
 

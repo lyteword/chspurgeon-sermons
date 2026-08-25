@@ -20,11 +20,11 @@ The great reason why God's children are tempted is for God's Glory, for, when th
 
 Note, once more, that solitude will not prevent temptation. "Oh," said a young man, "I think that I must give up my job, for it involves me in so many temptations." "Ah," said a Christian woman, "I wish that I could get right away into some sisterhood where I should have no temptations." Yes, and if you did, as some foolish women have done, you would have your temptations greatly increased! I am afraid that, sometimes, solitude is a helpto temptations and that Christian people who are much tormented by Satan would do well to mix more often with other Believers, and tell out their sorrows. A good burst of tears and a narration of your grief to a sympathetic friend may be the best possible way for you to find relief from your sorrows. Do not be so shut up within yourself as to refuse to tell of the heartache that is wearing into your very soul&mdash;seek help from some Christian Brother or Sister, for we are bid to bear one another's burdens, and
 
-1 trust we are not slow to do so. Having thus introduced the general subject of temptation at rather unusual length, I want, now, to speak with some brevity, but to practical purpose concerning the temptation of our LORD.
+1 trust we are not slow to do so. Having thus introduced the general subject of temptation at rather unusual length, I want, now, to speak with some brevity, but to practical purpose concerning the temptation of our Lord.
 
 The text I have taken shows that Satan is apt at writing prefaces. He is cunning and crafty, if not wise. He does not come to the Savior and say at once, "Command that these stones be made bread," but he begins thus, "If You are the Son of God." This is his old plan of insinuating doubts, by which Eve was vanquished in the Garden of Eden! And this is the sharp end of the wedge with which he thought to separate the Son of God from His Father. And notice, too, that Satan knows how to fire a double-shotted gun, for, while he began by insinuating doubt&mdash;"If You are the Son of God"&mdash;he linked it with rebellion&mdash;"Command that these stones be made bread." Thus there were two temptations at the same moment and, sometimes, our mind is greatly perplexed and our heart is wounded by two attacks at one time, or one following very closely upon the heels of the other. It is a part of Satan's tactics to be quick with his temptations so that we scarcely recover from one blow before he deals another&mdash;and then another&mdash;that, if possible, he may drive us out of our wits and overcome us by his cunning.
 
-Let us look closely into this double temptation with which he attacked the Savior. "If You are the Son of God, command that these stones be made bread." And notice, first, that THE TEMPTER BEGINS BY ASSAILING THE
+Let us look closely into this double temptation with which he attacked the Savior. "If You are the Son of God, command that these stones be made bread." And notice, first, that THE TEMPTER BEGINS by ASSAILING THE
 
 SAVIOR WITH AN, "IF."
 
@@ -85,7 +85,7 @@ Thus, dear Fiends, if you once thoroughly overcome that "if," it is very likely 
 
 I have been all this while talking to God's children about the "if." Yet I fear that I am addressing some to whom the devil will not say, "if," for he knows, and perhaps your own conscience knows, that you are not a child of God. O dear Friends, do not deceive yourselves about this matter! If you are not His children, do not pretend that you are, but remember that if you are not the children of God, you are children of the Evil One and heirs of wrath, even as others. Oh, may Infinite Mercy adopt you into the family of God! And the way that mercy works is by leading you to trust in Christ Crucified. Then you shall be put among the children&mdash;adopted into the Lord's family&mdash;yes, born into it by a new birth through faith in Jesus Christ! The Lord grant it to every unconverted one here and grant it now, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 3:13-17; 4:1-11.
+Exposition by C. H. Spurgeon: Matthew 3:13-17; 4:1-11.
 
 Matthew 3:13, 14. Then came Jesus from Galilee to Jordan unto John, to be baptized of him. But John forbade Him, saying, I have need to be baptized of You, and do You come to me.?Who among us would not have felt as John did? Shall the servant baptize the Master and such a Master even his Lord and Savior? But mark the condescension of our blessed Lord! He would do everything that He wished His people to do afterwards and, therefore, He would be baptized and set the example that He would have them all follow.
 
@@ -115,4 +115,4 @@ Then the devil left Him, and behold, angels came and ministered unto Him. What a
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

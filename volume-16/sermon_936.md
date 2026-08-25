@@ -104,7 +104,7 @@ No, no, Sir. You have God's Word, and will not believe it because you pretend th
 
 Your joy shall be like a river, and your peace shall overflow. But you must first come without these things. Come, and take God at His Word, and do Christ the honor to believe in Him without anything to corroborate what He says, and you shall find the blessing coming to you afterwards. This was a remarkable point in the centurion's faith&mdash;that he believed without demanding a sign.
 
-Fifthly&mdash;one very remarkable point in this good man's faith was HIS CONVICTION THAT CHRIST COULD
+Fifthly&mdash;one very remarkable point in this good man's faith was HIS CONVICTION THAT Christ COULD
 
 CURE HIS SERVANT AT ONCE, "Say in a word, and my servant shall be healed." Ordinarily a successful combat with disease requires time. The surgeon must drive out from his strong entrenchments the fiend of disease, must chase him from one defense to another, and perhaps even then he may fail to dislodge his foe.
 

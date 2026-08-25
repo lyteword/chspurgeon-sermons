@@ -11,7 +11,7 @@ Writing under Divine Inspiration, the Prophet Isaiah describes the Lord Jesus Ch
 
 I shall try to bring out the meaning of the text by noticing, first, why our Lord may thus be compared to the shadow of a great rock. Secondly, I shall show when He is especially refreshing to us and, thirdly, and practically, I shall ask, what is our business with regard to Him?
 
-First, then, WHY MAY OUR LORD BE SAID TO BE a GREAT ROCK IN a WEARY LAND CASTING a REFRESHING SHADOW?
+First, then, WHY MAY OUR Lord BE SAID TO BE a GREAT ROCK IN a WEARY LAND CASTING a REFRESHING SHADOW?
 
 We may remember concerning Him, in the first place, that, like a rock, He is always in the same place. There are some shadows which you can create artificially and carry with you. There have been shadows which have been cast by great trees, but those trees have been removed. And if the traveler, in passing over the same route, should expect to enjoy their cooling shade, he would be disappointed. But, the great rock remains just where it was when Abraham, Isaac and Jacob sheltered beneath it&mdash;and the traveler, today, may do the same. It is just so with our Lord Jesus Christ. Blessed be His name, He has not shifted His position! If any poor soul here wants to find Him, He is just where He used to be&mdash;that
 
@@ -47,7 +47,7 @@ I have just one more observation to make upon this part of our subject&mdash;our
 
 "The great transaction's done!" And beneath the shadow of that Rock your spirit is secure forever!
 
-But we must now pass on to notice that THERE ARE CERTAIN TIMES WHEN OUR LORD, LIKE THE SHADOW OF a GREAT ROCK, IS PECULIARLY REFRESHING.
+But we must now pass on to notice that THERE ARE CERTAIN TIMES WHEN OUR Lord, LIKE THE SHADOW OF a GREAT ROCK, IS PECULIARLY REFRESHING.
 
 Unto them that believe, Jesus is always precious, but there are times when He is peculiarly so. This was the case with them when they were under conviction of sin. What memories that expression awakens in some of us&mdash;"conviction of
 
@@ -121,7 +121,7 @@ glad, for Christ sees the reward of His soul-travail, for a child is born in His
 
 May the Lord bless everyone here, and His shall be the glory forever. Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW5:17-48.
+Exposition by C. H. Spurgeon: Matthew5:17-48.
 
 Verse 17. Think not that I am came to destroy the Law, or the Prophets: I am not come to destroy, but to fulfill The life-work and words of Christ are not an improvement of the Old Testament, or a doing away of it. It stands fast and firm, fulfilled, carried to perfection, filled to the fullest in Christ!
 

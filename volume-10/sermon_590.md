@@ -10,7 +10,7 @@ Beloved Brothers and Sisters, the apostasy of the children of Israel has been re
 
 In considering our text, my aim will be to be used as the Holy Spirit's instrument to arouse, instruct and restore backsliders. Such wanderers may be present now. Their first love they have lost and their zeal is quenched. There may be some here who have gone further still and have forsaken the Church of God altogether, having given up their profession and all attendance upon Divine worship. O that the voice of Israel's God may be heard in their hearts this morning, crying, "If a man puts away his wife and she goes from him and becomes another man's, shall he return unto her again? Shall not that land be greatly polluted? But you have played the harlot with many lovers, yet return again to Me, says the Lord."
 
-We commence the consideration of the passage before us with the remark that WHILE SINFUL MEN ARE IN PROSPERITY THEY PERVERT THE MERCIES OF GOD TO THEIR OWN INJURY, making them instruments of sin and weapons of warfare against God. While the children of Israel enjoyed an abundance of temporal comforts they ascribed all these blessings to their false gods. Hear the wicked and treacherous words&mdash;"I will go after my lovers who give me my bread and my water, my wool and my flax, my oil and my drink." Oh, base ingratitude to their bounteous Jehovah! Infamous ascription of His Glory to graven images!
+We commence the consideration of the passage before us with the remark that WHILE SINFUL MEN ARE IN PROSPERITY THEY PERVERT THE MERCIES OF God TO THEIR OWN INJURY, making them instruments of sin and weapons of warfare against God. While the children of Israel enjoyed an abundance of temporal comforts they ascribed all these blessings to their false gods. Hear the wicked and treacherous words&mdash;"I will go after my lovers who give me my bread and my water, my wool and my flax, my oil and my drink." Oh, base ingratitude to their bounteous Jehovah! Infamous ascription of His Glory to graven images!
 
 Prosperous sinners make three great mistakes. At the outset they give their temporal mercies the first place in their hearts. Because their business prospers they do not consider that their soul is perishing! Because there is enough on the table for themselves and for their children they forget that their soul is famished for lack of Heaven's bread! They put the shadows of time before the realities of eternity. They say, "We must live." But they forget that they must also die. So long as the current glides smoothly and the gentle flow of the river of their joy is undisturbed they forget the waterfall, red with the blood of souls, down whose tremendous steeps those treacherous waters will soon hurry them!
 
@@ -32,7 +32,7 @@ Here are three great errors and oh, I fear they are so deadly that unless God in
 
 Go now, weep and howl for the miseries which shall come upon you&mdash;your riches are corrupted! Your garments are moth-eaten! Your gold and silver are cankered and the rust of them shall be a witness against you and shall eat your flesh as it were fire. You have forsaken the right way and are gone astray&mdash;following the way of Balaam who loved the wages of unrighteousness. Hear the Word of the Lord by the mouth of His servant Peter! Tremble at it and be afraid&mdash;"If after they have escaped the pollutions of the world through the knowledge of the Lord and Savior Jesus Christ, they are again entangled therein and overcome, the latter end is worse with them than the beginning. For it had been better for them not to have known the way of righteousness, than, after they have known it, to turn from the holy commandment delivered unto them. But it is happened unto them according to the proverb, The dog is turned to his own vomit again. And the sow that was washed, to her wallowing in the mire."
 
-Let us turn from this gloomy side of our subject and observe with gratitude that THE LORD INTERPOSES
+Let us turn from this gloomy side of our subject and observe with gratitude that THE Lord INTERPOSES
 
 ADVERSITY IN ORDER TO BRING BACK HIS WANDERING CHILDREN. Let us consider for a moment the hindrances which a God of Love frequently puts in the way of His elect when they backslide from Him. Here we have the matter opened up to our attention. "Therefore, behold, I will hedge up your way with thorns and make a wall, that she shall not find her paths."
 
@@ -62,7 +62,7 @@ If this suffices not, He will try the hurricane and if you will not run into por
 
 In the third place, you would think that the sinner would now stop, but instead of it, according to the text,
 
-EVEN THOUGH GOD WALLS UP THE WAY OF SIN, MEN WILL TRY TO FOLLOW IT, BUT IN THE CHOSEN
+EVEN THOUGH God WALLS UP THE WAY OF SIN, MEN WILL TRY TO FOLLOW IT, BUT IN THE CHOSEN
 
 THIS RESOLVE WILL BE IN VAIN. "She shall follow after her lovers, but she shall not overtake them. And she shall seek them, but shall not find them." Do you see the man? He has suffered such loss that he cannot find the means to sin as he used to do! Where he had money to spend to indulge himself he now finds an empty purse but yet he tries to do his worst.
 
@@ -78,7 +78,7 @@ I say if Omnipotence itself had not interposed&mdash;it was not the minister, it
 
 Thus, dear Friends, we have presented to you the deplorable picture of the infatuated sinner, perfectly infatuated and drunken with the love of sin and enmity to God! And Mercy itself, so far as we have gone, foiled of its purpose. The thorn hedge not enough&mdash;the stone wall not enough. What shall come now?
 
-Our next business is to consider THAT THE BACKSLIDER's FAILURE IS FOLLOWED BY a BLESSED RESULT. The hunt was very arduous but the greedy hunter has missed his prey and there he sits weary with the chase and ashamed of himself. What comes of it? Do observe it, for the result is one which I hope you and I know already. "Then shall she say, I will go and return to my first husband; for then it was better with me than now." O Lord, teach some who are here this morning to pray this prayer!
+Our next business is to consider THAT THE BACKSLIDER's FAILURE IS FOLLOWED by a BLESSED RESULT. The hunt was very arduous but the greedy hunter has missed his prey and there he sits weary with the chase and ashamed of himself. What comes of it? Do observe it, for the result is one which I hope you and I know already. "Then shall she say, I will go and return to my first husband; for then it was better with me than now." O Lord, teach some who are here this morning to pray this prayer!
 
 Observe here is repentance attended with sorrow. The poor creature in this case feels, deeply feels to the very soul, the wretchedness of her condition. She is in so bad a plight that though she had despised her former state she now confesses it to be better. Observe that it is an active repentance. It is not merely "I will return," but, "I will go and return." When the Grace of God sets a backslider upon returning, he will stir up all the powers of his soul to seek after God. He cries, "My soul waits for the Lord more than they that watch for the morning." I say more than they that watch for the morning.
 
@@ -128,7 +128,7 @@ In letters of fire he sees written across that burning sky: "YOU KNEW YOUR DUTY 
 
 With this last we conclude&mdash;IS NOT THIS SUBJECT a VERY SOLEMN WARNING TO THE PEOPLE OF
 
-GOD? What some do others may do. If one man falls, another may. If one professor turned out to be a hypocrite, so may another. If one minister reels from the pinnacle of honor and is dashed upon the rocks beneath, so may another. I want to make a personal application of this to myself and I pray my Brothers in office behind me, venerable though some of them are in years, to remember that this may be their case.
+God? What some do others may do. If one man falls, another may. If one professor turned out to be a hypocrite, so may another. If one minister reels from the pinnacle of honor and is dashed upon the rocks beneath, so may another. I want to make a personal application of this to myself and I pray my Brothers in office behind me, venerable though some of them are in years, to remember that this may be their case.
 
 And you, my associates and fellow members, many of you united to the Church before I was born, remember that age and habit are no security against apostasy! There must be the continual keeping and anointing of the Holy Spirit. I beseech you, and here I do beseech myself also, let us watch against the beginnings of backsliding. Let us take care of the little sins. O let us watch against the little coolnesses of heart. Brethren, no man backslides all at once. Few men who profess to be saints become outward sinners in one step. It is usually by little and by little. I pray you do not forsake the assembling of yourselves together!
 

@@ -82,7 +82,7 @@ In addition to being persecuted, they were liable to be severely tempted. All ki
 
 In the world, of course, they were in great labor, for they were left in the world to seek to convert it, or, at least, to call out the redeemed of Christ from among men by preaching the Gospel to every creature. And, being "in the world," they were surrounded by much weakness&mdash;weakness of body and weakness of mind&mdash;always needing to call to their Lord for help. He was up there upon the Throne of God and they were down in the dungeon! He was up there, clothed with all power, and they were down here in all weakness!
 
-NOW, HOW WILL JESUS BEHAVE TOWARDS THEM? That is our last question. We began with it and we will finish with it. Well, here is the answer. "Having loved His own which were in the world, He loved them unto the end." And we may rest sure that He always will love them and that He will never change from the tenderness of His heart towards them! "He loved them unto the end." What does that sentence mean?
+NOW, HOW WILL Jesus BEHAVE TOWARDS THEM? That is our last question. We began with it and we will finish with it. Well, here is the answer. "Having loved His own which were in the world, He loved them unto the end." And we may rest sure that He always will love them and that He will never change from the tenderness of His heart towards them! "He loved them unto the end." What does that sentence mean?
 
 I think it means, first, that He loved them right on. The Hebrew, "His mercy endures forever," might be rendered, "His mercy endures to the end." That is, to the end which has no end, for there never will be an end to His mercy&mdash;and His love is continual, everlasting love, it will never come to an end! Christ, Himself, in His Passion, may be said to have come to an end&mdash;and He loved His disciples until His death&mdash;but it means that He loves them without any end, forever and ever. Having loved them while He was in the world with them, He loves them right straight on and always will love them when time shall be no more!
 
@@ -100,7 +100,7 @@ Have you not noticed, in the story of the Prodigal Son, that the father said, "B
 
 "Come, and welcome, sinner, come."
 
-EXPOSITION BY C. H. SPURGEON: John 131-19
+Exposition by C. H. Spurgeon: John 131-19
 
 Verse 1. Now before the feast of the Passover, when Jesus knew that His hour was come that He should depart out of this world unto the Father, having loved His own which were in the world, He loved them unto the end. Our Lord Jesus Christ had a clear foresight of all He had to endure. Future things are happily hidden from our eyes. We do not even know the moment when we shall die, nor how it will be. It is well that it is so, but our Lord was able to anticipate His sufferings by knowing all about them&mdash;"Jesus knew that His hour was come." It was all appointed and nothing happens to any of us by accident&mdash;chance is banished from the Believer's creed! There is an appointed "hour" for each one of us and it will
 

@@ -12,7 +12,7 @@ I think we have greater reason to ask the Lord to impress more deeply upon us th
 
 Dear Friends, do not let our thoughts be thus diverted at this time, but let us come to the principal point and keep to it. And that point is this&mdash;that the main business of our life is to follow Jesus. And, secondly, to effect this, we had better avoid all idle speculations&mdash;and indeed, questions not altogether idle had better be left alone that we may keep to the one main business of our life. The reasons for doing this are very clear&mdash;and with them I shall close my discourse.
 
-First, then, THE MAIN BUSINESS OF OUR LIFE IS TO FOLLOW THE LORD.
+First, then, THE MAIN BUSINESS OF OUR LIFE IS TO FOLLOW THE Lord.
 
 I can truly say to every one of you that the main thing you have to do in this world is first to follow Christ until you find Him as your Savior or, in other words, the first thing for you to do is to look to Him, to trust in Him. We live in
 
@@ -32,7 +32,7 @@ by which God shall illustrate His almighty power&mdash;the black foil from which
 
 And, mark you, for each one of us there is a special vocation in which we can follow Christ. I do not believe that all of you would be following Christ if you were to attempt to preach. Even Christ never attempted to do what His Father did not intend Him to do. A man once asked Him to officiate as a lawyer or a judge, but He replied, "Who made Me a judge or a divider over you?" One beauty of Christ's life was that He kept to His calling and did not go beyond His commission. And you will be wise if you do the same. If you are a servant, you can follow Christ by ministering to the comfort of all who are in the house. If you are a mother, you can follow Christ by training up your children for Him. Every man has his own particular calling and every Christian's calling should be especially for God. One is called to the foreign mission field&mdash;let him go, in God's name, to the regions beyond&mdash;let him not stay at home. Another is called to go from house to house to visit the sick, to care for the poor and so on&mdash;Bible-woman, City Missionary, I greet you in Christ's name and bid you keep to your own work and never run away from it! One is called to teach an infant class and another to care for the lads or the lasses&mdash;and all are fitted for the work to which they are called by God. And to each one the Master says, "Follow Me and keep to the work which My Father has given you to do, even as I pleased not Myself by selecting My own work, but did that which My Father had appointed for Me."
 
-Now secondly, IN ORDER TO FOLLOW CHRIST IT WILL BE a WISE THING TO LET a GREAT MANY
+Now secondly, IN ORDER TO FOLLOW Christ IT WILL BE a WISE THING TO LET a GREAT MANY
 
 OTHER THINGS ALONE.
 
@@ -56,7 +56,7 @@ I think my text also applies to those prophetical studies in which so many seem 
 
 the wicked shall know the woes of Hell. But as to the dates of the various events foretold in the prophecies that are still unfulfilled, I think I have something better to do than to puzzle my brains over them. "Oh!" say some, "but we now have the right theory." So others thought 20 years ago! But it did not prove to be right, nor did the theory that was held a hundred years ago, or 200 years ago, or even more! Yet men go on building up their card house of speculation and Time comes and pushes it all over with his finger! I advise you to study Matthew, Mark, Luke and John&mdash;and to preach the crucified Savior of which the Gospels and Epistles will tell you! And when you get to the Revelation, keep it in its proper place and ask the Holy Spirit to teach you the meaning of its mysteries. May God save this generation from the follies of some of the generations that have preceded it&mdash;and may we be most of all concerned about being born-again, about faith in Jesus, about preaching His Gospel and following Him all the days of our life!
 
-Now, lastly, THERE ARE MANY REASONS WHY WE SHOULD CONFINE OUR LIFE-WORK TO THE FOLLOWING OF CHRIST. And those reasons are these.
+Now, lastly, THERE ARE MANY REASONS WHY WE SHOULD CONFINE OUR LIFE-WORK TO THE FOLLOWING OF Christ. And those reasons are these.
 
 First, our powers are limited. Mine are, I know, and I should like to use what powers I have in the work of following Christ in preaching the Gospel and seeking to bring others to follow Him.
 
@@ -74,7 +74,7 @@ I might say to someone here, "You ought to be taking a Bible class for young wom
 
 Give up all speculating, I beseech you&mdash;give up reading books merely for the sake of curiosity, and, in God's name, get to work for Him! The graves are filling, our cemeteries are filling, and Hell is filling too! Meanwhile, the dupes of Satan are compassing sea and land to do all the mischief that they can. If you really are what you say you are, the servant of Him who wept over Jerusalem&mdash;if you are bought with the blood He shed on Calvary's Cross&mdash;I charge you to consecrate yourself, this very hour, to that form of Christian work to which your Master calls you and follow Him through evil report and good report! Follow Him in the path of duty and let nothing turn you aside from your life-work of glorifying God! May God bless you all, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN21.
+Exposition by C. H. Spurgeon: John21.
 
 Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself. Jesus loved to show Himself to His people. Of old, His delights were with the sons of men. So now that He had risen from the dead, He was not ashamed to visit His brethren and He did not disdain to make Himself known to them&mdash;and He will still show Himself to us after a spiritual fashion, if we sincerely desire to see Him.
 

@@ -64,7 +64,7 @@ What has the devil been doing these thousands of years? Has he not been the unwi
 
 Satan, I tell you to your face, you are the greatest fool that ever breathed, and I will prove it to you in the day when you and I shall stand as enemies&mdash;sworn enemies, as we are this day&mdash;at the great bar of God! And so, Christian, may you say unto him whenever he attacks you! Hear him not, but resist him steadfast in the faith and you shall prevail.
 
-EXPOSITION BY C. H. SPURGEON: 1 PETER 1; 5:1-9.
+Exposition by C. H. Spurgeon: 1 Peter 1; 5:1-9.
 
 1 Peter 1:1, 2. Peter, an Apostle of Jesus Christ, to the strangers scattered throughout Pontus, Galatia, Cappado-cia, Asia, and Bithynia, elect according to the foreknowledge of God the Father, through sanctifcation of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ: Grace unto you, and peace be multiplied. So may it be to all of you who are gathered here! Grace first, and peace next, but may both Grace and peace be multiplied unto you! Much Grace, and much peace, may you have, Brothers and Sisters in Christ Jesus!
 

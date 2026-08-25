@@ -56,7 +56,7 @@ And the devil might whisper from his infernal den, "Had these men been tried&mda
 
 that, for they have beentouched in their bone and in their flesh. Take down Foxe's Book of Martyrswhen you are at home&mdash;I hope you all have it, for that book ought to be kept in every Christian's house, to the everlasting shame of the Church of Rome&mdash;take it down and look at the long list of martyrs who counted not their lives dear unto them! It was one of the noblest sights upon which the eyes of Jesus ever rested when He could look upon them and see them gladly die for His dear sake! I think the angels must have crowded the battlements of Heaven and looked down and said, "See how they love their Lord! See how bravely they die for Him! See how the timid, trembling women come forward and are stretched upon the rack without a groan, and then are fastened to the stake and burnt there, smiling as they die, and saying, 'None but Jesus! None but Jesus!'" I do not think that all the cherubim and seraphim in Heaven ever praised God as they have done who have died in prison for Jesus' sake, or at the stake have poured forth their blood rather than deny Him. Be glad that you may prove your love by suffering for Christ! The ruby crown of martyrdom is not within your reach today, but be thankful if some jewels of suffering may be yours. And count it all joy when you can endure this cross for the name of Jesus Christ.
 
-Now, for a few minutes I want to answer the last question. WHAT SHOULD ENCOURAGE US TO TAKE UP OUR CROSS AND FOLLOW CHRIST?
+Now, for a few minutes I want to answer the last question. WHAT SHOULD ENCOURAGE US TO TAKE UP OUR CROSS AND FOLLOW Christ?
 
 First, I cannot be Christ's disciple unless I do this and, oh, I must be His disciple! He is such a Master that I must follow Him! He is such a Lord that I cannot but serve Him! And if service should involve the carrying of the cross, I say, "Welcome cross! Lord, put it on my back!" I would gladly bear the burden which goes with His service.
 
@@ -78,7 +78,7 @@ I believe that the Lord takes delight in the prowess of His suffering saints. "T
 
 Lastly, in a very short time, the cross will be exchanged for the crown. It is said that when Princess Elizabeth carried the royal crown in some procession during the reign of her sister, she complained that it was very heavy and someone said that she would find it much lighter when she had it on her own head. So, some of us are carrying a great cross, here, and we find it very heavy&mdash;but we shall be well repaid when we receive our crown!
 
-EXPOSITION BY C. H. SPURGEON: MARK 10:17-45.
+Exposition by C. H. Spurgeon: Mark 10:17-45.
 
 Verses 17, 18. And when He was going out on the road, there came one running and kneeled before Him, and asked Him, Good Master, what shall I do that I may inherit eternal life? And Jesus said unto him, Why call you Me good? There is none good but One, that is God. This was a hint that Christ was more than Man. If He was really worthy of the title that the enquirer gave Him, He was God as well as Man, for "there is none good but One, that is God."
 

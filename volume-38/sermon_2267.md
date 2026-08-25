@@ -76,7 +76,7 @@ Ah, Beloved, "It does not yet appear what we shall be." God has given us a life 
 
 The practical outcome of all this is that some of you do not know anything at all about it. If you do not, let the fact impress you. If there is a Divine Life to which you are a stranger, how long will you be a stranger to it? If there is a spiritual death and you are dead, be startled, for within a little while God will say, "Bury My dead out of My sight." And what will happen to you when the Word of God is, "Depart, depart, depart, depart," and unto the graveyard of souls, to the fire that never shall be quenched, you and the rest of the dead are taken away? "God is not the God of the dead, but of the living" and, unless we are made alive unto Him, He cannot be our God either here or hereafter! The Lord impress this solemn Truth on all your hearts by His own Spirit, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON EPHESIANS2.
+Exposition by C. H. Spurgeon Ephesians2.
 
 Verse 1. And you He has quickened. Is it so? Could the Apostle say that to you and to me?
 

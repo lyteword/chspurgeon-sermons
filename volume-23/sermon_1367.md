@@ -16,7 +16,7 @@ In the same manner, though the strengthening of our faith will come through the 
 
 And so, while I shall earnestly refer you to the Spirit of God for strength in order to obtain more faith, yet I shall not apologize for unbelief, or treat strong faith as a work of our own, for which God has no claim upon us. I most earnestly declare the responsibility of each Believer and claim from him, as the righteous due of a faithful God, that he, from now on, believe in Him more fully than he has ever done. May the remarks I offer be used by the Holy Spirit to the increase and establishment of your confidence in God!
 
-Our first point is this&mdash;STRONG FAITH, WHEREVER IT EXISTS, IS SUPPORTED BY ABUNDANT REASONS. It is never chargeable with being unreasonable fanaticism or blind credence. It is a sound, prudent, justifiable thing. For, first, all the reasons which justify our believing in God at all, justify our believing in Him most firmly and continually. You do not need that I dwell upon this, because it is self-evident. It can never be right to believe unless the statements are true&mdash;and if true they deserve undivided faith. If you have trusted your soul with your Redeemer because of the efficacy of His atoning blood, that argument pleads with you to trust Him yet more steadfastly and confidently.
+Our first point is this&mdash;STRONG FAITH, WHEREVER IT EXISTS, IS SUPPORTED by ABUNDANT REASONS. It is never chargeable with being unreasonable fanaticism or blind credence. It is a sound, prudent, justifiable thing. For, first, all the reasons which justify our believing in God at all, justify our believing in Him most firmly and continually. You do not need that I dwell upon this, because it is self-evident. It can never be right to believe unless the statements are true&mdash;and if true they deserve undivided faith. If you have trusted your soul with your Redeemer because of the efficacy of His atoning blood, that argument pleads with you to trust Him yet more steadfastly and confidently.
 
 If anything is strong enough for you to trust your eternal destiny to, your trust ought not to be tinctured with suspicion, or soured with mistrust&mdash;it ought to be unalloyed as pure gold and immovable as a granite rock. Either no confidence or great confidence can be logically defended! A divided heart cannot be justified by reason. Dear Brothers and Sisters, little faith will save you if it is true faith, but there are many reasons why you should seek an increase of it, and among the best, this forcible one&mdash;Your conscience cannot justify the weakness of your faith, nor answer the question, "Therefore do you doubt?"
 
@@ -76,7 +76,7 @@ He has given to some men all the abilities necessary for the conversion of many 
 
 Now I advance to a third observation which, I trust, may give some comfort to those who are little in Israel.
 
-STRONG FAITH, WHICH GIVES GLORY TO God, MAY BE EXERCISED BY PERSONS WHO ARE OTHERWISE
+STRONG FAITH, WHICH GIVES GLORY TO God, MAY BE EXERCISED by PERSONS WHO ARE OTHERWISE
 
 EXCEEDINGLY WEAK. What a joy this is to you who are sufferers in body! You do not often creep out of your bed which is now growing so hard through your having laid upon it these months. It is quite a holiday for you to be found in the House of God now and then. Well, dear Brother, dear Sister, you cannot do Apostolic work and range a continent, fervently blazing out the Truth of God, but you can have strong faith in God!
 

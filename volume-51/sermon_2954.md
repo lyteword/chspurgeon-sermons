@@ -94,7 +94,7 @@ Now, who will begin with Jesus, or begin again with Jesus? By His Grace, I will!
 
 Now, Sinners, come along, and may the Holy Spirit graciously lead you to do as we are now doing. And then, as you go your way, each one of you can say, "He will never cast me out, for I have come to Him." Trust Jesus, I implore you. He is worthy of your trust, for He is the Son of God and He has died to put away the guilt of all who trust Him! I wish someone would say, "I have tried to save myself, but I cannot do it. I will trust Him to do it and I believe that He can, and that He will." Ah, my Friend, you will never be disappointed if you make such a blessed resolve as that! May God, by His Grace, enable you to do it&mdash;and to Him shall be praise forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ISAIAH55.
+Exposition by C. H. Spurgeon: Isaiah55.
 
 Verse 1. Ho, everyone that thirsts, come you to the waters, and he that has no money; come you, buy, and eat; yes, come, buy wine and milk without money and without price. The description of Gospel blessings grows sweeter as it advances. "Waters" first. "Wine and milk" next&mdash;and still all "without money and without price."
 
@@ -108,9 +108,9 @@ blood and signed by Him who gives an oath with it that He will never turn from i
 
 Behold, I have given Him for a witness to the people, a leader and commander to the people. He who is our greater David comes to us to bear witness of the Immutable Love of God and to be to us our Captain and our King. Happy are the souls that accept this David to be their Leader. You remember how David, in the cave Adullam, gathered to himself "everyone that was in distress, and everyone that was in debt, and everyone that was discontented, and he became a captain over them." Even so, the great Antitype, David's Son and David's Lord is now willing to gather to Himself those who are spiritually bankrupt, discontented and weary with the world! And God says, "I have given Him for a witness to the people, a leader and commander to the people."
 
-Behold, You shall call a nation that You know not, and nations that knew You not shall run unto You because of the LORD Your God, and for the Holy One of Israel; for He has glorified You. What joy this gives to you who love Him! Jehovah has glorified His Son and given to Him the power to call to Himself a people that He knew not in a saving sense, and He shall so call nations that knew Him not that they shall run to Him. We do not preach the Gospel, dear Brothers, at haphazard&mdash;we are sure of results. If we speak in faith, in the name of Christ men must be saved! They must run to Christ. It is not left to their option&mdash;there is a Divine hand that secretly touches the springs of the will of men so that when Christ calls them, they run to Him! Oh, that He would just now call them, even those that are furthest off, that they may run to Him and that He may be glorified!
+Behold, You shall call a nation that You know not, and nations that knew You not shall run unto You because of the Lord Your God, and for the Holy One of Israel; for He has glorified You. What joy this gives to you who love Him! Jehovah has glorified His Son and given to Him the power to call to Himself a people that He knew not in a saving sense, and He shall so call nations that knew Him not that they shall run to Him. We do not preach the Gospel, dear Brothers, at haphazard&mdash;we are sure of results. If we speak in faith, in the name of Christ men must be saved! They must run to Christ. It is not left to their option&mdash;there is a Divine hand that secretly touches the springs of the will of men so that when Christ calls them, they run to Him! Oh, that He would just now call them, even those that are furthest off, that they may run to Him and that He may be glorified!
 
-Seek you the LORD while He may be found. In these happy Gospel times when Christ is set forth on purpose that "He may be found."
+Seek you the Lord while He may be found. In these happy Gospel times when Christ is set forth on purpose that "He may be found."
 
 Call you upon Him while He is near And He is very near when the Gospel is preached with holy unction, when Christians are praying, when hearts are breaking for the conversion of sinners and when His Spirit is working in their hearts that they may repent of sin!
 
@@ -120,11 +120,11 @@ And the unrighteous man his thoughts. ' 'Thoughts!" says one, "we shall not be h
 
 And let him return. He is like one who has wandered from his father's house&mdash;"let him return." He is like the dove that flew away from Noah's ark and was ready to faint&mdash;"let him return."
 
-Unto the LORD, and He will have mercy upon him; and to our God, for He will abundantly pardon. What a blessed word, "abundantly," is here! Abundant pardon to cover abundant sin! Abundant provocation, abundant rejection of His Word!
+Unto the Lord, and He will have mercy upon him; and to our God, for He will abundantly pardon. What a blessed word, "abundantly," is here! Abundant pardon to cover abundant sin! Abundant provocation, abundant rejection of His Word!
 
 For&mdash;Says God, as if He would not leave the Prophet to speak any longer on His behalf, He Himself appears upon the scene and speaks! "For"&mdash;
 
-My thoughts are not your thoughts, neither are your ways My ways, says the LORD. No doubt He refers here to the pardon of sin. Our thoughts are narrow. We find it hard to forgive great offenses, to forgive many offenses, to forgive many offenders, to continue completely to forgive&mdash;all this is very difficult to men.
+My thoughts are not your thoughts, neither are your ways My ways, says the Lord. No doubt He refers here to the pardon of sin. Our thoughts are narrow. We find it hard to forgive great offenses, to forgive many offenses, to forgive many offenders, to continue completely to forgive&mdash;all this is very difficult to men.
 
 For as the Heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts. Think of the biggest thought you ever had concerning God's forgiveness of sins. Try again. Let your thoughts rise still higher&mdash;you cannot have reached the utmost height, "for as the Heavens are higher than the earth," so are His thoughts and ways higher than yours!
 

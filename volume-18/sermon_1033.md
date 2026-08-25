@@ -76,7 +76,7 @@ And, lastly, this man did well in looking for the help against his unbelief to t
 
 PORTION OF SCRIPTURE READ BEFORE SERMON'Mark 9:1-37.
 
-'THE SWORD AND THE TROWEL.' Edited by C. H. SPURGEON.
+'THE SWORD AND THE TROWEL.' Edited by C. H. Spurgeon.
 
 Contents for Febuary, 1872.
 

@@ -12,7 +12,7 @@ Christ will not have His servants under bondage to a legal spirit! Wherever He s
 
 I dare say that you have heard sermons from this text, but probably not preached from it in its connection. I like to take the text as it stands and get from it a bit of exposition for my own heart, which I may pass on to you, for, remember, although the text away from its connection may be true, yet it is not the truth which God there intended to teach us and it becomes us to look about us to see what comes before the text and what comes after, in order that we may catch the exact meaning of the Holy Spirit in giving the words.
 
-I shall begin by dwelling upon this remark&mdash;IN THE SERVICE OF OUR LORD FREE GRACE IS MANIFESTED. It may not strike you as being upon the surface of the text, but it lies on the very surface of the whole connection&mdash;in the service of our Lord, Free Grace is manifested. Think that over.
+I shall begin by dwelling upon this remark&mdash;IN THE SERVICE OF OUR Lord FREE GRACE IS MANIFESTED. It may not strike you as being upon the surface of the text, but it lies on the very surface of the whole connection&mdash;in the service of our Lord, Free Grace is manifested. Think that over.
 
 It must be so, in the first place, because, although it is rewarded, all our service is already due to God. Under the Law of God we are bound to love the Lord with all our heart, with all our soul, with all our mind and with all our strength. There can be nothing beyond that. All that we can do, we are already bound to do under the Law. Works of supererogation must be impossible, since the Law comprehends all holiness and condemns every form of sin. When we have done all, we are unprofitable servants&mdash;we have done no more than it was our duty to do. Therefore, Brothers and Sisters, if there is a service to which we are called, and for which a reward is promised, it must be a service of Grace. It cannot be any other. Under the Gospel, the same thing is true&mdash;all that we can do is already due. "You are not your own; for you are bought with a price." There is no faculty, there is no capacity, there is no possibility of your nature which is not redeemed and which does not belong to Christ by virtue of the ransom price which He has paid for it!
 
@@ -46,7 +46,7 @@ You owe your patience, your courage, your steadfastness, your all to the Spirit 
 
 Now, then, we have established this, I think, beyond all contradiction among spiritual men&mdash;that in the service of the Lord, Free Grace is magnified.
 
-So we take another step and we say, as our second head, THEREFORE THE LORD HAS HIS OWN WAY OF
+So we take another step and we say, as our second head, THEREFORE THE Lord HAS HIS OWN WAY OF
 
 MEASURING WHAT WE DO. You see that in the case of these persons who had toiled in the vineyard, their master measured their work after his own fashion. He did not go by the regular way of pay as so much an hour, but, inasmuch as it was all of Grace, this great householder made the reward to be after his own measure&mdash;a penny for one hour and a penny for 12 hours! He made the last equal to the first! So shall it be&mdash;"The last will be first, and the first, last." This is because we are dealing here, not with a legal paymaster, but with a God of Grace who measures our service, which itself is all of Grace, by His own measurement, and not by ours.
 

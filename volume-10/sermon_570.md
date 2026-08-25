@@ -91,7 +91,7 @@ Now this is the general plan of conversion. It is the plan in every case, really
 
 If you have not been a searcher of the Word, if Christ has never seemed to say to you, "Come and see," yet if your nature has been changed and you have received a new name&mdash;if there is a radical change in the rest&mdash;you are a child of God. That you are brought into the fellowship of the saints is an illustration of the unity of God's purpose. That there should be distinctive marks in your conversion is quite in harmony with the diversity of His operations.
 
-"The day following Jesus would go forth into Galilee and find Philip and say unto him, Follow Me." The fourth disciple is called without either the public Word or private instruction&mdash;he is called directly BY THE VOICE OF JESUS. Now in truth all men are so called, for the voice of John or the voice of Andrew is really the voice of Jesus Christ speaking through their instrumentality. But in some cases no apparent instrumentality is used. We have known some who on a sudden have felt impressions, from where they came or where they tended they did not know.
+"The day following Jesus would go forth into Galilee and find Philip and say unto him, Follow Me." The fourth disciple is called without either the public Word or private instruction&mdash;he is called directly by THE VOICE OF Jesus. Now in truth all men are so called, for the voice of John or the voice of Andrew is really the voice of Jesus Christ speaking through their instrumentality. But in some cases no apparent instrumentality is used. We have known some who on a sudden have felt impressions, from where they came or where they tended they did not know.
 
 In the midst of business we have known the workman suddenly check his plane&mdash;a great thought has entered into his brain&mdash;where it came from he could not tell. We have known a man wake up at midnight&mdash;he could not tell why, but a holy calm was upon him and as the moon was shining through the window there seemed to be a holy light shining into his soul and he began to think. We have known such things to occur&mdash;surprising cases&mdash;when men have been planning deeds of vice.
 
@@ -107,7 +107,7 @@ The second conversion before us attains a higher degree than the first. But this
 
 I hope I have not wearied you, for there is yet the fourth case of the fifth disciple, which differs from them all&mdash; Nathanael. What shall we say of Nathanael? Was he converted by ministry? It does not appear so. Was he converted by PRIVATE INSTRUMENTALITY? He was partly so. Philip finds Nathanael, but Philip's finding of Nathanael was not quite so effectual as Christ's finding of Philip. When Christ found Philip, Philip believed. But when Philip found Nathanael, Nathanael would not believe. He said, "Can there any good thing come out of Nazareth?"
 
-Philip is partly the instrument, but there is something more. Jesus Christ Himself shows His own power BY TELLING TO
+Philip is partly the instrument, but there is something more. Jesus Christ Himself shows His own power by TELLING TO
 
 NATHANAEL THE SECRETS OF HIS HEART. But still, Nathanael's conversion to Christ seems to me to be PARTLY OWING TO THE STATE IN WHICH HE THEN WAS. He was already in some sense a saved man&mdash;he was a devout Israelite. He was a true seeker of the Messiah beneath the fig tree. Well, then, there were these things put together&mdash;there was a preparation of heart which was doubtless worked of God.
 

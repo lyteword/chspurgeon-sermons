@@ -53,7 +53,7 @@ Our Lord Jesus Christ gave way to no sort of doubt, for He speedily took the bre
 
 Thirdly, and briefly, I want to set two more matters before your mind's eye for your comfort. In the miracles
 
-where we see the multitudes fed, we see MEANS USED, BUT CHRIST CONSPICUOUS. You perceive that our Lord
+where we see the multitudes fed, we see MEANS USED, BUT Christ CONSPICUOUS. You perceive that our Lord
 
 says of the loaves, "Bring them to Me." The means were used. When He has multiplied these very loaves and fishes, He gives them to the men that are round about Him and of these the multitudes partake. Whatever men in their folly may talk as to neglecting the outward means and sitting still and doing nothing because God will do His own work, we hear
 

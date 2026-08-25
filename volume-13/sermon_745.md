@@ -72,7 +72,7 @@ Mark you, on the other hand, Paul did not preach up the unsearchable riches of p
 
 My dear Friends, we must come back to the Gospel of Paul, and may God bring all His ministering servants more and more clearly back to it that we may have nothing to preach but that which clusters around the Cross! Nothing but that which glows and glistens like a sacred halo of light around the head of the Crucified One&mdash;that we may lift up nothing but Jesus, and say, "God forbid that we should glory, save in the Cross of our Lord Jesus Christ."
 
-Secondly, Paul preached THE UNSEARCHABLE RICHES OF CHRIST. Paul had no stinted Savior to present
+Secondly, Paul preached THE UNSEARCHABLE RICHES OF Christ. Paul had no stinted Savior to present
 
 to a few. No narrow-hearted Christ to be the head of a clique. No weak Redeemer who could pardon only those little offenders who scarcely needed it. He preached a great Savior to the great masses! A great Savior to great sinners. He preached the Conqueror with dyed garments, traveling in the greatness of His strength, whose name is "mighty to save."
 

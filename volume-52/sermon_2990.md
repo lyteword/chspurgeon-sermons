@@ -74,11 +74,11 @@ And now, dear Friends, in conclusion, let me remind you that there are many who 
 
 God grant that we may all break bread in the Kingdom above, feast with Jesus and share His Glory! We are expecting His second coming. He is coming personally and gloriously. This is the brightest hope of His people. This will be the fullness of their redemption, the time of their resurrection. Anticipate it, Beloved, and may God make your souls to sing for joy!
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
 www.spurgeongems.org
 
-The Believe Not an Orphan JOHN 15.
+The Believe Not an Orphan John 15.
 
 Many of you know the words of this chapter by heart. You could repeat them without a mistake. May the savor of them abide in your hearts even as the letter of them abides in your memory!
 

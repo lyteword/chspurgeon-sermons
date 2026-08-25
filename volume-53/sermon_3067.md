@@ -2,9 +2,7 @@
 
 "Who is he who condemns? It is Christ who died, yes rather, who is risen again, who is even at the right hand ofGod, who also makes intercession for us." Romans 8:34.
 
-[Other Sermons by Mr. Spurgeon, upon this passage are as follows&mdash;#256, Volume 5&mdash;THE BELIEVER's CHALLENGE;
 
-#1223, Volume 21&mdash;JESUS, THE SUBSTITUTE FOR HIS PEOPLE and #2240, Volume 38&mdash; a CHALLENGE AND a SHIELD.]
 
 ALL through this very wonderful chapter the Apostle seems to be piling up, in heaps upon heaps, the many marvels of Divine Grace. I might quote from the old classic fable of the giants who piled the mountains, one upon the other&mdash; Pelion upon Ossa&mdash;and I might say that even so has Paul done here. He has piled mountain upon mountain of wondrous Grace in his description of the way to Heaven! And now he seems to have climbed to the top of them all and to have transformed them into a kind of Tabor or Pisgah. And as he stands there, he exults in the Lord! He waves the palm branch of triumph. He boasts with holy boasting. And he challenges all his enemies to attack him&mdash;"Who shall lay anything to the charge of God's elect? It is God who justifies. Who is he who condemns? It is Christ who died, yes rather, who is risen again, who is even at the right hand of God, who also makes intercession for us."
 
@@ -23,9 +21,7 @@ despair&mdash;for our past transgressions would drag us down to Hell were it not
 
 It looks like a bold question for any man to put so unreservedly, "Who is he that condemns?" But there is really only One who can condemn. Our characters may have been pulled to pieces by a thousand accusers, but they could not condemn us. When a prisoner stands in the dock, he need not be afraid of anybody except the judge and jury. It does not matter what you or I may believe about him&mdash;nobody but the 12 men in the box can give the verdict against him or in his favor. These are the persons before whom he has cause to tremble but before none besides. So whoever may pretend to condemn us, there is only One who can really do so&mdash;and that is the Judge&mdash;and what is His name? O Christian, what a comforting fact is this to you! Your Judge is your Savior! And it is not possible to conceive that He who died and rose again, and entered into Heaven&mdash;and every day pleads for us&mdash;can ever use His blessed lips to pronounce condemnation upon any one of His own people! "Oh," you say, "but He must do it as He is the Judge! He must not show any favor on the Judgment Seat." That is a correct remark and I have been sorry whenever I have heard a preacher say that. It is a consolation to think that the Judge will be our Friend. Why, Beloved, we must not imagine that Jesus will judge partially and give His verdict in our favor because we are His friends. No, but here is our comfort&mdash;He who is our Judge, beyond everybody else, knows the whole truth about us and He would not justify us at the last if we really ought to be condemned. Ah, no, He is too just to do that! But He knows that every Believer is so completely justified that he cannot be condemned. He knows, as nobody else does, how the Believer was justified&mdash;what blood it was that washed the Believer white! And what righteousness it is that has made the Believer "accepted in the Beloved." He knows His own and He knows the way in which He has justified His own and, therefore, as an Omniscient, Infallibly just Judge, He knows that the sentence which will be passed upon the Believer, which is a sentence of acquittal, is the only one that could be passed!
 
-"Who is he who condemns? Christ who died." So the fact stands that whatever there may be in store for others in connection with the coming Day of Final Judgment and the banishment of the condemned to Hell, all who believe on the Lord Jesus Christ will never be condemned! Under no possible or conceivable circumstances can they ever be condemned, for they who are once forgiven and justified always shall be forgiven and justified in time and throughout eternity! There is now no condemnation to them who are in Christ Jesus&mdash;and there never shall be! [See Sermon #1917, Volume 32&mdash;in christ no
-
-CONDEMNATION.]
+"Who is he who condemns? Christ who died." So the fact stands that whatever there may be in store for others in connection with the coming Day of Final Judgment and the banishment of the condemned to Hell, all who believe on the Lord Jesus Christ will never be condemned! Under no possible or conceivable circumstances can they ever be condemned, for they who are once forgiven and justified always shall be forgiven and justified in time and throughout eternity! There is now no condemnation to them who are in Christ Jesus&mdash;and there never shall be! 
 
 Our second point is THE GROUND OF THIS HOLY CONFIDENCE.
 
@@ -69,7 +65,7 @@ own child, and on your way to Heaven, and a crown of eternal life is yours"&mdas
 
 God give to all of you the Grace to believe in Jesus and to go your way rejoicing, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN20:1-18.
+Exposition by C. H. Spurgeon: John20:1-18.
 
 Verse 1. The first day of the week Mary Magdalene came early, when it was yet dark, unto the sepulcher, and saw the stone was taken away from the sepulchei. Her love for her Lord made her rise early and helped her to overcome the fear which would have prevented many from going out "when it was yet dark, unto the sepulcher." There are fears which some cannot shake off in the dark&mdash;and those fears would be apt to become intensified in going to a sepulcher in the dark. But love wakes early to try to find Christ and love can see in the dark when looking for Jesus! Mary little expected to find the tomb of Jesus rifled and the stone rolled away&mdash;she was so surprised at what she saw that she hurried away to tell the story to other friends of her Lord.
 

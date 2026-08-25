@@ -88,7 +88,7 @@ Thus I have spoken to God's people, but I have said very little to sinners. Alth
 
 Some of you are living within the boundaries of this mortal existence and that is your all. Poor Soul! Poor Soul! Poor soul! Poor Soul! The Lord in His mercy bring you to know the life eternal! And when you once get that, your great desire will be to be delivered from the power of sin and to keep yourself unspotted from the world! The Lord bless you, for Christ's sake! Amen!
 
-EXPOSITION BY C. H. SPURGEON. JAMES1.
+Exposition by C. H. Spurgeon. James1.
 
 Verse 1. James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are scattered abroad, greeting. "Where are the lost ten tribes?" asks somebody. They never were lost. That is a mere piece of nonsense! There were, and there still are, 12 tribes of Israel, as much one as the other. Ask any Jew if it is not so. James writes to all his compatriots by nature and to all the fellow citizens of the saints by Grace, and greets them. What a strange greeting it is!
 

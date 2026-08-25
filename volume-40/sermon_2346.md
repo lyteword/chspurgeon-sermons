@@ -94,7 +94,7 @@ And last of all, in his prayer, "Make me not the reproach of the foolish," David
 
 The Lord grant His blessing to those who are to be baptized tonight! May they be faithful to the end and may others of us, who have confessed Christ years ago, be kept from sin! May we all trust Christ tonight! If we never trusted Jesus before, let us begin at once, each one saying, "Now, Lord, what wait I for? My hope is in You." May we all come to Jesus and find eternal life in Him! Amen, and amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM39
+Exposition by C. H. Spurgeon: Psalm39
 
 To the chief Musician, even to Jeduthun, a Psalm of David.
 
@@ -120,7 +120,7 @@ While I was musing, the fire burned. He grew so hot with grief that he was compe
 
 Then spoke I with my tongue. I am not sure that he did not sin then. We sin if we are silent and we sin if we speak, for we are such sinful creatures. It would have been better, perhaps, if David had said, "Lord, help me to take heed to my ways and rule, You, over my tongue," for as it was, you see, he could not manage his tongue. He was either too fast or too slow. However, this time he spoke well, for he spoke to God. More talk to God and less chat to men&mdash;and we would be wiser and better!
 
-LORD, make me to know my end. It is greatly wise for us to be familiar with our last hours. There is much to be discovered in the shroud, the mattock and the spade.
+Lord, make me to know my end. It is greatly wise for us to be familiar with our last hours. There is much to be discovered in the shroud, the mattock and the spade.
 
 And the measure of my days, what it is; that I may know how frail I am. A bubble is more substantial than I am&mdash;a little handful of dust, easily blown in the wind&mdash;rather an appearance than a reality! Ah, me, little do we know, any of us, how frail we are!
 
@@ -146,7 +146,7 @@ Remove Your stroke away from me: I am consumed by the blow of Your hand. When Go
 
 When with rebukes You correct man for iniquity, You make his beauty to consume away like a moth. Stout, he is reduced to a shadow. Comely and beautiful, he is wrinkled and looks like a skeleton. Joyful and blithe, he ends his day in mourning. Ah, dear Friends, we who have joy, calm and peace ought to be very grateful! Praise God while you can, for it may be that a dark night will follow the bright day. Oh, for Grace to praise God even then! That is the best of music that comes from God's nightingales! Music by night is music, indeed. But when God corrects men, how soon He takes them down!
 
-11, 12. Surely every man is vanity. Selah. Hear my prayer, O LORD. "If I cannot do anything else, I can pray, and I will pray." That is the best relief that mourners have&mdash;"Hear my prayer, O Lord."
+11, 12. Surely every man is vanity. Selah. Hear my prayer, O Lord. "If I cannot do anything else, I can pray, and I will pray." That is the best relief that mourners have&mdash;"Hear my prayer, O Lord."
 
 And give ear unto my cry; hold not Your peace at my tears. "Do not see me weeping and yet refuse me comfort and relief. Do not, I pray You, hear my cry, and yet turn Your back upon me."
 

@@ -14,7 +14,7 @@ However, I am not going to speak about the duties of masters and servants this e
 
 We will begin by considering the relation of the Lord Jesus Christ to us and ours to Him. Then we shall consider the conduct which is consistent with that relation. And then the reward which is promised to such conduct.
 
-And, first, the RELATION WHICH SUBSISTS BETWEEN OURSELVES AND OUR LORD. He is our Master&mdash;our Master. I speak now, of course, only to you who are converted, to you who are true Believers and are saved by faith in Jesus Christ. The Lord Jesus is, to you, your Master in the sense of contrast to all other governing powers. You are men and naturally moved by all that which moves other men, but still the master motive power with every one of
+And, first, the RELATION WHICH SUBSISTS BETWEEN OURSELVES AND OUR Lord. He is our Master&mdash;our Master. I speak now, of course, only to you who are converted, to you who are true Believers and are saved by faith in Jesus Christ. The Lord Jesus is, to you, your Master in the sense of contrast to all other governing powers. You are men and naturally moved by all that which moves other men, but still the master motive power with every one of
 
 you who is a Christian is the supremacy of Christ. There are some among your fellow servants to whom you render respect, just as in a large firm there are foremen, set over different parts of the work, to whom a measure of deference is fitly rendered.
 

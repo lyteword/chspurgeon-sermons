@@ -120,23 +120,23 @@ If I am addressing any poor soul that has been craving mercy from God, one who h
 
 You see, then, some of the ways in which this very great and wonderful change is worked. I have had to omit many other points on which I meant to speak, but I pray that this change may be worked in each of you. Do not wait to have the change worked and then come to God, but come to God for it! If you have a broken heart, come to Christ with it! But if you have not a broken heart, come to Christ to break your heart! If you feel your sin, come to Christ to have it forgiven, but if you do not feel your sin, come to Christ that you may be made to feel it! If there is any good thing in you, thank God for it, and come to Him for more. But if there is no good thing whatever in you, come without any good thing and let Christ begin at the very beginning with you, in all your emptiness, need, spiritual beggary and loathsomeness! Come to Him just as you are, for He still says, "Him that comes to Me, I will in no wise cast out." May His sweet Spirit graciously attract each of you till you shall be drawn to Him and so drawn from your idols! And to Him shall be Glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 34; HOSEA14.
+Exposition by C. H. Spurgeon: Psalm 34; Hosea14.
 
-Psalm 34:1. I will bless the LORD at all times. "At dark times and bright times when I am alone, and when I am in company. When I feel like doing it and when I do not feel like doing it. 'I will bless the Lord at all times.'"
+Psalm 34:1. I will bless the Lord at all times. "At dark times and bright times when I am alone, and when I am in company. When I feel like doing it and when I do not feel like doing it. 'I will bless the Lord at all times.'"
 
 His praise shall continually be in my mouth. "I will not only feel it in my heart, but I will give expression to it with my mouth. Those who do not care for this blessed employment may leave it alone, but as for me, 'His praise shall continually be in my mouth.'"
 
-My soul shall make her boast in the LORD: the humble shall hear thereof, and be glad. "I will ride the high horse when I begin to talk of the goodness of God&mdash;'My soul shall make her boast in the Lord'&mdash;and whereas boasters are generally very vexatious to humble-minded people, this kind of boasting shall please them. 'The humble shall hear thereof, and be glad.'"
+My soul shall make her boast in the Lord: the humble shall hear thereof, and be glad. "I will ride the high horse when I begin to talk of the goodness of God&mdash;'My soul shall make her boast in the Lord'&mdash;and whereas boasters are generally very vexatious to humble-minded people, this kind of boasting shall please them. 'The humble shall hear thereof, and be glad.'"
 
-O magnify the LORD with me, and let us exalt His name together. Come, my Brothers and Sisters, I cannot perform this happy service alone! It is too much for me all by myself. This bunch of grapes is too heavy to be carried by one. "O magnify the Lord with me, and let us exalt His name together."
+O magnify the Lord with me, and let us exalt His name together. Come, my Brothers and Sisters, I cannot perform this happy service alone! It is too much for me all by myself. This bunch of grapes is too heavy to be carried by one. "O magnify the Lord with me, and let us exalt His name together."
 
-I sought the LORD, and He heard me, and delivered me from all my fears. Should not the prayer-hearing God be praised? If He hears the cries of His people, should He not also hear the praises of His people? It is not one, only, to whom God has thus listened, but many can say with the Psalmist, "I sought the Lord, and He heard me."
+I sought the Lord, and He heard me, and delivered me from all my fears. Should not the prayer-hearing God be praised? If He hears the cries of His people, should He not also hear the praises of His people? It is not one, only, to whom God has thus listened, but many can say with the Psalmist, "I sought the Lord, and He heard me."
 
-5, 6. They looked to Him, and were lightened: and their faces were not ashamed. This poor man cried, and the LORD heard him, and saved him out of all his troubles. It is God's delight to hear the cry of poor men! Sometimes He passes by the rich and great, and gives heed to the poor and desolate. It is our need that has the loudest cry with God&mdash;if our necessities are urgent, our prayer will be powerful.
+5, 6. They looked to Him, and were lightened: and their faces were not ashamed. This poor man cried, and the Lord heard him, and saved him out of all his troubles. It is God's delight to hear the cry of poor men! Sometimes He passes by the rich and great, and gives heed to the poor and desolate. It is our need that has the loudest cry with God&mdash;if our necessities are urgent, our prayer will be powerful.
 
-The angel of the LORD encamps round about them that fear Him, and delivers them. God's children are always attended like princes&mdash;legions of angels form their bodyguard. The Angel of the Lord and companies of holy angels with Him pitch their celestial tents round about them that fear God!
+The angel of the Lord encamps round about them that fear Him, and delivers them. God's children are always attended like princes&mdash;legions of angels form their bodyguard. The Angel of the Lord and companies of holy angels with Him pitch their celestial tents round about them that fear God!
 
-O taste and see that the LORD is good: blessed is the man that trusts in Him. Try Him, dear Friends, and prove for yourselves how good and gracious He is&mdash;"O taste and see that the Lord is good: blessed is the man that trusts in
+O taste and see that the Lord is good: blessed is the man that trusts in Him. Try Him, dear Friends, and prove for yourselves how good and gracious He is&mdash;"O taste and see that the Lord is good: blessed is the man that trusts in
 
 Him."&mdash;
 
@@ -145,21 +145,21 @@ Him."&mdash;
 > How blest are they, and only they, 
 > Who in His truth confide! 
 
-O fear the LORD, you His saints: for there is no want to them that fear Him. He will supply all their wants. You need not fear for anything else when you once fear God.
+O fear the Lord, you His saints: for there is no want to them that fear Him. He will supply all their wants. You need not fear for anything else when you once fear God.
 
 The young lions lack, and suffer hunger. They are strong, fierce, crafty and unscrupulous, yet they still suffer hunger&mdash;
 
-But they that seek the LORD shall not want any good thing. Though they are neither cruel, nor cunning, nor strong, "they that seek the Lord shall not want any good thing." What a promise for you to plead in prayer, dear Friends! If you are in any need, do not hesitate, but by an act of faith take this gracious Word of God and plead it with the promise-keeping God! "Have You not said that, 'they that seek the Lord shall not want any good thing'? Then, Lord, do as You have said."
+But they that seek the Lord shall not want any good thing. Though they are neither cruel, nor cunning, nor strong, "they that seek the Lord shall not want any good thing." What a promise for you to plead in prayer, dear Friends! If you are in any need, do not hesitate, but by an act of faith take this gracious Word of God and plead it with the promise-keeping God! "Have You not said that, 'they that seek the Lord shall not want any good thing'? Then, Lord, do as You have said."
 
-11-13. Come, you children, hearken to me. I will teach you the fear of the LORD. What man is he that desires life, and loves many days, that he may see good? Keep your tongue from evil, and your lips from speaking guile. He who can manage his tongue can manage his whole body, for the tongue is the rudder of the ship. And if that is properly held, the vessel will be rightly steered. If you would escape the quicksands and the rocks, look well to your tongue! Keep it from evil, that it speaks neither blasphemy against God nor slander against your fellow men. And keep your lips from guile, that is, from deceit, from double meanings, from saying one thing and meaning another, or making other people think that you mean another&mdash;an art all too well understood in these days. God make us plain-speaking men, who say what we mean, and mean what we say! When, by the Grace of God, we are taught to do this, we have learned a good lesson.
+11-13. Come, you children, hearken to me. I will teach you the fear of the Lord. What man is he that desires life, and loves many days, that he may see good? Keep your tongue from evil, and your lips from speaking guile. He who can manage his tongue can manage his whole body, for the tongue is the rudder of the ship. And if that is properly held, the vessel will be rightly steered. If you would escape the quicksands and the rocks, look well to your tongue! Keep it from evil, that it speaks neither blasphemy against God nor slander against your fellow men. And keep your lips from guile, that is, from deceit, from double meanings, from saying one thing and meaning another, or making other people think that you mean another&mdash;an art all too well understood in these days. God make us plain-speaking men, who say what we mean, and mean what we say! When, by the Grace of God, we are taught to do this, we have learned a good lesson.
 
 Depart from evil, and do good; seek peace, and pursue it. If it runs away from you, run after it. Never run into or after a quarrel, but always run after peace&mdash;"Seek peace, and pursue it."
 
-The eyes of the LORD are upon the righteous, and His ears are open to their cry. The Lord is always watching them and He is always listening that He may hear everything they say, especially when they cry to Him.
+The eyes of the Lord are upon the righteous, and His ears are open to their cry. The Lord is always watching them and He is always listening that He may hear everything they say, especially when they cry to Him.
 
-The face of the LORD is against them that do evil, to cut off the remembrance of them from the earth. He will not only destroy the wicked, but He will blot out the very memory of them! They may become great and famous in their wickedness, but they shall not be kept in memory, as the righteous are. As Solomon says, "The name of the wicked shall rot."
+The face of the Lord is against them that do evil, to cut off the remembrance of them from the earth. He will not only destroy the wicked, but He will blot out the very memory of them! They may become great and famous in their wickedness, but they shall not be kept in memory, as the righteous are. As Solomon says, "The name of the wicked shall rot."
 
-18. The righteous cry, and the LORD hears, and delivers them out of all their troubles. The LORD is near to them that are of a broken heart; and saves such as are of a contrite spirit. Men do not care for broken hearts, but God does. "Give me a sound heart and a brave heart," says man. "Give me a broken and a contrite heart," says the Lord. If you have such a heart as that, be not afraid to draw near to your God, through Jesus Christ, for He is already near you!
+18. The righteous cry, and the Lord hears, and delivers them out of all their troubles. The Lord is near to them that are of a broken heart; and saves such as are of a contrite spirit. Men do not care for broken hearts, but God does. "Give me a sound heart and a brave heart," says man. "Give me a broken and a contrite heart," says the Lord. If you have such a heart as that, be not afraid to draw near to your God, through Jesus Christ, for He is already near you!
 
 Many are the afflictions of the righteous: but the Lord delivers him out of them all. Many who read this verse admit that the first part of it is true&mdash;"Many are the afflictions of the righteous." Yes, but the latter clause is also true&mdash;"but the Lord delivers him out of them all." Do not omit either portion of the passage, for one part is as true as the other!
 
@@ -167,9 +167,9 @@ He keeps all his bones: not one of them is broken. God's people shall suffer no 
 
 Evil shall slay the wicked: and they that hate the righteous shall be desolate. They shall want nothing else to make an end of them but their own sins&mdash;"Evil shall slay the wicked."
 
-The LORD redeems the soul of His servants: and none of them that trust in Him shall be desolate. Now we are going to read the last chapter of the Book of the Prophet Hosea, the first of the minor Prophets.
+The Lord redeems the soul of His servants: and none of them that trust in Him shall be desolate. Now we are going to read the last chapter of the Book of the Prophet Hosea, the first of the minor Prophets.
 
-Hosea 14:1. O Israel, return to the LORD your God; for you have fallen by your iniquity. When we fall by sin, we must regain our comfort by going back to the place where we lost it. "Return to the Lord your God for you have fallen by your iniquity." Then, to help us return, God, through His servant, actually makes a prayer for us.
+Hosea 14:1. O Israel, return to the Lord your God; for you have fallen by your iniquity. When we fall by sin, we must regain our comfort by going back to the place where we lost it. "Return to the Lord your God for you have fallen by your iniquity." Then, to help us return, God, through His servant, actually makes a prayer for us.
 
 Take with you words, and turn to the Lord. "What words am I to take?" asks the poor convicted sinner. "I cannot put words together." Here are the words put into your mouth&mdash;
 
@@ -191,4 +191,4 @@ And his smell as Lebanon. Oh, to stand in holy repute among men, so that there i
 
 They that dwell under his shadow shall return; they shall revive as the corn, and grow as the vine: the scent thereof shall be as the wine of Lebanon. When God blesses men, He also blesses those round about them. Your children, your servants, your neighbors shall all be the better if the Grace of God comes to you. So may it be!
 
-8,9. Ephraim shall say, What have I to do anymore with idols? I have heard him, and observed him: I am like a green fir tree. From Me is your fruit found. Who is wise? Let him understand these things. Who is prudent? Let him know them. For the ways of the LORD are right, and the just shall walk in them: but the transgressors shall fall therein.
+8,9. Ephraim shall say, What have I to do anymore with idols? I have heard him, and observed him: I am like a green fir tree. From Me is your fruit found. Who is wise? Let him understand these things. Who is prudent? Let him know them. For the ways of the Lord are right, and the just shall walk in them: but the transgressors shall fall therein.

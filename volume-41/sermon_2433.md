@@ -75,11 +75,11 @@ I am looking upon many young men and women here&mdash;how I wish that they would
 
 God bless you, dear Hearers! We shall never, all of us, meet again on earth&mdash;that is not possible among these thousands from all quarters of the globe&mdash;but may the sincere penitent prayer of all the unsaved among us be so heard that we may all meet in Heaven! Amen and Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM88.
+Exposition by C. H. Spurgeon: Psalm88.
 
 A Song or Psalm for the sons of Korah, to the chief Musician upon Mahaloth Leannoth, Maschil of Heman the Ez-rahite. I think that this is the darkest of all the Psalms&mdash;it has hardly a spot of light in it. The only bright words that I know of are in the first verse. The rest of the Psalm is very dark and very dreary. Why, then, am I going to read it? Because, it may be there is some poor heart, here, that is very heavy. You cannot proclaim of this great crowd how many sorrowing and burdened spirits there may be among us, but there may be a dozen or two of persons who are driven almost to despair. My dear Friend, if this is your case, I want you to know that somebody else has been just where you are. Remember how the shipwrecked man upon the lonely island all of a sudden came upon the footprints of another human being? So here, on the lone island of despondency, you shall be able to trace the footprints of another who has been there before you. Hear how he prays.
 
-Verse 1. O LORD God of my salvation, / have cried day and night before You. It was only a cry, a cry as of an animal in pain, or, at best, the cry as of a child that has lost its mother. "I have cried day and night before You."
+Verse 1. O Lord God of my salvation, / have cried day and night before You. It was only a cry, a cry as of an animal in pain, or, at best, the cry as of a child that has lost its mother. "I have cried day and night before You."
 
 Let my prayer come before You. "Give me an audience, O Lord. Do not shut the door in my face. My prayer has been knocking, knocking, knocking, at Your gate! Open it. 'Let my prayer come before You.'"
 
@@ -101,15 +101,15 @@ Like the slain that lie in the grave whom You remember no more: and they are cut
 
 You have put away my acquaintance far from me. You have made me an abomination unto them: / am shut up, and / cannot come forth. This is the utterance of a soul imprisoned in solitary confinement with nobody able to come to it to breathe out consolation. "You have put away my acquaintance far from me. They cannot come to me and I am shut up, and I cannot come forth to them."
 
-My eyes mourn by reason of affliction: LORD, / have called daily upon You, / have stretched out my hands unto You. Now hear how the Psalmist pleads with the Lord! Prayer is always best when it rises to pleading. The man who understands the sacred art of prayer becomes a special pleader with God!
+My eyes mourn by reason of affliction: Lord, / have called daily upon You, / have stretched out my hands unto You. Now hear how the Psalmist pleads with the Lord! Prayer is always best when it rises to pleading. The man who understands the sacred art of prayer becomes a special pleader with God!
 
 Will You show wonders to the dead? Shall the dead arise and praise You? Selah. "Shall the dead arise and praise You?" Not in this life, though the godly will praise the Lord in the world to come. But now, when a Christian dies, God loses a chorister from the choirs of earth&mdash;there is one less to sing His praises here&mdash;and the Psalmist, therefore, pleads, "Lord, if I live, You can show Your wonders to me; but will You show Your wonders to the dead? If I am alive, I can praise You; but shall the dead arise and praise You?"
 
 12. Shall Your loving kindness be declared in the grave? Or Your faithfulness in destruction? Shall Your wonders be known in the dark? And Your righteousness in the land of forgetfulness? He pleads that if he dies, he shall not be able to proclaim the mercy of the Lord! God will lose a singer from His earthly choir, a witness from His earthly courts, a testi-fier of His loving kindness, faithfulness and righteousness.
 
-But unto You have / cried, O LORD; and in the morning shall my prayer come before You. "I will be up before You come to me. I will be first to approach You. I will salute the rising sun with my rising prayer."
+But unto You have / cried, O Lord; and in the morning shall my prayer come before You. "I will be up before You come to me. I will be first to approach You. I will salute the rising sun with my rising prayer."
 
-LORD, why do You cast off my soul? Why do You hide Your face from me? Note again the earnestness of the Psalmist's pleadings. We have had many of them already&mdash;each verse has, I think, had at least two pleadings in it. If You would be heard by God, take care that you reason with Him and press your arguments with the Most High. He delights in this exercise of persevering supplication which will take no denial.
+Lord, why do You cast off my soul? Why do You hide Your face from me? Note again the earnestness of the Psalmist's pleadings. We have had many of them already&mdash;each verse has, I think, had at least two pleadings in it. If You would be heard by God, take care that you reason with Him and press your arguments with the Most High. He delights in this exercise of persevering supplication which will take no denial.
 
 15-18. / am afflicted and ready to die from my youth up: while / suffer Your terrors, / am distracted. Your fierce wrath goes over me. Your terrors have cut me off. They came round about me daily like water; they compassed me about together.
 

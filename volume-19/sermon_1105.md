@@ -10,7 +10,7 @@ Now it is very remarkable that the only passage in the whole New Testament in wh
 
 Without further preface we shall have two things carefully to do. First, to consider the description here given of the heart of Jesus. And then, secondly, we will labor to obey the exhortations which are connected with this description. For both these matters we shall need the rich assistance of the Holy Spirit and I pray that it may be vouchsafed, since it is the Spirit's office to take of the things of Christ and show them unto us. We may confidently expect that He will shine upon so choice a subject as the sacred heart of our loving Lord!
 
-LET US MEDITATE UPON THE DESCRIPTION OF THE HEART OF THE LORD JESUS, which is presented
+LET US MEDITATE UPON THE DESCRIPTION OF THE HEART OF THE Lord Jesus, which is presented
 
 to us in the text. It consists of two adjectives&mdash;"I am meek and lowly in heart." There is no pomp or display in either of the qualities mentioned. They both belong to the gentle order of virtues and are but little esteemed among the princes of this world and their warriors. The first is the word, "meek." It is used in the New Testament in the third Beatitude&mdash; "Blessed are the meek, for they shall inherit the earth." And by Peter, when speaking of "the ornament of a meek and quiet spirit." Of our Lord it is also said&mdash;"Behold your King comes to you, meek, and sitting upon an ass, and a colt the foal of an ass."
 

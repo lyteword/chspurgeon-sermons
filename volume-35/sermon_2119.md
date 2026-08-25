@@ -9,7 +9,7 @@ I WANTED to speak tonight to Believers who have lost the joyful Presence of thei
 
 I shall have no other preface but these remarks. For we have before us a long text to be handled in a short time and I would not perform my task slightingly. We will advance by a series of observations.
 
-Our first observation shall be this&mdash;a SOUL SEEKING JESUS HAS WAYS OF ITS OWN.
+Our first observation shall be this&mdash;a SOUL SEEKING Jesus HAS WAYS OF ITS OWN.
 
 Read carefully the tenth verse&mdash;"Then the disciples went away again unto their own homes. But Mary," Mary had her own way of proceeding. Mary was seeking Christ more intensely and affectionately than even the choicest of the Apostles. They were more able to wait for events than her eagerness would allow her to do. John was able to go home, because he had seen and believed. Peter went home all the more readily because a cloud darkened his sky.
 
@@ -39,7 +39,7 @@ Yet I am glad that Mary looked into the tomb. For, though she looked in the wron
 
 I am sure of you, for you will not run away to your home. You stay near the place where Jesus was last seen. You are not rolling stones but you abide in earnest hearing, in Apostolic doctrine, and in prayers. Your constancy and your eagerness are cheering signs that Divine Grace is beginning its work in your hearts. Comfort is on the way to you, I can see the light of it reflected in those tears which glisten in your eyes. God grant that we may not be disappointed in you, for His name's sake!
 
-But now, going a little further on, I would observe, secondly, that a SOUL SEEKING JESUS MAKES SMALL
+But now, going a little further on, I would observe, secondly, that a SOUL SEEKING Jesus MAKES SMALL
 
 ACCOUNT OF ANYTHING ELSE.
 
@@ -67,9 +67,9 @@ In the true seeker, the one cry of the soul is Christ, none but Christ, Christ a
 
 Child of God, when you have lost the light of your Lord's face, feel that you must have it back again, or die in the dark. And when you thus feel, He will return to you. He never set a soul longing for Himself, and Himself only, without gratifying the longing which He has created. Hunger and thirst after the Lord Jesus are blessed attributes. For He who created them will satisfy them. Oh, that the Lord would cause us to faint and pine after Himself more and more, and then visit us with that which is our soul's only fullness, namely, His precious, priceless Self!
 
-Thus have we handled the second point sufficiently. Let us now make a third observation&mdash;a SOUL SEEKING JESUS MAY HAVE HIM VERY NEAR, AND NOT KNOW IT.
+Thus have we handled the second point sufficiently. Let us now make a third observation&mdash;a SOUL SEEKING Jesus MAY HAVE HIM VERY NEAR, AND NOT KNOW IT.
 
-Read, "When she had thus said, she turned herself back and saw JESUS standing and knew not that it was Jesus." He was behind her while she stood looking into the sepulcher. And though she did not perceive it, His Presence operated upon her. She had been speaking to the angels and answering their question. And suddenly she was conscious that someone was standing just behind her. How came she thus to feel? Some think that, as Mark describes, the angels, as standing up. The Lord had, at that moment, come behind Mary and the holy angels, perceiving their Lord, rose up to do Him honor.
+Read, "When she had thus said, she turned herself back and saw Jesus standing and knew not that it was Jesus." He was behind her while she stood looking into the sepulcher. And though she did not perceive it, His Presence operated upon her. She had been speaking to the angels and answering their question. And suddenly she was conscious that someone was standing just behind her. How came she thus to feel? Some think that, as Mark describes, the angels, as standing up. The Lord had, at that moment, come behind Mary and the holy angels, perceiving their Lord, rose up to do Him honor.
 
 They had been sitting in contemplation at the place of His sepulcher but as soon as they caught sight of their Lord, they stood up, as if to do His bidding. From their movements Mary concluded that someone was passing behind her. It may have been so. For assuredly the angelic guards would have paid Him instant reverence. But, on the other hand, rising is scarcely so much a method of saluting a superior in the East as it is in the West. Let us suggest something else.
 
@@ -109,7 +109,7 @@ In a word, she was so far from discovering her Lord that she took Him to be her 
 
 Beloved, you and I also have reckoned our best Friend to be our enemy&mdash;so foolish are we and so soon mistaken. In the darkness of our souls we judge unrighteously and complain of our Lord whom alone we ought to praise. He knows our ignorance and He forgives.
 
-Upon my fourth observation I will be very brief&mdash;a SOUL SEEKING JESUS WILL DO ANYTHING TO FIND HIM.
+Upon my fourth observation I will be very brief&mdash;a SOUL SEEKING Jesus WILL DO ANYTHING TO FIND HIM.
 
 Mary Magdalene was still seeking. And when she saw one standing before her, whom she thought to be the gardener, what did she do? Why, she enquired of that gardener where she might find Him whom she loved. She was willing to learn from anyone. If you are in earnest to find the Lord Jesus, you will not be particular about where you go, or of whom you learn. No matter whether the preacher is a doctor of divinity or a converted coal heaver, so long as he preaches Christ, you will be glad to learn from him.
 
@@ -135,7 +135,7 @@ That is the second time she turned herself. The first time she turned and looked
 
 For a while they listen to us and try to look to the Lord. But they do not know Him, and so their eyes insensibly return to the old place, looking again into the sepulcher of self, to find a living hope in the things of death. Still, even this mistaken persistency shows how anxious they are, and how desperately they are set upon finding salvation. Though they make serious mistakes, and even repeat them, yet they cannot give up. For nothing short of Christ will content them.
 
-And that brings us to our fifth point&mdash;a SEEKING SOUL MAY FIND JESUS THROUGH ONE WORD.
+And that brings us to our fifth point&mdash;a SEEKING SOUL MAY FIND Jesus THROUGH ONE WORD.
 
 We might be wise to clip our sermons down and make them much shorter. Long discourses have often missed the mark. Our Lord's one word gave Mary all she sought. He said to her, "Mary." And at once she knew Him and cried, "Rabboni." Only one word! Jesus can preach a perfect sermon in one word! O dear Friends, when you cannot say much to an anxious enquirer, say a single word. Who knows what that one word may do? When you cannot repeat a sermon, quote a verse. "A verse may hit him whom a sermon flies." Do not think that strength lies in length&mdash;it is often the reverse.
 
@@ -151,7 +151,7 @@ That word from the Master's lips, that word&mdash;your own name&mdash;that word 
 
 One glance of His eyes darted the light of God into her spirit. "Mary!" was the Open Sesame of her heart and mind. Oh, now she has Him! Lord, speak in this fashion to some seeker who is here looking for You! Lord, speak to John and Peter, to Jane and Sarah! Let the message come to many hearers from Your own lips, to Your own glory!
 
-The last head is this&mdash;a SEEKING SOUL WILL RESPOND WITH REVERENCE TO THE WORD OF JESUS.
+The last head is this&mdash;a SEEKING SOUL WILL RESPOND WITH REVERENCE TO THE WORD OF Jesus.
 
 Mary said at once, "Rabboni." This is a Hebrew word, signifying "Master," or, as Parkhurst says, having a Chaldee particle within it, which makes it to mean "My Master," or, as I have heard some say, "Great Master." At any rate, she meant that He was her Lord and Teacher. He knew her heart, He understood her inmost soul, and therefore she acknowledged Him as her Lord. He had called her by her name and she recognized that all-controlling voice. He was her Master, since He could so divinely know and move her heart.
 

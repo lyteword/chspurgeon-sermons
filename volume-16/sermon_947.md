@@ -142,7 +142,7 @@ But by His Grace I come anew to the Cross and think of Who it was that died ther
 
 How I desire, with intense longing, that you may do the same. It would be a blessed day for you, and for me a joyful occasion. The Jews in the present chapter asked our Savior, "What shall we do that we may work the works of God?" and He said, "This is the work of God, that you believe on Him whom He has sent." The greatest of all works, the most Godlike work, is to leave off self-righteous seeking, and trust in Jesus.
 
-Now I will conclude by delivering one or two DIRECTIONS TO THOSE WHO ARE "SEEKING FOR JESUS." Very brief shall these be. The first direction is&mdash;give attention, dear Friend, to the Object of faith. The only way by which you can be saved is by faith. Take that to be settled. Now if a man says, "I cannot believe such a thing"&mdash;what then? What is his wisest course?
+Now I will conclude by delivering one or two DIRECTIONS TO THOSE WHO ARE "SEEKING FOR Jesus." Very brief shall these be. The first direction is&mdash;give attention, dear Friend, to the Object of faith. The only way by which you can be saved is by faith. Take that to be settled. Now if a man says, "I cannot believe such a thing"&mdash;what then? What is his wisest course?
 
 Suppose you find a difficulty in believing a report&mdash;what do you do? Why, you consider the probabilities of it. Suppose it had been rumored that the Emperor Napoleon had shot himself. Shall I believe the report? I will ask from where the rumor comes, what intelligence corroborates it, upon what authority it is stated&mdash;and soon, by that means&mdash;I arrive at a conclusion whether it is probably true, or is a mere idle tale.
 

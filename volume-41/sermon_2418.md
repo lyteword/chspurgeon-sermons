@@ -16,7 +16,7 @@ Are you, then, a member of that blessed society? Do you desire to live to God? A
 
 No man is truly sanctified unless he is sanctified by Christ. The Holy Spirit is made the Agent of our purification, but it is in Christ that we are, first of all, set apart unto God, and it is by His most precious blood, applied to us by the Spirit of God, that we are made clean and pure so as to be used in the Divine service. Believers are the sanctified and Jesus Christ is the Sanctifier. I am not going to say more about that glorious Truth at this time, but I am going to dwell upon the very important statement made here, "He that sanctifies and they who are sanctified are all of one." This is a truly wonderful expression&mdash;they are "all of one." Note, therefore, first, the remarkable unity of Christ and His people. And then notice the Lord Jesus Christ's expressions which prove this wonderful unity.
 
-First, then, consider THE REMARKABLE UNITY BETWEEN CHRIST AND HIS PEOPLE. They are "all of one."
+First, then, consider THE REMarkABLE UNITY BETWEEN Christ AND HIS PEOPLE. They are "all of one."
 
 They are, first, "all of one" in the Divine design in the great mind of God. It is not Christ, alone. and His people. alone, but Christ and His Church who are regarded as "all of one." They are fitted, constituted, designed for each other. They are the complement of each other. In the Divine mind it was not the Christ, the Anointed, as the Head apart from the whole body adown which the holy anointing oil should flow&mdash;it was the Head with all the members of His mystical body that the great Father saw. When the Divine Mind&mdash;and we have to speak here after the manner of men, for God is not known to us so that we can speak of Him otherwise than after the fashion of our poor ideas&mdash;when the Divine Mind conceived the plan of man's redemption, purification and setting apart for His service, God had this one thought. We make it two, but it was only one to Him&mdash;Christ, the First-Born, and the many brethren as succeeding Him in their heavenly birth&mdash;being brothers unto him and being made like He. The Eternal Father thought not of Christ without the Church, nor of the Church without Christ!
 
@@ -78,9 +78,9 @@ O people of God, be as happy as ever you can! Rejoice in the Lord "with joy unsp
 
 As for you who have no part nor lot in this matter, God have mercy upon you and bring you by faith to look to Christ, and to be joined forever to Him, for His dear sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-PSALM22.
+Psalm22.
 
 You will not need any comment on this Psalm if, while we read it, you see Christ on the Cross, and you think that you hear Him uttering these sacred words. This Psalm is dedicated "to the Chief Musician upon Aijeleth Shahar, or, the hind of the morning," for Jesus brings the morning with Him whenever He comes.
 
@@ -94,7 +94,7 @@ I cry in the daytime, but You hear not; and in the night season, and am not sile
 
 But You are holy. He would bring no charge against God even though He forsook Him. 3-6. O You that inhabits the praises of Israel. Our fathers trusted in You. They trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and no man. Think that you hear your Lord saying this and comparing Himself to a little red worm which, when crushed, seems to be nothing but a mass of blood.
 
-6-8. A reproach of men, and despised of the people. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the LORD that He would deliver Him: let Him deliver Him, seeing He delighted in Him. What scorn! How it must have entered like vitriol into the veins of Christ&mdash;a strong corrosive of dreadful sarcasm without a drop of pity mixed with it!
+6-8. A reproach of men, and despised of the people. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him. What scorn! How it must have entered like vitriol into the veins of Christ&mdash;a strong corrosive of dreadful sarcasm without a drop of pity mixed with it!
 
 9-11. But You are He that took Me out of the womb: You did make Me hope when I was upon My mother's breasts. I was cast upon You from the womb: You are My God from My mother's belly. Be not far from Me; for trouble is near; for there is none to help. God had taken care of Christ in His infancy&mdash;that miraculous birth of His was under Divine control&mdash;will not the Lord care for Him, now that He is even more weak and nearer to the gates of death than in the first morning of His infant weakness?
 
@@ -110,19 +110,19 @@ The assembly of the wicked have enclosed Me: they pierced My hands and My feet. 
 
 I may count all My bones. Jesus could look down upon His own emaciated person as He hung there naked upon the Cross.
 
-They look and stare upon Me. Their cruel inquisitive gazing galled His delicate sensitive Nature. 18-21. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O LORD: O My Strength, hasten You to help Me. Deliver My soul from the sword; My precious life from the power of the dog. Save Me from the lion's mouth: for You have heard Me from the horns of the wild oxen! He had been heard in past years and He pleads for similar acceptance now. He encourages His faith by a retrospect of God's preserving power in former dangers.
+They look and stare upon Me. Their cruel inquisitive gazing galled His delicate sensitive Nature. 18-21. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O Lord: O My Strength, hasten You to help Me. Deliver My soul from the sword; My precious life from the power of the dog. Save Me from the lion's mouth: for You have heard Me from the horns of the wild oxen! He had been heard in past years and He pleads for similar acceptance now. He encourages His faith by a retrospect of God's preserving power in former dangers.
 
 I will declare Your name unto My brethren: in the midst of the congregation will I praise You. A gleam of sunlight now comes over the Cross. the thick darkness is melting away and the Savior is triumphing even in His dying hour! He is passing away from the agonizing cry, "Why have You forsaken Me?" to His last victorious utterance, "It is finished!" A wonderful change comes over the Savior's expressions from this point.
 
-23, 24. You that fear the LORD, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel. For He has not despised nor abhorred the affliction of the afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. Here is the testimony of One who suffered more than all of us put together will ever suffer! He endured the hiding of God's face and yet He lives to declare the faithfulness of God! He says that when He cried unto His Father, He heard Him.
+23, 24. You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel. For He has not despised nor abhorred the affliction of the afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. Here is the testimony of One who suffered more than all of us put together will ever suffer! He endured the hiding of God's face and yet He lives to declare the faithfulness of God! He says that when He cried unto His Father, He heard Him.
 
 My praise shall be of You in the great congregation. It is so, here, this evening&mdash;Christ is praising God in this congregation! As we read these words of His dying testimony, we, too, are encouraged to believe that the God who heard Him will hear us and deliver us!
 
-25, 26. I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the LORD that seek Him: your heart shall live forever. He is talking the matter over to Himself and comforting Himself with the prospect of the results of His suffering. He sees the vast numbers of people who will be saved through His atoning Sacrifice, He sees the meek ones coming to His feet and He is happy. Because of the joy that was set before Him, He endured the Cross, despising the shame.
+25, 26. I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the Lord that seek Him: your heart shall live forever. He is talking the matter over to Himself and comforting Himself with the prospect of the results of His suffering. He sees the vast numbers of people who will be saved through His atoning Sacrifice, He sees the meek ones coming to His feet and He is happy. Because of the joy that was set before Him, He endured the Cross, despising the shame.
 
-All the ends of the world shall remember and turn unto the LORD: and all the kindreds of the nations shall worship before You. He talks of the LORD and He talks to the LORD&mdash;"Before You." He talks about God's Glory and about the salvation of the heathen, and about all nations worshipping the one true God.
+All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before You. He talks of the Lord and He talks to the Lord&mdash;"Before You." He talks about God's Glory and about the salvation of the heathen, and about all nations worshipping the one true God.
 
-28-30. For the Kingdom is the LORD's: and He rules over all the nations. All they that are prosperous upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive his own soul. A posterity shall serve Him. He Himself was like a seed about to be put into the ground that He might bring forth fruit unto God&mdash; and He cheers His heart with the prospect.
+28-30. For the Kingdom is the Lord's: and He rules over all the nations. All they that are prosperous upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive his own soul. A posterity shall serve Him. He Himself was like a seed about to be put into the ground that He might bring forth fruit unto God&mdash; and He cheers His heart with the prospect.
 
 30, 31. It shall be accounted to the Lord for a generation. They shall come. How He rolls it like a sweet morsel under His tongue! "They shall come." Those great sinners, those far-off ones, "they shall come"&mdash;
 

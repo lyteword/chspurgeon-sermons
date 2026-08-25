@@ -105,7 +105,7 @@ God bless you, dear Friends! I wish that all of you understood this Truth of God
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;797, 804, 819.
 
-EXPOSITION BY C. H. SPURGEON: PSALM22.
+Exposition by C. H. Spurgeon: Psalm22.
 
 This Psalm is a sort of window through which we can look into the heart of our crucified Savior. We see all the external part of the Crucifixion through the four windows of the Gospels, but this twenty-second Psalm brings us into the King's innermost chamber and here we perceive the secret sufferings of His soul. You can very well conceive of the Lord Jesus Christ, when He was on the Cross, beginning to speak in the language of the first verse of this Psalm and closing with the last words of the Psalm&mdash;"He has done this," which might properly be interpreted, "It is finished." I have often read this Psalm with you, especially on the evenings of our great Communion services. If we are spared, we will read it together many more times. It is a very wonderful Psalm&mdash;the Lord give us to understand it as we read it!!
 
@@ -135,19 +135,19 @@ For dogs have compassed Me: this assembly of the wicked have enclosed Me: they p
 
 I may count all My bones: they look and stare upon Me. They stood mocking at His nakedness, jesting at His emaciated form.
 
-18- 19. They part My garments among them, and cast lots upon My vesture. But be You not far from Me, O LORD. That is still the very center of our Savior's suffering, so He turns His pleading in that direction. He does not ask that the dogs may be called off, nor that the bulls may be driven away&mdash;His cry is, "Be not You far from Me, O Lord."
+18- 19. They part My garments among them, and cast lots upon My vesture. But be You not far from Me, O Lord. That is still the very center of our Savior's suffering, so He turns His pleading in that direction. He does not ask that the dogs may be called off, nor that the bulls may be driven away&mdash;His cry is, "Be not You far from Me, O Lord."
 
 19- 21. O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power of the dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. He remembers former days wherein God had helped Him, and He prays that the Lord will help Him still, and bring Him safely through this terrible trial, as, indeed, He did! Now the tone of the Psalm changes. A gleam of sunlight plays across the scene. The agony is over, the life is poured out, and now the Savior begins to contemplate the result of His suffering. Think, dear Brothers and Sisters, how the Lord thought of You! He says&mdash;
 
 I will declare Your name unto My brethren. In the midst of the congregation will I praise You. The risen Christ is in the midst of us! He has come here to tell us of His Father's love. He has told it to us by His death and now He bids us praise the Lord and He, Himself, leads our song! This is the reward of His passion, that He and His brethren should bless and praise the Lord forever and ever!
 
-23, 24. He that fears the LORD, praise Him; all You, the seed of Jacob, glorify Him; and fear Him, all You the seed of Israel. For He has not despised nor abhorred the affliction of the Afflicted, neither has He hid His face from Him; but when He cried unto Him, He heard. Is not this delightful? Your Lord has gone through the black darkness and has come out into the Light of God&mdash;and when your turn comes to go through the darkness, you, too, shall come out into the Light even as He did! Therefore, rejoice in His name! If the Head has conquered, the members shall conquer, too. You shall all share in your Savior's joy as you are partakers of His sufferings.
+23, 24. He that fears the Lord, praise Him; all You, the seed of Jacob, glorify Him; and fear Him, all You the seed of Israel. For He has not despised nor abhorred the affliction of the Afflicted, neither has He hid His face from Him; but when He cried unto Him, He heard. Is not this delightful? Your Lord has gone through the black darkness and has come out into the Light of God&mdash;and when your turn comes to go through the darkness, you, too, shall come out into the Light even as He did! Therefore, rejoice in His name! If the Head has conquered, the members shall conquer, too. You shall all share in your Savior's joy as you are partakers of His sufferings.
 
 25, 26. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied. He thought of you, poor, timid, trembling ones! You who are humbled before God under a sense of your sin. Because He died, because He accomplished your redemption, you "shall eat and be satisfied."
 
-26, 27. They shall praise the LORD that seek Him: Your heart shall live forever. All the ends of the world shall remember and turn unto the LORD: and all the kindreds of the nations shall worship before You. See what solace Christ derives from the spread of the faith, the conquest of the world by His death!
+26, 27. They shall praise the Lord that seek Him: Your heart shall live forever. All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before You. See what solace Christ derives from the spread of the faith, the conquest of the world by His death!
 
-28-30. For the Kingdom is the LORD's: and He is the governor among the nations. All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive his own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. This is in accordance with Isaiah's prophecy&mdash;"When You shall make His soul an offering for sin, He shall see His seed."
+28-30. For the Kingdom is the Lord's: and He is the governor among the nations. All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive his own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. This is in accordance with Isaiah's prophecy&mdash;"When You shall make His soul an offering for sin, He shall see His seed."
 
 They shall come&mdash;The passion of Christ shall work for a certain deliverance for His people. What He has purchased, He shall surely have&mdash;"They shall come"&mdash;
 

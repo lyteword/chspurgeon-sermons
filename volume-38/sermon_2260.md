@@ -80,15 +80,15 @@ Then, when others are brought to Christ, or even if they will not be brought to 
 
 That is a good reason for singing! If our broken hearts have been healed, we have something to sing about in time and throughout eternity! Let us begin to do so to the praise of the glory of His Grace, who "heals the broken in heart, and binds up their wounds." God bless all the broken hearts that are in this congregation tonight, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON Psalm 147.
+Exposition by C. H. Spurgeon Psalm 147.
 
-This is one of the Hallelujah Psalms. It begins and ends with, "Praise you the LORD." May our hearts be in tune, that we may praise the Lord while we read these words of praise!
+This is one of the Hallelujah Psalms. It begins and ends with, "Praise you the Lord." May our hearts be in tune, that we may praise the Lord while we read these words of praise!
 
-Verse 1. Praise you the LORD&mdash;It is not enough for the Psalmist to do it, himself. He needs help in it, so he says, "Praise you the LORD." Wake up, my Brothers! Bestir yourselves, my Sisters! Come, all of you, and unite in this holy exercise! "Praise you the LORD."
+Verse 1. Praise you the Lord&mdash;It is not enough for the Psalmist to do it, himself. He needs help in it, so he says, "Praise you the Lord." Wake up, my Brothers! Bestir yourselves, my Sisters! Come, all of you, and unite in this holy exercise! "Praise you the Lord."
 
 For it is good to sing praises unto our God; for it is pleasant; and praise is comely. When a thing is good, pleasant, and comely, you have certainly three excellent reasons for attending to it. It is not everything that is good&mdash;but here you have a happy combination of goodness, pleasantness, and comeliness. It will do you good to praise God. God counts it good and you will find it a pleasant exercise. That which is the occupation of Heaven must be happy employment. "It is good to sing praises unto our God." "It is pleasant" and certainly nothing is more "comely" and beautiful, and more in accordance with the right order of things than for creatures to praise their Creator&mdash;and the children of God to praise their Father in Heaven.
 
-The LORD does build up Jerusalem. Praise His name for that. You love His Church&mdash;be glad that He builds it up. Praise Him who quarries every stone and puts it upon the one Foundation that is laid, even Jesus.
+The Lord does build up Jerusalem. Praise His name for that. You love His Church&mdash;be glad that He builds it up. Praise Him who quarries every stone and puts it upon the one Foundation that is laid, even Jesus.
 
 He gathers together the outcasts of Israel. Praise Him for that. If you were once an outcast and He has gathered you, give Him your special personal song of thanksgiving.
 
@@ -98,19 +98,19 @@ He counts the number of the stars; He calls them all by their names. He who heal
 
 Great is our Lord, and of great power: His understanding is infinite. Praise Him, then. Praise His greatness, His al-mightiness, His infinite wisdom. Can you do otherwise? Oh, may God reveal Himself so much to your heart that you shall be constrained to pay Him willing adoration!
 
-The LORD lifts up the meek. What a lifting up it is for them, out of the very dust where they have been trod down by the proud and the powerful! The Lord lifts them up. Praise Him for that.
+The Lord lifts up the meek. What a lifting up it is for them, out of the very dust where they have been trod down by the proud and the powerful! The Lord lifts them up. Praise Him for that.
 
 He casts the wicked down to the ground. Thus He puts an end to their tyranny and delivers those who were ground beneath their cruel power. Praise His name for this, also. Excuse me that I continue to say to you, "Praise you the Lord," for, often as I say it, you will not praise Him too much&mdash;and we need to have our hearts stirred up to this duty of praising God which is so much neglected. After all, it is the praise of God that is the ultimatum of our religion. Prayer does but sow&mdash;praise is the harvest! Praying is the end of preaching and praising is the end of praying. May we bring to God much of the very essence of true religion and that will be the inward praise of the heart!
 
-Sing unto the LORD with thanksgiving; sing praise upon the harp unto our Go. "Unto our God." How that possessive pronoun puts a world of endearment into the majestic word, "God!" "This God is our God." Come, my Hearer, can you call God your God? Is He, indeed, yours? If so, "Sing unto the LORD with thanksgiving; sing praise upon the harp unto our God."
+Sing unto the Lord with thanksgiving; sing praise upon the harp unto our Go. "Unto our God." How that possessive pronoun puts a world of endearment into the majestic word, "God!" "This God is our God." Come, my Hearer, can you call God your God? Is He, indeed, yours? If so, "Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God."
 
 Who covers the Heaven with clouds, who prepares rain for the earth, who makes grass to grow upon the mountains. They did not talk about the "law of Nature" in those days. They ascribed everything to God. Let us do the same! It is a poor science that pushes God farther away from us instead of bringing Him nearer to us. HE covers the Heaven with clouds! HE prepares the rain for earth! HE makes the grass to grow upon the mountains!
 
 He gives to the beast his food, and to the young ravens which cry. Our God cares for the birds and the beasts. He is as great in little things as in great things. Praise you His name! The gods of the heathen could not have these things said of them, but our God takes pleasure in providing for the beasts of the field and the birds of the air. The commissariat of the universe is in His hand! "You open Your hands and satisfy the desire of every living thing."
 
-11. He delights not in the strength of the horse: He takes not pleasure in the legs of a man. The LORD takes pleasure in them that fear Him, in those that hope in His mercy. Kings of the olden times rejoiced in the muscles and sinews of their soldiers and their horses, but God has no delight in mere physical strength. He takes pleasure in spiritual things, even in the weakness which makes us fear Him&mdash;even that weakness which has not grown into the strength of faith and yet hopes in His mercy. "The Lord takes pleasure in them that fear Him, in those that hope in His mercy."
+11. He delights not in the strength of the horse: He takes not pleasure in the legs of a man. The Lord takes pleasure in them that fear Him, in those that hope in His mercy. Kings of the olden times rejoiced in the muscles and sinews of their soldiers and their horses, but God has no delight in mere physical strength. He takes pleasure in spiritual things, even in the weakness which makes us fear Him&mdash;even that weakness which has not grown into the strength of faith and yet hopes in His mercy. "The Lord takes pleasure in them that fear Him, in those that hope in His mercy."
 
-Praise the LORD, O Jerusalem; praise your God, O Zion. Let whole cities join together to praise God! Shall we live to see the day when all London shall praise Him? Shall we, ever, as we go down these streets with their multitudes of inhabitants, see the people standing in the doorways and asking, "What must we do to be saved?" Shall we ever see every house with anxious enquirers in it, saying, "Tell us, tell us, how can we be reconciled to God?" Pray that it may be so! In Cromwell's day, if your went down Cheapside at a certain hour of the morning, you would find every blind drawn, for the people were all at family prayer. There is no street like that in London today! In those glorious Puritan times there was domestic worship everywhere&mdash;and the people seemed brought to Christ's feet. Alas, it was but an appearance in many cases&mdash;and they soon turned back to their own devices! Imitating the Psalmist, let us say, "Praise the Lord, O London; praise your God, O England!"
+Praise the Lord, O Jerusalem; praise your God, O Zion. Let whole cities join together to praise God! Shall we live to see the day when all London shall praise Him? Shall we, ever, as we go down these streets with their multitudes of inhabitants, see the people standing in the doorways and asking, "What must we do to be saved?" Shall we ever see every house with anxious enquirers in it, saying, "Tell us, tell us, how can we be reconciled to God?" Pray that it may be so! In Cromwell's day, if your went down Cheapside at a certain hour of the morning, you would find every blind drawn, for the people were all at family prayer. There is no street like that in London today! In those glorious Puritan times there was domestic worship everywhere&mdash;and the people seemed brought to Christ's feet. Alas, it was but an appearance in many cases&mdash;and they soon turned back to their own devices! Imitating the Psalmist, let us say, "Praise the Lord, O London; praise your God, O England!"
 
 For He has strengthened the bars of your gates; He has blessed your children within you. As a nation, we have been greatly prospered, defended and supplied. And the Church of God has been made to stand fast against her enemies and her children have been blessed.
 
@@ -130,4 +130,4 @@ He has not dealt so with any nation. Or, with any other nation. He revealed His 
 
 And as for His judgments, they have not known them. Even today there are large tracts of country where God is not known. If we know Him, let us praise Him.
 
-Praise you the LORD. Hallelujah! The Psalm ends upon its keynote&mdash;"Praise you the LORD." So may all our lives end! Amen.
+Praise you the Lord. Hallelujah! The Psalm ends upon its keynote&mdash;"Praise you the Lord." So may all our lives end! Amen.

@@ -106,12 +106,12 @@ PORTION OF SCRIPTURE READ BEFORE SERMON'Psalm 37.
 
 HYMNS FROM "OUR OWN HYMN BOOK"'686, 89 (Part II), 46 (vers. 1.)
 
-LETTER FROM MR. SPURGEON BELOVED READERS,'To you, one and all, may the New Year be fruitful of blessings. I wish you the text of this sermon as a benediction, so far as it is applicable to you. Specially may your feet be shod with the iron and brass which are promised you, and this will be better than the glass slippers of fortune, or the silver sandals of wealth. For myself, I beg your kind remembrance when you have the ear of "the King." I need restored strength, for I am well, but weak; and for another year of service I need that the right hand of the Lord may be laid upon me, and that he should say to me, "Be strong: fear not." He that has supplied might to our feebleness for so many years will not fail us now. Week by week the loaf will be set before you in this sermon, and we shall together bless the Lord of the feast.
+LETTER FROM MR. Spurgeon BELOVED READERS,'To you, one and all, may the New Year be fruitful of blessings. I wish you the text of this sermon as a benediction, so far as it is applicable to you. Specially may your feet be shod with the iron and brass which are promised you, and this will be better than the glass slippers of fortune, or the silver sandals of wealth. For myself, I beg your kind remembrance when you have the ear of "the King." I need restored strength, for I am well, but weak; and for another year of service I need that the right hand of the Lord may be laid upon me, and that he should say to me, "Be strong: fear not." He that has supplied might to our feebleness for so many years will not fail us now. Week by week the loaf will be set before you in this sermon, and we shall together bless the Lord of the feast.
 
 With all the good wishes of the season, in sincerity and truth,
 
 I am, your weekly visitor,
 
-H. SPURGEON.
+H. Spurgeon.
 
 Mentone, Jan first, 1889.

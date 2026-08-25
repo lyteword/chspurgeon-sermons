@@ -57,7 +57,7 @@ Beloved, the Lord would not have any of you give of your substance to Him with r
 
 Thus far we have been considering part of the lesson of the original Jewish Pentecost. Now we must hasten on to
 
-consider, in the second place, THE CONSECRATED HARVEST OF OUR LORD JESUS CHRIST as taught by the
+consider, in the second place, THE CONSECRATED HARVEST OF OUR Lord Jesus Christ as taught by the
 
 events of the great Christian Pentecost described in the Acts of the Apostles. Our Lord is the greatest of all Sowers, for He sowed Himself. Did He not say, "Except a corn of wheat falls into the ground and dies, it abides alone: but if it dies, it brings forth much fruit?" Our Lord had been sown in His death and burial&mdash;and since such a corn of wheat as this is quick in growing and soon yields a harvest&mdash;in 50 days there comes a time for the ingathering of the first fruits. Had He not said, "Lift up your eyes and look on the fields, for they are white already to harvest?" And now, when the day of Pentecost was fully come, the fruit was seen of them and joyfully gathered!
 

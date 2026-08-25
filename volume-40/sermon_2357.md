@@ -16,7 +16,7 @@ Thus I think I have shown you that the faith of Abraham is a fair specimen of th
 
 Now let us come to our text, and I will handle it briefly with the intense desire that if anybody wants to find the way of salvation, he may find it tonight. True faith is of this character&mdash;"We believe on Him that raised up Jesus, our Lord, from the dead; who was delivered for our offenses, and was raised, again, for our justification."
 
-First, OUR FAITH LOOKS TO GOD THE FATHER IN THE MATTER OF SALVATION. We do not, alone, look to Jesus Christ, as some say that we do, but, "we believe on Him that raised up Jesus, our Lord, from the dead." Not on, "Jesus, our Lord," alone. We do believe on Him, but we also equally believe on God that raised up Jesus, our Lord, from the dead.
+First, OUR FAITH LOOKS TO God THE FATHER IN THE MATTER OF SALVATION. We do not, alone, look to Jesus Christ, as some say that we do, but, "we believe on Him that raised up Jesus, our Lord, from the dead." Not on, "Jesus, our Lord," alone. We do believe on Him, but we also equally believe on God that raised up Jesus, our Lord, from the dead.
 
 On this point there is an erroneous faith in two ways and one is sorry to see either form of this error, since it mars the beauty of Divine Truth. Some overlook the Father. They speak of Jesus as though we were indebted to Him and to Him, only, for our salvation. We are immeasurably indebted to Him, blessed be His name! But Jesus does not save without the Father, or apart from the Father, or against the Father's will! I like the expression that is used in the Book of Genesis concerning Abraham and his son when they were going to the Mount of Sacrifice&mdash;it is written, "They went, both of them, together." And in the great Sacrifice that was made for human sin, I may say of the Divine Father and His equally Divine Son, "They went, both of Them, together." There was a secret agreement and concurrence between the Father and the Son concerning our redemption, and the Father has our love and gratitude, even as the Son has. Jesus gave Himself for us, but the Father gave Jesus, His other Self!
 
@@ -34,7 +34,7 @@ And remember that, as these two things&mdash;the delivering up of Christ and the
 
 Now, Soul, if you would be saved, before anything else it is necessary that you should trust your soul in the hands of God, the faithful Creator, beholding always associated with those hands, the Lord Jesus Christ, God and Man, who has died and risen, again, to put away your sin! Such a faith now exercised will save you at once and will save you forever and ever!
 
-Now I advance a step farther and come to the second head, THE FAITH WHICH SAVES THE SOUL CONCERNS ITSELF WITH JESUS CHRIST AS OURS. Listen to this&mdash;true faith looks to nothing else that is ours. When it looks within, this faith sees nothing there worth having and nothing worth trusting to for salvation. Therefore it cries out against its own righteousness, which is of the Law, and desires to count it only as filthy rags! It views Jesus Christ, however, as its real treasure.
+Now I advance a step farther and come to the second head, THE FAITH WHICH SAVES THE SOUL CONCERNS ITSELF WITH Jesus Christ AS OURS. Listen to this&mdash;true faith looks to nothing else that is ours. When it looks within, this faith sees nothing there worth having and nothing worth trusting to for salvation. Therefore it cries out against its own righteousness, which is of the Law, and desires to count it only as filthy rags! It views Jesus Christ, however, as its real treasure.
 
 Do you notice, in my text, the word, "our," three times over? Just mark with a pencil under that little pronoun each time it is mentioned. True faith receives Jesus Christ as "our" Lord Jesus. "Jesus our Lord," our Jesus, our Savior&mdash;not only a Savior, but our Savior&mdash;and being Lord as well as Savior, we acknowledge Him as our Lord, Jesus, we take Him to be our Lord. This is how He, Himself, puts it, "Take My yoke upon you, and learn of Me," and this we desire to do. This, then, is the true, unfeigned faith which saves the soul&mdash;the faith which appropriates Jesus as our Savior and as our
 
@@ -50,7 +50,7 @@ Yes, Jesus was raised for my justification&mdash;I praise Him for that glorious 
 
 Thus have I taught you two lessons. The first, that our faith looks to God the Father in salvation. And secondly, that our faith concerns itself with Christ as ours.
 
-Now, thirdly, OUR FAITH FOR SALVATION RELIES ON CHRIST's DEATH AND RESURRECTION&mdash; "Who was delivered for our offenses, and was raised, again, for our justification."
+Now, thirdly, OUR FAITH FOR SALVATION RELIES ON Christ's DEATH AND RESURRECTION&mdash; "Who was delivered for our offenses, and was raised, again, for our justification."
 
 Observe, then, that a faith which only deals with the historical narrative of Christ's life will not save you. If you believe that there was such a Person as Jesus Christ, even if you truly believe that He was both God and Man. If you believe all that Matthew, Mark, Luke and John wrote, and all the Epistles, as well, yet, if you believe this only in the sense that they are historically true, you have not yet attained to saving faith! You must go beyond that if you are to possess the faith mentioned in our text.
 
@@ -72,7 +72,7 @@ Behold, then, the Jachin and Boaz, the two massive columns that support the temp
 
 So I close with the fourth point, OUR FAITH SHOULD LEARN TO SEE THE DISTINCT RELATION OF
 
-EACH WORK OF CHRIST TO ITS END&mdash;"Who was delivered for our offenses, and was raised, again, for our justification." At first, for a poor sinner, it is enough that he trusts Christ and does no more. But it is for our comfort and edification to learn to distinguish the blessings that flow from certain Divine Fountains&mdash;to look along the various roads of the great King to see what comes this way and what comes that.
+EACH WORK OF Christ TO ITS END&mdash;"Who was delivered for our offenses, and was raised, again, for our justification." At first, for a poor sinner, it is enough that he trusts Christ and does no more. But it is for our comfort and edification to learn to distinguish the blessings that flow from certain Divine Fountains&mdash;to look along the various roads of the great King to see what comes this way and what comes that.
 
 First, then, dear Friends, our forgiveness comes from the death of Christ&mdash;"Who was delivered for our offenses." There is no pardon of sin apart from Christ being delivered for our offenses. Of late I have heard things that I never dreamed of, before&mdash;alleged, even, by professedly Christian ministers, against the fundamental Doctrines of God's Word! And some have even dared to say that the Substitution of Christ&mdash;His suffering in our place&mdash;was not just! Then they have added that God forgives sin without any Atonement whatever, but, if the first is not just, what shall I say of the second? If God continually forgives sin without taking any care of His moral government. If there is nothing done for the vindication of His justice, how shall the Judge of all the earth do right? Then, the very foundations of the universe would be removed and what would the righteous do? Depend upon this, whatever modern philosophy may say, "Without shedding of blood there is no remission of sins," that is to say, without an Atonement, and an Atonement consisting of the giving up of a Life of infinite value, there is no passing by of human transgression!
 
@@ -94,7 +94,7 @@ Now just look at this matter for a minute in another way. Suppose that Jesus Chr
 
 Oh, that you would all rest in the finished work of Jesus on the Cross which is set forth to you in all its brightness by His rising again from the dead! Put the two parts of our text together, "Who was delivered for our offenses," "and was raised, again, for our justification." You need them both! Trust in them both! Trust in the Savior who died upon the Cross, and trust in the Christ who rose, again, and is now the living Christ! Trust, in fact, in Christ as He revealed Himself to John in Patmos&mdash;"I am He that lives, and was dead; and behold, I am alive forevermore, Amen; and have the keys of Hell and of death." Lord Jesus, as such we trust You, as such we trust You now, and we are saved!
 
-EXPOSITION BY C. H. SPURGEON: Romans 3; 4:16-25.
+Exposition by C. H. Spurgeon: Romans 3; 4:16-25.
 
 Romans 3:1, 2. What advantage, then, has the Jew? Or what profit is there of circumcision? Much every way: chiefly, because that unto them were committed the Oracles of God. It was a great thing to be a Jew in those old times. When all the rest of the world was in the dark, the Jews had the Light of God&mdash;"Unto them were committed the Oracles of God."
 

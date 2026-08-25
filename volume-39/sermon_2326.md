@@ -114,7 +114,7 @@ If you are successful in business or successful in holy work, then Satan will te
 
 But what shall I say to those who are the slaves and the friends of Satan? The Lord have mercy upon you! If you desire to escape, there is only one way! There is the Cross and Christ hangs upon it. Look to Jesus! He can set you free. He came on purpose to proclaim liberty to the captives. Look and live! Look, now, and live, now! I implore you, do it for His dear sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 4:1-15.
+Exposition by C. H. Spurgeon: Luke 4:1-15.
 
 Verse 1. And Jesus being full of the Holy Spirit returned from Jordan, and was led by the Spirit into the wilderness. "Full of the Holy Spirit." And then, led "into the wilderness" to be tempted. You would not expect that. Yet it is a sadder thing to be led into a wilderness when you are not filled with the Spirit, and a sadder thing to be tempted when the Spirit of God is not resting upon you. The temptation of our Lord was not one to which He wantonly exposed Himself. He "was led by the Spirit into the wilderness." The Spirit of God may lead us where we shall have to endure trial. If He does so, we are safe, and we shall come away conquerors even as our Master did.
 

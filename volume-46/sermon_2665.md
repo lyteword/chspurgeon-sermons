@@ -84,7 +84,7 @@ You are not only on praying ground, for tonight seems to me to be a very auspici
 
 through the throng and bow at the feet of Jesus Christ, our Lord! If you do so, He will accept you, and again it shall be said, "This day is salvation come to this house." God grant it, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE18:35-43; 19:1-10.
+Exposition by C. H. Spurgeon: Luke18:35-43; 19:1-10.
 
 Luke 18:35-39. And it came to pass, that as He was come near unto Jericho, a certain blind man sat by the wayside begging: and hearing the multitude pass by, he asked what it meant And they told him that Jesus of Nazareth passed by. And he cried, saying, Jesus, Son of David, have mercy on me! And they who went before rebuked him, that he should hold his peace. "Hush," they cried, "how can you disturb the blessed Master's discourse? Be quiet."
 

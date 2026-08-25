@@ -33,7 +33,7 @@ honor to themselves. Christ is glad to have a people who lay all the honor where
 
 But He rejoiced most of all that, of all these seventy, He could say that their names were written in Heaven. It is an easy thing to become a preacher, or a teacher, an evangelist, or what not&mdash;but are our names written in Heaven? As Christ would have us rejoice most over that, no doubt He rejoices most over it when He sees that we not only have our names written down in the Clergy List, or our denominational Handbook, but that our names are really written among the living in Zion&mdash;those who are quickened by His Grace, washed in His blood and truly made to live by His Spirit! "In that hour Jesus rejoiced in spirit." I have shown you the occasion of His joy. When you have similar occasions, dear Brothers, dear Sisters, mind that you rejoice in spirit, too!
 
-But now, secondly, WHAT WAS THE NATURE OF CHRIST's JOY? Jesus rejoiced in spirit."
+But now, secondly, WHAT WAS THE NATURE OF Christ's JOY? Jesus rejoiced in spirit."
 
 The answer to this question is, first, that it was spiritual joy. There is a good deal of joy in the world, even among religious people, that could not be called spiritual. I am not certain whether all the expressions of joy one hears at some excited meetings are worthy to be put on the same heap with this joy of Christ. There is mental joy. There is a sort of physical joy, when one gets excited and stirred up&mdash;this is but bronze or silver&mdash;but spiritual joy is the gold of joy and the gold of that land is good! If, down deep in his inner life, one's spirit can rejoice in God, he is the man who is like his Master when He rejoiced in spirit!
 
@@ -85,7 +85,7 @@ Have you a teachable spirit? Are you willing to believe what the Holy Spirit rev
 
 Are you willing to be what Christ was? He was the childlike Man. He is called, "The Holy Child, Jesus." Will you be a child to Him and let Him be a Man for you? Will you take His Book and believe it as you read it? Will you take Him and trust Him as you find Him? Will you take His Cross and rest upon it as your only hope? Then, blessed are you, for you are in the election of Grace! You are one of those whom God has chosen and for whom Christ thanks Him that He did choose people of that quality! And while Christ thanks God, you may thank Him, too, and go home tonight rejoicing! If you are too wise, too clever, too critical to trust Christ, there is no other way to Heaven&mdash;so you see where you must go. The Lord change your foolish opinion and teach your reason, reason&mdash;and your sense a little commonsense, and save you, for His mercy's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. LUKE101-22.
+Exposition by C. H. Spurgeon. Luke101-22.
 
 Our Lord was about to send out 70 disciples to preach the Gospel. He had already chosen His 12 Apostles. Now there must be 70 disciples, something like Moses had 70 elders to serve under him. Some have fancifully likened these two sets of men to the 12 wells of water and 70 palm trees at Elim, and certainly they were for the refreshment of the people.
 

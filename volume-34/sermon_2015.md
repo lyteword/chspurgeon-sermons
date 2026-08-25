@@ -93,6 +93,6 @@ Cleanse me from its guilt and power.
 
 We have known the washing of water by the Word, and we have been sanctified by the Spirit of His grace; therefore let us enter into the holiest. Why should we stay away? Hearts sprinkled with blood, bodies washed with pure water'these are the ordained preparations for acceptable entrance. Come near, beloved! May the Holy Spirit be the spirit of access to you now. Come to your God, and then abide with Him! He is your Father, your all in all. Sit down and rejoice in Him; take your fill of love; and let not your communion be broken between here and heaven. Why should it be? Why not begin today that sweet enjoyment of perfect reconciliation and delight in God which shall go on increasing in intensity until you behold the Lord in open vision, and go no more out? Heaven will bring a great change in condition, but not in our standing, if even now we stand within the veil. It will be only such a change as there is between the perfect day and the daybreak; for we have the same sun, and the same light from the sun, and the same privilege of walking in the light. "Until the day break, and the shadows flee away, turn, my beloved, and be thou like a roe or a young hart upon the mountains of Division." Amen, and Amen.
 
-PORTION OF SCRIPTURE READ BEFORE SERMON'HEBREWS 10.
+PORTION OF SCRIPTURE READ BEFORE SERMON'Hebrews 10.
 
 HYMNS FROM "OUR OWN HYMN BOOK"'318, 296, 395.

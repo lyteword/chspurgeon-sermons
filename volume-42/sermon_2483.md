@@ -12,7 +12,7 @@ I can see the great wisdom of the Apostle in acting in such a fashion as this. H
 
 But now let us come to the text itself. To my mind it contains four things. First, what our Lord Jesus Christ aimed at with regard to His people&mdash;"that He might deliver us from this present evil world." Secondly, what our Lord has done to secure this end&mdash;"Who gave Himself for our sins, that He might deliver us from this present evil world." Thirdly, why He did it&mdash; "According to the will of God and our Father." And fourthly, what we shall say concerning it&mdash;"To whom be glory forever and ever. Amen."
 
-First, then, WHAT DID OUR LORD JESUS CHRIST AIM AT WITH REGARD TO HIS PEOPLE?
+First, then, WHAT DID OUR Lord Jesus Christ AIM AT WITH REGARD TO HIS PEOPLE?
 
 To preserve them from going down into the Pit? To rescue them from Hell? To bring them to Heaven? Yes, all that, but more than that! His great objective with regard to His people is to deliver them from this present evil world. We are living in this present evil world and, as Paul called it by that name, we need not alter the phrase, for we cannot help knowing that it is still an evil world. And in it are God's redeemed and chosen people, by nature part and parcel of that world, equally fallen, equally estranged from God, equally set on mischief, equally certain to go down into the Pit of destruction if left to themselves. The objective of Christ is to carve out a people from this great brook of stone&mdash;it is His purpose to find His own people who were given to Him before the earth was&mdash;and to deliver them from the bondage and the slavery in which they are found in this Egypt, of which they seem to form a part, though to the eyes of Christ they are always as separate and distinct as the Israelites were when they dwelt in the land of Goshen.
 
@@ -38,7 +38,7 @@ Yes, the early Christians were without fear and without reproach, for Christ cam
 
 O Brothers and Sisters, were the martyrs as brave as this, and are we going to yield to whatever laws and rules the world lives to lay down for us? Do we mean to believe its current theology, or philosophy, and do or not do as it may dictate? For my part, "I would as well not be as live to be in awe of such a thing as I myself." Since Christ has given me my liberty, I am His servant, and whether I am in fashion or out of fashion is no concern of mine so long as I please Him! Dear Friends, let it be so with you, I pray you, and may the Lord daily divide you more and more from the world so that, at home or abroad, everybody can see that you are not of the world! Love men, seek their good and in the highest and best sense be far more loving to the world than the world is to itself, but still, fear it not. Why should you? It is "the present evil world" which "lies in the Wicked One." It is for you bravely to bear your protest against the world every day you live, for to this end did Christ come to this earth, "that He might deliver us from this present evil world."
 
-We have seen what our Lord aimed at by His death. Now, secondly, WHAT DID CHRIST DO TO THIS END&mdash; to deliver us from this present evil world?
+We have seen what our Lord aimed at by His death. Now, secondly, WHAT DID Christ DO TO THIS END&mdash; to deliver us from this present evil world?
 
 The answer of the text is, "He gave Himself" I will not say that He gave His royal crown, that diadem which did outshine the sun. I will not say that He laid aside His azure vest and hung it on the sky as He came down to earth. I will not say that He gave up for us the thrones and royalties of Heaven. You know that He did all this and far more&mdash;nor need I remind you that, when upon earth, He gave up all that He had, even to His last garment, for they parted His raiment among them and for His vesture they cast lots. I need not say that He gave His back to the smiters and His cheeks to them that plucked off the hair, nor that He gave His hands to the nails and His feet to the cruel iron. I need not say that He gave His body, His soul and His spirit, for you have it all in these three words&mdash;"He gave Himself."
 
@@ -50,7 +50,7 @@ Christ has also delivered us from the world by making sin hateful to us. We say 
 
 I may add that Christ has also delivered us from the world by the splendor of His example in giving Himself to die for His enemies and by the Glory of His infinite merit whereby He purchased back that image of God in Adam which sin had obliterated. He gave Himself, the very image of God, and more than that, God Himself, that He might give back to us that image of God which long ago we had lost. Thus has Christ delivered us from this present evil world. Judge, Sirs, whether He has thus delivered you.
 
-Time flies, therefore I must hasten on to the third question which is, WHY DID CHRIST DO THIS?
+Time flies, therefore I must hasten on to the third question which is, WHY DID Christ DO THIS?
 
 First, because our holiness was included in the purpose of God. The text says, "According to the will of God and our Father." Mr. Charles Simeon used to say that there were some, in his day, who thought that the very word, "predestination," sounded almost like blasphemy. And I have no doubt that there are some left who cannot bear to hear of the will and the purpose of God! But to us these words sound like sweetest music! I do not believe that there ever would have been a man delivered from this present evil world if it had not been according to the will, the purpose, the predestination of God, even our Father! It needs a mighty tug to get a man away from the world. It is a miracle for a man to live in the world and yet not to be of it&mdash;it is a continuous miracle of so vast a kind that I am sure it would never have been worked if it had not been according to the will of God our Father. Yet so it stood in the Divine Decree, that there should be a people chosen from among men&mdash;a people who would be called out from among the mass of the ungodly, who would be drawn by supernatural power to follow after that which is right and good and holy. A people who would be washed in the blood of Jesus and renewed by the Holy Spirit in the spirit of their minds and, therefore, should be a peculiar people in the world but not of it&mdash;the people of God set apart to Himself, to be His, now, and His, hereafter forever and ever! I delight to remember that this is the will of God, even our sanctification, our separation from the world!
 
@@ -78,7 +78,7 @@ O you poor souls who are still in the world, God help you to get out of it! O yo
 
 "Proclaim to sinners round What a dear Savior you have found." So, even through you the purpose for which Christ bled shall be accomplished, that is, the severance of His elect from the great mass of mankind among whom they lie, and this shall be to the praise of the glory of His Grace forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 17.
+Exposition by C. H. Spurgeon: John 17.
 
 This matchless chapter contains that great intercessory prayer of Christ for His people which may most properly is called "the Lord's prayer."
 

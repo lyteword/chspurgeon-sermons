@@ -94,7 +94,7 @@ I leave you all in God's hands. Pray, dear Christian people, that everyone who h
 
 Amen.
 
-EXPOSITION BY C. H. SPURGEON. NAHUM 2:11-13,3.
+Exposition by C. H. Spurgeon. Nahum 2:11-13,3.
 
 This is a prophecy of the destruction of Nineveh. Remember that Assyria had been one of the great powers that swayed the world&mdash;a cruel, tyrannical empire&mdash;and God at last determined to destroy Nineveh which was its seat of government. In a high poetical strain, the Prophet cries out,
 
@@ -102,7 +102,7 @@ Nahum 2:11. Where is the dwelling of the lions, and the feeding place of the you
 
 The lion did tear in pieces enough for his whelps, and strangled for his lionesses, and filled his holes with prey, and his dens with ravin. They were always destroying and plundering, and carrying home the spoil, so that everybody was fattened with the plunder of the nations.
 
-Behold, I am against you, says the LORD of Hosts. And whenever that is the case, a man does not need any other adversary! If God is against you, O my dear Hearer, what will become of you? Though you should have all the power of the world and possess robust health, abundant riches and keen wit, what can you do against God? "I am against you, says Jehovah of Hosts." He throws down the gauntlet to Nineveh.
+Behold, I am against you, says the Lord of Hosts. And whenever that is the case, a man does not need any other adversary! If God is against you, O my dear Hearer, what will become of you? Though you should have all the power of the world and possess robust health, abundant riches and keen wit, what can you do against God? "I am against you, says Jehovah of Hosts." He throws down the gauntlet to Nineveh.
 
 And I will burn her chariots in the smoke, and the sword shall devour your young lions: and I will cut off your prey from the earth, and the voice of your messengers shall no more be heard. It is time that they were stopped. You remember in what foul-mouthed language Rabshakeh addressed King Hezekiah and God now declares that there shall be no more such letters as his. God may allow evil to lord it over His people for a while, but He puts a hook in the mouth of the leviathan, by-and-by. He that restrains the sea and the waves thereof, Jehovah is His name, and He restrains the wickedness of men!
 
@@ -110,7 +110,7 @@ Nahum 3:1. Woe to the bloody city! It is all full of lies and robbery; the prey 
 
 2, 3. The noise of a whip, and the noise of the rattling of the wheels, and of the prancing horses, and of the jumping chariots. The horseman lifts up both the bright sword and the glittering spear: and there is a multitude of slain, and a great number of carcasses; and there is no end of their corpses; they stumble upon their corpses. When the Medo-Babylonian army came against the great city, it inflicted a terrible slaughter, killing the inhabitants without mercy, making a very holocaust of human bodies. But, inasmuch as it was a den of criminals, this horrible execution was well deserved. Yet is the story dreadful.
 
-4, 5. Because of the multitude of the whoredoms of the well favored harlot, the mistress of witchcrafts, that sells nations through her whoredoms, and families through her witchcrafts. Behold, I am against you, says the LORD of Hosts. These people had been steeped in sin of the worst kind. They had led other nations into it and had practiced the witchcrafts which God abhors. Therefore, again, Jehovah says, "I am against you." When God is in arms against a triumphant nation, He soon makes an end of it.
+4, 5. Because of the multitude of the whoredoms of the well favored harlot, the mistress of witchcrafts, that sells nations through her whoredoms, and families through her witchcrafts. Behold, I am against you, says the Lord of Hosts. These people had been steeped in sin of the worst kind. They had led other nations into it and had practiced the witchcrafts which God abhors. Therefore, again, Jehovah says, "I am against you." When God is in arms against a triumphant nation, He soon makes an end of it.
 
 5, 6. And I will discover your skirts upon your face, and I will show the nations your nakedness, and the kingdoms your shame. And I will cast abominable filth upon you, and make you vile, and will set you as a gazing stock. See what God can do! They were the proudest of the proud and now He makes them the scorn of the scorner, and sets them as a gazing stock. May God never deal in that way with any proud man, here! He can easily do it&mdash;when we set ourselves up to be little gods, He can soon make us utterly mean and contemptible&mdash;and bring us down to nothing at all. It is His way to deal thus with the proud.
 

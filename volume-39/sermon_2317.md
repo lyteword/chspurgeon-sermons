@@ -90,7 +90,7 @@ It is not Mary who speaks to you, tonight, but it is the Church of God, the moth
 
 The Lord grant this, of His infinite Grace, giving to us to know the will of Christ, and then working in us to will and to do of His own good pleasure! Amen and Amen.
 
-EXPOSITION BY C. H. SPURGEON. JOHN2:1-11.
+Exposition by C. H. Spurgeon. John2:1-11.
 
 Our Savior had lived on the earth for 30 years and had worked no miracle. There was the hiding of His power. He had been subject to His parents and had lived in obscurity. Now He has broken through the obscurity and He begins His public ministry by working a miracle.
 

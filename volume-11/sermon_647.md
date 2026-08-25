@@ -65,7 +65,7 @@ In eternity there shall be the evil tidings of the angelic trumpet, evil to all 
 
 I have thus marshaled before you a line of grim-visaged messengers&mdash;any one of whom may, within a moment&mdash;rush into your chamber, crying, "Tidings! Man of God! Tidings!"
 
-Now for a second and more cheerful thought. A CHRISTIAN AT NO TIME OUGHT TO FEAR EITHER AN EXPECTATION OF EVIL TIDINGS OR WHEN THE TIDINGS ACTUALLY ARRIVE. Under no conceivable circumstances ought you, Christian, to be afraid. And why? Because, if you are troubled and distressed and distracted, what do you more than other men?
+Now for a second and more cheerful thought. A ChristIAN AT NO TIME OUGHT TO FEAR EITHER AN EXPECTATION OF EVIL TIDINGS OR WHEN THE TIDINGS ACTUALLY ARRIVE. Under no conceivable circumstances ought you, Christian, to be afraid. And why? Because, if you are troubled and distressed and distracted, what do you more than other men?
 
 Other men have not your God to fly to! They are not favorites of Heaven as you are! They have never proved the faithfulness of God as you have done and it is no wonder if they are bowed down with alarm and cowed with fear&mdash;but as for you&mdash;you profess to be of another spirit! You testify to the world that God dwells in you, and you in Him! You say that you have been begotten again unto a lively hope! You testify that your heart lives in Heaven and not on earthly things!
 
@@ -121,7 +121,7 @@ I will only add one other thought on this point. I believe that holy gratitude i
 
 The Lord gave us Christ! Then let Him take away what He will&mdash;we cannot think harshly of Him&mdash;after such a proof of love we are bound to Him by such ties of gratitude that let Him take away one mercy after the other till there is hardly one left, we will yet bless His name. "Though He slay me, yet will I trust Him." Let every saint of God feel himself so fixed and bound by ties of gratitude that he is prepared, whatever may come, still to bless his God!
 
-The last point is this&mdash;THE GREAT INSTRUMENT OF FIXEDNESS OF HEART IS FAITH IN GOD. "His heart is fixed, trusting in the Lord." You see that we have come here by progressive steps. Evil tidings may come to an heir of Heaven&mdash;he ought not to be afraid of them. The way to be prepared for them is to have your heart fixed and prepared. And the method of having the heart fixed is confident trustfulness in the Lord.
+The last point is this&mdash;THE GREAT INSTRUMENT OF FIXEDNESS OF HEART IS FAITH IN God. "His heart is fixed, trusting in the Lord." You see that we have come here by progressive steps. Evil tidings may come to an heir of Heaven&mdash;he ought not to be afraid of them. The way to be prepared for them is to have your heart fixed and prepared. And the method of having the heart fixed is confident trustfulness in the Lord.
 
 The Christian is not prepared for trial by trusting in his fellow men, or by relying upon his own wisdom and experience. We lean on a better prop than an arm of flesh! The Christian relies only upon his God. Every attribute engages this confidence. The heir of Heaven rests in the love of God. "Oh," says he, "my Father loves me too well to suffer any evil thing to damage me. I know by that very Spirit which He has given, by which I cry, 'Abba, Father'&mdash;I know the tenderness of His heart forbids that I should ever perish, or that anything should happen to me which shall do me serious damage."
 

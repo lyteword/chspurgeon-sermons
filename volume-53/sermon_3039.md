@@ -8,7 +8,7 @@ There are some Truths which Jesus Christ proclaims in the Gospel and which He bi
 
 First, we shall ask and answer the question, what are those Truths which are like sharp arrows? Secondly, why are they arrows? And thirdly, how come they stick fast in human hearts?
 
-First, then, WHAT ARE THOSE TRUTHS WHICH ARE SHARP AS ARROWS IN THE HEARTS OF MEN?
+First, then, WHAT ARE THOSE TRuthS WHICH ARE SHARP AS ARROWS IN THE HEARTS OF MEN?
 
 There are many of them, but I shall only mention such as are most usually felt when men are convinced of sin. One arrow that is always sharp is this&mdash;the spirituality and holiness of the Law of God. Many men read the Law of the Ten Commandments, or hear it read in their churches on the Sabbath, but they do not know that that Law means a great deal more than the mere words seem to convey. For instance, it is written, "You shall not commit adultery," but Christ tells us that even though no act of unchastity is committed, the very thought of it is condemned and he who indulges an unclean look has already broken the command. The Law of God not only deals with the overt acts, but also with desires&mdash;and even with those imaginations which scarcely amount to desires, in which a man pictures the sin and feels a pleasure in the picture, though he has not actually committed the sin. Now, when a man comes to understand in his heart, as well as to hear with his ears that God looks thus at his thoughts, imaginations, desires and words as well as at his actions, then he stands in awe and amazement of the Law and says, "I cannot keep this Law of God, for I am already condemned by it&mdash;and being condemned, what way of escape is there for me? How can I get my sins forgiven? By what means can I be reconciled to God?"
 
@@ -82,7 +82,7 @@ down before Him! And London, and Great Britain, and the world at large would beh
 
 The Lord send it! The Lord send it! I know your hearts say, "Amen!" But you must work for it and watch for it and pray for it&mdash;and then it will come! And unto Christ shall be the Glory forever. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM45.
+Exposition by C. H. Spurgeon: Psalm45.
 
 To the chief Musician upon Shoshannim, (or, upon the lilies,) for the sons of Korah, Maschil, a Song of Loves. We may look upon the forty-fifth Psalm as being a sort of compendium of the Song of Solomon. It is written, too, upon the same subject. And that is not the marriage of Solomon with Pharaoh's daughter&mdash;only the strangest and most whimsical fancy could ever have found Pharaoh's daughter either in this Psalm or in the Book of the Canticles! It is a description of Christ and His Church! A song of love between that pair forever affianced and soon to sit down together at the marriage supper in Glory!
 

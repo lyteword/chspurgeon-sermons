@@ -36,7 +36,7 @@ Also Endeavor to know Christ, Beloved, by being taught of His Spirit. That learn
 
 "But gladly tell to sinners round What a dear Savior you have found!!
 
-THIS ENQUIRY ABOUT CHRIST SHOULD ALWAYS BE MET WITH a CLEAR AND DISTINCT ANSWER.
+THIS ENQUIRY ABOUT Christ SHOULD ALWAYS BE MET WITH a CLEAR AND DISTINCT ANSWER.
 
 If I had only one more sermon to preach before I died, I know what it would be about&mdash;it would be about my Lord Jesus Christ&mdash;and I think that when we get to the end of our ministry, one of our regrets will be that we did not preach more of Him. I am sure no minister will ever repent of having preached Him too much. You who are with Jesus, talk
 
@@ -86,9 +86,9 @@ Despise Him not, lastly, for He is coming again in pomp and Glory. Speak not lig
 
 But it cannot be&mdash;the Lamb's eyes of love have become the Lion's eyes of fire! And He who was meek and gentle has now become fiery and terrible! The voice that once was sweet as music is now loud and terrible as the crash of thunder! And He that once dealt out mercy, now deals out bolts of vengeance! Oh, despise not Him who shall so soon come in His Glory! Bow, now, and "kiss the Son, lest He be angry, and you perish from the way, when His wrath is kindled but a little." Ask, "Who is He?" And when you put the question, answer it yourself, "This is my Beloved, and this is my Friend, O daughters of Jerusalem." Trust Jesus Christ, Sinner, and you shall know who He is! And He, knowing who you are, will save you with a great salvation! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LAMENTATIONS3:52-58'
+Exposition by C. H. Spurgeon: Lamentations3:52-58'
 
-52-55. My enemies chasedme sorely, like a bird, without cause. Theyhave cut offmylife in the dungeon, and cast a stone upon me. Waters flowed overmyhead; then Isaid, Iam cut off. Icalled upon Yourname, OLORD, out ofthe low dungeon. He said, "I am cut off," yet he called upon the name of the Lord out of the low dungeon into which his enemies had cast him. What a mercy it is that God's servants are often as graciously inconsistent as Jeremiah was just then! They are afraid that the Lord will not hear them, yet they continue to pray to Him! They are afraid that they are cast off forever, yet they will still use the privilege of a child of God and cry to Him, though they doubt whether they have a child's right to do so! Go on, Beloved, with that blessed inconsistency, and the Lord will bless you in it!
+52-55. My enemies chasedme sorely, like a bird, without cause. Theyhave cut offmylife in the dungeon, and cast a stone upon me. Waters flowed overmyhead; then Isaid, Iam cut off. Icalled upon Yourname, OLord, out ofthe low dungeon. He said, "I am cut off," yet he called upon the name of the Lord out of the low dungeon into which his enemies had cast him. What a mercy it is that God's servants are often as graciously inconsistent as Jeremiah was just then! They are afraid that the Lord will not hear them, yet they continue to pray to Him! They are afraid that they are cast off forever, yet they will still use the privilege of a child of God and cry to Him, though they doubt whether they have a child's right to do so! Go on, Beloved, with that blessed inconsistency, and the Lord will bless you in it!
 
 You have heard my voice: hide not your ear at my breathing, at my cry. Is not that a beautiful description of prayer, when the soul cannot find words, nothing but a "breathing?" Did I say nothing but a breathing? Why, that is the very essence of prayer!&mdash;
 

@@ -83,7 +83,7 @@ Those about to be baptized will feel, I trust&mdash;as we shall when we look on&
 
 Nail your colors to the mast! Bear in your body the marks of the Lord Jesus. Yes, let everyone of us who has been baptized into Christ feel that our whole body bears the watermark, for we have been "buried with Him by baptism into death." It was not for the putting off of the filthiness of the flesh, but as a declaration that we were dead to the world and quickened into newness of life in Christ Jesus our Savior. So let it be with you, too, dear Friends, as you follow your Lord through the water! Cling to Him, cleave to Him! "Your own Friend, and your father's Friend, forsake not." May God add His blessing, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN15:9-27.
+Exposition by C. H. Spurgeon: John15:9-27.
 
 Verse 9. As the Father has loved Me, so have I loved you. Oh, drink this nectar down! It is as when Cleopatra dissolved the pearl into a single draught, for here is the choicest pearl of the Truths of God that was ever dissolved into a single verse to be a delicious draught for His people to drink! "As the Father has loved Me"&mdash;as surely as the Father has loved Me and, then, "as"&mdash;that is&mdash;in the same manner "as the Father has loved Me"&mdash;without beginning, without ending, without measure, without change, "so have I loved you."
 

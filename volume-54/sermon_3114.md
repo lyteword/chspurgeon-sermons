@@ -16,7 +16,7 @@ Yet more. You observe when the wheel moves very rapidly, you can discern nothing
 
 I trust I have made the first part of my subject intelligible&mdash;that the Providence of God is here compared to a wheel.
 
-My second thought is that THE PROVIDENCE OF GOD IS, IN SOME MYSTERIOUS WAY, CONNECTED
+My second thought is that THE PROVIDENCE OF God IS, IN SOME MYSTERIOUS WAY, CONNECTED
 
 WITH ANGELS.
 
@@ -52,7 +52,7 @@ Again, you will see another reason why the sea is like Providence. Man cannot ma
 
 him? They came and would have washed him and his chair away if he had not moved backward. The sea is not to be governed by man! A whole fleet sails over it and it is only like a feather blown by the wind across the surface of a brook! All we ever put on the sea is as nothing. It can never be restrained, nor chained, nor managed by man. Greedy man has carved the land, but the sea has no landmark. It is impetuous! It follows its own will. So does Providence. It will not be managed by man. Napoleon once heard it said that man proposes and God disposes. "Ah," said Napoleon, "but I propose and dispose, too." How do you think he proposed and disposed? He proposed to go and take Russia. He proposed to destroy that power&mdash;but how did he come back again? He came back solitary and alone, his mighty army perished and wasted, having well-near eaten and devoured one another through hunger! Man proposes and God disposes. Providence, like the sea, cannot be directed by man&mdash;it can only be controlled by God. Let man try to stand against God's Providence and Providence will grind and crush him!
 
-Again, GOD's PROVIDENCE IS INTRICATE.
+Again, God's PROVIDENCE IS INTRICATE.
 
 That you will also find in the text&mdash;"The appearance of the wheels and their work was like unto the color of a beryl: and they four had one likeness: and their appearance and their work was, as it were, a wheel in the middle of a wheel." I have just said that Providence is intricate. When Joseph brought his two sons up to Jacob's deathbed and Jacob was about to bless them, Jacob guided his hands wittingly&mdash;and he put his right hand on the head of the younger son, and his left hand on the head of the elder one. Joseph said, "Not so, my Father, for this is the firstborn." And Jacob said, "I know it, my son, I know it"&mdash;and he would not give the blessing in any other way but with his hands crossed&mdash;and God usually blesses His children by crossing His hands. We say, "Do not deal so with me," but God says, "It must be even so, My child. There is a blessing on your head. Do not say, 'Uncross Your hands,' for that is the way to bless you most of all. I wish to put the greatest blessing upon you and, therefore, I have crossed My hands." Providence is wonderfully intricate! You want always to see through Providence, do you not? You never will, I can assure you! You have not eyes good enough. You want to see what good that affliction was to you? You must believe it! You want to see how it can bring good to the soul? You may be enabled to do so in a little time, but you cannot see it now&mdash;you must believe it! Honor God by trusting Him! God has many Gordian knots which wicked men may cut and which righteous men may try to unravel, but which God alone can untie! We see the wicked prosper. They flourish and great is their power, while the righteous are cast down. We say, "Why is this?" There are wheels within wheels. Do not fret yourselves because evildoers are more prosperous than the godly. There may be a nation that seems to have right on its side&mdash;that nation may be crushed and another nation, which is tyrannical, may get the victory. Do not ask, "Why is this?" You shall know the reason when you get up yonder! Do not attempt to do what Gabriel never dares to do&mdash;to ask the reason why, for God will never give it.
 
@@ -84,13 +84,13 @@ Shall walk all day beneath His shade
 
 And there at night shall rest his head." Let this be your shield to keep off the thrusts of distress and this be your high rock against all the winds of sorrow! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM103.
+Exposition by C. H. Spurgeon: Psalm103.
 
-Verse 1. Bless the LORD, O my Soul: and all that is within me, bless His holy name.  Come, my Heart, be down in the dumps no longer! Take your harp from the willows, tune its strings and begin to pour forth its music to the praise of Divine Love!
+Verse 1. Bless the Lord, O my Soul: and all that is within me, bless His holy name.  Come, my Heart, be down in the dumps no longer! Take your harp from the willows, tune its strings and begin to pour forth its music to the praise of Divine Love!
 
-2-4. Bless the LORD, O my Soul, and forget not all His benefits: who forgives all your iniquities, who heals all your diseases; who redeems your life from destruction; who crowns you with loving kindness and tender mercies. This is a better crown than any emperor ever wore, unless he, also, was a child of God. Priceless and rare gems and jewels adorn this wondrous coronet&mdash;"who crowns you with loving kindness and tender mercies."
+2-4. Bless the Lord, O my Soul, and forget not all His benefits: who forgives all your iniquities, who heals all your diseases; who redeems your life from destruction; who crowns you with loving kindness and tender mercies. This is a better crown than any emperor ever wore, unless he, also, was a child of God. Priceless and rare gems and jewels adorn this wondrous coronet&mdash;"who crowns you with loving kindness and tender mercies."
 
-5-9. Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. The LORD executes righteousness and judgment for all that are oppressed. He made known His ways unto Moses, His acts unto the children ofIsrael. The LORD is merciful and gracious, slow to anger, andplenteous in mercy. He willnot always chide.  Are you suffering His
+5-9. Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. The Lord executes righteousness and judgment for all that are oppressed. He made known His ways unto Moses, His acts unto the children ofIsrael. The Lord is merciful and gracious, slow to anger, andplenteous in mercy. He willnot always chide.  Are you suffering His
 
 chiding just now? They are good for you, but they will not last forever. "He will not always chide."
 
@@ -100,10 +100,10 @@ chiding just now? They are good for you, but they will not last forever. "He wil
 
 remove our troubles from us! But if not, as He has removed our transgressions so far away that they can never be brought back again, we have real cause for joy whatever happens to us here.
 
-Like as a fatherpities his children, so the LORDpities them that fear Him.  The very best of them are only objects of pity. Though they are the best, they need that He should look down upon them with Infinite Compassion.
+Like as a fatherpities his children, so the Lordpities them that fear Him.  The very best of them are only objects of pity. Though they are the best, they need that He should look down upon them with Infinite Compassion.
 
-14-19. For He knows our frame; He remembers that we are dust. As for man, his days are asgrass: as a flower ofthe field, so he flourishes. For the wind passes over it, and it is gone; and the place thereof shall know it no more. But the mercy of the LORD is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children; to such as keep His Covenant, and to those that remember His Commandments to do them. The LORD has prepared His Throne in the Heavens and His Kingdom rules over all. What a comfort this is for us! Over the great as well as over the little, over all parts of the earth, as well where war rages as where peace reigns, "His Kingdom rules over all." Nothing happens without His permission! Even the little things of life are ordered by Him! The foreknown station of a rush by the riverside is as fixed as the place of a king&mdash;and the chaff from the hand of the winnower is steered as surely as the stars in their courses, for to God nothing is little and nothing is great.
+14-19. For He knows our frame; He remembers that we are dust. As for man, his days are asgrass: as a flower ofthe field, so he flourishes. For the wind passes over it, and it is gone; and the place thereof shall know it no more. But the mercy of the Lord is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children; to such as keep His Covenant, and to those that remember His Commandments to do them. The Lord has prepared His Throne in the Heavens and His Kingdom rules over all. What a comfort this is for us! Over the great as well as over the little, over all parts of the earth, as well where war rages as where peace reigns, "His Kingdom rules over all." Nothing happens without His permission! Even the little things of life are ordered by Him! The foreknown station of a rush by the riverside is as fixed as the place of a king&mdash;and the chaff from the hand of the winnower is steered as surely as the stars in their courses, for to God nothing is little and nothing is great.
 
-20, 21. Bless the LORD, you His angels that excel in strength, that do His commandments, hearkening unto the voice of His word. Bless you the LORD, all you His hosts. "Let all the armies of Heaven break forth into one song&mdash; "Bless you the LORD, all you His hosts."
+20, 21. Bless the Lord, you His angels that excel in strength, that do His commandments, hearkening unto the voice of His word. Bless you the Lord, all you His hosts. "Let all the armies of Heaven break forth into one song&mdash; "Bless you the Lord, all you His hosts."
 
-21, 22. You ministers of His, that do His pleasure. Bless the LORD, all His works in all places of His dominion: bless the LORD, O my Soul.
+21, 22. You ministers of His, that do His pleasure. Bless the Lord, all His works in all places of His dominion: bless the Lord, O my Soul.

@@ -120,7 +120,7 @@ I had much more to say, but the time has gone, so I just leave you with my text,
 
 Believe! May the Lord help you to believe in Jesus immediately! Ere you leave this place, trust Him! Trust Him wholly. He came to save sinners. Let Him save you! It is His business&mdash;it is not yours. Leave yourself in His hands and He will save you, to the praise of the glory of His Grace.
 
-EXPOSITION BY C. H. SPURGEON. 1 TIMOTHY 1:1-17.
+Exposition by C. H. Spurgeon. 1 Timothy 1:1-17.
 
 Verse 1. Paul, an Apostle of Jesus Christ by the commandment of God our Savior and Lord Jesus Christ, which is our hope. Christ is our hope. We have not a shadow of a hope apart from Him. I remember, when on the Continent, seeing on a cross the words, "Spes unica," the unique, the only hope of man&mdash;and that is true of the Cross of Christ, and of Christ who suffered on it. He is our hope!
 

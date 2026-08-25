@@ -6,7 +6,7 @@ OBJECTS often influence us out of proportion to their value because of their nea
 
 Now, Beloved, it will sometimes happen that a matter which is scarcely worthy of the thought of an immortal spirit will fret and worry us from day to day. There is some oppressor, as the text puts it, whom we dread and fear continually, yet we forget the Almighty God who is on our side, who is stronger than all the oppressors who have ever lived and who has all people and all things under His control! The reason why we act thus is because we think of God as if He were far off, while we can see the oppressor with our eyes and we can hear with our ears his threatening words. I want, at this time, to be the means in the hands of God of turning the thoughts of His people away from the distress of the present to the joy and comfort which, though more remote, ought to still be more powerful over the mind and heart because of the real intrinsic greatness.
 
-And first I want to speak upon this point&mdash;that MANY FEARS WHICH ARE ENTERTAINED BY GOOD MEN AND WOMEN ARE REALLY GROUNDLESS.
+And first I want to speak upon this point&mdash;that MANY FEARS WHICH ARE ENTERTAINED by GOOD MEN AND WOMEN ARE REALLY GROUNDLESS.
 
 "You have feared continually every day because of the fury of the oppressor, as if he were ready to destroy...and where is the fury of the oppressor?" The probable meaning of this verse is that the oppressor never came, so that they never did feel the force of his fury and, in like manner, many of God's people are constantly under apprehensions of calamities which will never occur to them&mdash;they suffer far more in merely dreading them than they would have to endure if they actually came upon them! In their imagination, there are rivers in their way and they are anxious to know how they shall wade through them, or swim across them. There are no such rivers in existence, but they are agitated and distressed about them. Our old proverb says, "Don't cross the bridge till you come to it," but these timid people are continually crossing bridges that only exist in their foolish fancies! They stab themselves with imaginary daggers, they starve themselves in imaginary famines and even bury themselves in imaginary graves! Such strange creatures are we that we probably smart more under blows which never fall upon us than we do under those which do actually come! The rod of God does not smite us as sharply as the rod of our own imagination does&mdash;our groundless fears are our chief tormentors and when we are enabled to abolish our self-inflictions, all the indications of the world become light enough. It is a pity, however, that any who are taught of God and who have had faith in Christ given to them, should fall into so
 
@@ -46,7 +46,7 @@ You say that your enemies are doing all that they can to destroy you, but can th
 
 Again, can anyone do anything to you which God does not permit? And if God permits it, can any real harm come to you? "Who is he that will harm you, if you are followers of that which is good?" "We know that all things work together for good to them that love God, to them who are the called according to His purpose." Then how can anything work for your hurt if you are really the Lord's? Can anyone curse those whom God blesses? Are you like those foolish persons who are afraid of a witch's curse, or of some spell that the wicked may cast over you? Even Balaam said, "Surely there is no enchantment against Jacob, neither is there any divination against Israel." Balak might summon Balaam to his aid and the two together might stand and look on Israel and wish to curse them&mdash;but they could not curse those whom God had blessed! If all the devils in Hell could fill your house and seek to injure you, there is no need for you to fear or tremble more than Martin Luther did when his friends were afraid for him to go to Worms, but he said, "If there were as many devils there as there are tiles on the roofs of the houses, I would face them all in the name of God." And you may say the same! If earth were all in arms abroad and Hell, in one vast hurry-burly, had come up to join with the world against you, you might still say, "The Lord of Hosts is with us; the God of Jacob is our refuge," and charge them in the name of the Most High, and put them all to rout, for greater is He who is with you than all those that are against you!
 
-Now, lastly, dear Brothers and Sisters in Christ, if these fears are groundless, and if a few questions will scatter them, I appeal to you who are cast down to CRY TO GOD TO DELIVER YOU FROM THIS STATE OF BONDAGE.
+Now, lastly, dear Brothers and Sisters in Christ, if these fears are groundless, and if a few questions will scatter them, I appeal to you who are cast down to CRY TO God TO DELIVER YOU FROM THIS STATE OF BONDAGE.
 
 If there is no ground for your fears, what is the use of tormenting yourself for nothing at all? And if God is indeed with you, do you not dishonor Him by your fretfulness and your fears? What would you think of a little child, in its mother's arms, who was always afraid that it was not safe there? Would it not look as if there were some defeat in the child's loving confidence in its mother?&mdash;
 
@@ -75,9 +75,9 @@ Sinner, that is not true! But it is true that "light is sown for the righteous, 
 
 May God bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ISAIAH 43:1-19.
+Exposition by C. H. Spurgeon: Isaiah 43:1-19.
 
-Verse 1. But now thus says the LORD that created you, O Jacob, and He that formed you, O Israel The Lord reminds us that He first created us, and that He afterwards molded us. We are like Jacob by nature, but He has made us Israel by Grace.
+Verse 1. But now thus says the Lord that created you, O Jacob, and He that formed you, O Israel The Lord reminds us that He first created us, and that He afterwards molded us. We are like Jacob by nature, but He has made us Israel by Grace.
 
 Fear not: for I have redeemed you, I have called you by your name; you are Mine. Redemption is a deep well of comfort. If the Lord has indeed bought us with His blood, He will not think lightly of us. And if He has called us by name and declared that we belong to Him, we may rest assured that He will not lose His own property, but that He will preserve it to the end.
 
@@ -87,7 +87,7 @@ and trouble&mdash;we shall have to go through waters and rivers, and shall have 
 
 through much tribulation that we must enter the Kingdom of God. But He does promise that no harm shall come to us from it all. "We know that all things work together for good to them that love God"&mdash;that waters, rivers, fires and flames bring us benefits and blessings&mdash;and that they shall none of them bring a curse upon us.
 
-3, 4. For I am the LORD your God, the Holy One of Israel, your Savior I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable.  God puts honor upon His beloved ones.
+3, 4. For I am the Lord your God, the Holy One of Israel, your Savior I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable.  God puts honor upon His beloved ones.
 
 They were in themselves dishonorable, for they had nothing of goodness about them until the Lord imparted it to them.
 
@@ -107,15 +107,15 @@ Let all the nations be gathered together, and let the people be assembled. As th
 
 Who among them can declare this, and show us former things? Let them bring forth the witnesses, that they may be justified: or let them hear, and say, It is truth. Where else have we any true knowledge of God except in His Word and among His people? The myths and mysteries of the heathen, how dark, how indistinct and shallow they are! What true prophecy did their oracles ever give? Ask Greece and Rome, the most polished of the ancient nations, what did their so-called gods ever foretell? Let them bring any holy book of theirs which reveals the future and which is true.
 
-You are My witness, says the LORD. The chosen people of God have become witnesses for Jehovah that He, and He alone, is the true God. That He, and He alone has truly foretold the future. Let the heathen prove that their gods have done the same if they can&mdash;we know that they cannot. "You are My witnesses, says the Lord."
+You are My witness, says the Lord. The chosen people of God have become witnesses for Jehovah that He, and He alone, is the true God. That He, and He alone has truly foretold the future. Let the heathen prove that their gods have done the same if they can&mdash;we know that they cannot. "You are My witnesses, says the Lord."
 
 And My servant whom Ihave chosen.  That great Servant of God, you know His name, even Christ Jesus the faithful and true Witness, bears better witness for God than the whole nation of the Jews, or the Lord's chosen people in all ages can bear!
 
-10, 11. That you may know and believe Me, and understand that I am He: before Me there was no God formed, neither shall there be after Me. I, even I, am the LORD; and beside Me there is no Savior. Look the whole world over and see where there is any Savior for sinners except Jesus Christ. Does any other religion even profess to have a Savior? Destroyers they have, but where is their Savior?
+10, 11. That you may know and believe Me, and understand that I am He: before Me there was no God formed, neither shall there be after Me. I, even I, am the Lord; and beside Me there is no Savior. Look the whole world over and see where there is any Savior for sinners except Jesus Christ. Does any other religion even profess to have a Savior? Destroyers they have, but where is their Savior?
 
 Ihave declared, and have saved. "I said that I would save, and I have saved."
 
-And 1 have showed, when there was no strange god among you: therefore you are My witnesses, says the LORD, that I am God. When, in Hezekiah's day, the idols had been destroyed, God told Hezekiah that He would deliver him from Sennacherib, and He did so.
+And 1 have showed, when there was no strange god among you: therefore you are My witnesses, says the Lord, that I am God. When, in Hezekiah's day, the idols had been destroyed, God told Hezekiah that He would deliver him from Sennacherib, and He did so.
 
 Yes, before the day was I am He. When there was no day, there was the Ancient of Days.
 
@@ -123,9 +123,9 @@ And there is none that can deliver out of My hand: I will work, and who shall le
 
 "When He makes bare His arm, Who shall His work withstand? When He His people's cause defends, Who, who shall stay His hand?"
 
-Thus says the LORD, your Redeemer, the Holy One of Israel; For your sake I have sent to Babylon, and have brought down all their nobles, and the Chaldeans, whose cry is in the ships. Up the broad river Euphrates, and down to the Persian Gulf, Babylon and Chaldea gloried in their greatness, but God sent the Medo-Persian power to break them in pieces for the sake of His people, that Cyrus might let them go free!
+Thus says the Lord, your Redeemer, the Holy One of Israel; For your sake I have sent to Babylon, and have brought down all their nobles, and the Chaldeans, whose cry is in the ships. Up the broad river Euphrates, and down to the Persian Gulf, Babylon and Chaldea gloried in their greatness, but God sent the Medo-Persian power to break them in pieces for the sake of His people, that Cyrus might let them go free!
 
-15-17. I am the LORD, your Holy One, the Creator of Israel, your King. Thus says the LORD, which makes a way in the sea, and a path in the mighty waters; which brings forth the chariot and horse, the army and the power; they shall lie down together, they shall not rise: they are extinct, they are quenched as tow. Like the wick of a lamp, soon put out. Here is, probably, an illusion to the overthrowing of Egypt at the Red Sea&mdash;they came out with their horses and chariots, but they were made to lie down together in the sea. God overcame His people's enemies then and He can and will do the same to the end of the chapter.
+15-17. I am the Lord, your Holy One, the Creator of Israel, your King. Thus says the Lord, which makes a way in the sea, and a path in the mighty waters; which brings forth the chariot and horse, the army and the power; they shall lie down together, they shall not rise: they are extinct, they are quenched as tow. Like the wick of a lamp, soon put out. Here is, probably, an illusion to the overthrowing of Egypt at the Red Sea&mdash;they came out with their horses and chariots, but they were made to lie down together in the sea. God overcame His people's enemies then and He can and will do the same to the end of the chapter.
 
 Remember you not the former things, neither consider the things of old. Do not look merely upon what God has done; but look to the future and remember that He is able to do the same again.
 

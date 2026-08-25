@@ -3,7 +3,7 @@
 > "And immediately, while he yet spoke, the cock crowed. And the Lord turned and looked upon Peter. And Peter remembered the word of the Lord, how He had said unto him, Before the cock crowed, you shall deny Me thrice. And Peter went out and wept bitterly."  
 > Luke 22:60-62.  
 
-PETER had fallen terribly. He had denied his Master, denied Him repeatedly, denied Him with oaths, denied Him in His Presence, while His Master was being smitten and falsely charged. He denied Him, though he was an Apostle. Denied him, though he had declared that should all men forsake Him, yet he never would. It was a sad, sad sin. Remember what led up to it. It was, first, Peter's presumption and self-confidence. He reckoned that he could never stumble and for that very reason he speedily fell. A haughty spirit goes before a fall. Oh, that we might look to the roots of bitter flowers and destroy them!
+Peter had fallen terribly. He had denied his Master, denied Him repeatedly, denied Him with oaths, denied Him in His Presence, while His Master was being smitten and falsely charged. He denied Him, though he was an Apostle. Denied him, though he had declared that should all men forsake Him, yet he never would. It was a sad, sad sin. Remember what led up to it. It was, first, Peter's presumption and self-confidence. He reckoned that he could never stumble and for that very reason he speedily fell. A haughty spirit goes before a fall. Oh, that we might look to the roots of bitter flowers and destroy them!
 
 If presumption is flourishing in the soil of our hearts today we shall soon see the evil fruit which will come of it. Reliance upon our firmness of character, depth of experience, clearness of insight, or maturity in grace will, in the end, land us in disgraceful failure. We must either deny ourselves, or we shall deny our Lord. If we cleave to self-confidence, we shall not cleave to Him.
 
@@ -29,7 +29,7 @@ Crow away, poor bird&mdash;if Jesus looks while you are crowing, you will not cr
 
 This morning, first, let us look at the Lord who looked. And secondly let us look into the look which the Lord looked. And then, thirdly, let us look at Peter, upon whom the Lord looked. We will be all the while looking&mdash;may our Lord look upon us. May His Holy Spirit work with His Holy Word!
 
-First, LET US LOOK AT THE LORD, WHO LOOKED UPON PETER. Can you picture Him up there in the hall, up yonder steps, before the high priest and the council? Peter is down below in the area of the house warming his hands at the fire. Can you see the Lord Jesus turning round and fixing His eyes intently upon His erring disciple? What do you see in that look?
+First, LET US LOOK AT THE Lord, WHO LOOKED UPON Peter. Can you picture Him up there in the hall, up yonder steps, before the high priest and the council? Peter is down below in the area of the house warming his hands at the fire. Can you see the Lord Jesus turning round and fixing His eyes intently upon His erring disciple? What do you see in that look?
 
 I see in that look, first, that which makes me exclaim&mdash;What thoughtful love! Jesus is bound, He is accused, He has just been smitten on the face&mdash;but His thought is of wandering Peter. You want all your wits about you when you are before cruel judges and are called upon to answer false charges. You are the more tried when there is no man to stand by you, or bear witness on your behalf&mdash;it is natural, at such an hour&mdash;that all your thoughts should be engaged with your own cares and sorrows. It would have been no reproach had the thoughts of our Lord been concentrated on His personal sufferings. And all the less so because these were for the sake of others.
 
@@ -67,7 +67,7 @@ There is a dark side to "You God see me." But it is not half so dark as it would
 
 I think we have gathered much from this brief look at the Lord who looked upon Peter. I doubt not that had we more time and more insight, we should see greater things than these.
 
-Now let us go on to the second point and see whether we cannot gather still more instruction. LET US LOOK INTO THE LOOK WHICH THE LORD GAVE TO PETER. Help us again, most gracious Spirit!
+Now let us go on to the second point and see whether we cannot gather still more instruction. LET US LOOK INTO THE LOOK WHICH THE Lord GAVE TO Peter. Help us again, most gracious Spirit!
 
 That look was, first of all, a marvelous refreshment to Peter's memory. "The Lord turned and looked upon Peter." What a sight it must have been for Peter! Our dear Master's face was that night all red from the bloody sweat. He must have appeared emaciated in body. His eyes weary with want of sleep and His whole countenance the vision of grief. If ever a picture of the Man of Sorrows could have been drawn, it should have been taken at that moment when the Lord turned and looked upon Peter.
 
@@ -109,7 +109,7 @@ This look was altogether between the Lord and Peter. Nobody knew that the Lord l
 
 The whole process may not have occupied more than a second of time. "The Lord turned and looked on Peter." It took less time to do than it takes to tell. Yet in that instant an endless work was done. How soon can Jesus change the heart! "He spoke and it was done"&mdash;I venture to alter that verse and say, "He looked and it was done." Lord, look on sinful Peter now! Work a miracle with your eyes! Even here, let some sinner look to You because You have looked on him.
 
-Now I must go to my third point&mdash;LET US LOOK AT PETER AFTER THE LORD HAD LOOKED AT HIM.
+Now I must go to my third point&mdash;LET US LOOK AT Peter AFTER THE Lord HAD LOOKED AT HIM.
 
 What is Peter doing? When the Lord looked on Peter the first thing Peter did was to feel awakened. Peter's mind had been sleeping. The charcoal fire had not done him much good, the fumes of it are evil. The dust of Satan's sieve had got into his eyes. He was confused with very sorrow for his dear Master, whom he truly loved. Peter was hardly Peter that night. I think I had better say, Peter was too much Peter, and his mind had more of Peter's stone in it, than of Christ's flesh.
 

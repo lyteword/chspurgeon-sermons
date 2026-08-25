@@ -34,7 +34,7 @@ But I suppose that their number accounted for the excess to which they went. If 
 
 Take heed of sinning in a crowd! Young man, abandon the idea that you may sin in a crowd! Beware of the notion that because many do it, it is less a guilt to any one of them. Remember that the broad way was always the wrong road and that it leads to destruction, none the less because many walk in it. "Though hand join in hand, the wicked shall not be unpunished." Though you finish up the day's work of sin with three cheers for your noble selves, you shall find yourselves arraigned, each one, before the Judgment Seat of God&mdash;each one to give account for the deeds done in his body according to what he has done, whether it is good or whether it is evil. Oh, the pitiful story, a whole company of soldiers united against Christ, with not one to quit the ranks and say, "No, comrades! Do not do this!" But all wallowing in their cruelty, like swine in the mire!
 
-That leads me to talk to you, secondly, about another point. As these soldiers were unanimous in mocking their illustrious Prisoner, SO ARE MEN UNITED IN OPPOSING CHRIST.
+That leads me to talk to you, secondly, about another point. As these soldiers were unanimous in mocking their illustrious Prisoner, SO ARE MEN UNITED IN OPPOSING Christ.
 
 Like these soldiers, many do not pass Christ by with neglect. I should have thought that many a brave man of that Roman legion would have said, "Pshaw! I shall not go to taunt the poor Jew who has been hunted down by the priests. Nobody gives Him a good word&mdash;even His own followers have fled from Him. I heard one of them declare that He did not know Him, though I knew that man was a liar, for I saw Him in the Garden with his Master. My comrades are going to the Praetorium to mock Him, but I shall not go. Such mirth is unworthy of a man, especially of a Roman." Instead thereof, they were all there! Curiosity fetched them up&mdash;they must all come to see this Man of whom they had heard so much&mdash;and an evil conscience made them bitter against Him, for, because they were evil, His being good was a protest against their wicked deeds.
 
@@ -66,7 +66,7 @@ Now notice that men who could mock Christ like this were capable of doing anythi
 
 That was thought to be very extraordinary, but it is not so very long ago since, at the laying of the first stone of a chapel, a friend of mine stood behind two gentlemen from Newmarket and, when one whom I know stood up to pray over the first stone, these two made a bet about how long he would be praying! Men will do anything for a wager. That mischievous vice which is becoming so common, nowadays, leads to an extraordinary hardness of heart beyond anything else! And I cannot so much wonder that men who were brought up as these Roman soldiers were, were capable of mocking Christ and of anything else that was evil.
 
-I have finished when I have asked and answered this question, WHAT SHALL WE SAY OF BOTH THE FACTS WHEREOF WE HAVE SPOKEN TONIGHT?
+I have finished when I have asked and answered this question, WHAT SHALL WE SAY OF BOTH THE FActs WHEREOF WE HAVE SPOKEN TONIGHT?
 
 These cruel soldiers unanimously came together to see Christ as a prisoner and to put Him to extraordinary scorn&mdash; yet out of this band Christ found witnesses. Their chief officer, "the centurion, and they that were with him," as they stood and saw Christ die, said, "Truly this was the Son of God." And some of these soldiers, being appointed to watch the tomb of Christ, came and declared that He had risen from the dead. They were fine witnesses, were they not? Men who were too rough to lie to help a sect. They came forward to bear testimony to the Christ. O God, if there are any here who have blasphemed You, who have cursed Christ to His face, who have persecuted Christ's people, save them, tonight, and make them witnesses of Your power to bless! When such a man gets saved, he is a good witness for Christ. He says, "I know what Christ can do, for He has changed my heart, He has appeared to me by the way and manifested Himself to me. And I know and am sure of that which I testify, that, verily, this is the Son of God."
 
@@ -87,7 +87,7 @@ But, once more, all this mockery should excite our admiration of our patient Lor
 
 The last lesson is, let us summon all our faculties to honor Christ tonight. Gather together the whole band, your memory of all His goodness, your judgment of all His greatness, all your hopes and all your fears&mdash;your quieted conscience, your soul at rest&mdash;come, and with the whole band of faculties that God has given you, from the highest to the lowest, bow down in grateful adoration before Him who bowed so low that He might lift us up to be with Him forever! Dear Hearers, are you trusting Christ? There is no other trust that will do for a soul for time and for eternity! On a dying bed, it must be none but Jesus&mdash;let it be none but Jesus on your bed, tonight, before you fall asleep. Do not dare to close your eyes till you have committed your soul into the keeping of Him who still holds out His hands, as He did upon the Cross, that He may receive you with open arms and save you with an everlasting salvation! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW27222-50.
+Exposition by C. H. Spurgeon: Matthew27222-50.
 
 Our Lord was brought before the Roman governor, Pilate. He was anxious to let Jesus go, but he was a weak-minded man, easily swayed by the noisy cry of the people, prompted by the chief priests and elders.
 
@@ -117,7 +117,7 @@ Andparted His garments, casting lots. Rattling the dice at the foot of the Cross
 
 35, 36. That it might be fulfilled which was spoken by the Prophet, They parted My garments among them, and upon My vesture did they cast lots. And sitting down they watched Him there. His enemies gloating their cruel eyes with the sight of His sufferings. His friends with many tears watching His amazing griefs. It is for us, tonight, with humble faith and grateful love, to mark the incidents connected with His painful death.
 
-37, 38. And set up over His head His accusation written, THIS IS JESUS THE KING OF THE JEWS. Then were there two thieves crucified with Him, one on the right hand, and another on the left. Giving Him the place of honor, which means, in this case, the place of dishonor. He was the apex of that terrible triangle.
+37, 38. And set up over His head His accusation written, THIS IS Jesus THE KING OF THE JEWS. Then were there two thieves crucified with Him, one on the right hand, and another on the left. Giving Him the place of honor, which means, in this case, the place of dishonor. He was the apex of that terrible triangle.
 
 39, 40. And they that passed by reviled Him, wagging their heads, and saying, You that destroys the Temple, and builds it in three days, save Yourself! If You are the Son of God, come down from the Cross. This is the cry of the Socinians, today, "Come down from the Cross. Give up the atoning Sacrifice and we will be Christians." But, by rejecting His vicarious Atonement, they practically un-Christ the Christ, as those mockers at Golgotha did!
 

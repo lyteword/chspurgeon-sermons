@@ -60,7 +60,7 @@ think that the voice of your crying shall be lost. The voice of boasting dies aw
 
 God!
 
-I must speak very briefly upon the second point, which is this. THERE ARE TIMES WHEN EVEN a BELIEVER CANNOT GET TO CHRIST AS HE DESIRES.
+I must speak very briefly upon the second point, which is this. THERE ARE TIMES WHEN EVEN a BELIEVER CANNOT GET TO Christ AS HE DESIRES.
 
 Then, thank God there is the prayer of our text&mdash;"Lead me to the Rock that is higher than I." Some people make out faith to be a marvelously easy thing&mdash;and so it is in theory&mdash;but it is the hardest thing in the world in practice. If men are to be saved on the condition of their repenting and believing, they can be no more saved than on the condition of their being perfect, unless there is added to this condition the promise that the God who requires faith will givefaith and work repentance in them! I have been astonished to find, in this age, that there are great preachers and men who, I have no doubt, gather many around them, who tell the people that the condition and the ground of the sinner's justification are his faith, his repentance and his obedience. Why, the ground of our justification is the righteousness of Christ! And as to conditions, there is no condition at all, for God gives justification freely! And He gives faith and He gives repentance, too&mdash;it is all His gift. There never was a man saved by faith or repentance which he performed as a matter of duty. Albeit that the Word of God demands of every man that he should submit himself to God by repentance, and lay hold of Christ by faith, yet no man ever wiilor ever can do this of himself&mdash;it is only the Sovereign will of God and the Sovereign Grace of God that give repentance and faith.
 
@@ -68,7 +68,7 @@ Sometimes God, in His Sovereignty, is pleased to show a man his sin, but not to 
 
 "
 
-We are now coming to that part of the text which most of all delights my soul, the thought of JESUS CHRIST, WHO IS THE ROCK THAT IS HIGHER THAN WE ARE.
+We are now coming to that part of the text which most of all delights my soul, the thought of Jesus Christ, WHO IS THE ROCK THAT IS HIGHER THAN WE ARE.
 
 We have all various standards for measuring things and, after all, men must measure by themselves. If you hear a man praising another, you will generally find that the reason he praises that other is because he sees in him something very much like what he possesses himself. "There," he says, "I love a man who is honest and outspoken." He means, all the while, that he thinks himself a remarkably honest and outspoken man and, therefore, he loves to see himself reproduced in another! After all, we generally measure with our own measuring-rods. We take ourselves to be the standard for other people. A few nights ago I proved this in my own case. Going along Bermondsey, I looked in at the shop windows to see what time it was. One clock said ten minutes to seven, another said seven o'clock, and another said ten minutes past. Then I began to think what a pity it was I had not my own watch with me&mdash;what was that but a belief that my own watch was infallible and that all the clocks were probably wrong? There is a great deal of trying ourselves on the touch-
 

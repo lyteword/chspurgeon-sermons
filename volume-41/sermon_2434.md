@@ -70,7 +70,7 @@ Our chief business just now is not so much to think of what Christ can do in the
 
 The Lord bless you, dear Friends, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 8:1-27.
+Exposition by C. H. Spurgeon: Matthew 8:1-27.
 
 Verses 1, 2. When He was come down from the mountain, great multitudes followed Him. And, behold, there came a leper and worshipped Him. Great multitudes often count for nothing&mdash;it is, here or there, one who is the notable individual. There may be a great company come up outwardly to worship, but it is the soul that comes into contact with Christ that is the most worthy of observation. There is no, "Behold!" when the great multitudes are mentioned by Matthew. But there is a, "Behold!" before the record of the leper coming to Christ&mdash;"Behold, there came a leper and worshipped Him." Let us all be of the leper's mind! Let us worship Christ! Surely we may do so, if only out of gratitude for having escaped from so dire a disease, but, inasmuch as, spiritually, by nature that disease is upon us, we have good reason to come to Jesus as the "leper came and worshipped Him"&mdash;
 

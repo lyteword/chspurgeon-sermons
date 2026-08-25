@@ -1,6 +1,6 @@
 # Sermon 2963 | Unmitigated Prosperity
 
-"The pleasure of the LORD shall prosper in His hands." Isaiah 53:10.
+"The pleasure of the Lord shall prosper in His hands." Isaiah 53:10.
 
 You know that the whole verse says, "Yet it pleased the Lord to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, He shall prolong His days, and the pleasure of the Lord shall prosper in His hands." The last words from our text&mdash;"The pleasure of the Lord shall prosper in His hands."
 
@@ -12,7 +12,7 @@ It may be that the devil thought that the death of Christ was the defeat of Chri
 
 This evening I propose to speak of our Savior's great work and of the way in which it prospers in His hands. Coming close to our text, we shall first examine this interesting description of Christ's work&mdash;it is "thepleasure of the Lord. " We shall then notice how, and in what respects, that work prospers in Christ's hands and, having done so, we shall solicit a little consideration as to our connection with that pleasure of God and that great "hand" and prosperity of which we here read.
 
-From our text it is very clear that THE WORK WHICH JESUS CHRIST HAS UNDERTAKEN IS THE
+From our text it is very clear that THE WORK WHICH Jesus Christ HAS UNDERTAKEN IS THE
 
 FATHER's GOOD PLEASURE. It is the work of bringing His elect out of darkness into light, from nature to Grace and from Grace to Glory. Why is this called "the Father's good pleasure"?
 
@@ -34,7 +34,7 @@ And, dear Friends, I ought to add that the great objective of all saving Grace i
 
 Thus much, then, upon the first point&mdash;the work which Jesus Christ undertakes is the Lord's pleasure.
 
-Now, secondly, THAT WORK GOES ON PROSPEROUSLY IN THE HANDS OF CHRIST since God has made His soul an offering for sin. Let me again give some subdivisions.
+Now, secondly, THAT WORK GOES ON PROSPEROUSLY IN THE HANDS OF Christ since God has made His soul an offering for sin. Let me again give some subdivisions.
 
 That work has prospered in Christ's hands thus far, that all the great difficulties towards its accomplishment have already been surmounted. That work prospers, indeed, which is complete as to its main point. In order that God's pleasure might be accomplished, it was necessary that the gulf should be filled between God and man. It is filled and there is fellowship this day between the almighty Father and His redeemed children! It was necessary that there should be a Sacrifice made to Divine Justice&mdash;the Sacrifice is made&mdash;Justice has received its full demand and Mercy can now range without limit! It was necessary that the sinner should become clean&mdash;the bath is provided for his washing. It was necessary that he should be clothed with righteousness&mdash;the garment is woven from the top throughout without seam. In that gigantic enterprise which Jesus undertook&mdash;the forming of a great highway through the vast bogs and morasses of human guilt and inability, the constructing of that highway over the deep gulf of sin and across the very flames of Hell up to the Throne of God&mdash;all that, with His Cross in His hands, Jesus Christ has achieved and now, from the lowest depths to the loftiest heights, the way to Heaven has no break! It has been finished from the one end to the other&mdash;the great road that leads from the City of Destruction to the City of Refuge is finished by Jesus Christ! Child of God, see how this work prospers&mdash;you are ransomed, you are washed, you are clothed, you are adopted, you are accepted, you have been brought safely up to now&mdash;and all this has been accomplished through Jesus Christ who has made the way so clear that you need not miss it, but may rest assured that if you are trusting in Him, He has made your Heaven secure! In this respect the work prospers.
 
@@ -86,7 +86,7 @@ I am often afraid lest, with such a Church as this, we should not do what the Ch
 
 May we all believe in Jesus and so be His friends! "He that believes and is baptized shall be saved," He says. May we all be led to believe in Jesus and, believing, may we be enlisted on His side&mdash;and, being enlisted, may we fight even to the end and so be partakers of His great reward! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 17:1-10.
+Exposition by C. H. Spurgeon: Luke 17:1-10.
 
 Verse 1. Then said He unto the disciples, It is impossible but that offenses will come: but woe unto him through whom they come! Since the Fall, we are so constituted that there are sure to be differences and disputes. It is a great mercy when men dwell together in unity. "Behold, how good and how pleasant it is." It is a work of Divine Grace! But nature has its lusting and lusting leads to striving. And so, as long as the world is as it now is, "it is impossible but that offenses will come: but woe unto him through whom they come." Let us not, therefore, be either offense givers or offense takers. When anyone offends us, let us say, "It is impossible but that offenses will come," and let us make light of it. And let us be very careful that we do not cause others to offend. As for him through whom the offense comes.
 

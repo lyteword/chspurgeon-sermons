@@ -83,7 +83,7 @@ I want to conclude by earnestly inviting you to come to this Great Physician at 
 
 The sin of twenty thousand years&mdash;if it could be possible for anyone to have sinned so long&mdash;He can take away in a moment when we believe on Him! "Well, but," says one, "I am such an old sinner." I have read that a young lad of the age of 15 heard Mr. Flavel preach and, soon after, he moved to America and settled in a quiet village there. He lived 85 years after that, an unconverted man and, one day, sitting in the field, thinking, he remembered Mr. Flavel's sermon and the earnest way in which he spoke. Old men often remember the things of their youth better than those of yesterday. What Mr. Flavel had preached 85 years before was blessed to that sinner over a hundred years old&mdash;and he sought and found mercy! And he lived some years after that to tell what Divine Love and faithfulness could do! You are not a hundred yet, but if you had wasted a whole century in sin, God's Grace could enable you to begin another century walking in the paths of righteousness to your life's end!
 
-EXPOSITION BY C. H. SPURGEON: LUKE 5:1-32.
+Exposition by C. H. Spurgeon: Luke 5:1-32.
 
 Verses 1, 2. And it came to pass, that, as the people pressed upon Him to hear the Word of God, He stood by the Lake of Gennesaret, and saw two ships standing by the lake: but the fishermen were gone out of them, and were washing their nets. Before folding them up, as if they intended to do no more with them just then, as they had been working all night in vain.
 

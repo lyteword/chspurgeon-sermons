@@ -1,6 +1,6 @@
 # Sermon 2455 | A Cure for a Weak Heart
 
-"Be of good courage, and He shall strengthen your heart, all you that hope in the LORD." Psalm 31:24.
+"Be of good courage, and He shall strengthen your heart, all you that hope in the Lord." Psalm 31:24.
 
 THERE is no preaching like that which grows out of our own experience. You perceive, dear Friends, that David had trusted in the Lord. In very sore and singular trouble God had delivered him and, at the close of that deliverance, he wrote this Psalm, to be sung by the faithful of all times and every clime, and then he gave this exhortation which grew out of his own experience. O my Brothers, we shall never speak to the heart of our hearers unless what we say has been first engraved on our own hearts! The best notes of a sermon are those that are written on our own inner consciousness. If we speak of the things which we have tasted, and handled, and made our own, we speak with a certainty and with an authority which God is pleased to use for the comfort of His people. Think, then, that you can hear David, who has long since fallen asleep, speaking out of his royal tomb and saying, as the result of his own happy experience, "Be of good courage, and He shall strengthen your heart, all you that hope in the Lord."
 
@@ -68,9 +68,9 @@ I have seen a good woman when her husband has just died and all her hope has see
 
 How I wish that all here had trusted in the Lord, or that they would seek Him, even now, if they have never yet found Him! The Lord be gracious to each of you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM31.
+Exposition by C. H. Spurgeon: Psalm31.
 
-Verse 1. In You, O LORD, do I put my trust. Can we say as much as that? However else this Psalm of David may end, it strikes a grand keynote, that which should be the first indication of our spiritual life&mdash;confidence in God. Here is an ancient weather-beaten saint who, in the very midst of the storm, can say, "In You, O Jehovah, do I put my trust." There will the anchor of his soul find a sure hold!
+Verse 1. In You, O Lord, do I put my trust. Can we say as much as that? However else this Psalm of David may end, it strikes a grand keynote, that which should be the first indication of our spiritual life&mdash;confidence in God. Here is an ancient weather-beaten saint who, in the very midst of the storm, can say, "In You, O Jehovah, do I put my trust." There will the anchor of his soul find a sure hold!
 
 Let me never be ashamed. "How can You let me be put to shame after having trusted in You, O my God? I shall be ashamed if You forsake me, if Your promises are not kept to me, O my Lord! Therefore, 'let me never be ashamed.'"
 
@@ -88,7 +88,7 @@ Pull me out of the net that they have laid privily for me: for You are my streng
 
 Into Your hands I commit my spirit. You notice that this Psalm is dedicated to the chief musician. I have studied these Psalms, not only by the hour, and by the day, but sometimes by the month, together. Some of these Psalms have been the pillow for my head at night. Others of them, like wafers made of honey, have lain in my mouth till I have sucked out of them their Divine sweetness. I have often noticed that when one of these sacred songs is dedicated to the chief musician, The Chief Musician generally appears somewhere in the Psalm&mdash;He from whom comes all the music that ever makes bleeding hearts, glad, usually shows some traces of Himself within the Psalm itself! In this instance, the living words of David were the dying words of David's Lord&mdash;"Into Your hands I commend My spirit." What David did and what the Lord Jesus Christ did, let us do, and do it every day&mdash;let us commit our spirit into the hands of our God.
 
-5, 6. You have redeemed me, O LORD God of Truth, I have hated them that regard lying vanities: but I trust in the LORD. Men are sure to have some kind of trust or other on which they rely. In David's day some trusted to false gods, others relied upon their own strength. The Psalmist does not speak in soft tones concerning these people, but he says, "I
+5, 6. You have redeemed me, O Lord God of Truth, I have hated them that regard lying vanities: but I trust in the Lord. Men are sure to have some kind of trust or other on which they rely. In David's day some trusted to false gods, others relied upon their own strength. The Psalmist does not speak in soft tones concerning these people, but he says, "I
 
 could not bear them. 'I have hated them that regard lying vanities.' I would not come into their secret, or have any connection with them. I was astonished at them, that they should turn away from God! But as for myself, 'I trust in Jehovah.'" Look how he comes back to the note with which he started&mdash;"In You, O Jehovah, do I put my trust"&mdash;and now he repeats it, "I trust in Jehovah." It is an unfashionable thing&mdash;many will not do it&mdash;yet David says, "I trust in Jehovah," as if he dared to stand alone and did not mind how singular he seemed to be.
 
@@ -106,7 +106,7 @@ You have set my feet in a large room&mdash;
 
 Wherever the child of God is when his faith is in active exercise, his feet are in a large room&mdash;by faith he walks at liberty!
 
-Have mercy upon me, O LORD, for I am in trouble. In this short sentence of four words&mdash;"I am in trouble"&mdash; David gives the text of which the next few verses are a kind of sermon with divisions and subdivisions.
+Have mercy upon me, O Lord, for I am in trouble. In this short sentence of four words&mdash;"I am in trouble"&mdash; David gives the text of which the next few verses are a kind of sermon with divisions and subdivisions.
 
 My eyes are consumed with grief. "My eyes seem burnt up with scalding tears." The salt of our tears wears out the very strength of our life. "My eyes are consumed with grief."&mdash;
 
@@ -126,13 +126,13 @@ I am forgotten as a dead man out of mind: I am like a broken vessel. This was th
 
 For I have heard the slander of many. To have one slanderer attacking your character is bad enough, but to have many such cruel enemies about you&mdash;to have a whole brood of Hell's hornets, as it were, stinging you&mdash;oh, what misery is this! You who, happily, have never experienced this torture, cannot imagine what agony it causes. I hope you may never know it.
 
-13, 14. Fear was on every side: while they took counsel together against me, they devised to take away my life. But I trusted in You, O LORD. Here he is back on the old Rock, and rejoicing as his feet stand once more on this firm foundation&mdash;"I trusted in you, O Jehovah."
+13, 14. Fear was on every side: while they took counsel together against me, they devised to take away my life. But I trusted in You, O Lord. Here he is back on the old Rock, and rejoicing as his feet stand once more on this firm foundation&mdash;"I trusted in you, O Jehovah."
 
 14, 16. I said, You are my God. My times are in Your hand. "My enemies cannot do anything against me without Your permission." Divine Providence is a downy pillow for an aching head, a blessed salve for the sharpest pain. He who can feel that his times are in the hand of God need not tremble at anything that is in the hand of man!
 
 15, 16. Deliver me from the hand of my enemies, and from them that persecute me. Make Your face to shine upon Your servant: save me for Your mercies' sake. "If Your face shines upon me, Lord, they may look as black as they please. If You will but deliver me, I care not how cruelly they persecute me. If You will save me, who can destroy me?" O you who are in trouble at this time, hasten to your God! Where should the little bird fly when pursued by the hawk, but to its shelter in the rock? Where can you go, O sheep of Christ's flock, but to your Shepherd?
 
-Let me not be ashamed, O LORD; for I have called upon You: let the wicked be ashamed, and let them be silent in the grave. There is something of the harshness of the old dispensation about that prayer, so we will turn it into a prophecy and say, "The wicked shall be ashamed&mdash;they shall be silent in the grave."
+Let me not be ashamed, O Lord; for I have called upon You: let the wicked be ashamed, and let them be silent in the grave. There is something of the harshness of the old dispensation about that prayer, so we will turn it into a prophecy and say, "The wicked shall be ashamed&mdash;they shall be silent in the grave."
 
 19. Let the lying lips be put to silence, which speak grievous things proudly and contemptuously against the righteous. Oh how great is Your goodness which You have laid up for them that fear You. Is not that a blessed expression to be used by the man who said that his life was spent with grief and his years with sighing?
 
@@ -140,8 +140,8 @@ Which You have worked for them that trust in You before the sons of men! Not onl
 
 You shall hide them in the secret of Your Presence from the pride of man: You shall keep them secretly in a pavilion from the strife of tongues. They shall not be wounded by all the malice of their adversaries&mdash;they shall be preserved in the King's royal pavilion.
 
-21-23. Blessed be the LORD for He has showed me His marvelous kindness in a strong city. For I said in my haste, I am cut offfrom before Your eyes: nevertheless You heard the voice of my supplications when I cried unto You. O love the LORD, all you His saints. See what a fountain of happiness there is in the Psalmist's heart? He longs for all the saints to love the
+21-23. Blessed be the Lord for He has showed me His marvelous kindness in a strong city. For I said in my haste, I am cut offfrom before Your eyes: nevertheless You heard the voice of my supplications when I cried unto You. O love the Lord, all you His saints. See what a fountain of happiness there is in the Psalmist's heart? He longs for all the saints to love the
 
 Lord!
 
-23, 24. For the LORD preserves the faithful, and plentifully rewards the proud doer. Be of good courage, and He shall strengthen your heart, all you that hope in the LORD. In this Psalm we have heard the wail of the sackbut and the clashing of the cymbals&mdash;but we finish with the blast of the silver trumpets!
+23, 24. For the Lord preserves the faithful, and plentifully rewards the proud doer. Be of good courage, and He shall strengthen your heart, all you that hope in the Lord. In this Psalm we have heard the wail of the sackbut and the clashing of the cymbals&mdash;but we finish with the blast of the silver trumpets!

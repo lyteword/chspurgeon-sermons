@@ -27,7 +27,7 @@ We open the Book with this prayer, "Speak, Lord, for Your servant hears." And we
 
 In trying to handle my text there will be three points to dwell upon. First, the quality of the Words of God&mdash;"The Words of the Lord are pure words." Secondly, the trials of the Words of God&mdash;"As silver tried in a furnace of earth, purified seven times." And then, thirdly, the claims of these words derived from their purity and the trials which they have undergone. Eternal Spirit, help me to speak correctly concerning Your own Word and help us to feel aright while we hear!
 
-First, then, beloved Friends, consider THE QUALITY OF THE WORDS OF GOD&mdash;"The Words of the Lord are pure words."
+First, then, beloved Friends, consider THE QUALITY OF THE WORDS OF God&mdash;"The Words of the Lord are pure words."
 
 From this statement I gather, first, the uniformity of their character. No exception is made to any of the Words of God but they are all described as "pure words." They are not all of the same character. Some are for teaching, others are for comfort and others for rebuke. But they are so far of a uniform character that they are all "pure words." I conceive it to be an evil habit to make preferences in Holy Scripture. We must preserve this volume as a whole. Those sin against Scripture who delight in doctrinal texts but omit the consideration of practical passages.
 
@@ -83,7 +83,7 @@ Unchanged, unchangeable are the Words of the Ever Blessed. They are as silver wi
 
 He that spoke these Words is Infallible and therefore they are Infallible. When did He ever err? Could He err and yet be God? "Has He said and shall He not do it? Or has He spoken and shall He not make it good?" Rest you sure of this&mdash; "The Words of the Lord are pure words." But time hastens me on to the next point.
 
-Secondly and carefully let us consider THE TRIALS OF THE WORDS OF GOD. They are said to be as silver,
+Secondly and carefully let us consider THE TRIALS OF THE WORDS OF God. They are said to be as silver,
 
 which has been tried in a furnace. The Words of God have been tested by blasphemy, by ridicule, by persecution, by criticism, and by candid observation. I shall not attempt an oratorical flight while describing the historical tests of the precious metal of Divine Revelation&mdash;but I shall mention trials of a commonplace order which have come under my own notice and probably under yours also. This may be more homely but it will be more edifying. The Lord help us!
 
@@ -121,7 +121,7 @@ Brethren, it is not hard to pass out of this world when we are resting on that o
 
 Now, if this Inspired Volume with its wonderful record of the Words of God helps us in the trials of life&mdash;directs us in our daily paths and enables us to weather the last great storm&mdash;surely it is precious beyond description, "as silver tried in a furnace of earth purified seven times."
 
-Now thirdly, what are THE CLAIMS OF THESE WORDS OF THE LORD? The claims of these words are many. First, they deserve to be studied. Beloved, may I urge upon you the constant searching of Inspired Scripture?
+Now thirdly, what are THE CLAIMS OF THESE WORDS OF THE Lord? The claims of these words are many. First, they deserve to be studied. Beloved, may I urge upon you the constant searching of Inspired Scripture?
 
 Here is the latest new novel! What shall I do with it? Cast it to the ground. Here is another piece of fiction which has been very popular! What shall I do with it? Throw it on one side, or thrust it between the bars of the grate. This Sacred Volume is the freshest of novels. It would be, to some of you, an entirely new book. We have a society for providing the Bible for readers but we greatly need readers of the Bible. I grieve that even to some who bear the Christian name, Holy Scripture is the least read book in their library.
 

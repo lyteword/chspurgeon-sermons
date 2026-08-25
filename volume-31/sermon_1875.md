@@ -102,6 +102,6 @@ O my Brothers and Sisters, if this is your hearty consent to Infinite Love, then
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;John 7. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;906, 492, 500.
 
-NOTE FROM MR. SPURGEON:
+NOTE FROM MR. Spurgeon:
 
-LEAVING home in great weakness, I beg the loving sympathy of my friends towards my orphan family of 500 children. Generous donations at this season would be greatly valued by me. Direct them to C. H. SPURGEON, Westwood, Beulah Hill, Upper Norwood.
+LEAVING home in great weakness, I beg the loving sympathy of my friends towards my orphan family of 500 children. Generous donations at this season would be greatly valued by me. Direct them to C. H. Spurgeon, Westwood, Beulah Hill, Upper Norwood.

@@ -115,4 +115,4 @@ Get up, Believers! Get up to your high mountain! Leave your dunghills and assume
 
 I know you will say you cannot see this. However, it is there&mdash;most surely there! It is just the same as in Hagar's case, with you&mdash;the same but with a difference. The fullness of fellowship with Christ is attainable! It is close to you and if you have your eyes opened to see it, as it has been given you to see Jesus as your Savior, you may rejoice w with a joy unspeakable and full of glory! God do so to you and more, also, according to His Covenant goodness in Christ Jesus. Amen and Amen.
 
-PORTIONS SOF SCRIPTURE READ BEFORE SERMON&mdash;GENESIS 21:9-19; LIKE 24:13-31
+PORTIONS SOF SCRIPTURE READ BEFORE SERMON&mdash;Genesis 21:9-19; LIKE 24:13-31

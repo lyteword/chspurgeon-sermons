@@ -65,7 +65,7 @@ Why, Sirs, when your servile works are done to gain a righteousness, do you thin
 
 I say, and with this I leave the point, that that Worship, and that worship only, which is for God and not for self in any sense, God accepts. And whether it is with a view to temporal profit, or from mere custom, or with a view to merit, that we attend to spiritual ordinances, rites, ceremonies, or what not&mdash;we have done nothing that God can receive&mdash; and we might as well have left the whole undone.
 
-But now I shall turn to a wider circle for a moment or two. BY THIS WE MAY TEST ALL THE OTHER RELIGIOUS ACTS OF MEN.
+But now I shall turn to a wider circle for a moment or two. by THIS WE MAY TEST ALL THE OTHER RELIGIOUS Acts OF MEN.
 
 Many a brave deed has been done with the sound of which the world has rung for years which nevertheless has never been received by the Most High. Some have served God out of ostentation, that they might show what great things they could do. Remember Jehu when he said, "Come, see my zeal for the Lord God of Hosts." Jehu has many imitators.
 

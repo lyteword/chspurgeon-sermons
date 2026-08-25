@@ -115,7 +115,7 @@ Now trust the Lord Jesus Christ. That is the way of salvation! "Look unto Me and
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;605, 202, 568.
 
-EXPOSITION BY C. H. SPURGEON: HOSEA11.
+Exposition by C. H. Spurgeon: Hosea11.
 
 Verse 1. When Israel was a child. When the nation was yet young and had scarcely started on its march among the peoples of the earth&mdash;"When Israel was a child"&mdash;
 
@@ -147,8 +147,8 @@ I will not execute the fierceness of My anger, I will not return to destroy Ephr
 
 The Holy One in the midst of you: and I will not enter into the city. That is, the Lord says, "I will not come into it to see all its iniquities, lest in My wrath I smite and destroy it." How tenderly does God bear with wicked men! How great is His long-suffering! How graciously He seems to close His eyes, as if He would not see that which must bring upon us swift destruction if He looked upon it in His righteous anger!
 
-They shall walk after the LORD. It is a great blessing when men begin to seek the Lord whom they formerly shunned. This proves that there has been worked in them a complete change of heart.
+They shall walk after the Lord. It is a great blessing when men begin to seek the Lord whom they formerly shunned. This proves that there has been worked in them a complete change of heart.
 
 He shall roar like a lion: when He shall roar, then the children shall tremble from the west. God's terrible voice often makes men tremble and that is one proof of the working of His Grace in their hearts, for they tremble before Him and flee unto Him.
 
-11, 12. They shall tremble as a bird out of Egypt, and as a dove out of the land of Assyria: and I will place them in their houses, says the LORD. Ephraim compasses me about with lies, and the house of Israel with deceit: but Judah yet rules with God and is faithful with the saints. There are still some left to serve Jehovah! There is a remnant according to the Election of Grace even in the very worst of times. "Judah yet rules with God and is faithful with the saints." May we be found among the faithful few! Amen.
+11, 12. They shall tremble as a bird out of Egypt, and as a dove out of the land of Assyria: and I will place them in their houses, says the Lord. Ephraim compasses me about with lies, and the house of Israel with deceit: but Judah yet rules with God and is faithful with the saints. There are still some left to serve Jehovah! There is a remnant according to the Election of Grace even in the very worst of times. "Judah yet rules with God and is faithful with the saints." May we be found among the faithful few! Amen.

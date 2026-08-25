@@ -12,7 +12,7 @@ There are a few works of art and wonders of creation which you might gaze upon e
 
 Even thus is it with that sea of all delights which is found in the dear Lover of our souls. We come, then, to the old subject of this old text and may the blessed Spirit give us new unction while we meditate upon it. Note, first, our Lord's personal name, Jesus Christ. Notice, secondly, His memorable attribute&mdash;"He is the same yesterday and today and forever.''" And then let us have a few words about His evident claims derived from the possession of such a Character.
 
-First, then, the personal names of our Lord here mentioned&mdash;"JESUS CHRIST." "JESUS" stands first. That is our Lord's Hebrew name, "Jesus," or, "Joshua." The word signifies, a Savior, "for He shall save His people from their sins." It was given to Him in His cradle&mdash;
+First, then, the personal names of our Lord here mentioned&mdash;"Jesus Christ." "Jesus" stands first. That is our Lord's Hebrew name, "Jesus," or, "Joshua." The word signifies, a Savior, "for He shall save His people from their sins." It was given to Him in His cradle&mdash;
 
 "Cold on His cradle the dewdrops are shining, Low lies His head with the beasts of the stall. Angels adore Him, in slumber reclining, Maker and Monarch and Savior of all." While He was yet an Infant hanging on His mother's breast, He was recognized as Savior, for the fact of God's becoming Incarnate was the sure pledge, guarantee and commencement of human salvation. At the very thought of His birth the virgin sang, "My spirit has rejoiced in God my Savior." There is hope that man shall be lifted up to God, when God condescends to come down to man! Jesus in the manger deserves to be called the Savior, for when it can be said that, "the tabernacle of God is with men and He does dwell among them," there is hope that all good things will be given to the fallen race.
 
@@ -28,7 +28,7 @@ On Calvary was it seen that the Son of Man saved others, though, through blessed
 
 To be shown what we ought to be, without having any method set before us by which we could attain to it were to mock our misery! But Jesus first draws us up out of the horrible pit into which we were fallen, takes us out of the miry clay by the efficacy of His atoning Sacrifice and then, having set our feet upon a rock by virtue of His merits, He Himself leads the way onward to perfection! And so is He Savior both in life and in death&mdash;
 
-"That JESUS saves from sin and Hell, Is truth Divinely sure. And on this Rock our faith may rest Immovably secure.'
+"That Jesus saves from sin and Hell, Is truth Divinely sure. And on this Rock our faith may rest Immovably secure.'
 
 Still bearing the name of Jesus, our Lord rose from the dead. The Evangelists delight in calling Him Jesus&mdash;in His appearance to Magdalene in the garden&mdash;in His manifestation of Himself to the disciples when they were together, the doors being shut. He is always Jesus with them as the risen One. Beloved, since we are justified by His Resurrection, we may well regard Him as Savior under that aspect. Salvation is still more linked with a risen Christ, because we see Him, by His Resurrection, destroying death, breaking down the prison of the sepulcher, bearing away like another Samson the gates of the grave. He is a Savior for us since He has vanquished the last enemy that shall be destroyed, that we, having been saved from sin by His death should be saved from death through His Resurrection.
 

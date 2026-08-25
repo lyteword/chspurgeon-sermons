@@ -15,7 +15,7 @@ We do not marvel at the crimes of the ancients when we recollect the gods whom t
 
 To get at this we must meditate for two or three minutes upon what the Gospel is, then take up the points in which our conversation ought to be like to the Gospel. And finally, utter a few earnest words to press upon professors of religion here the stern necessity of letting their conversation be such as becomes the Gospel of Christ.
 
-"THE GOSPEL OF CHRIST!" WHAT IS IT? We look at the last two words, "of Christ." Indeed, if you understand Christ you understand the Gospel. Christ is the Author of it. He, in the council chamber of eternity proposed to become the Surety for poor fallen man! He, in the fullness of time, worked out eternal redemption for as many as His Father had given Him. He is the Author of it as its Architect and as its Builder. We see in Christ Jesus the Alpha and the
+"THE GOSPEL OF Christ!" WHAT IS IT? We look at the last two words, "of Christ." Indeed, if you understand Christ you understand the Gospel. Christ is the Author of it. He, in the council chamber of eternity proposed to become the Surety for poor fallen man! He, in the fullness of time, worked out eternal redemption for as many as His Father had given Him. He is the Author of it as its Architect and as its Builder. We see in Christ Jesus the Alpha and the
 
 Omega of the Gospel. He has provided, in the treasury of Grace, all that is necessary to make the Gospel the Gospel of our salvation.
 

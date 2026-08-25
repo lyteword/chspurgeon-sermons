@@ -31,7 +31,7 @@ When we bow lowest before His Throne, let not our humble bending have anything o
 
 Thus we come to the text, having used the connection as a step to its door. On the text I make three observations&mdash; first, we have sometimes very vivid impressions of God. Job said, "I have heard of You by the hearing of the ear: but now my eye sees You." In the second place, when we are favored with these clearer views of God, we have lower thoughts of ourselves&mdash;"wherefore I abhor myself." And thirdly, whenever we are thus made low, our heart is filled with repentance&mdash;"I abhor myself and repent in dust and ashes." May the Holy Spirit aid us in this experimental meditation!
 
-First, then, WE HAVE SOMETIMES VERY VIVID IMPRESSIONS OF GOD. Job had long before heard of God
+First, then, WE HAVE SOMETIMES VERY VIVID IMPRESSIONS OF God. Job had long before heard of God
 
 and that is a great matter. I do not think he meant merely that he had heard men speak of God but that he had really, for himself, heard God's voice. He had been a reverent Believer in the teachings of God and an obedient servant to His commands&mdash;thus he had really heard God. The man who can say this can say a great deal. If God has ever been on speaking terms with you, you have much cause for gratitude. It is clear that you are not dead in sin, or if you were so when the Lord spoke to you, you are now alive. For His voice causes the dead to live.
 
@@ -63,7 +63,7 @@ I need not tarry to say to you that all through that wonderful address of the Lo
 
 Notice how by the Lord's first words Job was silenced and could only whisper," Behold I am vile, what shall I answer You? I will lay my hand upon my mouth. Once have I spoken. But I will not answer: yes, twice. But I will proceed no further." Thus far he worshipped. But he must yet go further, until he cries, "I abhor myself and repent in dust and ashes."
 
-We have now reached our second point&mdash;WHEN WE HAVE THESE VIVID APPREHENSIONS OF GOD, WE HAVE LOWER VIEWS OF OURSELVES.
+We have now reached our second point&mdash;WHEN WE HAVE THESE VIVID APPREHENSIONS OF God, WE HAVE LOWER VIEWS OF OURSELVES.
 
 Why are the wicked so proud? It is because they forget God. Why did Pharaoh dare to say, "Who is the Lord, that I should obey His voice?" It was because he did not know Jehovah. But after those ten plagues, he altered his tone and cried out, "Entreat the Lord" (for it is enough). Even his great pride was forced to bow before Jehovah when judgments were let loose upon him. If men knew God, how it would change their thoughts and talk! If they could have even an indistinct idea, "by the hearing of the ear," many of them would never be so irreverent as they now are, nor so lofty in their ideas of their own wisdom. If they could "see" Him as Job did and behold His inexpressible glory, they would become far more meek and lowly.
 

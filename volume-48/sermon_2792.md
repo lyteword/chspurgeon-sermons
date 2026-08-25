@@ -30,7 +30,7 @@ The Psalmist asks, " Who shall stand?" as if he felt that he could not himself d
 
 Let us, therefore, all repeat this confession of the Psalmist and acknowledge that we are all guilty before God, for it is clear that no mercy can come to us until we are willing to put ourselves in the position where mercy can rightly deal with us. Mercy is for the guilty, forgiveness is for the unrighteous&mdash;so, if we will not class ourselves among the guilty and the unrighteous, mercy and forgiveness can never come to us!
 
-Now, secondly, we come to THE PSALMIST's CONFIDENCE. Although he felt that none could stand before God by themselves, yet he said, "But there is forgiveness with You." How did he know that? And how do we know it?
+Now, secondly, we come to THE PsalmIST's CONFIDENCE. Although he felt that none could stand before God by themselves, yet he said, "But there is forgiveness with You." How did he know that? And how do we know it?
 
 Well, we know that there is forgiveness with God, because we have been informed by Revelation concerning the Character of God&mdash;and we find one prominent feature in the Character of God is that "He delights in mercy." It gives Him the greatest possible pleasure when He can righteously forgive sin. He needs not to be entreated, as though He were slow to pardon, for it is one of His special joys to cast iniquity into the depths of the sea! God's Character, as it is revealed to us in the Scriptures, convinces us that there is forgiveness with Him!
 

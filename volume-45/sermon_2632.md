@@ -78,7 +78,7 @@ Before we go, we will sing that very solemn hymn in Mr. Sankey's book, "What Sha
 > Gathered in time, or eternity,   
 > Sure, ah, sure, will the harvest be!   
 
-EXPOSITION BY C. H. SPURGEON: GALATIANS 5:13-26; GALATIANS 6:1-10.
+Exposition by C. H. Spurgeon: Galatians 5:13-26; Galatians 6:1-10.
 
 Remember, beloved Brothers and Sisters, that the Epistle to the Galatians is one in which Paul, with especial clearness, proves the Doctrine of Justification by Faith Alone. So much is this the case that the famous Commentary of Martin Luther upon this Epistle is, perhaps, the strongest work extant upon the Doctrine of salvation by Grace through faith. But that doctrine was never intended to be separated from the Scriptural teaching concerning the fruit of faith, namely, good works and, therefore, we find, in the close of this very Epistle, the strongest possible declaration that if men live in sin, they will reap the result of sin&mdash;and that only if, by Grace, they are brought to walk in holiness, will they win the rewards of Grace.
 

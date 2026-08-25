@@ -16,7 +16,7 @@ The Gentiles seemed to have been passed by and left to perish. But now, behold t
 
 I want you, dear Friends, to look upon Christ's triple Character as it is described in our text. And, first, we may see Him, here, in three Characters or relationships in which we shall next see three excellencies, demanding from us three duties, and ensuring three benefits.
 
-First, then, let us, with believing eyes, SEE OUR LORD IN THREE CHARACTERS OR RELATIONSHIPS.
+First, then, let us, with believing eyes, SEE OUR Lord IN THREE CHARACTERS OR RELATIONSHIPS.
 
 First, He is a Witness for the Father. Secondly, He is a Leader for His saved people. And, thirdly, He is a Commander for those who, as yet, are not saved, of whom the next verse says, "You shall call a nation that You know not, and nations that knew not You shall run unto You."
 
@@ -40,7 +40,7 @@ But I think there is more in this title of Christ than the mere fact of His maki
 
 speak, and say to the careless soul, "Turn from your wicked way, and begin to think," you shall see the careless one become thoughtful and repent of his sin and trust his Savior! If He shall find some Zacchaeus, and say to him, "Today I must abide at your house," He will abide at that house! If, tonight, Christ must go through Newington Butts&mdash;as it was written, "He must needs go through Samaria"&mdash;He will find some woman who little thought that she would ever meet with Him, and she shall afterwards say, as did that other woman, "Come see a Man, who told me all things that I ever did: is not this the Christ?" If there were no Divine Power over the will of man, no man would ever be saved. If, the Gospel being preached, it were left to men to accept it or reject it&mdash;and there were no exercise of Divine Power to lead them to receive it, we might preach our tongues out, we might weep our eyes out, we might pray till our knees refused any longer to bear us up&mdash;but never a soul would come to Christ! But He is set forth, first, as a Witness to the Truth of God. Next, as an Example, setting that Truth before us in His life and then, further, clothed with Divine Authority and girt about with Almighty Power, making the Truth to be effectual so that men come to Him, and live! Witness, Leader, Commander&mdash;you see the range and compass of our great Master's work. God grant us Grace to accept Him in all three relationships!
 
-Now, secondly, I am to speak briefly upon THE THREE EXCELLENCIES OF CHRIST IN CONNECTION WITH THESE THREE OFFICES.
+Now, secondly, I am to speak briefly upon THE THREE EXCELLENCIES OF Christ IN CONNECTION WITH THESE THREE OFFICES.
 
 First, is Christ a Witness? Then He is a true Witness. There are no falsehoods or mistakes in the Witness which Christ bears concerning His Father. He is intimately acquainted with the Father, for He came forth from the Father and, therefore, His testimony is wholly reliable. That which He had seen and heard of the Father, even that He made known to us. There is no possibility of the entrance of any error into the mind of Christ&mdash;all His utterances are Infallible Truths of God, for the Spirit of God was upon Him and in Him without measure. It is a trite saying, but a very comforting one, that whenever Christ speaks a good word to a sinner, He speaks according to the mind of His Father. Whenever He promises rest and peace, and pardon, to those that come unto Him, He promises all this in His Father's name and on His Father's behalf. So, if you have laid hold of Christ, you have not grasped a sham or a counterfeit. It is all true&mdash;in fact, He is the Truth of God as well as the Way and the Life! He will never deceive you, or mislead you&mdash;you can be sure of that!
 
@@ -86,7 +86,7 @@ tive and, if the Church will but preach Christ, she will always have the best at
 
 So, Beloved, I put it to you&mdash;Christ being true, do you believe Him? Christ being holy, do you imitate Him? Christ being clothed with Divine Authority and Power, do you obey Him? May those questions sink into your souls&mdash;and may you be able to answer each one of them in the affirmative!
 
-For, lastly, there are THREE BENEFITS WHICH WILL BE SECURED BY THE PERFORMANCE OF
+For, lastly, there are THREE BENEFITS WHICH WILL BE SECURED by THE PERFORMANCE OF
 
 THESE DUTIES.
 

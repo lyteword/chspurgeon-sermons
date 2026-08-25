@@ -75,7 +75,7 @@ What is the best way to reach this point? Not to be great sinners, but to feelth
 
 God bless this message to those poor trembling souls who are deeply in debt through sin&mdash;that they may see God's way of forgiving them through the merits and death of His dear Son, Jesus Christ. And may those who are forgiven much love Jesus much, and may God bless you all, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 7:36-50.
+Exposition by C. H. Spurgeon: Luke 7:36-50.
 
 Verse 36. And one of the Pharisees desired Him that He would eat with him. And He went into the Pharisee's house, and sat down to meat It was usually a suspicious circumstance when a Pharisee desired to be familiar with Christ. It might generally be suspected that he wished to entrap Him. Yet, on this occasion, if there was no real friendliness to Christ, there was at least the appearance of it. We see what our Savior did when the Pharisee gave Him an invitation&mdash; "He went into the Pharisee's house, and sat down to meat." The Lord saw there an opportunity for usefulness. He knew that He would have a good reason for speaking personally to this Pharisee, who, perhaps, was one of the better sort. At all events, our Lord felt that it was right for Him to go into that house, even if they did watch Him and try to catch Him in His talk. If there was hypocrisy there, there was the more need for His Presence, as Jesus Himself said concerning His eating with publicans and sinners, "They that are whole need not a physician; but they that are sick."
 

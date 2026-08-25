@@ -8,7 +8,7 @@ My dear Brothers and Sisters, we all know as a matter of doctrine, but we have n
 
 Thus the riddle becomes solved, the parable is expounded, the dark saying of David's day shines clearly in Gospel light! You can see not only how it is possible that the same Psalm can relate to David and to David's Lord, but that there is a Divine mystery and a most rich and precious lesson couching beneath the fact that the Holy Spirit has chosen to set forth the doings, the sufferings and the triumphs of Christ under the figure or model of the doings, sufferings and victories of the son of Jesus! You will not, therefore, be surprised to hear me remark that this text has relation to Christ and the Believer, too. The doings and triumphs of Jesus must, accordingly, first engage our attention and, in the second place, observe that we have here a picture of the wondrous doings of faith when the Believer is enabled to triumph over every earthly ill and over every human opposition&mdash;"By you I have run through a troop; and by my God have I leaped over a wall."
 
-Let us take the first sentence WITH REGARD TO CHRIST.
+Let us take the first sentence WITH REGARD TO Christ.
 
 "By You I have run through a troop."How accurately Christ's enemies are here described! By their number they were a troop. The Captain of our salvation, although single-handed in the combat, had to fight with a legion of foes. It was not a mere duel. It is true there was but one on the Victor's side, but there was an innumerable host in antagonism to Him. Not only the Prince of Darkness, but all the powers and the principalities thereof came against Him. Not merely sin in the mass, but sin in daily temptations of every kind and sin of every shade and form&mdash;not only from earth a host of
 

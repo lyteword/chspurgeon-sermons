@@ -12,7 +12,7 @@ This morning I trust I shall not be guilty of attracting your attention for a si
 
 We shall come to the text at once, and observe, first, the humiliating doctrine which it teaches. Then we shall occupy the rest of your time by mentioning the kindred doctrines of which it reminds us.
 
-FIRST NOTICE THE HUMILIATING TRUTH which the Savior here sets forth. He tells us that out of the heart all sorts of moral evils proceed. He selects not the milder forms of sin but the grosser shades&mdash;adulteries, murders, blasphemies&mdash;these are words of no common import&mdash;and stand for sins of no common dye. The accusation laid against human nature here is one of the most solemn that could possibly be put into words. The Savior has not minced matters in any degree nor chosen smooth forms of speech. He has selected the grossest shapes of human sin and He has said that all these come out of the human heart.
+FIRST NOTICE THE HUMILIATING TRuth which the Savior here sets forth. He tells us that out of the heart all sorts of moral evils proceed. He selects not the milder forms of sin but the grosser shades&mdash;adulteries, murders, blasphemies&mdash;these are words of no common import&mdash;and stand for sins of no common dye. The accusation laid against human nature here is one of the most solemn that could possibly be put into words. The Savior has not minced matters in any degree nor chosen smooth forms of speech. He has selected the grossest shapes of human sin and He has said that all these come out of the human heart.
 
 There have been men who have asserted that sins are merely accidents of man's position. But the Savior says they come out of his heart. Some have affirmed that they are mistakes of his judgment&mdash;that the social system bears so harshly at certain points that men can scarcely do otherwise than offend&mdash;for their judgment misleads them. The Savior, how-
 
@@ -76,7 +76,7 @@ Some fellows are lazy enough on Monday and make a saint's day of it. And yet Sun
 
 We have been preserved from known outward sin, but we have to mourn over the terrible evils of our heart. And being willing to endorse the indictment, and personally to plead guilty, we are the more confident in bringing it forward and saying, "This is the case with the whole race of man, without a single exception! We must all stand guilty before God." Not one heart by nature is right with God&mdash;Jew and Gentile are all under sin&mdash;"We are all gone out of the way, we are altogether become unprofitable: there is none that does good, no not one."
 
-We shall now turn aside to notice THE TRUTHS WHICH ARE CONNECTED WITH THIS HUMBLING
+We shall now turn aside to notice THE TRuthS WHICH ARE CONNECTED WITH THIS HUMBLING
 
 FACT. First observe that receiving our Lord's testimony concerning our hearts&mdash;that they have become dens of evil, that out of them comes evil thoughts, fornication, theft, and so on&mdash;we are driven to believe in the doctrine of the Fall. If we are in this state, it is inconceivable that God should have made us so! A pure and holy Being must have been the creator of pure and holy beings.
 

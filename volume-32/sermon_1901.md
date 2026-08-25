@@ -34,7 +34,7 @@ It is worthwhile to spend a year upon the conversion of a single woman, yes, wor
 
 Thus the Master found satisfying meat&mdash;meat little known, even by His disciples and, therefore, He said, "I have meat to eat that you know not of."
 
-Advance with me, dear Friends, to our second theme&mdash;THESE SECRET REFRESHMENTS SATISFIED OUR LORD. I bring this forward to remind you that where He found refreshment, we, also, should find it. Why did it satisfy our Lord to be doing the will of Him that sent Him and to be finishing His work?
+Advance with me, dear Friends, to our second theme&mdash;THESE SECRET REFRESHMENTS SATISFIED OUR Lord. I bring this forward to remind you that where He found refreshment, we, also, should find it. Why did it satisfy our Lord to be doing the will of Him that sent Him and to be finishing His work?
 
 Well, first, because He had so long hungered to be at it. For thousands of years the Christ had longed to be here among men. He said, "My delights were with the sons of men." Before He actually appeared in human flesh and blood, our Lord made many appearances in different forms because He was eager to be at His work. And when He was born, while He was yet a Boy, He said, "Know you not that I must be about My Father's business?" This was the spirit of Him all His life. "I have a baptism to be baptized with and how am I straitened until it is accomplished!" He longed to be at
 

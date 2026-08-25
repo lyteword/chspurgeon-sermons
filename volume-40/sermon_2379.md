@@ -102,11 +102,11 @@ longer, one upon another, but up and away to the Christ who has a superabundance
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash; 531, 375, 435.
 
-EXPOSITION BY C. H. SPURGEON: Isaiah 48.
+Exposition by C. H. Spurgeon: Isaiah 48.
 
-Verse 1. Hear you this, O house of Jacob, which are called by the name of Israel, and are come forth out of the waters of Judah, which swear by the name of the LORD, and make mention of the God of Israel, but not in truth, nor in righteousness. There were always false professors and, I suppose, there always will be till Christ comes. A Judas was among the 12 Apostles and we cannot wonder that we find such in every Church&mdash;but what a dreadful thing it is to wear the name of God and yet not really to serve Him&mdash;to be called Christians and yet not to be like Christ! It must be a very God-provoking thing to be called by His name and then insult it by not being true to it.
+Verse 1. Hear you this, O house of Jacob, which are called by the name of Israel, and are come forth out of the waters of Judah, which swear by the name of the Lord, and make mention of the God of Israel, but not in truth, nor in righteousness. There were always false professors and, I suppose, there always will be till Christ comes. A Judas was among the 12 Apostles and we cannot wonder that we find such in every Church&mdash;but what a dreadful thing it is to wear the name of God and yet not really to serve Him&mdash;to be called Christians and yet not to be like Christ! It must be a very God-provoking thing to be called by His name and then insult it by not being true to it.
 
-For they call themselves of the holy city, and stay themselves upon the God of Israel; The LORD of Hosts is His name. They profess to trust Him, but they do not love Him&mdash;"they call themselves of the holy city," but they certainly are not holy citizens. Ah me, that God should have to speak to men upon such a matter as this! It is self-evidently wicked, but they will not see it.
+For they call themselves of the holy city, and stay themselves upon the God of Israel; The Lord of Hosts is His name. They profess to trust Him, but they do not love Him&mdash;"they call themselves of the holy city," but they certainly are not holy citizens. Ah me, that God should have to speak to men upon such a matter as this! It is self-evidently wicked, but they will not see it.
 
 I have declared the former things from the beginning; and they went forth out of My mouth, and I showed them; I did them suddenly, and they came to pass. There is no better proof that God is God than that His prophecies have been fulfilled. Only the eternal can see into the future. He has done so and every Word of His has either been fulfilled, or will yet be fulfilled.
 
@@ -124,11 +124,11 @@ For My own sake, even for My own sake, will I do it: for how should My name be p
 
 All you, assemble yourselves, and hear, which among them has declared these things? He still dwells upon prophecy. God claims that He is God because He foretold all that happened, which the idol gods could not do.
 
-14-18. The LORD has loved him: He will do His pleasure on Babylon, and His arm shall be on the Chaldeans. I, even I, have spoken; yes, I have called him: I have brought him, and he shall make his way prosperous. Come you near unto Me, hear you this, I have not spoken in secret from the beginning; from the time that it was, there am I: and now the Lord God, and His Spirit, has sent me. Thus says the LORD, your Redeemer, the Holy One of Israel. I am the Lord your God which teaches you to profit, which leads you by the way that you should go. O that you had listened to My Commandments! God again breaks out in lamentations over His wandering people! Not only is He ready to forgive them, but He grieves to think that they should have brought so much sorrow on themselves.
+14-18. The Lord has loved him: He will do His pleasure on Babylon, and His arm shall be on the Chaldeans. I, even I, have spoken; yes, I have called him: I have brought him, and he shall make his way prosperous. Come you near unto Me, hear you this, I have not spoken in secret from the beginning; from the time that it was, there am I: and now the Lord God, and His Spirit, has sent me. Thus says the Lord, your Redeemer, the Holy One of Israel. I am the Lord your God which teaches you to profit, which leads you by the way that you should go. O that you had listened to My Commandments! God again breaks out in lamentations over His wandering people! Not only is He ready to forgive them, but He grieves to think that they should have brought so much sorrow on themselves.
 
 18, 19. Then had your peace been as a river, and your righteousness as the waves of the sea: your seed also had been as the sand, and the offspring of your heart like the gravel thereof; his name should not have been cut off nor destroyed from before Me. All manner of possible good would have been yours had you not rebelled against God. And as you have lost it, God grieves that it should be so.
 
-Go you forth of Babylon, flee you from the Chaldeans, with a voice of singing declare you, tell this, utter it even to the end of the earth, say you, The LORD has redeemed His servant, Jacob. What a grand message for anyone to tell! Tell it, tell it, tell it everywhere, that Jehovah has redeemed His people!
+Go you forth of Babylon, flee you from the Chaldeans, with a voice of singing declare you, tell this, utter it even to the end of the earth, say you, The Lord has redeemed His servant, Jacob. What a grand message for anyone to tell! Tell it, tell it, tell it everywhere, that Jehovah has redeemed His people!
 
 And they thirsted not when He led them through the deserts. Neither shall you thirst, O redeemed one, when you are in the desert!
 
@@ -136,4 +136,4 @@ He caused the waters to flow out of the rock for them. Most unlikely places shal
 
 He split the rock, also, and the waters gushed out. And yet, to finish up the chapter, stands this remarkable sentence&mdash;
 
-There is no peace, says the LORD, unto the wicked. O God, have mercy upon us, and let us not be numbered with them!
+There is no peace, says the Lord, unto the wicked. O God, have mercy upon us, and let us not be numbered with them!

@@ -20,7 +20,7 @@ We, however, have the story placed before us four times by the Evangelists and, 
 
 First, I shall ask you to think of Christ triumphant in Jerusalem. Secondly, I shall bid you see herein Christ glorified in His Church. And then, thirdly, we will think of Christ entering into the heart. Under these three divisions we may arrange our thoughts and, God helping us, we may meditate to profit.
 
-First, I ask you to view CHRIST TRIUMPHANT IN JERUSALEM. Why this procession? Why these shouts of
+First, I ask you to view Christ TRIUMPHANT IN JERUSALEM. Why this procession? Why these shouts of
 
 homage? Our Lord always had a reason, and an excellent one, for all that He arranged or permitted. What die He mean by this? How shall we interpret the scene?
 
@@ -62,7 +62,7 @@ Our Lord loves His people to be glad. He kept His tears to Himself as He wept ov
 > The highest heavens, in which He reigns,   
 > Shall give Him nobler praise!   
 
-Secondly, my text is, to my mind, a parable of CHRIST GLORIFIED IN HIS CHURCH. There are choice days when the shout of a King is heard in our assemblies. We have not yet fallen to a dull monotony of barrenness&mdash;we have hills like those of Carmel. The low water mark of lukewarmness is covered deep beneath flood tides of holy exultation. I am going to speak about these hallowed seasons.
+Secondly, my text is, to my mind, a parable of Christ GLORIFIED IN HIS CHURCH. There are choice days when the shout of a King is heard in our assemblies. We have not yet fallen to a dull monotony of barrenness&mdash;we have hills like those of Carmel. The low water mark of lukewarmness is covered deep beneath flood tides of holy exultation. I am going to speak about these hallowed seasons.
 
 I think that such days come to the Church of God after special miracles of Grace have been worked. Lazarus is raised from the dead and when the people see the greatness of the Prophet of Nazareth, they begin to commend and extol Him&mdash;and this leads on to holy excitement! If the Lord will be pleased to work remarkable conversions among us, we shall have grand times! If special instances of His gracious power are seen by us, we will bear our palms of victory before Him and many hearts will enquire, "Who is this?" Our hearts shall rejoice as with the joy of harvest when we see the Lord saving great sinners! Yes, we will shout as victors who divide the spoil! Do you not think that when Saul of Tarsus was converted and the Churches had rest, that they also had great exultation in their King? Everywhere it must have been spoken of that fierce Pharisee who had become a bold preacher of the faith which once he sought to destroy! What joy there is in saintly hearts when ringleaders in sin become champions for the Truth of God! Oh that our God would work such transformations in this city! Pray, my Brothers and Sisters, that the Lord would do the same for us&mdash;and for all His Churches just now. Oh, for displays of His power to quicken the dead! Oh, for Lazarus to be raised and to live among us as a wonder of Divine Grace whom neighbors would come to see! O Lord, give us this signal of delight! Let us see Your arm made bare in the eyes of all the people!
 
@@ -90,7 +90,7 @@ Nor will we cease to pray to You! Some of you that have not yet been saved by Hi
 
 Will we not also put up prayer for our Lord this morning? Will not each one in his pew now breathe a petition to God, saying, "Father, glorify Your Son?" You have said that the pleasure of the Lord shall prosper in His hands&mdash;make it so. O Jehovah, You are well pleased with Jesus; show Your good pleasure towards Him by giving Him to conquer ten thousand times ten thousand hearts! Let a nation be born in a day. May He reign forever and ever! Hosanna! Hosanna!
 
-I have only a little time for my third point, and yet it is of great importance&mdash;CHRIST RECEIVED IN THE HEART. His triumphant ride into Jerusalem was a type of His entering the renewed heart. I pray that you who have never received Him may listen and may, by the listening, be led to pray for His coming into your heart.
+I have only a little time for my third point, and yet it is of great importance&mdash;Christ RECEIVED IN THE HEART. His triumphant ride into Jerusalem was a type of His entering the renewed heart. I pray that you who have never received Him may listen and may, by the listening, be led to pray for His coming into your heart.
 
 On that day, when Christ came up from Bethany, the city gates were wide open. We read nothing about them because they were not in the way&mdash;there were no shut gates to Him. He rode into Jerusalem without let or hindrance. Are your gates wide open this morning? If not, I would say, "Lift up your heads, O you gates; and be you lift up, you everlasting doors: and the King of Glory shall come in." He is willing to abide in your hearts and go no more out forever&mdash;be sure that your gates are set wide before Him! May the Holy Spirit open your hearts! Do not tolerate the thought of shutting out your Lord. Never! Open wide the portals of your soul. Yes, go forth by willing obedience and say, "Come in, my Lord! Come in!"
 

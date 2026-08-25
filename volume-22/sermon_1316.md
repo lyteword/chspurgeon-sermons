@@ -46,7 +46,7 @@ White is also the color of rest. If a man desired to do a day's work in this poo
 
 Though they are waiting for the Resurrection, yet are they waiting with their bridal garments on, waiting and rejoicing, waiting and chanting their Redeemer's praises, for they feast with Him till He shall descend to consummate their bliss by bringing their bodies from the grave to share with them in the eternal joy! So, you see, the white garments have a great deal of teaching about them. And if it were the object of my discourse to bring it out, I could well spend a full hour in describing what is meant. But I am rather driving at something else and to that I invite you. May the Holy Spirit lead us into it.
 
-Secondly, HOW DID THEY COME BY THOSE WHITE GARMENTS? How came they to be so white? It was the whiteness which struck the mind of the Elder and of the Apostle, himself. What could be the cause of it? "From where did
+Secondly, HOW DID THEY COME by THOSE WHITE GARMENTS? How came they to be so white? It was the whiteness which struck the mind of the Elder and of the Apostle, himself. What could be the cause of it? "From where did
 
 they come?" he asked. Those characters were not so pure, or, in other words, those garments were not so white by nature. They are washed, you see, and, therefore, they must once have been stained. They have "washed their robes." They were not, therefore, always white. No! Original sin has stained the character of all the sons of Adam. There is about us from the very beginning an abundance of leprous spots. The garment is not white when first we put it on. How shall he be clean that is born of woman?
 

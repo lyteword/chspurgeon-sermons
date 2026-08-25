@@ -26,7 +26,7 @@ Where, then, shall we hide our diminished heads? I am sure we may all say, with 
 
 Advancing now a step, our second remark will be that WE SHOULD CHARGE OTHERS CONCERNING
 
-CHRIST. "What is your Beloved more than another beloved, that you do so charge us?"
+Christ. "What is your Beloved more than another beloved, that you do so charge us?"
 
 The "fairest among women" was asked why she had so spoken&mdash;"I charge you, O daughters of Jerusalem, if you find my Beloved, that you tell Him that I am sick with love." By this, "charge," is meant, I suppose, that the spouse commanded them and spoke solemnly to them about her Beloved. Christians, be troublesome to the world! O house of Israel, be like a burdensome stone to the world! You are not sent here to be recognized as honorable citizens of this world, to be petted and well-treated! Even Christ, Himself, the Peaceable One, said, "I am come to send fire on the earth; and what will I, if it is already kindled?" What I mean is this&mdash;we are not to be quiet about our religion! The world says to us, "Hold your tongue about religion, or at least talk about it at proper times. But do not introduce it at all seasons so as to become a pest and a nuisance." I say again and you know in what sense I mean it, be a nuisance to the world! Be such a man that worldlings will be compelled to feel that there is a Christian in their midst!
 
@@ -42,7 +42,7 @@ There is something which every Believer can do for his Lord. He must be able to 
 
 I believe that the simple witness of converted boys and girls, converted lads and lasses, especially the witness of converted fathers and mothers and beloved friends&mdash;the witness that comes of the gray head that is backed up by years of godly living has a wonderful power for the spread of the Gospel! But we cannot expect that God will give us a very large blessing until the whole of us shall be at work for our Lord. We need not all climb up the pulpit stairs, but each one of us can proclaim Christ according to our ability and according to the circumstances in which He has placed us. When we shall do that, then we may expect to see "greater things than these"&mdash;days that will make us laugh for joy of heart&mdash;and well-near make us dance like David did before the Ark will come when all the rank and file of the army&mdash;and even those who halt upon their crutches&mdash;shall march unanimously against the foe!
 
-Thirdly, it is important for us to MAKE ALL WHO COME IN CONTACT WITH US FEEL THAT CHRIST JESUS IS FIRST AND FOREMOST WITH US.
+Thirdly, it is important for us to MAKE ALL WHO COME IN CONTACT WITH US FEEL THAT Christ Jesus IS FIRST AND FOREMOST WITH US.
 
 You perceive that the question of the text is not, "What is your Beloved that He should be equal to others?" It is, "What is your Beloved more than another beloved?" The idols of the heathen are all made to stand in the Pantheon, face to face, and there is no quarrelling among them. But as soon as you introduce Christ, they must all go down, or He will not stay. The principle of the toleration of every form of doctrine&mdash;I mean not, of course, civil toleration which we hold to be always necessary and right, but I mean mental toleration&mdash;the principle of the mental toleration of all forms of doctrine and all forms and shades of action, is heathenish, for where Christ comes, He comes to reign, and when once He enters the soul of a man, it is down, down, down with everything else!
 
@@ -70,7 +70,7 @@ As I sat, last week, in the hall of the Free Church Assembly in Edinburgh, just 
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;386, 807, 802.
 
-EXPOSITION BY C. H. SPURGEON: SONG OF SOLOMON 1.
+Exposition by C. H. Spurgeon: Song Of Solomon 1.
 
 We will, this evening, read in the one Book of the Bible which is wholly given up to fellowship. I allude to the Book of Canticles. This Book stands like the Tree of Life in the midst of the garden and no man shall ever be able to pluck its fruit, and eat thereof, until first he has been brought by Christ past the sword of the cherubim, and led to rejoice in the love which has delivered him from death! The Song of Solomon is only to be comprehended by the men whose standing is within the veil. The outer-court worshippers and even those who only enter the court of the priests think the Book a very strange one, but they who some very near to Christ can often see in this Song of Solomon the only expression which their love to their Lord desires.
 

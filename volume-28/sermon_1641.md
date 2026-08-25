@@ -20,7 +20,7 @@ The labored notes of the trained bird's little tune may be remarkable, but are t
 
 Having thus prefaced my discourse, I come to look into this joy of David over God's Word which he compares to the joy of a warrior when he finds great spoil. To such overflowing joy we are not strangers&mdash;we feel quite at home with the text.
 
-Let me first observe that THIS GREAT JOY IS SOMETIMES AROUSED BY THE FACT THAT THERE IS a WORD OF GOD. This is true if we regard the Scriptures as a revealing of God. After going up and down in the world searching after Deity, it is a great delight to come upon a Book in which the one only living and true God has unveiled Himself to those who care to behold Him. It is a great "find" for a man to discover that, after all, he is not left in a fog to grope his way, but that God has kindled a sun that honest hearts may walk in the light of and in that light see all things clearly. I say that a Revelation of God is a great discovery over which a man rejoices "as one that finds great spoil." For, dear Friends, there can be no revealing of God except by God Himself.
+Let me first observe that THIS GREAT JOY IS SOMETIMES AROUSED by THE FACT THAT THERE IS a WORD OF God. This is true if we regard the Scriptures as a revealing of God. After going up and down in the world searching after Deity, it is a great delight to come upon a Book in which the one only living and true God has unveiled Himself to those who care to behold Him. It is a great "find" for a man to discover that, after all, he is not left in a fog to grope his way, but that God has kindled a sun that honest hearts may walk in the light of and in that light see all things clearly. I say that a Revelation of God is a great discovery over which a man rejoices "as one that finds great spoil." For, dear Friends, there can be no revealing of God except by God Himself.
 
 The Apostle Paul tells us very truly that the things of a man know no man but the spirit of a man that is in him. You cannot read a man until that man brings out somewhat from within and thus reveals himself. A man must speak, or act, or we cannot know his mind. The chief means of a man's revealing himself is by his word&mdash;language is the gate of the soul. If the man is true and honest, his word will be a window through which you may see his mind. Even so, says the Apostle, as the heart of a man is only known to the man, himself, so the things of God knows no man but the Spirit of God. The Divine thought must be hidden in the heart of God forever until the Spirit of God is pleased to tell it to us.
 
@@ -76,7 +76,7 @@ We must get to be like He and, oh, when we do, then every line of that dear face
 
 May it be our resolve that we will take every part of the Word of God to be our heritage and rejoice over it "as one that finds great spoil."
 
-We shall now tarry a moment upon a third thought which is altogether different from that which has gone before. AT TIMES THE JOY OF THE BELIEVER LIES IN ENJOYING GOD's WORD WITHOUT ANY FIGHTING
+We shall now tarry a moment upon a third thought which is altogether different from that which has gone before. AT TIMES THE JOY OF THE BELIEVER LIES IN ENJOYING God's WORD WITHOUT ANY FIGHTING
 
 AT ALL. In the text I am not sure that fighting is certainly mentioned or necessarily implied, though it is highly probable. David says, "I rejoice at Your Word, as one that finds great spoil," as if he fell upon it all of a sudden, like the lep-
 

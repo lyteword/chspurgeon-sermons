@@ -32,7 +32,7 @@ Did you ever hear the story of the devil running away with a young man who was a
 
 swer to that. If you go on the devil's premises and he takes you, I cannot say anything against it. Go nowhere where you cannot take Christ with you! Be like this man who longs to go wherever Christ goes.
 
-Now, secondly, SEE HOW CHRIST's DEALINGS DIFFER and how extraordinary they are. Here is an evil prayer&mdash;"Depart out of our coasts." He grants it. Here is a pious prayer&mdash;"Lord, let me be with You." "However Jesus suffered him not." Is that His way, to grant the prayer of His enemies, and refuse the petition of His friends? Yes, it is sometimes.
+Now, secondly, SEE HOW Christ's DEALINGS DIFFER and how extraordinary they are. Here is an evil prayer&mdash;"Depart out of our coasts." He grants it. Here is a pious prayer&mdash;"Lord, let me be with You." "However Jesus suffered him not." Is that His way, to grant the prayer of His enemies, and refuse the petition of His friends? Yes, it is sometimes.
 
 In the first case, when they prayed Him to depart, He went. Oh, dear Friends, if Christ ever comes near you and you get a little touched in your conscience and feel a throb of something like spiritual life, do not pray Him to go away, for if He goes&mdash;if He should leave you to yourself and never return&mdash;your doom is sealed! Your only hope lies in His Presence, but if you pray against your one Hope, you are a suicide&mdash;you are guilty of murdering your own soul!
 
@@ -52,7 +52,7 @@ You see, then, how Christ's dealings differ with different men. Have I not known
 > The difficulty will not me offend;   
 > For I perceive the way of life lies here.   
 
-My third point is this&mdash;SEE HOW GOOD a THING IT IS TO BE WITH JESUS. This man entreated of the Lord that he might be with Him.
+My third point is this&mdash;SEE HOW GOOD a THING IT IS TO BE WITH Jesus. This man entreated of the Lord that he might be with Him.
 
 If you have recently been saved, I expect you have a longing in your heart to always be with Christ. I will tell you what shape that longing is likely to take. You were so happy, so joyful, and it was such a blessed meeting, that you said to yourself, "I am sorry it is over; I should like this meeting to have been kept on all night, and the next day, and never to end." Yes, you were of the mind of Peter when he wanted to build the three tabernacles on the holy mountain and to stay there the rest of his days! But you cannot do it&mdash;it is no use wishing for it. You must go home to that drinking husband or that scolding wife&mdash;to that ungodly father or that unkind mother. You cannot always stay in that meeting!
 
@@ -98,7 +98,7 @@ And mind this, before you begin Christ's service, always seek His Presence and h
 
 When we have done all, we are still unprofitable servants&mdash;we have only done that which is our duty to do. So, if you are as humble as you are active, as lowly as you are energetic, you may stay with Christ and yet go about His errands to the ends of the earth! And I reckon this to be the happiest experience that any one of us can reach this side of the gates of pearl. The Lord bless you and bring you there, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON MARK51-29.
+Exposition by C. H. Spurgeon Mark51-29.
 
 1,2. And they came over unto the other side of the sea, into the country of the Gadarenes. And when He was come out of the ship, immediately there met Him out of the tombs a man with an unclean spirit. Our Lord crossed the Sea of Galilee on purpose to rescue this poor man from the power of the unclean spirits that possessed him. He knew that there were many who needed Him on the Galilean side of the lake and He could foresee the storm that would threaten to sink the little ship. Yet He calmly said to His disciples (see chapter 4, Verse 35), "Let us pass over unto the other side." As soon as the great Physician landed, a dreadful apparition appeared. "Out of the tombs," an uncanny place, rushed a man, howling and yelling like some wild beast, or, still worse, under the influence of Satan who had taken possession of him.
 

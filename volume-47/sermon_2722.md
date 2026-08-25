@@ -39,7 +39,7 @@ Neither may you conclude, because you enjoy much of the Divine favor and love, t
 
 So I leave that point with you, dear Friends. The Sonship of our blessed Lord and Savior did not screen Him from suffering, therefore we cannot expect that our sonship, however clearly it may be proven and whatever honor it may have brought to us, will screen us from sorrow and suffering.
 
-My second thought is, perhaps, more pleasant than the former one, though, indeed, the first is like Samson's dead lion, full of honey to those who know how to get at it. The second lesson I learn from the text is that CHRIST's SUFFERING DOES NOT MAR HIS SONSHIP, for, though He learned obedience by the things which He suffered, yet He
+My second thought is, perhaps, more pleasant than the former one, though, indeed, the first is like Samson's dead lion, full of honey to those who know how to get at it. The second lesson I learn from the text is that Christ's SUFFERING DOES NOT MAR HIS SONSHIP, for, though He learned obedience by the things which He suffered, yet He
 
 was a Son all the while. Ah, and as much a Son in His deepest sorrow as He was before the Eternal Throne when every angel bowed before Him and delighted to do Him homage. His sufferings never affected His Sonship&mdash;He was still, always, as He must be forever and ever, the Son of God!
 
@@ -63,7 +63,7 @@ Do not let us think, then, that any degree of poverty, or pain, or temptation, o
 
 So I follow with my third observation, which is, that OBEDIENCE IS a THING WHICH HAS TO BE
 
-LEARNED EVEN BY SONS. Though Jesus was a Son, yet He learned obedience. As God, our Savior knew everything. As God, however, He did not obey. It was in His complex Character as our Mediator that He learned to obey.
+LEARNED EVEN by SONS. Though Jesus was a Son, yet He learned obedience. As God, our Savior knew everything. As God, however, He did not obey. It was in His complex Character as our Mediator that He learned to obey.
 
 Perhaps some of you are asking, "But why can we not obey without learning obedience?" The reason is, first, because obedience has to be learned experimentally. If a man is to thoroughly learn a trade, he must be apprenticed to it. A soldier, sitting at home and reading books, will not learn the deadly art of war. He must go to the barracks, the camp and the field of battle if he is to win victories and become a veteran. The dry land sailor who never went in a boat would not know much about navigation, study hard as he might&mdash;he must go to sea to be a sailor. So, obedience is a trade to which a man must be apprenticed until he has learned it, for it is not to be known in any other way. Even our blessed Lord could not have fully learned obedience by the observation in others of such an obedience as He had personally to render, for there was no one from whom He could thus learn.
 
@@ -81,7 +81,7 @@ submissively to the will of God. They have neither wish nor desire apart from Go
 
 My last observation upon the text is this&mdash;THE OBEDIENCE WE HAVE BEEN SPEAKING OF IS NOT TO
 
-BE LEARNED EXCEPT BY SUFFERING. Though Christ was the Son of God, yet even He learned obedience through suffering. Not even through His silent studies by night, nor His active engagements by day did He learn it&mdash;suffering had to be superadded to all this before He could become proficient in obedience. What was the reason for this?
+BE LEARNED EXCEPT by SUFFERING. Though Christ was the Son of God, yet even He learned obedience through suffering. Not even through His silent studies by night, nor His active engagements by day did He learn it&mdash;suffering had to be superadded to all this before He could become proficient in obedience. What was the reason for this?
 
 I suppose it must be because suffering touches a man's own self. Satan thought so, for when God said of Job that he was a perfect and an upright man, Satan answered, "Have not You made an hedge about him, and about his house, and about all that he has on every side? You have blessed the work of his hands, and his substance is increased in the land. But put forth Your hand now, and touch all that he has, and he will curse You to Your face." Satan was mistaken in the result, but he was wise in his suggestion that personal losses do come home to us. And the arch-enemy knew what he was doing when he said to God, "Put forth Your hand now, and touch his bone and his flesh, and he will curse You to Your face." He knew what is the weak point in most men. There are some who can obey God actively&mdash;it is their delight to be almost day and night engaged in His service&mdash;but when their flesh and bone are touched, their patience is sorely tried, and it is a hard lesson for them to learn to obey God's will.
 
@@ -95,7 +95,7 @@ A man who has never been on board ship, says, "I am a splendid sailor." I have o
 
 Perhaps the last moments before our death will teach us something concerning obedience which is not to be learned in the rest of life. I know not, but it may be that those last hours before the spirit shall be severed from the body will teach us, once and for all, what is the casting of the soul on God in all its fullness and the entering of the soul into communion with God in all its blessedness. At any rate, whatever it costs us to learn obedience, it will never cost us so much as it cost our Lord&mdash;"Though He were a Son, yet learned He obedience by the things which He suffered." Go, then, Brothers and Sisters, back to your school to learn until, like your Master, you can say, "It is finished." And bless God for every suffering that comes to you, for it will be part of your preparation for the happinesses of eternity. God bless you, for Christ's sake! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: JOHN 7:1-13; HEBREWS 5.
+ExpositionS by C. H. Spurgeon: John 7:1-13; Hebrews 5.
 
 John 7:1-5. After these things Jesus walked in Galilee: for He would not walk in Judea, because the Jews sought to kill Him. Now the Jews' Feast of Tabernacles was at hand. His brothers therefore said unto Him, Depart hence, and go into Judaea, that Your disciples also may see the works that You do. For there is no man that does anything in secret, and he himself seeks to be known openly. If You do these things, show Yourself to the world. For neither did His brothers believe in Him. I t is a very painful truth, that those who were the near relations of the Savior were not believers in His Divine mission&mdash;at any rate, at first. He was truly a Prophet who was without honor in His own country and among His own kindred. And, on this occasion, they half taunted Him concerning His claims. In effect, they said to Him, "If indeed You are a Prophet, get out into the world and prove it! We hear that You profess to work miracles, then, why do You hide Yourself away in this country place down here in Galilee? Be gone to Jerusalem and perform Your wonders before the crowds in the capital"&mdash;half hoping, perhaps, that His claims might prove to be true, yet not, at that time, at any rate, being themselves willing to become His disciples.
 

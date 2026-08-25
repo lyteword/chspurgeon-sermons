@@ -12,7 +12,7 @@ It was so, you know, in the house of Abraham&mdash;he was a man that walked befo
 
 Remember "Him that endured such contradiction of sinners against Himself, lest you be wearied and faint in your minds." Henceforth, bow your shoulders to the yoke! Expect that if you follow the Crucified, you will have to bear the Cross, for so it will be. I trust that our present meditation may be useful to any of God's servants who are feeling the sharp lash of envious tongues, that they may not, thereby, be driven from their steadfastness. If any, in their hearts, are bowed down because they are conscious that possibly they have given the scoffers some opportunity to mock them, may they even in this, take heart, for David had done so, and yet he was not crushed by the blasphemies of the wicked.
 
-The first thing to which I shall call your attention at this time is that a truly gracious man is like David and like the Lord Jesus, in that HIS TRUST IN GOD IS KNOWN. Even the enemies of this holy man who is mentioned in the text, and, as I interpret it, even the enemies of our Divine Lord and Master, never denied that He trusted in God. This, indeed, is the commencement of their scoff&mdash;"He trusted on the Lord that He would deliver Him." From which I gather
+The first thing to which I shall call your attention at this time is that a truly gracious man is like David and like the Lord Jesus, in that HIS TRUST IN God IS KNOWN. Even the enemies of this holy man who is mentioned in the text, and, as I interpret it, even the enemies of our Divine Lord and Master, never denied that He trusted in God. This, indeed, is the commencement of their scoff&mdash;"He trusted on the Lord that He would deliver Him." From which I gather
 
 that every gracious man should have an apparent, manifest, public trust in God. He should not merely trust Him in his heart, alone, but that trust should so enter into his entire nature that he does not conceal it nor think of concealing it.
 
@@ -54,7 +54,7 @@ Oh, that you and I might, in all these ways so live that all who see us should k
 
 If, in a free country, men should not persecute an infidel, they certainly ought not to silence a Believer. We do not intend to smuggle our religion through the land. It is not contraband and, therefore, we shall bear it with us, openly, in the sight of all men&mdash;and let them say if they please&mdash;"He trusted on the Lord."
 
-Secondly, THIS TRUST ON THE PART OF BELIEVING MEN IS NOT UNDERSTOOD BY THE WORLD.
+Secondly, THIS TRUST ON THE PART OF BELIEVING MEN IS NOT UNDERSTOOD by THE WORLD.
 
 "He trusted on the Lord that He would deliver Him." Observe that they restricted the Savior's trust to that point&mdash;"He trusted on the Lord that He would deliver Him." But now, in the first place, our faith is not confined to merely receiving from God. No, Brothers and Sisters, if the Lord does not deliver us, we will trust Him. See how firmly Shadrach, Meshach and Abednego stood to it that they would not bow before the image which Nebuchadnezzar had set up! "Our God, whom we serve, is able to deliver us from the burning fiery furnace and He will deliver us out of your hands, O king. But if not, be it known unto you, O king, that we will not serve your gods, nor worship the golden image which you have set up."
 
@@ -102,7 +102,7 @@ They like to spy us out in our time of trouble and taunt us with our confidence 
 
 Now, I must close with this point (though there is much more to be said)&mdash;THE TIME SHALL COME WHEN
 
-THE FAITH OF THE MAN WHO HAS TRUSTED IN GOD SHALL BE ABUNDANTLY JUSTIFIED. I think it is no
+THE FAITH OF THE MAN WHO HAS TRUSTED IN God SHALL BE ABUNDANTLY JUSTIFIED. I think it is no
 
 small thing to have the ungodly bearing witness that, "He trusted in God that He would deliver Him." I have known what it is to be exceedingly grateful to ungodly men for helping me to believe that I am truly a child of God. Somebody, years ago, uttered an atrocious lie against me&mdash;an abominable slander. I was very low and heavy of spirit at the time, but when I read it, I clapped my hands for joy, for I felt, "Now I have one of the marks and seals of a child of God, for it is written, 'Blessed are you, when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for My sake.'"
 

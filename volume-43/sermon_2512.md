@@ -72,7 +72,7 @@ Lastly, if you have heard well, and heard often, try to hear still better. Expec
 
 May the Lord's blessing rest upon you all, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK4:1-25.
+Exposition by C. H. Spurgeon: Mark4:1-25.
 
 Verse 1. And He began again to teach by the seaside: and there was gathered unto Him a great multitude, so that He entered into a ship, and sat in the sea; and the whole multitude was by the sea on the land. You can easily picture that scene&mdash;the Master sitting down in the vessel with a little breathing space of water between Himself and the crowd. And then the multitude on the rising bank, standing one above another, and all gazing upon the Teacher who sat down and taught them. It ought to reconcile any of you who have to stand in the crowd here when you remember that the hearers all stood in those days&mdash;and only the preacher sat down!
 

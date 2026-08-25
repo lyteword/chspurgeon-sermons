@@ -23,7 +23,7 @@ In our text we see a man who has hearkened to the invitation and has come into t
 
 I shall endeavor to answer four questions naturally arising out of the parable. First, what is meant by the king's coming in?&mdash;"when the king came in to see the guests." Secondly, what is the wedding garment? Thirdly, who is he that has it not? And fourthly, why did he stand speechless when he was asked, "How came you in here not having a wedding garment?"
 
-May the Holy Spirit help us while we consider, first, WHAT IS MEANT BY THE KING IS COMING IN.
+May the Holy Spirit help us while we consider, first, WHAT IS MEANT by THE KING IS COMING IN.
 
 "The king came in to see the guests." They were all reclining at the tables, for "the wedding was furnished with guests." They gathered while the sun was up but darkness covered the world outside when "the king came in to see the guests." They had feasted and now the king came to honor the assembly.
 

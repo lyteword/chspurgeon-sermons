@@ -52,7 +52,7 @@ and death wherewith He redeemed you from the wrath to come! All this, and vastly
 
 We will draw to a close by asking WHAT FURTHER MAY BE INFERRED FROM THIS SITTING OF
 
-CHRIST WITH HIS DISCIPLES AT THE TABLE?
+Christ WITH HIS DISCIPLES AT THE TABLE?
 
 I answer, first, there may be inferred from it, the equality of all the saints. There were here 12 Apostles. Their Apostleship, however, is not concerned in the matter. When the Lord's Supper was celebrated after all the Apostles had gone to Heaven, was there to be any alteration because the Apostles had gone? Not at all. Believers are to do this in remembrance of their Lord until He shall come. There was no command for a change when the first Apostles were all gone from the Church. No, it was still to be the same&mdash;bread and wine and the surrounding of the table until the Lord came. I gather, then, the equality of all saints. There is a difference in office, there was a difference in miraculous gift and there are great differences of growth in Grace, but still, in the household of God, all saints, whether Apostles, pastors, teachers, deacons, elders, or private members&mdash;being all equal&mdash;eat at one table. There is but one bread, there is but one juice of the vine here!
 
@@ -66,7 +66,7 @@ We finish with this word of deep regret&mdash;regret that many here cannot under
 
 May the Holy Spirit so lead you, for Jesus sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE22:7-54.
+Exposition by C. H. Spurgeon: Luke22:7-54.
 
 Verses 7-13. Then came the day of unleavened bread, when the Passover must be killed. And He sent Peter and John, saying, Go and prepare us the Passover, that we may eat And they said unto Him, Where will You that we prepare? And He said unto them, Behold, when you are entered into the city, there shall a man meet you, bearing a pitcher of water; follow him into the house where he enters in. And you shall say unto the good man of the house, the Master says unto you, Where is the guest chamber, where I shall eat the Passover with My disciples? And he shall show you a large upper room furnished: there make ready. And they went and found as He had said unto them: and they made ready the Passover The hour of Christ's humiliation was drawing near, but He was still "The Master." He had but to send His servants and His request was at once obeyed&mdash;just as He might have asked for more than 12 legions of angels and they would have been immediately placed at His disposal.
 

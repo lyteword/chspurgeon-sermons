@@ -15,7 +15,7 @@ There have been kings in whom nobody could be joyful. They have been tyrannical,
 
 To make His praises our delight." I pray that the Holy Spirit may shed abroad the perfume of the "oil ofjoy" this morning. May the beauties and glories of our King charm us into delightful praise! Away with care and sorrow! Away with doubt and despondency! Let us praise the Lord upon the loud cymbals! Let us praise Him upon the high-sounding cymbals! I pray the Holy Spirit, the Comforter, to produce in us the fragrant spikenard of holy joy&mdash;and may that holy joy, like the precious ointment of the woman who loved much&mdash;be all poured upon the Person of our Lord and King!
 
-In order that we may carry out the exhortation of the text, LET US BEGIN BY FEELING THAT THE LORD JESUS IS OUR KING. Alas, many who should be of a better mind are forgetful of this Truth of God&mdash;they are not joyful in their King for they have not yet learned His sovereignty.
+In order that we may carry out the exhortation of the text, LET US BEGIN by FEELING THAT THE Lord Jesus IS OUR KING. Alas, many who should be of a better mind are forgetful of this Truth of God&mdash;they are not joyful in their King for they have not yet learned His sovereignty.
 
 Brothers and Sisters, Jesus must have the pre-eminence among men, since He is in Person and Character pre-eminent. Who among the sons of the mighty can be compared unto the Lord? When the princes of the earth are gathered in their glory, who among them can be named in the same day with the Prince of Peace? Jesus is the best, therefore is He the Chief&mdash;His Person and Character wear about them a superlative majesty&mdash;let every hand present a crown to Him. "He is the standard bearer among ten thousand and the altogether lovely." Since the Lord Jesus has no equal nor even rival, He is a born King&mdash;and were not men most blind and foolish, they would all salute Him with loyal homage. From every corner of the globe, if men were unfallen, there would arise the cry&mdash;
 
@@ -68,7 +68,7 @@ It should stir you to enthusiasm to think of the principles of His government, f
 
 I think I might appeal to every Christian here and say, you have personal reasons for being joyful in your King. You love Him because He has first loved you. He has been wondrously condescending to all His saints and to us among them. Many a time has He appeared unto us and said, "I have loved you with an everlasting love." He has brought us into His banqueting house and His banner over us has been love. We ought to be joyful in Him for His love to others. But if not, we would be worse than brute beasts if we did not rejoice in Him for His love to ourselves. O my Brothers and Sisters, be joyful in Him! What do you know about any other king compared with what you know of King Jesus? On His bosom you have leaned and His secret is with you. He has kissed you with the kisses of His lips and His love is better than wine to you. He is your Husband. You are married unto Him and He calls you His Hephzibah and says, "My delight is in her." "The Lord takes pleasure in them that fear Him, in them that hope in His mercy." Therefore in such a condescending King, Brothers and Sisters, let the children of Zion rejoice!
 
-I shall not detain you long while I touch upon a third point&mdash;LET US MARK THE BENEFITS OF HIS
+I shall not detain you long while I touch upon a third point&mdash;LET US Mark THE BENEFITS OF HIS
 
 REIGN which entitle Him to our highest regard this day.
 

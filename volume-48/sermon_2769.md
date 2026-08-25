@@ -10,7 +10,7 @@ That is the first lesson for us to learn from our Lord's experience in Gethseman
 
 In our text, there are two things to note. First, our Lord's weakness. And, secondly, our Lord's strengthening.
 
-First, then, let us meditate for a little while upon OUR LORD's WEAKNESS.
+First, then, let us meditate for a little while upon OUR Lord's WEAKNESS.
 
 That He was exceedingly weak is clear from the fact that an angel came from Heaven to strengthen Him, for the holy angels never do anything that is superfluous. They are the servants of an eminently practical God who never does that
 
@@ -34,7 +34,7 @@ Contact with sin and the bearing of sin's penalty were reason enough to produce 
 
 Probably, however, it was the sense of utter desertion that was preying upon His mind and so produced that extremity of weakness. All His disciples had failed Him and presently would forsake Him. Judas had lifted up his heel against Him and there was not one of all His professed followers who would faithfully cleave to Him. Kings, princes, scribes and rulers were all united against Him&mdash;and of the people, there were none with Him. Worst of all, by the necessity of His expiatory Sacrifice and His Substitution for His people, His Father, Himself, withdrew the Light of His Countenance from Him and, even in the garden, He was beginning to feel that agony of soul which, on the Cross, wrung from Him that doleful cry, "My God, My God, why have You forsaken Me?" And that sense of utter loneliness and desertion, added to all that He had endured, made Him so exceedingly weak that it was necessary that He should be specially strengthened for the ordeal through which He had still to pass.
 
-Now, in the second place, let us meditate for a little while upon OUR LORD's STRENGTHENING. "There appeared an angel unto Him from Heaven, strengthening Him."
+Now, in the second place, let us meditate for a little while upon OUR Lord's STRENGTHENING. "There appeared an angel unto Him from Heaven, strengthening Him."
 
 It is night and there He kneels, under the olives, offering up, as Paul says, "prayers and supplications with strong crying and tears unto Him that was able to save Him from death." While wrestling there, He is brought into such a state of agony that He sweats great drops of blood and, suddenly, there flashes before Him, like a meteor from the midnight sky, a bright spirit that had come straight from the Throne of God to minister to Him in His hour of need.
 
@@ -66,7 +66,7 @@ The next lesson is while you should be thankful for the least comforter, yet, in
 
 But if you are not believing in Christ, I am indeed grieved for you, for you shall have the sorrow without the solace&mdash;the cup of bitterness without the angel&mdash;the agony, and that forever, without the messenger from Heaven to console you! Oh, that you would all believe in Jesus! God help you so to do for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE22:14-46.
+Exposition by C. H. Spurgeon: Luke22:14-46.
 
 Verses 14-16. And when the hour was come, He sat down and the twelve Apostles with Him. And He said unto them, With desire I have desired to eat this Passover with you before I suffer: for I say unto you, I will not any more eat thereof, until it is fulfilled in the Kingdom of God. And it is fulfilled, for Christ Himself is the Lamb of our Passover. His blood has been shed and sprinkled. His people have been brought up out of their Egyptian bondage and, by faith, they feed upon Him and are glad. How sweetly the Passover melted away into the Lord's Supper and how graciously did our Savior thus teach us that, as a rule, He does not make violent changes in the development of His people's spiritual life, but He leads them on gradually from one stage to another! There may be, sometimes, very sudden elevations, but, as a general rule, we go from strength to strength, a step at a time, and the Truth of God is revealed to us little by little.
 

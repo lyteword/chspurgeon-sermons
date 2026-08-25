@@ -90,7 +90,7 @@ These glad tidings of good things are published to all of you, even you that are
 
 Now I have talked all in vain unless the Lord shall apply the Truth to you and you believe it. Do not wait for somebody to believe for you! Trust Christ for yourself! Believe in Jesus even now! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS10.
+Exposition by C. H. Spurgeon: Romans10.
 
 Verse 1. Brethren, my heart's desire and prayer to God for Israel is that they might be saved. Desire is the mother and the soul of prayer. "My heart's desire and prayer." These Israelites had hunted Paul and sought to kill him. They were his deadly enemies, but the only return he made them was to pray that they might be saved! I hope you will never have a worse wish for your worst foe!
 

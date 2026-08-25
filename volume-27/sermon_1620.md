@@ -14,7 +14,7 @@ We apply to Jesus and His sufferings, tonight, the words which the Prophet wrote
 
 O that God the Holy Spirit, whose office it is to bear witness to the Lord Jesus, would now bear His testimony in all your hearts for His mercy's sake.
 
-' I. First, then, THE SUFFERINGS OF THE SON OF GOD UPON THE CROSS WERE ALTOGETHER UNPARALLELED. I tell no idle tale tonight! I draw no picture of romance, but the sorrows which we now relate are matters of fact! Out of the excellent Glory let the Lord confirm it tonight, if it is His truth, by the witness of His Spirit. Jesus, the eternal Son of God, came down in boundless pity among the sons of men and took upon Himself our human nature! Quitting the infinite honors of the skies, He came to the lowliness of the manger and the labor of the carpenter's shop&mdash;and here He lived, suffering as a real man, all the sorrows and infirmities of our mortality.
+' I. First, then, THE SUFFERINGS OF THE SON OF God UPON THE CROSS WERE ALTOGETHER UNPARALLELED. I tell no idle tale tonight! I draw no picture of romance, but the sorrows which we now relate are matters of fact! Out of the excellent Glory let the Lord confirm it tonight, if it is His truth, by the witness of His Spirit. Jesus, the eternal Son of God, came down in boundless pity among the sons of men and took upon Himself our human nature! Quitting the infinite honors of the skies, He came to the lowliness of the manger and the labor of the carpenter's shop&mdash;and here He lived, suffering as a real man, all the sorrows and infirmities of our mortality.
 
 In our nature He lived some 30 years or more, enduring much of poverty and labor. And at the end, thereof, He died, not amid the applause of all mankind, as He deserved, but nailed to the Cross&mdash;like a felon or a slave, a spectacle of scorn and infamy&mdash;the despised and rejected of men! The sufferings of this Divine One were unparalleled, first, because of the dignity of His Person which gave such point to the insult which He endured. Kings have died. Philosophers have died. Philanthropists have died, but never such a One as this, for He that bled on Calvary was King, Priest and Prophet&mdash;a right royal Man, and more&mdash;the Son of the Highest! God that made the heavens and earth was in personal union with that Man who died upon the Cross of Calvary.
 
@@ -60,7 +60,7 @@ the old, old Gospel yet again, harping forever on that one Divine string which h
 
 Thus have I spoken upon the first head and pretty well exhausted my time&mdash;therefore only a minute or two upon
 
-the second&mdash;THE SUFFERINGS OF JESUS HAVE HAD a DEEP INTEREST IN THEM FOR MANY. Oh that I
+the second&mdash;THE SUFFERINGS OF Jesus HAVE HAD a DEEP INTEREST IN THEM FOR MANY. Oh that I
 
 could set Him forth before you! There He is! Look upon Him! He is before my eyes. I see those languid eyes closing in death, I see that glorious head bowing upon His bosom. I see and I adore! I note with grief the gashes made by the nails in His dear hands and feet from which flows the ruddy stream which scatters roses among the lilies of His pure and spotless flesh! I look into His heart and see it breaking&mdash;the soldier has opened a door through which your soul may gaze! My Savior's death is to me all things&mdash;I could live and die contemplating it.
 

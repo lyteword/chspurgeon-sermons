@@ -8,7 +8,7 @@ When our Lord Jesus was in this great distress of mind, in anticipation of the t
 
 Let us, first, tonight, consider the threefold result of Christ's death. And when we have done that, let us think about Christ's death as it is described in our text.
 
-First, let US CONSIDER THE THREEFOLD RESULT OF CHRIST's DEATH.
+First, let US CONSIDER THE THREEFOLD RESULT OF Christ's DEATH.
 
 There is, first, the judgment of the world&mdash; "Now is the judgment of this world." If you like, you may read it, "crisis," for that is the Greek word used here&mdash;"Now is the crisis of this world." The world is sick. It grows worse and the physician says that its malady has come to a climax&mdash;it is a case of kill or cure. There was a crisis in the world's disease and that crisis was when Christ died! His death was the turning point, the hinge of the world's history. There have been many hinges in history&mdash;every nation has a hinge in its history&mdash;the Cross of Christ was the hinge of the world's history&mdash;it had reached the turning point. I thank God that the death of Christ was the future death of sin. When He died, the archenemy received his death stroke. That death was the bruising of Christ's heel, but in that death He bruised the old serpent's head.
 
@@ -61,7 +61,7 @@ The death of Christ attracted to Him multitudes of the sons of men because it ex
 
 These three things, then, resulted from the death of Christ&mdash;the wicked world was judged, the power of Satan was broken and Christ was made the central attraction of sinners to Himself&mdash;and that attracting power is working now! Oh, that these three wonders might be worked in our midst tonight, according to our measure!
 
-Now, in the second place, I want you, for a few minutes, to quietly THINK ABOUT THE DEATH OF OUR LORD JESUS CHRIST AS DESCRIBED IN OUR TEXT.
+Now, in the second place, I want you, for a few minutes, to quietly THINK ABOUT THE DEATH OF OUR Lord Jesus Christ AS DESCRIBED IN OUR TEXT.
 
 How much the Holy Spirit desires that we should read the Scriptures intelligently! He had recorded these Words of the Lord Jesus, "I, if I am lifted up from the earth, will draw all men unto Me." If that had been all, we might have asked&mdash;Does that lifting up from the earth mean Christ's death? Does it mean His ascension, His going up from the earth till the cloud received Him? Or does it mean our preaching of Christ, when we lift Him up before men, as Moses lifted up the serpent in the wilderness? So, to avoid all question, the Holy Spirit added the thirty-third verse, "This He said, signifying what death He should die." If there is anything that the Spirit wishes us to be especially clear about, it is all expressions that have to do with our Lord's death. Let us thank Him for that comment inserted here, lest we should make any mistake upon so vital a subject.
 
@@ -96,7 +96,7 @@ As the drops of the morning dew are seen, glittering like diamonds on every hedg
 
 Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 12:19-43.
+Exposition by C. H. Spurgeon: John 12:19-43.
 
 Our Lord raised Lazarus from the dead and this miracle made a great sensation among the people. They came to meet Jesus, waving palm branches before Him, and all Jerusalem was on a stir.
 

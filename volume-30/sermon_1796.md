@@ -1,6 +1,6 @@
 # Sermon 1796 | Concerning Saints
 
-"All Your works shall praise You, O LORD; and Your saints shall bless You." Psalm 145:10.
+"All Your works shall praise You, O Lord; and Your saints shall bless You." Psalm 145:10.
 
 Do not throw yourselves back in your seats and say, "This will be a sermon for saints and, therefore, we may be excused from listening to it." Do you not see that the first clause gives you a fair word and a kindly hint? "All Your works shall praise You, O Jehovah." Through this you may enter, as by an open door, for if you are not Jehovah's saints, you are His works and are bound to praise His name! In these days of harvest and full summertime, every created thing appears to praise God by its very existence. Insect and fern, pebble and rippling brook, star and cloud, wind and dew&mdash;all reflect the wisdom and goodness of the Most High! Many a man's works are no credit to him and, even in cases where men have worked well and produced much which is to their honor, yet certain of their works are not to their credit, but deserve to be plunged in darkness.
 
@@ -24,7 +24,7 @@ We have not yet all been brought within the bonds of the Covenant. We have not y
 
 I shall want you carefully to notice three things. The first is, that God has a people whom He calls His saints&mdash;of these we read in the text. Secondly, these are placed in the first rank, for while it is said, "All Your works shall praise You, O Lord," the saints occupy a special position and are spoken of by themselves. They are put before all others&mdash;"and Your saints shall bless You." Thirdly, these people render a special homage. While they join in the praise which comes up from all God's works, they stand in an inner circle and fulfill a peculiar ministry and, therefore, we read, "Your saints shall bless You."
 
-Come, then, to our work. May the Holy Spirit help us! First, GOD HAS a PEOPLE WHOM HE CALLS HIS
+Come, then, to our work. May the Holy Spirit help us! First, God HAS a PEOPLE WHOM HE CALLS HIS
 
 SAINTS. Who are they? Are they all dead? It is supposed so, for the usage of the Popery around us is to call men saints who have been long in their graves, while living men are not regarded in that light. I notice, even among those who call themselves Protestants, a great many relics of the old harlot of the seven hills, and among the rest, this nonsense of dead saintship! Somebody wrote me the other day about his, "sainted mother." What did he mean? Had the Pope canonized her? Or did she become a saint by dying? Does death, which came in through sin, bring sainthood with it?
 

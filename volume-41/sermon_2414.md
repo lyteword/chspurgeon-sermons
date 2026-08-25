@@ -76,7 +76,7 @@ Father will outstrip the wind and come and meet you, and fall upon your neck, an
 
 As for you Christian people who may be saying that there is nothing for you in the sermon, do not turn into a company of grumbling elder brothers! On the contrary, go home and pray God to bless this sermon. "But," you say, "I have not had the fatted calf tonight." "Oh, but if it were killed for the younger son, it was for you, also!" "I did not have the music and dancing tonight." Well, they have had it over the returned prodigal, over some soul that has already believed in Christ, tonight&mdash;I know they have! God does not let us preach for nothing. He will pay us our wages and give us our reward! So rejoice with us over all that the Lord has done, and all that He is going to do! The Lord bless you, Beloved, all of you, without exception, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE15.
+Exposition by C. H. Spurgeon: Luke15.
 
 This is a chapter that needs no explanation. It carries its key within itself and the experience of every child of God is the best exposition of it. The three parables recorded here set forth the work of saving Grace in different aspects.
 

@@ -34,7 +34,7 @@ Here was growing faith and, side by side with it, was a clearer manifestation of
 
 Awe-struck by the finger of God so near and so manifest, what could they do but bless the Lord who had visited His people? That is the story and it proves that our Lord Jesus Christ is Omnipotent in the physical world! He can do what He wills and though at this present time we do not appeal to Him for miraculous cures, it were well if we trusted Him more upon that point, for all of the power which dwells in medicine and all of the skill which is found in physicians is only effective through His tender mercy! We know, however, that our Lord is Omnipotent in the moral and spiritual world&mdash;and there, today, He displays His most sublime feats of power and wisdom! We are going to think about this and may the Holy Spirit make the meditation useful to us.
 
-The first thing I invite you to consider is THE PERFECT READINESS OF OUR LORD JESUS for works of mercy. The centurion was concerned about his servant, just as you and I are, I hope, today concerned about certain poor souls which lie paralyzed by sin. We mourn over them and if we could heal them we would gladly suffer any self-denial or suffering. If we could bring our neighbors to Christ, it would be the utmost joy to us&mdash;their perishing souls are, to some of us, as a burdensome stone&mdash;a load heavy to bear. How can we endure to see them die? The mass of working men around us, yes, and the majority of our wealthy neighbors are under the power of the Wicked One!
+The first thing I invite you to consider is THE PERFECT READINESS OF OUR Lord Jesus for works of mercy. The centurion was concerned about his servant, just as you and I are, I hope, today concerned about certain poor souls which lie paralyzed by sin. We mourn over them and if we could heal them we would gladly suffer any self-denial or suffering. If we could bring our neighbors to Christ, it would be the utmost joy to us&mdash;their perishing souls are, to some of us, as a burdensome stone&mdash;a load heavy to bear. How can we endure to see them die? The mass of working men around us, yes, and the majority of our wealthy neighbors are under the power of the Wicked One!
 
 To them the things which are seen are the only objects of their thoughts. They will not regard the Gospel of Christ, or eternity, or judgment, or Heaven, or Hell. The privileges with which our country is so largely endowed are treated as if they were of no value whatever&mdash;Sabbaths, Bibles, the Gospel and the Throne of Grace are despised. This is mournful, indeed! Brethren, we must go to Jesus about this evil thing and it may help us to do this if we now think of His great willingness to bless servant, child, or any other person whom we may bring before Him in prayer!
 
@@ -68,7 +68,7 @@ not, therefore, for a moment, object to anything he said. No, but the prayer had
 
 Come, then, dear Friends, we may be quite sure of our Lord's sympathy, though we are not praying about a sick boy, but pleading for our sinful neighbors! He loves sinners better than we do, for they have cost Him more than they have ever cost us&mdash;even if we have spent nights in watching and prayer on their behalf. To Him it is committed of the Father to save the lost and His zeal to accomplish the work never flags! Therefore we may be sure that our pleading and efforts will touch a kindred chord in His heart!
 
-Secondly, an equally interesting topic is before us in THE CONSCIOUS ABILITY OF OUR LORD. You have
+Secondly, an equally interesting topic is before us in THE CONSCIOUS ABILITY OF OUR Lord. You have
 
 seen His perfect willingness, now behold His boundless power! I do not know how it affects your minds, but that sentence from the lips of Jesus, "I will come and heal him," has a strange majesty about it to my soul. It is the word of a king wherein there is power. Perhaps the most majestic word that was ever uttered was, "Light be"&mdash;no sooner was it heard than the eternal darkness fled and light was!
 
@@ -96,7 +96,7 @@ Beloved, I want you to get fast hold of this thought if you can, and I beg you t
 
 We shall close by a third equally interesting point of great practical value. I have spoken of our Lord's
 
-willingness and power. Now we will note THE ABIDING METHOD OF OUR LORD JESUS. The first method
+willingness and power. Now we will note THE ABIDING METHOD OF OUR Lord Jesus. The first method
 
 mentioned here was, "Come and heal him." Jesus then went about doing good, but He does not now vouchsafe His bodily Presence, or give physical tokens of His being near to anyone. If any say to us, "Lo here," or, "Lo there," let us not believe them, for Jesus is not, now, upon the earth&mdash;He has gone up on high. We do not now pray, "Come and heal him," in the sense of expecting a vision or revelation of Christ after the flesh to those whom we love. We believe that He
 

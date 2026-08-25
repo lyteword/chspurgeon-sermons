@@ -10,7 +10,7 @@ It also seems to me that this command derives singular solemnity from the occasi
 
 Let me make just one other introductory observation, namely, that this commandment was evidently not issued for one occasion only, for it is quoted by the Apostle Paul in writing to the Corinthians&mdash;and he adds these significant words, "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He come." The command, therefore, remains in force until the Second Advent&mdash;and until Christ, Himself, shall again appear upon this earth, these memorials of His passion are to be constantly before us!
 
-I am going to remind you, first, of THE NEED OF SUCH COMMEMORATION OF CHRIST&mdash;"This do in remembrance of Me."
+I am going to remind you, first, of THE NEED OF SUCH COMMEMORATION OF Christ&mdash;"This do in remembrance of Me."
 
 The need exists, first, because of our forgetful memories. Memory, in common with every other faculty, has been injured by the Fall. It is more retentive of that which is evil than of that which is good and, as you all know, far more easily recollects injuries than benefits. But it certainly does show the deep depravity of the human heart that we should ever be likely to forget our Lord. Have we not often sung&mdash;
 
@@ -70,7 +70,7 @@ How sorry I am that there are many here who must not come to this Table, for the
 
 died without love to Him and trust in Him! God save you! Believe in Jesus now and you shall be saved now. Cast yourselves upon Him and He will not cast you away. So may He bless you, for His dear name's sake! Amen and amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK 15:1-41; LUKE 8:1-3.
+Exposition by C. H. Spurgeon: Mark 15:1-41; Luke 8:1-3.
 
 Let us read again what we have often read before, that saddest of all stories which, nevertheless, is the fountain of the highest gladness&mdash;the story of our Savior's death, as recorded by Mark.
 

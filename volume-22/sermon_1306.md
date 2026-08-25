@@ -97,7 +97,7 @@ The utmost that can be truthfully said on the dark side of a Believer's worst es
 
 We are not under the Law and cannot, therefore, be under the wrath which the Law works. We are not accounted as guilty before the Lord and, therefore, cannot be obnoxious to His great anger. Let us remember this and be of good courage when we are enduring the chastisements of the Lord.
 
-We are now to consider THE GREAT WRATH OF GOD AND OUR SECURITY AGAINST IT. Our security against it is this&mdash;"This is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go
+We are now to consider THE GREAT WRATH OF God AND OUR SECURITY AGAINST IT. Our security against it is this&mdash;"This is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go
 
 over the earth; so have I sworn that I would not be angry with you, nor rebuke you." Until God drowns the whole world, again, He never can let out His great Wrath against His people! Many centuries have gone by since Noah was saved in the ark and there has been no other universal flood. There have been partial floods, here and there, but the earth has never been completely destroyed with water.
 

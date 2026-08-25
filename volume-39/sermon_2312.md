@@ -88,7 +88,7 @@ Come, then, while in the pew, tonight, before we gather at the Communion Table, 
 
 And you, poor Sinners, who cannot pray like children, what are you to do? Well, you remember how the Savior said to the Syrophenician woman, "It is not right to take the children's bread, and to cast it unto the dogs." But she answered, "Yes, Lord; yet the dogs under the table eat of the children's crumbs." You come in for the crumbs, tonight, but if a man is satisfied to eat crumbs with the dogs, God will not be satisfied till He makes him eat bread with the children! If you will take the lowest place, God will give you a higher place before long. Come to Jesus and trust in Him henceforth and forever. Amen.
 
-EXPOSITION BY C. H. SPURGEON. MATTHEW7.
+Exposition by C. H. Spurgeon. Matthew7.
 
 Verse 1. Judge not, that you be not judged. You are not called to judge&mdash;you are not qualified to judge. "God is the Judge: He puts down one, and sets up another." There is much better work to be done by us than that of setting up as judges of others.
 

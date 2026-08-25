@@ -98,7 +98,7 @@ But if, alas, you feel that you cannot speak for Christ, then, Beloved, bring Hi
 
 Now may we find all this to be especially true as we gather around the Table! The Lord be with you all, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: SOLOMON's SONG 2; 3:1-5.
+Exposition by C. H. Spurgeon: SOLOMON's SONG 2; 3:1-5.
 
 Here we have a dialogue of love between the Lord Jesus and His people.
 

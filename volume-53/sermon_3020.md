@@ -53,7 +53,7 @@ Thus I set forth the woman's need of comfort. And if anyone else is in a similar
 > If my Lord Himself reveals No other good I need! Only Christ my wounds can heal, Or silence my complaint.   
 > He that suffered in my place Shall my Physician be&mdash; I will not be comforted Till Jesus comforts me.   
 
-May the Holy Spirit rest upon us while we notice THE COMFORT WHICH JESUS GAVE HER. He said to her, "Daughter, be of good comfort: your faith has made you whole."
+May the Holy Spirit rest upon us while we notice THE COMFORT WHICH Jesus GAVE HER. He said to her, "Daughter, be of good comfort: your faith has made you whole."
 
 There was comfort in the loving title. To call her "Daughter" was most kind and tender. I suppose that she must have been of much the same age as our Lord and, therefore, He did not call her, "Daughter," because of her youth. When our Lord said, "Daughter," He expressed His tender consideration for her which made Him feel towards her as tenderly as a father to a child. "Sister" would have been the word if He had only meant human relationship, but, "Daughter," meant careful affection. While Jesus is our Brother, there is a sense in which He is also our Father&mdash;and He exercises towards His poor, downcast children, a father's pity and care.
 
@@ -79,7 +79,7 @@ Once more, if anyone is conscious that faith has saved him, he may take to himse
 
 Do you not see that if your faith has changed your character and delivered you from the desperate plague of sin, there remains no longer any impossibility or even difficulty in the way of duty? You have been half afraid to try to teach the children in the Sunday school but, surely, since your faith has made you whole, you can teach a few little children! You have been afraid to address a score of people in a village chapel. But you need not be afraid to try if God has called you&mdash;for the faith which has made you whole can give you "a word in season." What is there that faith cannot do? Why, if my faith has had the power to drop the burden of my sin into the sepulcher of my Lord, what is there that it cannot accomplish? If, by that faith, my soul has risen from among the dead and taken her seat at the right hand of the Father in the heavenly places in Christ, what shall stand in its way? If we have to force a passage through a throng of devils, we need not hesitate! And though all the world combined and stood against us, we need not fear! Our faith has made us whole&mdash;who can undo the miracle? A faith which, by Divine Grace, saves us from Hell and secures us for Heaven&mdash;what is there that it cannot accomplish? It laughs at impossibilities and marches from strength to strength in majestic serenity! Holy confidence shall win victory upon victory till, at last it shall cry, "I have fought a good fight, I have finished my course, I have kept the faith; henceforth there is laid up for me a crown of righteousness which the Lord, the righteous Judge, shall give me at that day!" I cannot imagine a sweeter consolation than this&mdash;"Your faith has made you whole: go in peace." Endeavor to suck the honey out of it!
 
-We will close this meditation by considering THE FAITH WHICH OUR LORD COMMENDED.
+We will close this meditation by considering THE FAITH WHICH OUR Lord COMMENDED.
 
 It made her whole. That is its best certificate of excellence! There is much to note in reference to that faith, but a few brief hints may suffice. Her faith is to be commended because it outlived a long season of discouragement She had been afflicted 12 years &mdash;think of that! Patience had indeed had its perfect work in her. But she believed in Christ for a cure and the cure came to her! So will it be with everyone who will believe in Jesus. If there could be a soul found which had been living in sin 1,200 years&mdash;if it had faith in Jesus He would make it whole! After half a century of impenitence, he that believes in Christ Jesus is saved at once. Eighty years of sin vanish in a moment when a man trusts in the great Atonement! Come, dear unconverted Friend, and cast yourself at Christ's feet at this quiet hour, for He will not cast you
 
@@ -99,4 +99,4 @@ Trusting in Jesus is a man's best evidence that he is saved, for it is written, 
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

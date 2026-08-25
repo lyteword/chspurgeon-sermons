@@ -19,7 +19,7 @@ Beyond a doubt, Christ Jesus has risen from the dead and become the first-fruits
 
 "Lift up your heads, O you gates, and be you lift up, you everlasting doors, that the King of Glory may come in." How high He ascended after He passed the pearly portal Paul cannot tell us, save that he says, "He ascended up far above all heavens," and describes Him as, "set at God's right hand in the heavenly places, far above all principality, and power, and might, and dominion." He describes our Master as, "dwelling in the light which no man can approach unto." The Man Christ Jesus has gone back to the place from where His Godhead came! You are the King of Glory, O Christ! You are the eternal Son of the Father! You sit forever in the highest Heaven, enthroned with all Glory, clothed with all power, King of kings and Lord of lords! Unto Your name we humbly present our hallelujahs, both now and forever.
 
-Now, concerning the text itself, which speaks of the ascent of our ever blessed Lord, we shall say, first, that OUR LORD's TRIUMPH WAS SET FORTH BY HIS ASCENSION. He came here to fight the foes of God and man. It was a tremendous battle&mdash;not against flesh and blood&mdash;but against spiritual wickedness and evil powers. Our Lord fought against sin, death, Hell, hate of God and love of falsehood. He came to earth to be our Champion. For you and for me, Beloved, He entered the battle and wrestled till He sweat great drops of blood&mdash;yes, "He poured out His soul unto
+Now, concerning the text itself, which speaks of the ascent of our ever blessed Lord, we shall say, first, that OUR Lord's TRIUMPH WAS SET FORTH by HIS ASCENSION. He came here to fight the foes of God and man. It was a tremendous battle&mdash;not against flesh and blood&mdash;but against spiritual wickedness and evil powers. Our Lord fought against sin, death, Hell, hate of God and love of falsehood. He came to earth to be our Champion. For you and for me, Beloved, He entered the battle and wrestled till He sweat great drops of blood&mdash;yes, "He poured out His soul unto
 
 death."
 
@@ -50,7 +50,7 @@ I saw You laid in the tomb, wrapped about with cerements and embalmed in spices&
 
 Let us rejoice in the ascent of Christ as being the ensign of His victory and the symbol of it! He has accomplished His work. If You had not led captivity captive, O Christ, You had never ascended on high. And if You had not won gifts of salvation for the sins of men, You had been here still suffering! You would never have relinquished Your chosen task if You had not perfected it. You are so set on the salvation of men that for the joy that was set before You, You did endure the Cross, despising the shame&mdash;and we know that all must have been achieved or You would still be working out Your gracious enterprise. The voice of the ascension is&mdash;CONSUMMATUM EST&mdash;"It is finished."
 
-Having led your thoughts that way, I would, secondly, remind you that THE LORD's TRIUMPHAL ASCENT DEMONSTRATED THE DEFEAT OF ALL OUR FOES. "You have led captivity captive" is as certain as, "You have
+Having led your thoughts that way, I would, secondly, remind you that THE Lord's TRIUMPHAL ASCENT DEMONSTRATED THE DEFEAT OF ALL OUR FOES. "You have led captivity captive" is as certain as, "You have
 
 ascended on high." Brethren, we were once captives&mdash;captives to tyrants who worked us woe and would soon have worked us death. We were captives to sin. We were captives to Satan and therefore captives under spiritual death. We were captives under many lusts and imaginations of our own hearts&mdash;we were captives to error, captives to deceit. But the Lord Jesus Christ has led captivity captive! There is our comfort!
 
@@ -70,7 +70,7 @@ Yet there is no reason for dismay. God is in no hurry as we are. He dwells in th
 
 Especially by His Resurrection and by His climbing to the Throne of God, He has made the victory of His Truth, the victory of His Church&mdash;the victory of Himself&mdash;most sure and certain!
 
-Let us notice, thirdly, that OUR LORD's TRIUMPHANT ASCENSION WAS CELEBRATED BY GIFTS. The custom of bestowing gifts after victory was practiced among the Easterns, according to the song of Deborah. Those to whom a triumph was decreed in old Rome scattered money among the populace. Sometimes it seemed as if every man in the city was made rich by his share of the spoils of vanquished princes.
+Let us notice, thirdly, that OUR Lord's TRIUMPHANT ASCENSION WAS CELEBRATED by GIFTS. The custom of bestowing gifts after victory was practiced among the Easterns, according to the song of Deborah. Those to whom a triumph was decreed in old Rome scattered money among the populace. Sometimes it seemed as if every man in the city was made rich by his share of the spoils of vanquished princes.
 
 Thus our Lord, when He ascended on high, received gifts for men and scattered largess all around. The Psalm says: "You have received gifts for men." The Hebrew has it, "You have received gifts in Adam"&mdash;that is, in human nature. Our Lord Christ had everything as Lord&mdash;but as the Man, the Mediator&mdash;He has received gifts from the Father. "The King eternal, immortal, invisible," has bestowed upon His triumphant General a portion with the great and He has
 
@@ -100,7 +100,7 @@ See how wonderful, then, was that ascension of our Lord in which He scattered do
 
 I want the attention, now, of all who are unconverted for I have glorious tidings for them. To them I speak under
 
-my fourth head, OUR LORD's TRIUMPH HAS a VERY SPECIAL BEARING. "You have received gifts for men"&mdash;
+my fourth head, OUR Lord's TRIUMPH HAS a VERY SPECIAL BEARING. "You have received gifts for men"&mdash;
 
 not for angels, not for devils, but for men&mdash;poor fallen men. I read not that it is said, "for bishops or ministers," but, "for men." And yet there is a special character mentioned. Does the text particularly mention, "saints," or those that have not defiled their garments? No, I do not read of them here.
 
@@ -118,7 +118,7 @@ the Table has not deserted you! I know you have, as far as you could, forsworn t
 
 Nevertheless, I charge you, Return unto the Lord at once! Come to your Lord and Savior who still prays, "Father, forgive them for they know not what they do." Behold how in His Glory He "has received gifts for men; yes, for the rebellious also." O my Soul, I charge you, on your own account, hang on to this most precious declaration, for you, too, have been a rebel! Would God that all my Brothers and Sisters would be cheered by this dear Word and take it home to themselves with a believing repentance and a holy hatred of sin! I would print the words in stars across the brow of night&mdash;"Yes, for the rebellious, also."
 
-I have done when I have handled the fifth point, which is this&mdash;OUR LORD's TRIUMPHANT ASCENSION SECURES THE CONSUMMATION OF HIS WHOLE WORK. What does it say? "That the Lord God might dwell
+I have done when I have handled the fifth point, which is this&mdash;OUR Lord's TRIUMPHANT ASCENSION SECURES THE CONSUMMATION OF HIS WHOLE WORK. What does it say? "That the Lord God might dwell
 
 among them." When our Lord Christ came here at the first He was willing enough to "dwell" among us, but it could not be. "The Word was made flesh and tabernacled among us," like a Bedouin in his tent, but not as a dweller at home. He could not "dwell" here on that occasion. He was but a Visitor and badly treated at that.
 

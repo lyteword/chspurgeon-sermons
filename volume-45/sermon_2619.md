@@ -86,7 +86,7 @@ Finally, it was becoming on the part of God, "for whom are all things, and by wh
 
 I like, sometimes, to leave off praying and singing, and to sit still, and just gaze upward till my inmost soul has seen my Lord. Then I say, "He is inexpressibly lovely. Yes, He is altogether lovely!" If He is that to my poor eyes, which are so dull and dim that they cannot half discern His beauties, what must He be in the eyes of God? In the eyes of God He is so precious that, as my text says, "It became Him, for whom are all things, and by whom are all things"&mdash;it was becoming even in Him, "in bringing many sons to Glory, to make the Captain of their salvation perfect through sufferings"&mdash; glorified beyond all imaginable glory and to have universal homage paid to Him throughout the universe forever and ever! God sees it to be becoming and, therefore, we delight in it. Amen and amen!
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 2:1-15.
+Exposition by C. H. Spurgeon: Hebrews 2:1-15.
 
 Verse 1. Therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let them slip. We have heard them. Do not let us forget them! Let them not be like the driftwood which goes floating down the stream. Let us make a desperate effort to retain them in our memories and, above all, to ponder them in our hearts.
 

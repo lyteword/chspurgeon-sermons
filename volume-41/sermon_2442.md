@@ -96,7 +96,7 @@ If Christ is yours, Heaven is yours! If Christ is not yours, you are neither fit
 
 "I dare not take Him," says one. Well, you are a strange person! I dare not let Him alone and I challenge you to shape that, "dare," into any other proper form. If He bids you take Him and trust Him, how dare you refuse Him? Take Him, now, and be safe and happy forever! God bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM63.
+Exposition by C. H. Spurgeon: Psalm63.
 
 This is said to be, "A Psalm of David, when he was in the wilderness of Judah." I suppose, therefore, that it was composed when he fled from Jerusalem because of the cruel treachery of his son, Absalom. He must have been heart-broken, and stricken with the greatest possible sorrow as he fled away with his faithful followers into the wilderness of Judah. But even there he praised his God&mdash;and he did not sing to Him with old and stale Psalms, but with a new song! How restful and calm he must have been, in his great sorrow, to sit down, even in the wilderness of Judah, and make a new hymn of praise unto the Lord! How gloriously he begins!
 

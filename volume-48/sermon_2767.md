@@ -42,7 +42,7 @@ It is prevailing prayer when one gets as far as that! A man is prepared to die w
 
 Sometimes, dear Friends, you may wish, in your hearts, that the Lord would make great use of you and yet, perhaps, He may not do so. Well, a man who holds his tongue when Christ tells him to do so, is glorifying Christ more than if he opened his mouth and broke the Master's commandment. There are some of the Lord's people who, by a quiet, holy, consistent manifestation of what the Lord has done for them, glorify Him more than they would do if they went from place to place telling out His Gospel in a way which would make the Gospel itself disgusting to those who heard it. That is quite possible, for some people do it. If my Lord puts me in the front rank, blessed be His name for it, and I must fight for Him there as best I can. But if He says to me, "Lie in bed! Be bed-ridden for seven years, and never get up!"&mdash;I have nothing to do but to glorify Him in that way. He is the best soldier who does exactly what his captain bids him.
 
-Now, in the third place, and only briefly, LET US VIEW THE DISCIPLES IN GETHSEMANE, BY WAY OF
+Now, in the third place, and only briefly, LET US VIEW THE DISCIPLES IN GETHSEMANE, by WAY OF
 
 INSTRUCTION TO OURSELVES.
 
@@ -78,7 +78,7 @@ I cannot bear to think that anyone of you should be familiar with the ins and ou
 
 Therefore, hold me up, O Lord, and I shall be safe; keep me even to the end, for Your dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN15:1-8.
+Exposition by C. H. Spurgeon: John15:1-8.
 
 On the way from the supper table to the Garden of Gethsemane, or while still lingering in the upper room, our Lord spoke this wondrous parable.
 

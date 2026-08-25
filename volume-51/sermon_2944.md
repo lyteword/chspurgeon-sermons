@@ -103,7 +103,7 @@ I do not suppose you can hear this clock tick, but when you get home, listen to 
 
 May the Holy Spirit speak to you through it, and may you answer, "Now, even now, I will believe in Jesus Christ and be saved." May God bless you! May Christ save you! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 17:11-32.
+Exposition by C. H. Spurgeon: Luke 17:11-32.
 
 Verses 11, 12. And it came to pass, as He went to Jerusalem, that He passed through the midst of Samaria and Galilee. And as He entered into a certain village, there met Him 10 men who were lepers which stood afar off Leprosy was very common in Palestine in Christ's day. How thankful we ought to be that in this country, at any rate, it has almost entirely died out! There used to be, in almost every town, a lazar-house provided for lepers, so common was leprosy in this country. Certain diseases seem to die out by degrees and we should be very grateful that some of the worst forms of disease by which men have been afflicted have passed away. In this case, there were no less than 10 in one village. They "stood afar off," as was most proper, lest they should communicate the contagion to others. They had to cry out and warn men not to come too near them, saying, with covered lips, "Unclean! Unclean! Unclean!" The muffled sound that they made, if the word could not be distinguished, helped to warn the passersby to give them a wide berth.
 

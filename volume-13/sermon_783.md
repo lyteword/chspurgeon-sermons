@@ -43,7 +43,7 @@ The decease of our friend James Hamilton, in connection with another circumstanc
 
 First, let us consider the departure of great saints, and of God's ministers in particular&mdash;what do these teach us? Secondly, the various modes of their departure&mdash;what do these teach us, also?
 
-First, THE DEPARTURES OF GOD's SAINTS, AND ESPECIALLY OF HIS MINISTERS&mdash;WHAT ARE THEIR LESSONS? The first that lies upon the surface is this, "Be you also ready, for in such an hour as you think not the Son of Man comes." When in the forest there is heard the crash of a falling oak, it is a sign that the woodsman is
+First, THE DEPARTURES OF God's SAINTS, AND ESPECIALLY OF HIS MINISTERS&mdash;WHAT ARE THEIR LESSONS? The first that lies upon the surface is this, "Be you also ready, for in such an hour as you think not the Son of Man comes." When in the forest there is heard the crash of a falling oak, it is a sign that the woodsman is
 
 abroad, and every tree in the whole company may tremble lest soon the sharp edge of the axe should find it out. We are all mortal, and the death of one should remind us that death lurks hard by us all.
 

@@ -44,9 +44,7 @@ Wherein Free Grace abounds!" II. Secondly, the text answers the question, HOW SH
 
 That is, they should come very swiftly. A dove's flight is very rapid and when a cloud of doves is driven by the wind, they fly very swiftly through the air. That is the way for sinners to come to Christ&mdash;come at once without delay. The very best time to trust the Savior is NOW, for, "behold, now is the accepted time; behold, now is the day of salvation." I cannot give you a promise of salvation tomorrow, but I find many promises in the Word of God concerning the present time. Oh, that God would, by His Grace, incline some soul to break away from the bands of procrastination and say, "Since it may be 'now or never' with me, it shall be NOW! I will fly to Christ at once."
 
-There are many reasons why you should fly to Christ at once. First, because you are in present danger Should not the dove fly at once to its windows when the hawk is after it? And Sinner, sin is after you and wrath is after you if you are out of Christ. "He that believes not"&mdash;and mark, this is God's Word&mdash;"he that believes not is condemned already, because he has not believed in the name of the only begotten Son of God." "Condemnedalready." Then you are in a condition of present danger and I say to you as the angel said to Lot, "Escape for your life! Look not behind you, neither stay you in all the plain; escape to the mountain, lest you be consumed." Already the venom of the fiery serpent's poison is boiling in your veins! Look then, at once to Him who is lifted up before you as the bronze serpent was lifted up before the bitten Israelites, for there is healing in a single glance at Christ Crucified! Though you are at the very ends of the earth, the message can reach you, for the Lord says, "Look unto Me, and be you saved, all the ends of the earth: for I am God, and there is none else." So come to Christ at once because you are in present danger. [See Sermon #60, Volume 2&mdash;
-
-SOVEREIGNTY AND SALVATION.]
+There are many reasons why you should fly to Christ at once. First, because you are in present danger Should not the dove fly at once to its windows when the hawk is after it? And Sinner, sin is after you and wrath is after you if you are out of Christ. "He that believes not"&mdash;and mark, this is God's Word&mdash;"he that believes not is condemned already, because he has not believed in the name of the only begotten Son of God." "Condemnedalready." Then you are in a condition of present danger and I say to you as the angel said to Lot, "Escape for your life! Look not behind you, neither stay you in all the plain; escape to the mountain, lest you be consumed." Already the venom of the fiery serpent's poison is boiling in your veins! Look then, at once to Him who is lifted up before you as the bronze serpent was lifted up before the bitten Israelites, for there is healing in a single glance at Christ Crucified! Though you are at the very ends of the earth, the message can reach you, for the Lord says, "Look unto Me, and be you saved, all the ends of the earth: for I am God, and there is none else." So come to Christ at once because you are in present danger. 
 
 Besides that, there is great reason why you should fly at once to Christ because time is flying faster than you can fly. And with the flight of time, the approach of the night of death is certain. The dove seeks its dovecot before nightfall, for it knows the dangers to which it would be exposed in the darkness. The night is fast approaching with some of you. In the nature of things, you cannot live much longer, yet how strange it is that men often think that they will continue to live
 
@@ -91,7 +89,7 @@ I have only to ask one more question and then I will close. Among these that are
 
 If that is your sincere utterance, you are a saved soul! Now be baptized, now join the Church! But first see to it that you believe in Jesus, for that is the first business. May God bring you to Christ and may the blessing of the Triune Jehovah be with you forevermore! Amen and amen!
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 10.
+Exposition by C. H. Spurgeon: Romans 10.
 
 This chapter is a Gospel in itself&mdash;it very clearly points out the plan of salvation by faith in the Lord Jesus Christ.
 
@@ -135,4 +133,4 @@ So then faith comes by hearing, and hearing by the Word of God. With what solemn
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

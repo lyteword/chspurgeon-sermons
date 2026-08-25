@@ -1,6 +1,6 @@
 # Sermon 2801 | A Fear to Be Desired
 
-"They shall fear the LORD and His goodness in the latter days." Hosea 3:5.
+"They shall fear the Lord and His goodness in the latter days." Hosea 3:5.
 
 THIS passage refers, in the first place, to the Jews. If we read the whole verse and the preceding one, we shall see that they describe the present sad condition of God's ancient people and inspire us with hope concerning their future&mdash;"For the children of Israel shall abide many days without a king or prince, without sacrifice, without ephod or teraphim. Afterward the children of Israel shall return and seek the Lord their God and David their king. They shall fear the Lord and His goodness in the latter days." From this and many other texts of Scripture, we may conclude, without a shadow of a doubt, that the Jews shall, one day, acknowledge Jesus to be their King. The Son of David&mdash;who is here, doubtless, called by the name of David, and who, when He died upon the Cross, had Pilate's declaration inscribed over His head, "This is Jesus the King of the Jews"&mdash;will then be acknowledged by them as their King and then shall they be restored to more than their former joy and glory. God has great things in store for the seed of Abraham in the latter days. He has not finally cast them away and He will be true to that Covenant which He made with their fathers&mdash;and on Judaea's plains shall roam a happy people who shall lift up their songs of praise unto Jehovah in the name of Jesus Christ their Lord and Savior! Whenever that shall happen, we, or those who will then be living, may know that the latter days have fully come because it is foretold here and in other passages that this is what will occur in the latter days. I am not going to attempt any explanation of the prophetic intimations concerning the future, but this one fact is plain enough&mdash;when the end of the world is approaching and the fullness of the Gentiles is gathered in, and all the splendor of the latter days has really commenced, then "shall the children of Israel return, and seek the Lord their God and David their king. They shall fear the Lord and His goodness."
 
@@ -82,11 +82,11 @@ There are others of you, I am afraid, who never fear either God or His goodness.
 
 May God grant to everyone of us the Grace to believe in Jesus, to rest in Him and then to walk in the fear of the Lord all our days, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM103.
+Exposition by C. H. Spurgeon: Psalm103.
 
-Verse 1. Bless the LORD, O my soul: and all that is within me, bless His holy name. We ought to be always blessing God. This sacred employment should be like an atmosphere surrounding us at all times. Yet there are special seasons when we feel as if we must wake ourselves up and brace ourselves up for some special adoration, talking to ourselves as the Psalmist does here.
+Verse 1. Bless the Lord, O my soul: and all that is within me, bless His holy name. We ought to be always blessing God. This sacred employment should be like an atmosphere surrounding us at all times. Yet there are special seasons when we feel as if we must wake ourselves up and brace ourselves up for some special adoration, talking to ourselves as the Psalmist does here.
 
-Bless the LORD, O my soul, and forget not all His benefits. Alas, that forgetfulness of God's benefits is an evil kind of worm that eats into the very heart of our praise. Oh, for a retentive memory concerning the loving kindness of the
+Bless the Lord, O my soul, and forget not all His benefits. Alas, that forgetfulness of God's benefits is an evil kind of worm that eats into the very heart of our praise. Oh, for a retentive memory concerning the loving kindness of the
 
 Lord! Come, my heart, you have been thinking of many things while you have been away from the House of Prayer. Now forget them! Perhaps you have even dwelt upon your sorrows and remembered the wormwood and the gall. If so, now let those sad memories vanish, "and forget not all His benefits."
 
@@ -100,11 +100,11 @@ Who crowns you with loving kindness and tender mercies. We talk about crowned he
 
 Who satisfies your mouth with good things; so that your youth is renewed like the eagles. You were down on the ground lately, with all your feathers shed, but they have grown again and you are up on the wing once more. Your youth has been given back to you! Renew, then, your praises of your God. With the dew of your youth restored to you, let the dew of your gratitude also abound. Who would not bless the Lord when he knows the blessedness of pardoned sin, a wounded spirit, healed, the life redeemed from destruction, youth restored like the eagle's and the whole being crowned with loving kindness and tender mercies?
 
-The LORD executes righteousness and judgment for all that are oppressed. Therefore let the oppressed praise Him! Let the justice which adorns His Throne be the subject of our constant delight. There is no act of oppression, on the part of the great ones of the earth, at which He will wink&mdash;"The Lord executes righteousness and judgment for all that are oppressed."
+The Lord executes righteousness and judgment for all that are oppressed. Therefore let the oppressed praise Him! Let the justice which adorns His Throne be the subject of our constant delight. There is no act of oppression, on the part of the great ones of the earth, at which He will wink&mdash;"The Lord executes righteousness and judgment for all that are oppressed."
 
 He made known His ways unto Moses, His acts unto the children of Israel Bless Him for having thus revealed Himself, giving us His Holy Word in which we see Him as in a mirror. When God makes Himself known to His people, then is the time for them to praise Him! You can scarcely worship an unknown God, but when He makes Himself known by special revelation in your heart, then you must and you will praise Him.
 
-The LORD is merciful and gracious, slow to anger, and plenteous in mercy. Therefore again praise Him. All who know and love the Lord should form a great orchestra continually magnifying His holy name!
+The Lord is merciful and gracious, slow to anger, and plenteous in mercy. Therefore again praise Him. All who know and love the Lord should form a great orchestra continually magnifying His holy name!
 
 He will not always chide: neither will He keep His anger forever. So that if you are just now being chided by Him&mdash;if you have some consciousness of His anger&mdash;begin to bless Him that it will not last long! "He will not always chide." Behold the rainbow painted on the storm cloud and bless the name of the Lord even while you are under His afflicting hand.
 
@@ -114,19 +114,19 @@ For as the Heaven is high above the earth, so great is His mercy toward them tha
 
 As far as the east is from the west, so far has He removed our transgressions from us. They are gone&mdash;never to return! It is impossible that they should be imputed against us any more forever! Therefore praise Him to the very utmost.
 
-Like as a father pities his children, so the LORD pities them that fear Him. Notice that as this sacred song rises, it gets more tender. If it is not quite so jubilant, the praise is all the deeper and quite as thrilling. One of the sweetest thoughts that we can have concerning God is that which relates to His fatherly tenderness toward His children.
+Like as a father pities his children, so the Lord pities them that fear Him. Notice that as this sacred song rises, it gets more tender. If it is not quite so jubilant, the praise is all the deeper and quite as thrilling. One of the sweetest thoughts that we can have concerning God is that which relates to His fatherly tenderness toward His children.
 
 For He knows our frame. He remembers that we are dust Let His name be praised for this! Dust must be handled daintily, lest it should resolve itself into its separate particles&mdash;and God thus delicately handles us.
 
 15, 16. As for man, his days are as grass: as a flower of the field, so he flourishes. For the wind passes over it, and it is gone; and the place thereof shall know it no more. Yet does God think of us, even as He does of the grass&mdash;and as He gives to each blade of grass its own drop of dew, so do we seem to feel hanging about each one of us a glistening drop of mercy, for which let us praise His holy name as the sunlight of His favor sparkles in every drop of His loving kindness!
 
-17, 18. But the mercy of the LORD is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children; to such as keep His covenant, and to those that remember His commandments to do them. Then, surely, we must bless God for His favor to our posterity, for His loving kindness, not only to ourselves, but also to our children, and our children's children! As we look back, we praise the God of our fathers and as we look forward, we praise the God of our children's children!
+17, 18. But the mercy of the Lord is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children; to such as keep His covenant, and to those that remember His commandments to do them. Then, surely, we must bless God for His favor to our posterity, for His loving kindness, not only to ourselves, but also to our children, and our children's children! As we look back, we praise the God of our fathers and as we look forward, we praise the God of our children's children!
 
-The LORD has prepared His throne in Heavens and His kingdom rules over all For which again let us say, "Hallelujah!" The Lord of Hosts is no dethroned monarch! He has not lost His power to govern all whom He has made! "His kingdom rules over all."
+The Lord has prepared His throne in Heavens and His kingdom rules over all For which again let us say, "Hallelujah!" The Lord of Hosts is no dethroned monarch! He has not lost His power to govern all whom He has made! "His kingdom rules over all."
 
-Bless the LORD, you His angels that excel in strength, that do His commandments, hearkening unto the voice of His word. Magnify Him more than ever, if that is possible, you mighty hosts who&mdash;
+Bless the Lord, you His angels that excel in strength, that do His commandments, hearkening unto the voice of His word. Magnify Him more than ever, if that is possible, you mighty hosts who&mdash;
 
 > Day without night   
 > Circle His Throne rejoicing.   
 
-22. Bless you the LORD, all you His hosts; you ministers of His, that do His pleasure. Bless the LORD, all His works in all places of His dominion: bless the LORD, O my soul The praise is now spread widely, over all the universe! Yet, O my heart, do not forget your own personal note in it&mdash;"O Bless the Lord, O my soul."
+22. Bless you the Lord, all you His hosts; you ministers of His, that do His pleasure. Bless the Lord, all His works in all places of His dominion: bless the Lord, O my soul The praise is now spread widely, over all the universe! Yet, O my heart, do not forget your own personal note in it&mdash;"O Bless the Lord, O my soul."

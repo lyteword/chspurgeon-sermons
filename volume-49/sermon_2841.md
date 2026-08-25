@@ -92,7 +92,7 @@ me."
 
 And he went on his way rejoicing. Now, doesn't that fit you, too? What would you give tonight if you could believe that Jesus Christ was punished instead of you, so that all your sins shall never be mentioned anymore, but all be forgiven because God punished Christ Jesus instead of you? I repeat, the only way you can tell is by answering this question&mdash;Are you a sinner? "Well, we are all sinners," says one. No, no&mdash;you are all sinners, but you are not all the sort of sinners that I mean. Some people say they are sinners but they don't mean it. They are like the beggars in London apparently full of sores. Many a man we see in the streets with his leg tied up and seeming desperately lame, will take off the bandage when he gets to his lodging house&mdash; and will dance before he goes to bed at night! Another man standing against the wall says he is stone blind&mdash;but he will see to count his money when he gets home after begging all day! There are plenty of people of that sort. Now, if I invited the lame and the blind, do you think I should receive those who were only shamming? No, I would only have those who were really lame and blind! So Christ died only for those who are real sinners.
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS2.
+Exposition by C. H. Spurgeon: Ephesians2.
 
 Verse 1. And you has He quickened. Is it so? Can anyone lay his hand on your shoulder and say right into your ear, "You has He quickened?" If so, why this deadness of spirit? Why this worldliness? Why these wanderings? "You has He quickened."
 

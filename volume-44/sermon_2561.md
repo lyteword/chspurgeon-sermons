@@ -62,11 +62,11 @@ I think I hear somebody say, "Well, I am so glad I can get as far as that, I can
 
 As for you who have no part nor lot in this matter, I am very sorry for you. I would God that you had. Whoever believes in the Lord Jesus Christ shall have all this and much more than tongue can tell. Oh, that you would believe in Him, now, and live forever! God grant it, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS20AND21.
+Exposition by C. H. Spurgeon: PsalmS20AND21.
 
 The twentieth Psalm is a prayer for the king going forth to the conflict&mdash;a prayer for David. Better still, a prayer for great David's greater Son. The twenty-first Psalm is a song of victory for the returning conqueror, it is a Te Deum, as the King has triumphed and has returned from the conflict to enjoy the congratulations of His loyal subjects.
 
-Psalm 20:1. The LORD hear you in the day of trouble; the name of the God of Jacob defend you. This is a prayer for David, a prayer for Jesus and a prayer for every child of God. "Jehovah hear you in the day of trouble." What do you need? Remember that the Lord gives you this promise, "Call upon Me in the day of trouble; I will deliver you, and you shall glorify Me." "The name of the God of Jacob defend you." The God that took care of Jacob when he slept with a stone for his pillow. The God that guarded him when he was a stranger in a strange land and brought him home again. The God that wrestled with him at Jabbok, the God that made all things work for him, instead of against him, as he feared "the name"&mdash;the Character, the Attributes, the Glory&mdash;"of the God of Jacob defend you."
+Psalm 20:1. The Lord hear you in the day of trouble; the name of the God of Jacob defend you. This is a prayer for David, a prayer for Jesus and a prayer for every child of God. "Jehovah hear you in the day of trouble." What do you need? Remember that the Lord gives you this promise, "Call upon Me in the day of trouble; I will deliver you, and you shall glorify Me." "The name of the God of Jacob defend you." The God that took care of Jacob when he slept with a stone for his pillow. The God that guarded him when he was a stranger in a strange land and brought him home again. The God that wrestled with him at Jabbok, the God that made all things work for him, instead of against him, as he feared "the name"&mdash;the Character, the Attributes, the Glory&mdash;"of the God of Jacob defend you."
 
 Send you help from the sanctuary. ' 'Help from the holy place, help from the sprinkled blood, help from the Mercy Seat, help from the golden pot that had the manna, help from Aaron's rod that budded, help from Him that shone between the cherubim&mdash;send you help from the Holy of Holies.
 
@@ -76,15 +76,15 @@ Remember all your offerings, and accept your burnt sacrifice. Selah. This God di
 
 Grant you according to your own heart, and fulfill all your counsel We cannot pray this for everybody. We pray it for Christ and we pray it for the Lord's sanctified people, that He may grant them the desire of their heart and fulfill their counsel.
 
-We will rejoice in Your salvation, and in the name of our God we will set up our banners: the LORD fulfill all your petitions. What a wonderful prayer this is! May it be granted to each of you!&mdash;
+We will rejoice in Your salvation, and in the name of our God we will set up our banners: the Lord fulfill all your petitions. What a wonderful prayer this is! May it be granted to each of you!&mdash;
 
 "The Lord fulfill all your petitions."
 
-6-9. Nowknow that the LORD saves His anointed; He willhear him from His holy Heaven with the saving strength of His right hand. Some trust in chariots, and some in horses: but we will remember the name of the LORD our God. They are brought down and fallen: but we are risen, and stand upright Save, LORD. Or, "Hosanna."
+6-9. Nowknow that the Lord saves His anointed; He willhear him from His holy Heaven with the saving strength of His right hand. Some trust in chariots, and some in horses: but we will remember the name of the Lord our God. They are brought down and fallen: but we are risen, and stand upright Save, Lord. Or, "Hosanna."
 
 Let the King hear us when we call Now turn to the Psalm of victory. It corresponds very beautifully with the litany which we have just been reading.
 
-Psalm 21:1. The King shall joy in Your strength, O LORD; and in Your salvation how greatly shallHe rejoice! See how greatly Christ rejoices, how full His heart is of gladness as He sees God's power put forth, and God's salvation accomplished among men.
+Psalm 21:1. The King shall joy in Your strength, O Lord; and in Your salvation how greatly shallHe rejoice! See how greatly Christ rejoices, how full His heart is of gladness as He sees God's power put forth, and God's salvation accomplished among men.
 
 3. You have given Him His heart's desire, and have not withheld the request of His lips. Selah. For You present Him with the blessings of goodness. That is to say, "You go before Him," as you have seen, in pictures, some great conqueror preceded by those who strewn his path with roses, so has God strewn the pathway of Christ with innumerable blessings.
 
@@ -94,14 +94,14 @@ He askedlife ofYou and You gave it to Him, even length ofdays forever and ever. 
 
 His Glory is great in Your salvation. It is the distinguishing mark of God's salvation that Christ's Glory is great in it. In the beginning, in the middle and the end of it, everywhere you see the name of Jesus written in large letters of light. In His salvation, the Father has glorified His Son.
 
-5-8. Honor and majesty have You laid upon Him. For you have made Him most blessed forever: You have made Him exceedingly glad with Your countenance. For the king trusts in the LORD, and through the mercy of the Most High He shall not be moved. Your hand shall find out all your enemies. That very hand that was nailed to the tree shall find out all the adversaries of the Cross.
+5-8. Honor and majesty have You laid upon Him. For you have made Him most blessed forever: You have made Him exceedingly glad with Your countenance. For the king trusts in the Lord, and through the mercy of the Most High He shall not be moved. Your hand shall find out all your enemies. That very hand that was nailed to the tree shall find out all the adversaries of the Cross.
 
 Your right hand shall find out those that hate You. ''Hide wherever they may, You will find them. They may stand in the high places and defy You; but You will hurl them down."
 
 You shall make them as a fiery oven in the time of Your anger. "Not only shall they be cast into the fire, but they shall, themselves, be as a fiery oven in the time of Your anger. They shall torment themselves and shall be their own destruction."
 
-9-11. The LORD shallswallow them up in His wrath, and the fire shall devour them. Their fruit shall You destroy from the earth, and their seed from among the children of men. For they intended evil against You: they imagined a mischievous device which they are not able to perform. But that did not diminish their sin. When a man has devised an evil tiring, even if he cannot carry it out, he is guilty of it!
+9-11. The Lord shallswallow them up in His wrath, and the fire shall devour them. Their fruit shall You destroy from the earth, and their seed from among the children of men. For they intended evil against You: they imagined a mischievous device which they are not able to perform. But that did not diminish their sin. When a man has devised an evil tiring, even if he cannot carry it out, he is guilty of it!
 
 Therefore shall You make them turn their back, when You shall make ready Your arrows upon Your strings against the face of them. As if God would single out the enemies of Christ to be targets for His arrows and fill them with the darts of His displeasure. Who would wish to be in such a plight as this?
 
-Be You exalted, LORD, in Your own strength: so wiil we sing andpraise Your power.
+Be You exalted, Lord, in Your own strength: so wiil we sing andpraise Your power.

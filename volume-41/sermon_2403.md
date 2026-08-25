@@ -77,13 +77,13 @@ I have done when I have just given you one more thought. Our text might be read 
 
 Well now, you belong to Christ and because you belong to Him, He accepts your meditations because He accepts you! And He takes a delight even in those poor broken perplexed thoughts of yours! He knows that if you could sing like the seraphim, you would do so. If you could serve Him as the angels do, you would. Well, if you cannot do that, you can at least meditate on Christ&mdash;and your meditation of Him shall be sweet to Him. Oh, then, give Him much of it, and God bless you, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM104.
+Exposition by C. H. Spurgeon: Psalm104.
 
 I trust that we have already felt something of holy enjoyment while our hearts and voices have been praising the Lord our God. Perhaps this Psalm may help to keep us in a praising state of mind. First of all, David sang of the majesty of God in His works. Then it seems as if the spirit of praise within him became like a strong-winged angel and, mounting into the sky, he began to soar aloft over the varied landscapes of the world until the sun went down. And even then, he continued moving along through the darkness till the sun arose again and found him still praising his God! We will note, as we read the Psalm, this strange, mysterious flight of the spirit of praise.
 
-Verse 1. Bless the LORD, O my Soul. There is the keynote. Strike it, my Brothers and Sisters, each one of you!
+Verse 1. Bless the Lord, O my Soul. There is the keynote. Strike it, my Brothers and Sisters, each one of you!
 
-1-3. O LORD my God, You are very great; You are clothed with honor and majesty. Who covers Yourself with light as with a garment: who stretches out the heavens like a curtain: who lays the beams of His chambers in the waters. Or, as we may read it from the Hebrew, "who makes His halls in the waters," those mysterious waters above the firmament are here pictured as being the cool, retired dwelling place of the majestic Deity.
+1-3. O Lord my God, You are very great; You are clothed with honor and majesty. Who covers Yourself with light as with a garment: who stretches out the heavens like a curtain: who lays the beams of His chambers in the waters. Or, as we may read it from the Hebrew, "who makes His halls in the waters," those mysterious waters above the firmament are here pictured as being the cool, retired dwelling place of the majestic Deity.
 
 Who makes the clouds His chariot: who walks upon the wings of the wind. A masterly picture, as if the Lord stood erect upon the two wings of the wind and, as if the wind, like a mighty spirit, went flying round the world with the great Jehovah standing upon its wings, and so riding along!
 
@@ -101,7 +101,7 @@ He waters the hills from His chambers. From those watery halls above the firmame
 
 13-15. The earth is satisfied with the fruit of Your works. He causes the grass to grow for the cattle, and herbs for the service of man: that he may bring forth food out of the earth; and wine that makes glad the heart of man, and oil to make his face shine, and bread which strengthens man's heart. The spirit of praise is flying over the fields plowed and tilled by man, over the fruitful vineyards red with clusters of grapes and over the olive gardens and other places where man's handiwork has made the earth fertile. Now the Psalmist mounts still higher and gets into the forests.
 
-16, 17. The trees of the LORD are full of sap; the cedars of Lebanon, which He has planted; where the birds make their nests: as for the stork, the fir trees are her house. Flying along over the tops of the trees, he looks down among them and he notices the beasts as well as the birds
+16, 17. The trees of the Lord are full of sap; the cedars of Lebanon, which He has planted; where the birds make their nests: as for the stork, the fir trees are her house. Flying along over the tops of the trees, he looks down among them and he notices the beasts as well as the birds
 
 The high hills are a refuge for the wild goats; and the rocks for the conies. So that there is not any part of the earth which is not full of God's goodness! Even the rocks, which yield nothing to the plow, furnish a refuge for the conies, and the high hills are a home for the wild goats, while the fertile earth beneath makes man's heart glad. As the spirit of praise flies over the tops of the mountains, the sun goes down. The Psalmist witnesses that grand sight, an Eastern sunset.
 
@@ -111,7 +111,7 @@ The high hills are a refuge for the wild goats; and the rocks for the conies. So
 
 The sun arises, they gather themselves together, and lay them down in their dens. You see, the Psalmist does not cease his praise, but finds a theme for music even in the rest of the beasts.
 
-23, 24. Man goes forth unto his work and to his labor until the evening. O LORD, how manifold are Your works! In wisdom have you made them all: the earth is full of Your riches. The Psalmist has made a long journey, flying along just where he could see everything upon the face of the earth, but he thinks to himself that he has not seen the half of God's works, yet, for yonder is the Mediterranean, glistening in the morning sunbeams, so he takes another flight.
+23, 24. Man goes forth unto his work and to his labor until the evening. O Lord, how manifold are Your works! In wisdom have you made them all: the earth is full of Your riches. The Psalmist has made a long journey, flying along just where he could see everything upon the face of the earth, but he thinks to himself that he has not seen the half of God's works, yet, for yonder is the Mediterranean, glistening in the morning sunbeams, so he takes another flight.
 
 26. So is this great and wide sea, wherein are things creeping innumerable, both small and great beasts. There go the ships. That is, above the water&mdash;while in it&mdash;
 
@@ -125,9 +125,9 @@ You hide Your face. As if He did but put His hand before the brightness of His C
 
 29, 30. They are troubled: You take away their breath, they die, and return to their dust. You send forth Your Spirit, they are created: and You renew the face of the earth. When God takes away the genial light of the summer's sun, what multitudes of creatures die! And then, when the soft breath of spring blows upon the earth, how soon the multitudes of insects come teeming forth! Christian, here is comfort for you! Has God withheld His Spirit from you for a little while, and have many of your joys and comforts fallen dead? He has only to speak and He can, in a moment, renew all your comforts!
 
-31-35. The glory of the LORD shall endure forever: the LORD shall rejoice in His works. He looks on the earth and it trembles: He touches the hills and they smoke. I will sing unto the LORD as long as I live: I will sing praise to my God while I have my being. My meditation of Him shall be sweet: I will be glad in the LORD. Let the sinners be consumed out of the earth, and let the wicked be no more. It seems as if the spirit of praise had bred in the Psalmist a spirit of indignation against sin. He could no longer have any patience with those who would not adore so great and so good a God and, therefore, he utters this imprecation upon their heads which is rather a prophecy of what will be their doom&mdash;"Let the sinners be consumed out of the earth, and let the wicked be no more."
+31-35. The glory of the Lord shall endure forever: the Lord shall rejoice in His works. He looks on the earth and it trembles: He touches the hills and they smoke. I will sing unto the Lord as long as I live: I will sing praise to my God while I have my being. My meditation of Him shall be sweet: I will be glad in the Lord. Let the sinners be consumed out of the earth, and let the wicked be no more. It seems as if the spirit of praise had bred in the Psalmist a spirit of indignation against sin. He could no longer have any patience with those who would not adore so great and so good a God and, therefore, he utters this imprecation upon their heads which is rather a prophecy of what will be their doom&mdash;"Let the sinners be consumed out of the earth, and let the wicked be no more."
 
-Bless you the LORD, O my Soul. Praise you the LORD. Thus the Psalmist, like a good musician, ends with the keynote of his song of praise&mdash;
+Bless you the Lord, O my Soul. Praise you the Lord. Thus the Psalmist, like a good musician, ends with the keynote of his song of praise&mdash;
 
 "Bless the Lord, O my Soul."
 

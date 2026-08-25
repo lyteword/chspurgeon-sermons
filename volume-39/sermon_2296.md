@@ -101,7 +101,7 @@ Yet once more, the One who guards us from stumbling is our Savior as well as the
 
 I have been very brief where I should have liked to enlarge.
 
-I finish with this point, THE GLORY WHICH IS DUE TO CHRIST FOR THIS PRIVILEGE. If we are guarded from stumbling, we may take no credit to ourselves, but we must lay the crown at the feet of Him to whom the power belongs.
+I finish with this point, THE GLORY WHICH IS DUE TO Christ FOR THIS PRIVILEGE. If we are guarded from stumbling, we may take no credit to ourselves, but we must lay the crown at the feet of Him to whom the power belongs.
 
 If He has kept us from stumbling until now, let us praise Him for the past! Oh, what a mercy to have had this keeping year after year! Notwithstanding many imperfections and follies, which we have had to confess, yet we have been kept from any grievous stumbling that would have dishonored the holy name of Christ! Bless God, tonight, that you have been kept from stumbling, today. I do not know where you have been, but I have no doubt you have been where you might have slipped if you had been left by the Spirit of God! You have been in the shop. You have been in the home. You have been in the street. You have been on the Exchange. You have been among ungodly men. Yes, and even among Christian men, you can soon commit yourself and trip up. If you have been kept, today, do not say, "How good I am!" No, no, no! Say, "Now unto Him who has guarded me from stumbling, be glory and majesty, dominion and power, both now and forever."
 
@@ -117,13 +117,13 @@ This sermon does not belong to all of you, I am sorry to say. I wish that it did
 
 Whoever believes in Him has everlasting life and He will bring them into His way! And He will keep them from stumbling and present them among the rest of His blood-washed, to praise His name forever. The Lord bless this meditation for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. PSALM91.
+Exposition by C. H. Spurgeon. Psalm91.
 
 Verse 1.&mdash;He that dwells in the secret place of the Most High shall abide under the shadow of the Almighty. It is not every man who dwells there, no, not even every Christian. There are some who come to God's House, but the man mentioned here dwells with the God of the House! There are some who worship in the outer court of the Temple, but, "he
 
 that dwells in the secret place of the Most High" lives in the Holy of Holies&mdash;he draws near to the Mercy Seat and stays there! He walks in the Light, as God is in the light. He is not one who is sometimes on and sometimes off, a stranger or a guest, but like a child at home he dwells in the secret place of the Most High. Oh, labor to get to that blessed position! You who know the Lord, pray that you may attain to this high condition of dwelling in the inner shrine, always near God, always overshadowed by those cherubic wings which indicate the Presence of God. If this is your position, you "shall abide under the shadow of the Almighty." You are not safe in the outer courts. You are not protected from all danger anywhere but within the veil. Let us come boldly there and, when we once enter, let us dwell there.
 
-I will say of the LORD, He is my refuge and my fortress: my God; in Him will I trust. This is a daring utterance, as if the Psalmist would claim for himself the choicest privileges of any child of God. When you hear a glorious doctrine preached, it may be very sweet to others, but the honey lies in the particular application of it to yourself. You must, like the bee, go down into the bell of the flower, yourself, and fetch out its nectar. "I will say of the Lord, He is my"&mdash;then come three "mys", as if the Psalmist could grasp the Triune Jehovah&mdash;"my refuge, my fortress, my God: in Him will I trust." What a grand word that is, "My God"! Can any language be loftier? Can any thought be more profound? Can any comfort be surer?
+I will say of the Lord, He is my refuge and my fortress: my God; in Him will I trust. This is a daring utterance, as if the Psalmist would claim for himself the choicest privileges of any child of God. When you hear a glorious doctrine preached, it may be very sweet to others, but the honey lies in the particular application of it to yourself. You must, like the bee, go down into the bell of the flower, yourself, and fetch out its nectar. "I will say of the Lord, He is my"&mdash;then come three "mys", as if the Psalmist could grasp the Triune Jehovah&mdash;"my refuge, my fortress, my God: in Him will I trust." What a grand word that is, "My God"! Can any language be loftier? Can any thought be more profound? Can any comfort be surer?
 
 Surely He shall deliver you from the snare of the fowler. If you dwell near to God, you will not be deceived by Satan. In the Light of the Lord you will see light and you will discover the limed twigs and the nets and the traps that are set to catch you&mdash;"He shall deliver you from the snare of the fowler."
 
@@ -141,7 +141,7 @@ Nor for the arrow that flies by day. Both night and day you shall be safe. Your 
 
 6, 7. Nor for the pestilence that walks in darkness; nor for the destruction that wastes at noonday. A thousand shall fall at your side, and ten thousand at your right hand; but it shall not come near you. When God takes His people to dwell in nearness to Himself and they have faith in this promise, I make no doubt that, literally, in the time of actual pestilence, they will be preserved! It is not every professing Christian, nor every Believer who attains this height of experience, but only such as believe the promise and fulfill the heavenly condition of dwelling in the secret place of the Most High. How could cholera or fever get into the secret place of the Most High? How could any arrows, how could any pestilence, ever be able to reach that secure abode of God? If you dwell there, you are invincible, invulnerable, infinitely secure!
 
-8-10. Only with your eyes shall you behold and see the reward of the wicked. Because you have made the LORD, which is my refuge, even the Most High, your habitation; there shall no evil befall you. "There shall no evil befall you." It may
+8-10. Only with your eyes shall you behold and see the reward of the wicked. Because you have made the Lord, which is my refuge, even the Most High, your habitation; there shall no evil befall you. "There shall no evil befall you." It may
 
 have the appearance of evil, but it shall turn out to your good. There shall be but the appearance of evil, not the reality of it&mdash;"There shall no evil befall you."
 

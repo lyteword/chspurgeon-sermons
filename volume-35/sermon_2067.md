@@ -49,7 +49,7 @@ In all respects, the work of the Spirit of God remains mysterious and wonderful.
 
 I am half inclined to pause here and say, "For the rest of our time let us worship in the presence of this mighty God, who does His pleasure and works the will of the Most High forevermore."
 
-But I must take you on&mdash;in the second place to consider THE GREAT LESSON OF THE MYSTERY WHICH IS TAUGHT US BY THE SYMBOL OF THE WIND, WHICH IS THE TYPE OF THE SPIRIT OF GOD.
+But I must take you on&mdash;in the second place to consider THE GREAT LESSON OF THE MYSTERY WHICH IS TAUGHT US by THE SYMBOL OF THE WIND, WHICH IS THE TYPE OF THE SPIRIT OF God.
 
 Now dear Friends, concerning the wind, our Savior says, "You can not tell from where it comes and where it goes." Yet we know that it comes from the east, or the south and passes on its way and it goes towards the west. The text cannot mean that we do not know the direction of the wind, or the direction in which the Spirit of God is moving, for we do know that. We know that He is a power that makes for righteousness and for eternal life. But then, we do not know where any wind begins to blow. No one can explain where the north wind commences.
 
@@ -101,7 +101,7 @@ Do not expect the world to understand you. If you were of the world, the world w
 
 May the Spirit of God make you feel, experience, and enjoy this mystery by causing you to know the power of that gracious word, "And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whosoever believes in Him should not perish, but have eternal life"&mdash;if you believe in Jesus, if you look to Him, if you trust Him&mdash;if the Holy Spirit has given you faith, He has begun His work in you and He will carry it on and perfect it to the praise of His glory forever. May it be so, for Jesus' sake. Amen.
 
-LETTER FROM MR. SPURGEON
+LETTER FROM MR. Spurgeon
 
 Dear Friends&mdash;"Sufficient unto the day is the evil thereof," and therefore I will not repeat any of the fears which naturally thrive around such a shock as I have received. The doctor says, "You may be well soon of that knee but do not deceive yourself by trying the brain till it has had a fair chance of recovery." I know what he means and I feel I must submit to be away from my delightful work till I can begin again without absolute folly.
 

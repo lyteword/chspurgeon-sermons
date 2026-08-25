@@ -78,7 +78,7 @@ I wish I could turn some Christian people out of their pews and get them, at thi
 
 Begin to pray for your disagreeable neighbors. Begin to pray for your unconverted friends and the Lord will turn your own captivity while you are doing that! By blessing others, you shall be blessed yourself. God grant that it may be so, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. PSALM77.
+Exposition by C. H. Spurgeon. Psalm77.
 
 This Psalm is headed, "To the chief Musician, to Jeduthun." He was one of the great singers. There is opportunity given in the Psalms for each of the singers to take his turn. It does not do for any of us to be idle in reference to the praise of God. It is called, "A Psalm of Asaph." His Psalms have usually a dark tinge about them. He was a meditative man, "a man of sorrows and acquainted with grief," but also a man of strong faith and of an exulting spirit. You need to do business in great waters to understand Asaph&mdash;he is one who does not wade, but he gets into "waters to swim in." Thus he begins&mdash;
 
@@ -120,7 +120,7 @@ Has He in anger shut up His tender mercies? Selah. Can it be so? Was it ever so 
 
 And I said, This is my infirmity: but I will remember the years of the right hand of the Most High. "But I will remember," is added by the translator. Surely it was to the Psalmist an infirmity to be thus in trouble. He called it Benoni, son of sorrow, but it was not infirmity to God. He called it Benjamin, son of the right hand. There is a sort of parallel between Asaph and the woman who named her child Benoni. Certainly it is a great infirmity&mdash;it is a sin&mdash;to doubt God, and to be cast down and troubled.
 
-I will remember the works of the LORD: surely I will remember Your wonders of old. Think of what God has done for His people. How He has delivered them, how He has lifted them from the dunghill and set them among the princes, even among the princes of His people! Think of His wonders of Grace and be no more discouraged.
+I will remember the works of the Lord: surely I will remember Your wonders of old. Think of what God has done for His people. How He has delivered them, how He has lifted them from the dunghill and set them among the princes, even among the princes of His people! Think of His wonders of Grace and be no more discouraged.
 
 I will meditate also of all Your work, and talk of Your doings. Those who talk ought to meditate, otherwise they grind wind. Those who meditate will talk, otherwise the miller grinds only for himself.
 

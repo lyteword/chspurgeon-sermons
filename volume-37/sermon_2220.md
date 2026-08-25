@@ -104,7 +104,7 @@ your law. Christ will save you, but He will have you take upon you His yoke and 
 
 Now, I think that I hear one say, "But these three steps are pretty stiff ones&mdash;give up the idols, prepare the heart, serve only the Lord." Yes, they are, and I do not believe that these people could ever have taken these three steps if
 
-it had not been for my third point, namely, that THEY WERE HELPED TO DO ALL THIS BY HAVING FAITH. It
+it had not been for my third point, namely, that THEY WERE HELPED TO DO ALL THIS by HAVING FAITH. It
 
 was faith in Samuel, as we have already noticed. You can be much more helped, yes, graciously enabled, if you have faith in Christ!
 

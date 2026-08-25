@@ -2,7 +2,7 @@
 
 "Brethren, if any of you do err from the truth, and one converts him, lethim know, thathe which converts the sinner from the error ofhis way shall save a soul from death, and shall hide a multitude of sins." James 5:19,20.
 
-JAMES is pre-eminently practical. If he were, indeed, the James who was called, "The Just," I can understand how he earned the title, for that distinguishing trait in his character shows itself in his Epistle, and if he were "the Lord's brother," he did well to show so close a resemblance to his great Relative and Master who commenced His ministry with the practical Sermon on the Mount.
+James is pre-eminently practical. If he were, indeed, the James who was called, "The Just," I can understand how he earned the title, for that distinguishing trait in his character shows itself in his Epistle, and if he were "the Lord's brother," he did well to show so close a resemblance to his great Relative and Master who commenced His ministry with the practical Sermon on the Mount.
 
 We ought to be very grateful that in the Holy Scriptures we have food for all classes of Believers and employment for all the faculties of the saints. It was right that the contemplative should be furnished with abundant subjects for thought&mdash;Paul has supplied them&mdash;he has given to us sound doctrine, arranged in the symmetry of exact order. He has given us deep thoughts and profound teachings. He has opened up the deep things of God. No man who is inclined to reflection and thoughtfulness will be without food so long as the Epistles of Paul are extant, for he feeds the soul with sacred manna.
 

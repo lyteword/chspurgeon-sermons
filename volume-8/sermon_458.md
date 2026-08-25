@@ -7,7 +7,7 @@ A VAGUE notion is abroad in the world that the benefit of Christ's passion is in
 
 Our text, in its threefold character, shows the intimate connection which exists between Jesus and sinners, for in none of its sentences is there meaning unless there be a sinner, and unless Christ has come into connection with him. It is this one point which I want to work out this morning, and may God bless it to many a sinner's troubled conscience. "He was numbered with the transgressors; he bare the sin of many, and he made intercession for the transgressors." It is for transgressors all the way through. Bring in a company of righteous people who think they have no sin and they cannot appreciate the text; in fact it can have no meaning to them.
 
-We shall begin then, by taking the first sentence. To the sinner, troubled and alarmed on account of guilt, there will be much comfort in the thought that CHRIST IS ENROLLED AMONG SINNERS. "He was numbered with the transgressors."
+We shall begin then, by taking the first sentence. To the sinner, troubled and alarmed on account of guilt, there will be much comfort in the thought that Christ IS ENROLLED AMONG SINNERS. "He was numbered with the transgressors."
 
 In what sense are we to understand this? "He was numbered with the transgressors."
 
@@ -51,7 +51,7 @@ Now, do you not see that his must be for sinners? See, you black ones, you filth
 
 It is as sinners, not as sensible sinners, not as repenting sinners, that Jesus died for us. Sinners as sinners, Jesus Christ has chosen, redeemed, and called; in fact, for them, and for only such, Jesus Christ came into the world.
 
-Our third sentence tells us that JESUS INTERCEDES FOR SINNERS. "And made intercession for the transgressors."
+Our third sentence tells us that Jesus INTERCEDES FOR SINNERS. "And made intercession for the transgressors."
 
 He prays for his saints, but, dear friends, remember that by nature they are transgressors, and nothing more.
 

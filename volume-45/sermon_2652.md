@@ -18,7 +18,7 @@ This Truth of God is manifest on the very surface of our text&mdash;Abraham was 
 
 With these observations by way of preface, let us now come directly to the text. And we shall notice, first, in what respects Abraham saw Christ's day. Secondly, the effect it had upon him. That will lead us, in the third place, to think of the respects in which we, also, may see Christ's day, and to notice, in closing, the effect which such a sight will have upon us. If we see His day, we shall also rejoice and be glad.
 
-First, then, let us enquire, IN WHAT RESPECTS DID ABRAHAM SEE CHRIST's DAY?
+First, then, let us enquire, IN WHAT RESPECTS DID ABRAHAM SEE Christ's DAY?
 
 I understand the term, "Christ's day," to mean, first, His day of humiliation here upon earth. Christ had a certain "day" when He lived here in this world. What if I were to call His whole natural life on earth one long Lord's-Day? Had the Jews known the things which would have made for their peace, our Lord's sojourn here would have been to that nation one long Sabbath! Had they understood the rest which Christ brings to believing, obedient souls, it would have been the true Jubilee to them! But there is another "day" yet to come, which, in the highest sense, our Lord will call, "My day." Know you not that He is to come a second time, without a sin-offering unto salvation? This was foretold by the angels who said to His disciples, after His Ascension, "This same Jesus, who is taken up from you into Heaven, shall so come in like manner as you have seen Him go into Heaven." Arrayed in the vesture of His Humanity&mdash;for He still wears it at the right hand of the Father&mdash;He will come again, but not as He came the first time&mdash;
 
@@ -54,7 +54,7 @@ No, no, Abraham was too great a man to stoop at the foot of the king of Sodom, e
 
 The Patriarch had many troubles but before his history is closed, it was recorded that "the Lord had blessed Abraham in all things." He had believed God in all things and God had blessed him in all things! His was a happy, calm, noble, dignified life almost throughout the whole of it. Oh, that you and I might drink in deep draughts of Abraham's faith and that our eyes might see Christ's day even more clearly than Abraham saw it&mdash;that we might have rejoicing and gladness like his! Nothing can so surely bring this joy to our souls as faith like that which he possessed.
 
-So much for Abraham. Now we come to ourselves and enquire, IN WHAT RESPECTS DO WE SEE CHRIST's
+So much for Abraham. Now we come to ourselves and enquire, IN WHAT RESPECTS DO WE SEE Christ's
 
 DAY?
 
@@ -80,7 +80,7 @@ Children of the morning, the morning comes! What a day yours shall be, then, whe
 
 God give to each of you a portion in these glorious things, by a simple faith in Jesus, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN8:31-59.
+Exposition by C. H. Spurgeon: John8:31-59.
 
 Verse 31. Then said Jesus to those Jews which believed on Him, If you continue in My word, you are My disciples indeed. For there were many, in Christ's day, coming to Him for a while and then going away from Him&mdash;professing to believe and then stumbling when Christ proclaimed some Doctrine of God which struck them as being strange and hard to receive. Our Lord Jesus tells them that constancy is necessary to true discipleship. It is of no use to start running in the race unless we continue in the course till the prize is won. We are not true pilgrims to Heaven merely because we cross the threshold of our door&mdash;we must keep on, and on, and on till we reach the golden streets of the New Jerusalem!
 
