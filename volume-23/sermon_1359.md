@@ -49,7 +49,7 @@ and have no confidence in the flesh&mdash;the words of Moses to the tribes, "Hap
 
 First, let us consider the happy condition of God's people. And then, secondly, let us consider the result of our fully realizing this happiness. May the Holy Spirit, the Comforter, fill us with all joy and peace while we commune upon this subject. May the blessed God now bless all His children!
 
-Let us dwell upon THE HAPPY CONDITION OF GOD's PEOPLE. The Israelites were so favored that Moses,
+Let us dwell upon THE HAPPY CONDITION OF God's PEOPLE. The Israelites were so favored that Moses,
 
 himself, was astonished at the eminently desirable condition in which they were placed. We may readily imagine that we see him lifting up his hands with surprise and saying, "Happy are you, O Israel; who is like unto you?" He considered the nation to be incomparably favored and, therefore, enquired in astonishment, "Who is like unto you?" He had seen Egypt with all its wisdom and its wealth&mdash;and the desert tribes in all their rustic simplicity&mdash;and doubtless he knew the condition of most of the nations under Heaven. But having his eyes upon them all, he, nevertheless, looks upon the chosen race which God had brought up out of Egypt and he says, "Who is like unto you?"
 

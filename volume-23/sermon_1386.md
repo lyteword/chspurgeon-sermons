@@ -30,7 +30,7 @@ The offender, on discovering his error, might bring his offering and pay the tre
 
 The teaching of my text does three things, of which I shall speak. First, by it the commandment is honored. Secondly, by it the conscience is enlightened. And thirdly, by it the Sacrifice is endeared.
 
-By the Divine declaration that sins of ignorance are really sins, THE COMMANDMENT OF GOD IS HONORED. I need not multiply words to prove it so. The Law of God is, by this solemn sentence, lifted into a place of dignity. If it is really so, that to break one of its precepts involves us in guilt, even if we did not know that we were offending, then is the Law, indeed, enthroned upon a terrible eminence and girt around with fire. Enlarging upon this
+By the Divine declaration that sins of ignorance are really sins, THE COMMANDMENT OF God IS HONORED. I need not multiply words to prove it so. The Law of God is, by this solemn sentence, lifted into a place of dignity. If it is really so, that to break one of its precepts involves us in guilt, even if we did not know that we were offending, then is the Law, indeed, enthroned upon a terrible eminence and girt around with fire. Enlarging upon this
 
 thought I would observe, first, dear Friends, that hereby the Law is declared to be the supreme authority over men. The Law is supreme, not conscience.
 

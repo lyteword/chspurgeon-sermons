@@ -102,7 +102,7 @@ all the glory of the Father to break His enemies in pieces as with a rod of iron
 
 We must tear ourselves away from that thought to turn to another, but assuredly it is rich in happy memories and in blessed expectations.
 
-Fifthly, JESUS CHRIST HIMSELF IS THE MODEL OF OUR LIFE and, therefore, how blessed it is to be like
+Fifthly, Jesus Christ HIMSELF IS THE MODEL OF OUR LIFE and, therefore, how blessed it is to be like
 
 He. As to our rule for life, we are like the disciples on the Mount of Transfiguration when Moses and Elijah had vanished, for we see "no man save Jesus only." Every virtue found in other men we find in Him in greater perfection! We admire the Grace of God in them, but Jesus Himself is our pattern. It was once said of Henry VIII, by a severe critic, that if the characteristics of all the tyrants that had ever lived had been forgotten, they might all have been seen come to life in that one king. We may more truly say of Jesus, if all graces, virtues and sweetnesses which have ever been seen in good men could all be forgotten, you might find them all in Him&mdash;for in Him dwells all that is good and great.
 
@@ -118,7 +118,7 @@ But what can the poet do? Ah, you, also, fail. You cannot sing Him any more than
 
 And not only in bodily form shall we be like He is whose eyes are as the eyes of doves and whose cheeks are as beds of spices&mdash;but in spirit and in soul shall we be perfectly conformed to the Well-Beloved! We shall be holy, even as He is holy and happy as He is happy. We shall enter into the joy of our Lord&mdash;the joy of Jesus Himself! I don't say that we can be Divine&mdash;that cannot be&mdash;but still, Brothers and Sisters, we shall be very near the Throne. O what rapture to know that my next of kin lives and when He shall stand, in the last day, upon the earth, I shall not only see God in this, my flesh, but I shall be like He is, for I shall see Him as He is! Christ Himself, then, becomes to us unspeakably precious, as the model of our present life and the image of the perfection towards which the Holy Spirit is working us.
 
-Lastly, HE IS THE LORD OF OUR SOUL. How sweet it will be to with Him. We find, today, that His beloved
+Lastly, HE IS THE Lord OF OUR SOUL. How sweet it will be to with Him. We find, today, that His beloved
 
 company makes us move pleasantly whether we run in the way of His commands or the valley of the shadow of death. Saints have lain in dungeons and yet they have walked at liberty when He has been there! They have been stretched on the rack and even called it a bed of roses when He has stood by. One lay on a gridiron, with the hot fires beneath him, but amidst the flames he challenged his tormentors to do their worst! He laughed them to scorn, for his Lord was there!
 

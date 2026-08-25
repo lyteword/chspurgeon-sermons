@@ -112,7 +112,7 @@ Be not so cowardly as to say, "I will leave the work." You are not to win a batt
 
 Now, I have done the sermon, but I had intended, if time had held out, to give ONE OR TWO WORDS OF
 
-PERSONAL TESTIMONY TO THE FAITHFULNESS OF GOD by declaring that the Lord has always acted to me as
+PERSONAL TESTIMONY TO THE FAITHFULNESS OF God by declaring that the Lord has always acted to me as
 
 He has promised me. I will give one or two. When I was converted to God, as I read the Scriptures I found that Believers ought to be baptized. Now, nobody around me saw things in that light&mdash;but it did not matter to me what they thought, for I looked at it carefully for myself. Parents, friends&mdash;all differed&mdash;but Believers' Baptism, seemed to me, to be Scriptural, and, though I was a lad, God gave me Grace to be honest to my conscience and to follow the Lord in that respect as fully as I could.
 
