@@ -2,7 +2,7 @@
 
 "I conferred not with flesh and blood." Galatians 1:16.
 
-THE conversion of Paul is one of the evidences of the truth of our holy religion. So far as this life was concerned, he had nothing to gain, but everything to lose by becoming a Christian. From being a great Rabbi he came to be the companion of poor fishermen who themselves were the followers of One who was poorer even than they! It is clear that he was no fanatic and not at all likely to be carried away by any sudden impulse. He was clear-headed, thoughtful, logical and his conversion must have been worked by some very extraordinary power&mdash;there must have been, to him at least, overwhelming evidence of the truth of what he believed and of that form of faith to which he devoted his whole after life.
+The conversion of Paul is one of the evidences of the truth of our holy religion. So far as this life was concerned, he had nothing to gain, but everything to lose by becoming a Christian. From being a great Rabbi he came to be the companion of poor fishermen who themselves were the followers of One who was poorer even than they! It is clear that he was no fanatic and not at all likely to be carried away by any sudden impulse. He was clear-headed, thoughtful, logical and his conversion must have been worked by some very extraordinary power&mdash;there must have been, to him at least, overwhelming evidence of the truth of what he believed and of that form of faith to which he devoted his whole after life.
 
 In addition to supplying us with valuable evidence of the truth of Christianity, Paul has left to us a most remarkable example of its force in his own person. Never was there a man more fully possessed with the Spirit of Christ than he was. He was no feeble saint with just enough Grace to enable him to go limping into Heaven&mdash;he was a spiritual athlete, wrestling with the powers of darkness, running with endurance the race set before him and "filled with all the fullness of God." He was one who was indeed "strong in the Lord, and in the power of His might." He threw himself, with all his natural zeal, into the cause of Christ&mdash;that natural zeal being so sanctified by the Spirit of God as to make him a mighty and valiant servant of the Lord. I pray that we, also, Beloved, may be what Paul was. I will not even deny his bonds! He did so when he said to king Agrippa, "I would to God that not only you, but also all that hear me this day were both almost, and altogether such as I am, except these bonds." But we might be willing even to wear his bonds if we might but have such a character as his fully developed within us!
 
@@ -14,7 +14,7 @@ I want to show you, first, that faith needs no warrant for its action but the co
 
 ourselves practically. And then I shall show you, in the last place, that the principle is a grand one and commends itself to our best judgment
 
-First, FAITH NEEDS NO WARRANT FOR ITS ACTION BUT THE COMMAND OF God.
+First, faith needs no warrant for its action but the command of God.
 
 Believers have no need to consult with flesh and blood. I may refer you in illustration of this Truth of God to good men in all ages. There is Noah, for instance. He is commanded by God to build an ark of gopher wood&mdash;an ark large enough to hold himself and his family and some of all beasts, birds and creeping things that were upon the face of the earth! Was it not an absurd idea to build so huge an ark upon dry land? Yet Noah did not consult with any of the people who were then living&mdash;we read, "Thus did Noah: according to all that God commanded him, so did he."
 
@@ -36,7 +36,7 @@ I have generally found that when men do consult with flesh and blood, the consul
 
 There I leave the grand and searching principle that faith needs no warrant for its action but the command of God!
 
-Now secondly, I am going to show you THE RANGE OF ITS PRACTICAL APPLICATION TO OURSELVES.
+Now secondly, I am going to show you the range of its practical application to ourselves.
 
 I judge that, first of all, it applies to all our known duties. I am not now speaking to unconverted people&mdash;I am speaking to you who profess to be converted. You say that you are saved and that you do not trust in your own works. That is well. I have preached to you the Scriptural Doctrine of Salvation by Grace, but now I am going to give you a practical principle that is inseparably associated with that Doctrine. It is this&mdash;It is the duty of every Christian to forsake every known sin, whatever it may be, and, in doing so, he is notto consult with flesh and blood. Many professors say, "This course is wrong, judging by the Scriptural standard. But then, society has long tolerated it. No, it has even decreed it to be right." But will society judge you at the Last Great Day? If you are cast into Hell as a deceitful professor, will society fetch you out of the bottomless pit? If you are found at last outside the gates of Heaven, will society recompense you for your eternal loss? What have you, O man of God, to do with society? Christians are to come out from among the ungodly to daily take up their cross and follow Christ&mdash;to go outside the camp, bearing His reproach. The friend of the world is the enemy of Christ. What have you to do with doing as the world does?
 
@@ -64,9 +64,9 @@ Another says, "My position would become very uncomfortable if I were to be bapti
 
 "Solid joys and lasting treasure."
 
-I see that my time has gone, but I need not dwell upon the last point&mdash; that THIS PRINCIPLE COMMENDS
+I see that my time has gone, but I need not dwell upon the last point&mdash; that this principle commends
 
-ITSELF TO OUR BEST JUDGMENT.
+itself to our best judgment.
 
 It is the judgment we exercise upon others. We do not like to see half-and-half people, do we? And if we see people who are willing to suffer for their principles, we respect and honor them. Well then, let us so act that others may be able, in their inmost hearts, to respect and honor us!
 
@@ -80,7 +80,7 @@ Exposition by C. H. Spurgeon: John 14.
 
 Verse 1. Let not your heart be troubled: you believe in God, believe also in Me.\See Sermons #730, Volume 13&mdash;let not your
 
-HEART BE TROUBLED; #1741, Volume 29&mdash;"LET NOT YOUR HEART BE TROUBLED" and #3076, Volume 54&mdash;THE CAUSE AND EFFECT OF HEART TROUBLE&mdash; the Sermon to which this Exposition belongs.] Here is a troubled company of
+heart be troubled; #1741, Volume 29&mdash;"Let not your heart be troubled" and #3076, Volume 54&mdash;The Cause and Effect of Heart Trouble&mdash; the Sermon to which this Exposition belongs.] Here is a troubled company of
 
 disciples, very much cast down, so their Divine Master, full of infinite tenderness, talks to them in this gentle manner, "Let not your heart be troubled." He does not like to see them troubled, for when they are, He is also troubled. Our Lord here prescribes faith as the only remedy for heart trouble. If you, poor troubled soul, can believe, you will leave off fretting. Twice our Lord uses the word, "believe." He seems to say to His disciples, "Take another dose of faith&mdash;it will take away from you this faintness of heart from which you are suffering. 'You believe in God, believe also in Me.'" And then He seeks to make them forget their heart trouble by talking most sweetly to them about His Father and His Father's dwelling place. It is a great thing to divert the mind, when it is troubled, from that which bores into it and threatens to destroy it.
 
