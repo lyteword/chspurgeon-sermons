@@ -8,7 +8,7 @@ I think I may venture to say&mdash;though to Omnipotence all things are possible
 
 I am going to try, as the Spirit of God shall help me, to minister consolation to any who are suffering through fear. And I shall speak, first, to those who are Christ's disciples and who know that they are His. And then, secondly, I shall speak to those who would not like to say that they are not His disciples, but who yet dare not say that they are&mdash;the many who would gladly be His, but who hardly dare to hope that He is willing to have them as His disciples. To them I shall say, as Christ said to His Apostles, "Why are you fearful, O you of little faith?"
 
-So, first, I shall apply the question in my text to THOSE WHO ARE REALLY THE LORD's PEOPLE, those who are in the boat with Christ, His disciples who follow Him, and stay near to Him&mdash;"Why are you fearful, O you of little faith?"
+So, first, I shall apply the question in my text to THOSE WHO ARE REALLY THE Lord's PEOPLE, those who are in the boat with Christ, His disciples who follow Him, and stay near to Him&mdash;"Why are you fearful, O you of little faith?"
 
 First, why is it that you doubt His love? He brought you on to this stormy sea&mdash;He bade you take ship and He knew all about this storm coming on. Do you think, because of your present experience, that He does not love you? You dare not utter such a calumny! Look back at your past life and see how patiently He has borne with you. Your slowness in learning has not made your Divine Teacher angry, but He has still gone on teaching you. Do you remember when He first
 
@@ -64,7 +64,7 @@ When the Lord thus descended from above, you may depend that there was some grea
 
 And you may rest assured that if He does not come thus to help you, it is because there is really not any urgent need for His interposition, as you are not in any great danger. Possibly the Lord sees that it will be best for you to bear your troubles a little longer, for you are getting good out of them. He means to leave you in the furnace for a little while because He can see that your dross is being taken away&mdash;but if the good metal in you were being injured in the slightest degree, He would lift you out of the furnace immediately! There is no serious harm happening to you and, therefore, the Lord does not intervene. I hope that you can now see that the sleep of Jesus ought to have given rest to the minds of His disciples. But it did not and He had to say to them, "Why are you fearful, O you of little faith?"
 
-Thus I have spoken to the Lord's own people. May the Holy Spirit graciously bless the word to them! II. Now I want your attention, for a short time, while I speak to THOSE WHO CANNOT SAY THAT THEY ARE CHRIST's DISCIPLES.
+Thus I have spoken to the Lord's own people. May the Holy Spirit graciously bless the word to them! II. Now I want your attention, for a short time, while I speak to THOSE WHO CANNOT SAY THAT THEY ARE Christ's DISCIPLES.
 
 There is a story told of Dr. John Owen who was then Mr. John Owen, that he had been for two or three years in great distress of mind. He went to London, hoping to hear a very famous Divine, but, on arriving at the Meeting House, he
 
@@ -100,24 +100,24 @@ precious blood! You will need forgiveness for that tear if you dream that there 
 
 But, lastly, I hear someone else say, "My trouble is concerning the difficulties of a Christian life. How can I, if I begin to be a Christian, hold on to the end?" Dear Friend, I will not deny that there are difficulties and that they are very great, much greater than you imagine. But your holding on is not the great matter&mdash;it is Christ who will hold you on! Your perseverance in Grace is no more to be your own act, apart from Christ, than is your first hope in Him. You are to look to Christ to be Omega as well to be Alpha, to be the Z as well as to be the a of the Christian Alphabet&mdash;and if you come and cast yourself upon Him, it is not His custom to cast away any who come to Him, neither at first nor yet afterwards. "Having loved His own which were in the world, He loved them unto the end." And He will do the same with you. He will subdue your corruptions. He will drive out your iniquities and present you, at the last, "faultless" before His Father's Throne! Oh, I can talk about this, but after all, it is only the Lord and Giver of Grace who can drive away your unbelief! May He do so now&mdash;and to His dear name shall be the praise forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM125.
+Exposition by C. H. Spurgeon: Psalm125.
 
-Verse 1. They that trust in the LORD shall be as Mount Zion, which cannot be removed, but abides forever I noticed, in one of the reports of the survey of Palestine, that it is said that albeit every building upon Mount Zion has been
+Verse 1. They that trust in the Lord shall be as Mount Zion, which cannot be removed, but abides forever I noticed, in one of the reports of the survey of Palestine, that it is said that albeit every building upon Mount Zion has been
 
 demolished, and not one stone has been left upon another, yet the mountain, itself, is immovable and remains the same as ever. Mount Zion itself cannot be removed, but abides forever&mdash;and the child of God, by faith in Jesus, cannot be moved by fear, nor removed by sin, but abides forever! We abide in Christ and Christ abides in us&mdash;and this makes us like Mount Zion which cannot be removed, but abides forever. If any of you are tossed to and fro, or are changeable, so that you do not know your own minds, may the Lord deliver you from such a state as that! It is faith that makes us steadfast.
 
-As the mountains are roundabout Jerusalem, so the LORD is roundabout His people from henceforth even forever. Here is security as well as stability! The mountains stand like sentinels around the central hill of Zion, so the city is well guarded and God protects His own people against adversaries of every kind. And He will continue to do so "from henceforth even forever."
+As the mountains are roundabout Jerusalem, so the Lord is roundabout His people from henceforth even forever. Here is security as well as stability! The mountains stand like sentinels around the central hill of Zion, so the city is well guarded and God protects His own people against adversaries of every kind. And He will continue to do so "from henceforth even forever."
 
 For the rod of the wicked shall not rest upon the lot of the righteous. God does not completely screen His people from trial. They sometimes feel the rod of the wicked in the form of slander, oppression, opposition and persecution, but they shall not always feel it&mdash;"The rod of the wicked shall not rest upon the lot of the righteous."
 
 Lest the righteous put forth their hands unto iniquity. If too heavily oppressed, they might do wrong in order to escape from oppression and God will not have that. He will not let His people be tried above what they are able to bear! He knows that the tendency of poverty and suffering might be to provoke them to sin&mdash;therefore He will not let the rod of the wicked rest upon them&mdash;lest they put forth their hands unto iniquity.
 
-Do good, O LORD, unto those that are good, and to them that are upright in their hearts. God is always good to His own people. This prayer is also a prophecy that it shall be well with those that fear the Lord&mdash;
+Do good, O Lord, unto those that are good, and to them that are upright in their hearts. God is always good to His own people. This prayer is also a prophecy that it shall be well with those that fear the Lord&mdash;
 
 "In time, and to eternal days 'Tis with the righteous well."
 
 As for such as turn aside unto their crooked ways. There are still such people who profess to be all right, yet they are not, for, after apparently going a little way in the straight road, they turn aside unto their crooked ways. Well, what shall happen to them?
 
-The LORD shall lead them forth with the workers of iniquity. They chose the same way, so they shall share the same end! What a sad end for those who once stood side by side with the saints, to be led out to execution side by side with the workers of iniquity!
+The Lord shall lead them forth with the workers of iniquity. They chose the same way, so they shall share the same end! What a sad end for those who once stood side by side with the saints, to be led out to execution side by side with the workers of iniquity!
 
 But peace shall be upon Israel. In the first and second verses of the Psalm, they are said to be like Salem. In this last verse, they are said to have Salem, that is, peace&mdash;"Peace shall be upon Israel."

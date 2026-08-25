@@ -78,7 +78,7 @@ I finish with the last word of my text&mdash;"Many believed on Him there," that 
 
 1 know how apt you are to indulge in idle chat on your way home. I know how, at the supper table, too often the Word which you have heard is driven away by the foolish talk which is unfit for the Sabbath. The devil only wants you to wait, for he knows that he can then come and steal away the good Seed of the Kingdom. But if the Lord should give you the Grace to decide for Him at once&mdash;if you were to believe on Jesus now&mdash;what joy there would be among the angels and the spirits of just men made perfect! They would "ring the bells of Heaven" and rejoice over lost ones found! What peace there would be in your own heart and what thankfulness and delight there would be among the people of God when they heard of it! You Christians, try to have a quiet, earnest talk with the unconverted, if you can, before they get away from this building. It may be that they will be led by you to believe on Jesus here and now. God grant that it may be so, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW3:1-12; JOHN 1:15-37;3:22-36.
+Exposition by C. H. Spurgeon: Matthew3:1-12; John 1:15-37;3:22-36.
 
 We are going to read three passages relating to John the Baptist's testimony concerning Christ.
 

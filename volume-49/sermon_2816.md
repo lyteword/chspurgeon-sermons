@@ -1,6 +1,6 @@
 # Sermon 2816 | Invitation to a Conference
 
-"Come now, and let us reason together, says the LORD: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Isaiah 1:18.
+"Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Isaiah 1:18.
 
 THE persons to whom this gracious invitation was addressed were in a terrible condition&mdash;they could not well have been in a worse plight. They had provoked God above measure by their many sins. He had severely chastened them, yet they had not repented of their iniquities. They would not be either drawn from them or driven from them. Now the Lord seems to say that something else must be done&mdash;such a state of things must not be allowed to last any longer.
 
@@ -17,7 +17,7 @@ doing so again.
 
 Our first division is to be an invitation to a conference with God.''Come now, and let us reason together, says the Lord." Secondly, we have a example of the reasoning on God's part "Though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Then, thirdly, I shall endeavor to show you that this example of the reasoning, on Gods part, is an abstract of the whole argument, a summary of all the real reasoning that there can ever be between the holy God and guilty sinners.
 
-First, then, here IS AN INVITATION TO a CONFERENCE WITH GOD. "Come now, and let us reason together, says the Lord."
+First, then, here IS AN INVITATION TO a CONFERENCE WITH God. "Come now, and let us reason together, says the Lord."
 
 The first observation I have to make upon this point is that sinful men and women&mdash;the great mass of mankind&mdash;do not care to reason with God. I am, on the whole, pleased when I find men reasoning about spiritual matters, even although they argue in a foolish fashion. I mean when they raise the objections and arguments with which skeptics and infidels are usually tolerably familiar. There is a great deal more of hopefulness about people in that condition than about those who will not think at all on religious subjects!
 
@@ -39,7 +39,7 @@ See, dear Friends, what a proof this is of God's loving kindness and graciousnes
 
 I think that there is also great tenderness in my text in the use of the word, "now." "Come now, and let us reason together, says the Lord." God would not have you live another moment as you now are. "As I live, says the Lord God"&mdash; and He lifts His hand to Heaven and swears by Himself, as He can swear by none greater&mdash;"I have no pleasure in the death of the wicked; but that the wicked turn from his way and live: turn you, turn you from your evil ways; for why will you die?" The Lord has no delight in having you continue to be His enemy! It gives Him no pleasure to see your hardness of heart, or to see the consequences of that hardness of heart in the awful peril that you are running every minute that you live in sin, so He says to you, "There is the whole universe for Me to govern, yet I am willing to have a conference with you. ' Come now,' this very hour. Come now, do not put it off till tomorrow. I am always at leisure to reason with a sinner&mdash;whenever there is a soul that is anxious to seek Me, I am always ready to seek that soul and to welcome it to My heart." "Come now," says the Lord. Then, let it be now with you! God appoints this present time for His conference with us&mdash;let it be our time, too. "Today if you will hear His voice, harden not your hearts, as in the provocation." "Behold, now is the accepted time; behold, now is the day of salvation."
 
-Now let us turn, in the second place, to AN EXAMPLE OF THE REASONING ON GOD's PART.
+Now let us turn, in the second place, to AN EXAMPLE OF THE REASONING ON God's PART.
 
 We will suppose that the sinner is willing to confer with God about this all-important matter and that he goes at once to his main argument. "My Lord," he says, "I would be reconciled to You if I could, but, alas, sin lies at the door and I am no ordinary sinner! I have broken Your commands a thousand times. I have done what I ought not to have done and I have left undone the things that I ought to have done&mdash;and there is no health in me." Now observe the method of reasoning on God's part.
 

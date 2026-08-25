@@ -112,7 +112,7 @@ Will you have Him? I mean, the Son of God, who was also the Son of Mary. I mean 
 
 of kings! I trust that even before this service closes, some of you will say. "By the Grace of God and through the power of the Holy Spirit, I yield myself to Jesus, my Lord and King, to be His loyal subject and faithful servant forever and ever." God grant it, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 44:1-8; PSALM 45.
+Exposition by C. H. Spurgeon: Psalm 44:1-8; Psalm 45.
 
 Psalm 44:1. We have heard with our ears, O God, our fathers have told us what work You did in their days, in the times of old. Now Israel was restored to Canaan and the Canaanite and Perizzite were driven out, that God's chosen people might occupy their appointed place.
 

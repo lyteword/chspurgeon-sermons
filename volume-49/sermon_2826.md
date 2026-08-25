@@ -14,7 +14,7 @@ Observe, too&mdash;for it is worthy of notice&mdash;how modestly and unobtrusive
 
 The words of Paul, in his First Epistle to Timothy, are very properly rendered in the Revised Version, "Christ Jesus, who before Pontius Pilate witnessed the good confession." It was more than a good confession that our Lord Jesus witnessed before Pontius Pilate, so the definite article is rightly used and, "the good confession," stands out prominently as an example for all His followers. It is concerning that good confession that I am about to speak as the Holy Spirit shall graciously guide me.
 
-First, let us ask&mdash;WHAT WAS "THE GOOD CONFESSION" THAT JESUS WITNESSED BEFORE PONTIUS
+First, let us ask&mdash;WHAT WAS "THE GOOD CONFESSION" THAT Jesus WITNESSED BEFORE PONTIUS
 
 PILATE?
 
@@ -40,7 +40,7 @@ One other point in our Lord's "good confession" was His separation of characters
 
 I dare not preach to this congregation as if you were all Christians, for you are not. I dare not deliver even one discourse under the delusion that all my hearers are saved, for, alas, they are not. This is the fault with multitudes of sermons&mdash;that they seem to carry the whole congregation to Heaven when possibly the major part of those present may be going down to Hell! That will not do. Remember what the Lord said to the Prophet Jeremiah, "If you take forth the precious from the vile, you shall be as My mouth." But if there is no winnowing fan in our hand to separate the chaff from the wheat, we are not like Christ, nor has Christ sent us on His service. In this "good confession" of His, we see how clearly and solemnly&mdash;gently, I admit, but still most decidedly&mdash;He made a division and separation of characters and gave a test by which Pilate could judge himself if he had been willing to do so.
 
-The time will not suffice for me to go fully into all the teaching of my text, but I want to ask, in the second place&mdash;TO WHAT TRUTH DID OUR LORD WITNESS?
+The time will not suffice for me to go fully into all the teaching of my text, but I want to ask, in the second place&mdash;TO WHAT TRuth DID OUR Lord WITNESS?
 
 He said to Pilate that He was born&mdash;that proves His Humanity. He also said that He came into the world and that, I think, shows His Divinity as well as His Humanity. He came on purpose to bear witness to the Truth and I believe that the life of Christ witnessed not only to all Doctrinal Truth, but also to everything that is true, especially to true-heartedness, simplicity, sincerity. His life was a testimony against all guile, craftiness, cunning, concealment&mdash;in that sense it was as testimony to the Truth of God.
 
@@ -54,7 +54,7 @@ Our Savior was also always a Witness to the great necessity of a new creation, a
 
 And to this Truth of God He also bore witness, that salvation was to be found only in Himself "As Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up; that whoever believes in Him should not perish, but have eternal life." "If any man thirsts, let Him come unto Me and drink." His teaching was always concerning Himself&mdash;"I am the way, the truth, and the life." "Come unto Me, all you that labor and are heavy laden, and I will give you rest." He never hesitated to bear witness to the Truth of God so it was but natural that part of His "good confession" before Pilate should be this plain declaration, "To this end was I born, and for this cause came I into the world, that I should bear witness unto the Truth."
 
-Now I will try briefly to answer a third question&mdash;WHAT HAD THIS "GOOD CONFESSION" OF JESUS TO
+Now I will try briefly to answer a third question&mdash;WHAT HAD THIS "GOOD CONFESSION" OF Jesus TO
 
 DO WITH PILATE?
 
@@ -76,7 +76,7 @@ I appeal to some who I believe really do love my Lord and Master, but who are, l
 
 Presence of His Father and of His holy angels. May that be my lot, and yours, dear Friends, without a single exception, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN18:28-40; PSALM2.
+Exposition by C. H. Spurgeon: John18:28-40; Psalm2.
 
 John 18:28. Then they led Jesus from Caiaphas unto the Hall of Judgment: That is to say, Pilate's Hall. Pilate, at that time, was probably residing in one of the old and sumptuous palaces of Herod, there holding His court during the time of the Passover.
 
@@ -108,10 +108,10 @@ But we have a custom, that I should release unto you one at the Passover: will y
 
 Then cried they all again, saying, Not this Man, but Barabbas. Now Barabbas was a robber.
 
-Psalm 2:1, 2. Why do the heathen rage, and the people imagine a vain thing? The kings of the earth set themselves, and the rulers take counsel together against the LORD, and against His Anointed, saying. This raging company of the Jews was but a example of the universal opposition which there is to the reign of Christ, for it is not alone in Israel, but among the heathen, and among all people, that there is this opposition to the Christ of God!
+Psalm 2:1, 2. Why do the heathen rage, and the people imagine a vain thing? The kings of the earth set themselves, and the rulers take counsel together against the Lord, and against His Anointed, saying. This raging company of the Jews was but a example of the universal opposition which there is to the reign of Christ, for it is not alone in Israel, but among the heathen, and among all people, that there is this opposition to the Christ of God!
 
 Let us break their bands asunder, and cast away their cords from us. The bands of Jehovah and the bands of the Christ, His Anointed.
 
 4, 5. He that sits in the Heaven shall laugh: the Lord shall have them in derision. Then shall He speak unto them in His wrath, and vex them in His sore displeasure. His word, it seems, vexes them. There is no need of sword or javelin. The weapons of God's warfare are His words.
 
-6-12. Yet have Iset My king upon My holy hill of Zion. I will declare the decree: the LORD has said unto Me, You are My Son; this day have I begotten You. Ask of Me, and I shall give You the heathen for Your inheritance, and the uttermost parts of the earth for Your possession. You shall break them with a rod of iron: You shall dash them in pieces like a potter's vessel. Be wise now, therefore, O you kings: be instructed, you judges of the earth. Serve the LORD with fear, and rejoice with trembling. Kiss the Son, lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him.
+6-12. Yet have Iset My king upon My holy hill of Zion. I will declare the decree: the Lord has said unto Me, You are My Son; this day have I begotten You. Ask of Me, and I shall give You the heathen for Your inheritance, and the uttermost parts of the earth for Your possession. You shall break them with a rod of iron: You shall dash them in pieces like a potter's vessel. Be wise now, therefore, O you kings: be instructed, you judges of the earth. Serve the Lord with fear, and rejoice with trembling. Kiss the Son, lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him.

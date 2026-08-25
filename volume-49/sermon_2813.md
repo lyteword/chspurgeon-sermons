@@ -102,19 +102,19 @@ Somebody recommended all persons, before they go to sea, to wear a lifebelt. I d
 
 Do you all know the Lord? If not, you do not know your best Friend. You do not know Him who is the Father of all Believers. Do you know the Lord? If not, I pray you to seek His face this very hour and especially I urge you to obey that word of His Apostle which I quoted to you just now, but cannot quote too often, "Believe on the Lord Jesus Christ, and you shall be saved." When you trust Christ, you shall see God in Christ and shall come to the Father through the Son and the Holy Spirit shall reveal Him unto you. The Lord grant that this may be the case, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM16.
+Exposition by C. H. Spurgeon: Psalm16.
 
 Verse 1. Preserve me, O God: for in You do I put my trust Notice how the Psalmist urges the prevailing plea of faith. A trusted God will be a preserving God. If you, Believer, can truly say that you are trusting God in any time of trouble or danger, you will be safe enough in His keeping.
 
-2, 3. O my soul, you have said unto the LORD, You are my Lord: my goodness is nothing apart from You; but to the saints that are in the earth, and to the excellent, in whom is all my delight' 'I cannot do You any good, my God; You are too great to need anything from me; but I may be the means of blessing to Your people, Your saints may reap some little benefit from what I do. They are the company I keep, they are the choicest friends I know, and if You will but help me to do something for You which shall bring blessing to them, I shall indeed rejoice."
+2, 3. O my soul, you have said unto the Lord, You are my Lord: my goodness is nothing apart from You; but to the saints that are in the earth, and to the excellent, in whom is all my delight' 'I cannot do You any good, my God; You are too great to need anything from me; but I may be the means of blessing to Your people, Your saints may reap some little benefit from what I do. They are the company I keep, they are the choicest friends I know, and if You will but help me to do something for You which shall bring blessing to them, I shall indeed rejoice."
 
 Their sorrows shall be multiplied that hasten after another god: their drink offerings of blood will I not offer, nor take up their names into my lips. We must be faithful to God&mdash;to the God revealed to us in the Book of God, the God of the Old Testament and of the New Testament, the God and Father of our Lord Jesus Christ! We must keep to Him, not make another god after our own imagination. It is practical idolatry even to conceive of God otherwise than He is revealed in Holy Scripture. This we must not do, but say, concerning the God of the Bible, "This God is our God forever and ever."
 
-The LORD is theportion of my inheritance and ofmy cup: You maintain my lot. One of the great houses of nobility has for its motto the words, "I will maintain it." But David's is a better one&mdash;"You maintain my lot." God is the best Defender that His people can ever have!
+The Lord is theportion of my inheritance and ofmy cup: You maintain my lot. One of the great houses of nobility has for its motto the words, "I will maintain it." But David's is a better one&mdash;"You maintain my lot." God is the best Defender that His people can ever have!
 
 The lines are fallen into me in pleasant places; yes, I have a goodly heritage. Many of us have proved this to be true in our experience. May we continue gratefully contented and more than contented&mdash;delightedwith whatever God appoints for us!
 
-8. I will bless the LORD, who has given me counsel: my reins also instruct me in the night seasons. I have set the LORD always before me.' 'In my acts by day, and my thoughts by night."
+8. I will bless the Lord, who has given me counsel: my reins also instruct me in the night seasons. I have set the Lord always before me.' 'In my acts by day, and my thoughts by night."
 
 Because He is at my right hand, I shall not be moved. Now across the sacred page there comes the wondrous revelation of a glorious One who speaks in the very words that are recorded here. Though, possibly, we have not recognized Him, these words that follow apply especially to Jesus Christ our Lord.
 

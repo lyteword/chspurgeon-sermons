@@ -54,7 +54,7 @@ Where is the Good Shepherd until He finds His sheep? Why, He is in a state of di
 
 spirit of Christ and are in sympathy with Him, have hearts of compassion so that the loss of any one sinner fills them with dismay&mdash;and the penitence of any one sinner makes their heart rejoice with exceeding joy! May we always cultivate that spirit!
 
-But now I must turn to THE BRIGHT SIDE OF THAT LANDMARK, "UNTIL." I am going to ask the same questions as before, but will put the second first and the first second.
+But now I must turn to THE BRIGHT SIDE OF THAT LANDMark, "UNTIL." I am going to ask the same questions as before, but will put the second first and the first second.
 
 First, then, where is the Shepherd when He finds His sheep? I can answer this question, for I remember where He was when He found me. The first sight I had of Him was a very vivid one. Where was He then? Well, He was just where I was! The sheep and the Shepherd stood together&mdash;but Christ was where I ought to have been by reason of my sin. Christ was accursed because I was cursed by my sin. Christ was made sin because I was a sinner, that I might be made the righteousness of God in Him. Oh, what a sight was that&mdash;Christ in my place! I have preached about it many years, yet it always makes me wonder just as it did at the first. What an overwhelming thought it seemed, and yet how full of joy! O poor Soul, if you would have a true sight of Christ, see Him suffering, dying, forsaken of His God and full of agony because the chastisement of your peace was upon Him!
 
@@ -92,7 +92,7 @@ On whose shoulders was the sheep? It was on the shoulders of the rejoicing one w
 
 So you see that there is a great deal in these four words, "until he finds it." Where are you now, my Friend? Are you still lost? What a joy it is to think that the Good Shepherd is still seeking lost sheep! But, if you have seen Christ near you, oh, that you may, by His Grace, this very hour, be caught up by His pierced hands and laid upon His everlasting shoulders and so be carried to the heavenly fold! The Lord grant it! This is what you need and what you must have if you are really to be saved. You must be "saved in the Lord." Christ Jesus must save you&mdash;it must be by His blessed hands and His almighty power that you must be rescued from danger and saved from going down to the Pit. May He soon find all of you who are lost and carry you on His shoulders all the way to the eternal fold above, for His dear names sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 17.
+Exposition by C. H. Spurgeon: John 17.
 
 Verse 1. These words spoke Jesus, and lifted up His eyes to Heaven, and said, Father, the hour is come. That tremendous hour which was the very hinge of history&mdash;that hour in which He must suffer, bleed and die&mdash;to pay the ransom price for His people&mdash;"Father, the hour is come."
 

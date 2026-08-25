@@ -82,7 +82,7 @@ Then I would say, next, try to avoid all dry heat Do not work yourself up into a
 
 Lastly, be constantly looking for that Divine mystery of secret vitality which is called in the text, "moisture. " I commend to you this prayer, "Lord, give me this blessed moisture. Saturate me through and through with the heavenly dew, the Divine rain, that I may grow and bring forth fruit to the Glory of Your holy name." God bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM42.
+Exposition by C. H. Spurgeon: Psalm42.
 
 We often read this Psalm because we are very often in the same state that the Psalmist was in when he wrote it&mdash;and the language seems to suit us at many periods of our life.
 
@@ -106,7 +106,7 @@ Deep calls unto deep at the noise of Your waterspouts: all Your waves and Your b
 
 cry, "All Your waves and Your billows are gone over me." Surely, this language is an exaggeration, for it is only Christ who could say that, but, sometimes, when you and I are in a low dark frame of mind, we are apt to think that we have felt all the twigs of the rod and that we could not be made to smart more. Little do we really know of it&mdash;God grant that we may never know more than we do! Now comes an exercise for faith to be able, when down at the bottom of the sea, like Jonah, and at the mercy of every wave, to say with the Psalmist in the next verse&mdash;
 
-Yet the LORD will command His loving kindness in the daytime, and in the night His song shall be with me, and my prayer unto the God of my life. We shall not only have daytime Grace, but nighttime Grace, too! "In the night His song shall be with me, and my prayer unto the God of my life." What a sweet title that is, "The God of my life," the source of my life, the strength of my life, the comfort of my life, without whom my life is not life at all!
+Yet the Lord will command His loving kindness in the daytime, and in the night His song shall be with me, and my prayer unto the God of my life. We shall not only have daytime Grace, but nighttime Grace, too! "In the night His song shall be with me, and my prayer unto the God of my life." What a sweet title that is, "The God of my life," the source of my life, the strength of my life, the comfort of my life, without whom my life is not life at all!
 
 I will say unto God my rock, Why have You forgotten me? He had been talking too much to himself&mdash;now he talks with his God.
 

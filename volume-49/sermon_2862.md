@@ -8,7 +8,7 @@ Yet further on in the chapter we notice that Job refers to the search after wisd
 
 I shall use the language of our text, first, in reference to the way of Godwhch is, in the highest sense, the way of wisdom. And then, secondly, in reference to the path of the truly wise which is also, secondarily, the path of wisdom as far as mortal man can be wise&mdash;as far as he who is born of a woman can walk in the way of wisdom.
 
-First, then, IN REFERENCE TO THE WAY OF GOD. His way in dealing with men is past our power to find
+First, then, IN REFERENCE TO THE WAY OF God. His way in dealing with men is past our power to find
 
 out.
 

@@ -95,7 +95,7 @@ But what can some of you do in carrying burdens for other people? Why, even whil
 
 God bless you, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: GALATIANS 5:13-26; 6:1,2.
+Exposition by C. H. Spurgeon: Galatians 5:13-26; 6:1,2.
 
 Galatians 5:13. For, brethren, you have been called unto liberty; only use not liberty for an occasion to the flesh, but by love, serve one another Do not turn your liberty into license. The Apostle, in this Epistle, had began urging the Christians of Galatia to stand fast in the liberty wherewith Christ had made them free, and never to be, again, entangled with the yoke of legal bondage. He warned them against that error into which many have fallen. But you know that it is often our tendency, if we escape from one error, to rush into another. So the Apostle guards these Christian against that Antinomian spirit which teaches us that freedom from the law allows indulgence in sin&mdash;"Use not your liberty for an occasion to the flesh, but by love, serve one another."
 

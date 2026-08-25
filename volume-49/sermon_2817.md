@@ -68,7 +68,7 @@ omnipotent, yet lays hold upon the Omnipotence of God and girds itself with Divi
 
 The Lord bless you, dear Friends, and especially bless any of you who have not yet believed in His Son, Jesus Christ! Oh, that they could see the sinfulness of doubting the great God and Jesus Christ, His Son! Oh, that they would but trust Him and confide in Him just as they are! They would never have to lament doing so, but, throughout eternity they would have to bless the Lord who taught them this sweet way of life and peace, namely, the way of simple dependence upon the blood and righteousness of Jesus Christ!
 
-EXPOSITION BY C. H. SPURGEON: GENESIS32.
+Exposition by C. H. Spurgeon: Genesis32.
 
 Verse 1. And Jacob went on his way, and the angels of God met him. When he left the promised land, he had a vision of angels, ascending and descending upon the ladder, as if to bid him farewell. Now that he is going back, the angels are there again to speed him on his way home to the land of the Covenant, the land which the Lord had promised to give to Abraham and his seed.
 
@@ -86,7 +86,7 @@ When one trouble's gone, another does him seize," and though the rhyme is rather
 
 7, 8. And he divided the people that were with him, and the flocks, and herds, and the camels, into two bands; and said, If Esau comes to the one company, and smites it, then the other company which is left shall escape. This man Jacob was always planning and scheming. He was the great progenitor of the Jews who are still pre-eminent in bargaining. See how he plots and arranges everything to the best advantage. I blame him not for this, yet, I think he is to be blamed that he did not first pray. Surely, it would have been the proper order of things if the prayer had preceded the planning&mdash;but Jacob planned, first, and prayed afterwards. Well, even that was better than planning and not praying at all! So there is something commendable in his actions, though not without considerable qualification.
 
-And Jacob said, O God of my father Abraham, and God of my father Isaac, the LORD. Jacob uses that august name, "Jehovah"&mdash;"the LORD."
+And Jacob said, O God of my father Abraham, and God of my father Isaac, the Lord. Jacob uses that august name, "Jehovah"&mdash;"the Lord."
 
 9, 10. Who said unto me, Return unto your country, and to your kindred and I will deal well with you. I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant; for with my staff I passed over this Jordan; and now I am become two bands. Not even one servant had he with him when he fled away across the river! He was alone and unattended, but now he was coming back at the head of a great family, with troops of servants and an abundance of cattle, sheep and all things that men think worth having! How greatly God had increased him, and blessed him! He remembers that lonely departure from the home country and he cannot help contrasting it with his present prosperity.
 

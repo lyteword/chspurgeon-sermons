@@ -28,7 +28,7 @@ You feel that you ought to have family prayer, yet you say that you have been pr
 
 play fast and loose with known precepts and duties. Do not let any of us fall into this sin&mdash;if we do, the Lord may well say to us, as he did to Moses&mdash;only He may say it to us with more anger&mdash;"'Why do you cry unto Me' about such a thing as that? Do what you know to be right."
 
-Now, leaving that part of our theme altogether, I come to a more general subject, which is this, IT IS GOOD FOR a MAN OFTEN TO ASK HIMSELF THE QUESTION, "WHY DO I PRAY? WHY DO I CRY UNTO GOD?"
+Now, leaving that part of our theme altogether, I come to a more general subject, which is this, IT IS GOOD FOR a MAN OFTEN TO ASK HIMSELF THE QUESTION, "WHY DO I PRAY? WHY DO I CRY UNTO God?"
 
 In some cases, I fear that the answer will be exceedingly unsatisfactory. One replies, "I pray because I was always trained to do so. My dear mother, now in Heaven, taught me a form of prayer and that is why I continue to repeat it." If your mother had taught you the Muslim form of prayer, I suppose you would have kept on repeating it. Or if she had taught you to worship a block of wood or stone, would you have done so? I do not wish to speak with contempt concerning the influence of a mother's teaching, but I must say that this, alone, is a very unsatisfactory reason for presenting a prayer to God. Let me ask, Did your mother, when she taught you that form of prayer, merely mean that you should repeat those words without any particular thought as to what they meant? If she did, your mother knew but little of vital godliness and, probably, you know even less! You must pray to God from your inmost heart. Your soul must have real fellowship with Him, or else the prayer your mother taught you may be of no more use for you than if you repeated the alphabet backwards or forwards. I have heard of a man of 70 who said that he always prayed night and morning. When he was asked what he said in his prayer, it turned out that he only repeated the form which he had been taught to say as a little child. Now, if you had taught a parrot to say a prayer like that, the parrot would not have been saved, nor will you, if that is all you have to depend upon. There must be something, as a reason for prayer, vastly superior to that, or else your prayer may be nothing but a mockery of supplication, a sepulcher of devotion with no life in it, an external form which cannot please God.
 
@@ -82,9 +82,9 @@ Ah, Sirs, assuredly a curse rests upon the man who never prays! He who prays not
 
 It is not to prayer that I exhort you, but I urge you to obey that great Gospel command, "Believe on the Lord Jesus Christ, and you shall be saved." And more than that, in the name of God, I command you to believe in Him whom He has sent as the only Savior of sinners. Believe on Him! Trust in Him and go your way forgiven! God grant it, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-LUKE 18:1-27.
+Luke 18:1-27.
 
 Verse 1. And He spoke a parable unto them to this end, that men ought always to pray, and not to faint. Especially not to faint in prayer, not to become disheartened, or weary, even if their prayers should, for a long time, remain unanswered.
 

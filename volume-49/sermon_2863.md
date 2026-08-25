@@ -54,7 +54,7 @@ Thus have I preached the Gospel to you. If you reject it, it is at your peril. I
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;548, 562, 595.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 15.
+Exposition by C. H. Spurgeon: Luke 15.
 
 We have read this chapter together many times. Possibly some of us have read it hundreds of times, yet whenever we read it, we always find something fresh in it. It is always bright and sparkling, full of diamonds and other precious gems of Truth.
 

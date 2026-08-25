@@ -105,9 +105,9 @@ And believing in the Lord Jesus Christ is just as simple as that. If a farmer wa
 
 and do you, as a little child, fully trust Jesus as your Savior and so you shall be saved! God help you to do this now, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ISAIAH53.
+Exposition by C. H. Spurgeon: Isaiah53.
 
-Verse 1. Who has believed our report? And to whom is the arm of the LORD revealed? It is sometimes the lot of God's most faithful servants to labor unsuccessfully. As old Thomas Fuller quaintly says, "He makes some to be as the clouds that empty their rain over Arabia, the stony&mdash;while others are pouring down their showers over Arabia the happy." Yet we are accepted with God, not according to our success, but according to our faithfulness. Still, no true minister of Christ can be content unless men believe his report. It will be a matter for sighing and groaning if unbelief is the only answer to our earnest declarations concerning Christ.
+Verse 1. Who has believed our report? And to whom is the arm of the Lord revealed? It is sometimes the lot of God's most faithful servants to labor unsuccessfully. As old Thomas Fuller quaintly says, "He makes some to be as the clouds that empty their rain over Arabia, the stony&mdash;while others are pouring down their showers over Arabia the happy." Yet we are accepted with God, not according to our success, but according to our faithfulness. Still, no true minister of Christ can be content unless men believe his report. It will be a matter for sighing and groaning if unbelief is the only answer to our earnest declarations concerning Christ.
 
 For He&mdash;That is, Jesus&mdash;
 
@@ -117,7 +117,7 @@ He is despised and rejected of men; a Man of sorrows and acquainted with grief: 
 
 5. Surely He has borne our griefs, and carried our sorrows: yet we did esteem Him stricken, smitten of God, and afflicted. But He was wounded for our transgressions, He was bruised for our iniquities: the chastisement of our peace was upon Him; and with His stripes we are healed. It is Substitution, you see, all through&mdash;Christ suffering instead of us&mdash;the Innocent dying for the guilty&mdash;the Lord of Glory bearing the sin of rebellious men. Why do men quibble at this precious Truth? It is their only hope of salvation! Why do we still have to say, "Who has believed our report? And to whom is the arm of the Lord revealed?" But those who are enlightened from above and led to see their own state of ruin, and their absolute need of a Savior, will rejoice to know that the Lord has laid help upon One who is mighty, and that He has anointed His only begotten Son to stand in our place!
 
-All we like sheep have gone astray; we have turned, everyone, to his own way; and the LORD has laid on Him the iniquity of us all. There is a universal sin&mdash;"All we like sheep have gone astray." There is also a personal sin, a sin peculiar to each individual&mdash;"We have turned, everyone, to his own way." But Christ gathers up the sin&mdash;all kinds of sin of all sorts of men&mdash;and of His whole Church it is truly said, "The Lord has laid on Him the iniquity of us all."
+All we like sheep have gone astray; we have turned, everyone, to his own way; and the Lord has laid on Him the iniquity of us all. There is a universal sin&mdash;"All we like sheep have gone astray." There is also a personal sin, a sin peculiar to each individual&mdash;"We have turned, everyone, to his own way." But Christ gathers up the sin&mdash;all kinds of sin of all sorts of men&mdash;and of His whole Church it is truly said, "The Lord has laid on Him the iniquity of us all."
 
 He was oppressed, and He was afflicted, yet He opened not His mouth. When a word could have released Him, He would not speak it. His was, indeed, golden silence. Oh, the wondrous eloquence of that patient speechlessness when He stood before Herod and Pilate and answered them not a word! He could have spoken with such authority as to have called legions of angels from Heaven for His protection, or a single word of His could have destroyed His enemies, as the leaves of autumn lie withered and dead&mdash;but, "He opened not His mouth."
 
@@ -129,11 +129,11 @@ And with the rich in His death. Lying in the new tomb of Joseph of Arimathaea.
 
 Because He had done no violence, neither was any deceit in His mouth. If He had used either violence or deceit, He might have escaped, but because He was harmless and true, therefore must He die.
 
-Yet it pleased the LORD to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, The grain of wheat, sown in the ground, abides not alone, but brings forth much fruit. Our blessed Savior presented both soul and body as an offering for sin, but He knew what He was doing, for "He shall see His seed."
+Yet it pleased the Lord to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, The grain of wheat, sown in the ground, abides not alone, but brings forth much fruit. Our blessed Savior presented both soul and body as an offering for sin, but He knew what He was doing, for "He shall see His seed."
 
 He shall prolong His days. Up from the grave did He arise in newness of life and back to Heaven did He return to life immortal&mdash;"He shall prolong His days,"
 
-10, 11. And the pleasure of the LORD shall proper in His hand. He shall see of the travail of His soul, and shall be satisfied. Christ did not die in vain. He will never miss the great objective of His death, you may depend upon that! Those drops of blood are far too precious to fall in vain upon the earth.
+10, 11. And the pleasure of the Lord shall proper in His hand. He shall see of the travail of His soul, and shall be satisfied. Christ did not die in vain. He will never miss the great objective of His death, you may depend upon that! Those drops of blood are far too precious to fall in vain upon the earth.
 
 By His knowledge shall My righteous Servant justify many. That is, by their knowledge of Him, by their trusting Him many shall be justified and saved.
 
