@@ -2,9 +2,7 @@
 
 "The LORD looses the prisoners: the LORD opens the eyes of the blind: the LORD raises them that are bowed down: the LORD lo ves the righteous: the LORD preserves the strangers, He relie ves the fatherless and widow: but the way of the wicked He turns upside down." Psalm 146:7-9.
 
-This morning as well as I could, looking to God for help, I tried, in Christ's place, to persuade men to be reconciled to God. I showed that there was a great spiritual drought and neither dew nor rain to be had except as God should send it. And I tried to press my hearers to go to God, to wait upon Him, to look to Him and, through the mediation of the Lord Jesus Christ, to seek and find in God all that would be necessary for their eternal blessedness. [Sermon #2115, Volume
-
-35-The Drought Of Nature, the Rain Of Grace and the Lesson Thereof] I
+This morning as well as I could, looking to God for help, I tried, in Christ's place, to persuade men to be reconciled to God. I showed that there was a great spiritual drought and neither dew nor rain to be had except as God should send it. And I tried to press my hearers to go to God, to wait upon Him, to look to Him and, through the mediation of the Lord Jesus Christ, to seek and find in God all that would be necessary for their eternal blessedness.  I
 
 pressed hard and some yielded, not to my pressure, but to a Divine impulse that went with my pleading! But there were some who did not yield, this morning, so I am going to make another attempt to win them, now, calling in our August Ally, even the Divine Spirit, without whom we can do nothing! May He bring many to God in penitence tonight!
 

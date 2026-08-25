@@ -59,9 +59,7 @@ Keep your eyes on your Savior, as much in your good works as in your bad ones. A
 
 Now, dear Friends, thirdly, I will speak of "JESUS ONLY" AS THE OBJECT OF OUR LIVES.
 
-It was my privilege, this morning, to address a congregation, most of you being present, from the text, [Sermon #144,
-
-Volume 3&mdash; Waiting Only Upon God] "My soul, wait you only upon
+It was my privilege, this morning, to address a congregation, most of you being present, from the text,  "My soul, wait you only upon
 
 God." Now, if you please, just extract the marrow out of the morning's discourse and put that into the third head. Let "Jesus only" be the object of your life. Oh, I pray the Holy Spirit so to enter into our hearts, minds, consciences, judgments and affections, that every idolatrous love&mdash;all affection towards everything but Christ&mdash;may be cast out of all the Lord's family and that they may be brought to set Jesus upon the throne of their hearts, and to utterly crush every rival! O Brothers and Sisters, after all, we do not love Jesus Christ much! Oh, if we saw the ocean of Christ's love running towards us, and the little stream of our love running towards Him, what a shocking contrast it would be on our part! There is His love&mdash;I cannot see across it! It is a sea without a shore! The wings of imagination flag with fatigue before they can cross that shoreless sea! There is His love&mdash;I cannot fathom it! The plumb line fails. But, oh, here is our love&mdash; it is a little stream that is almost dry! The heat of worldly joys will sometimes absorb it till the stones stand in the bed of its little brook, unwashed and dry. Oh, it is so small that sometimes it takes an hour to scoop up so much as a cupful of it to give to the Lord's poor family! It will take us, perhaps, a week to get even a consciousness that we love Christ&mdash;and we will be singing for hours together&mdash;
 

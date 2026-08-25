@@ -54,9 +54,7 @@ Again, you see that rough-looking diamond&mdash;it is put upon the wheel of the 
 
 Have patience with me, in the next place, while I use my text TO SUGGEST ACTION.
 
-It is very clear that we cannot have an ending if we have not a beginning. However bright our end might be, we can never know it experimentally unless we begin. The text therefore, suggests the question to each one of us, "Have I begun? Has God begun with me?" The beginning may be dark and gloomy, but you can never have a bright ending without it. I know the beginning will involve the sacrifice of many pleasures and the giving up of friends&mdash;"pleasures" and "friends" so-called, but you cannot have an ending with the saints of God in Heaven unless you have a beginning with the poor and afflicted of His family on earth! I wonder whether there are some with whom God will begin now. It will be a blessed thing if He should begin with you, but it will be a far more blessed thing for you when He comes to the end. It. will be so blessed, if you should, tonight, be led by the Holy Spirit to direct your eyes with faith to Christ that the very angels before the House of God shall have a merrier Christmas because of your conversion! [See Sermon #2791, Volume 48&mdash;a high day in
-
-HEAVEN.] Can I be mistaken in that notion? Did not our Lord
+It is very clear that we cannot have an ending if we have not a beginning. However bright our end might be, we can never know it experimentally unless we begin. The text therefore, suggests the question to each one of us, "Have I begun? Has God begun with me?" The beginning may be dark and gloomy, but you can never have a bright ending without it. I know the beginning will involve the sacrifice of many pleasures and the giving up of friends&mdash;"pleasures" and "friends" so-called, but you cannot have an ending with the saints of God in Heaven unless you have a beginning with the poor and afflicted of His family on earth! I wonder whether there are some with whom God will begin now. It will be a blessed thing if He should begin with you, but it will be a far more blessed thing for you when He comes to the end. It. will be so blessed, if you should, tonight, be led by the Holy Spirit to direct your eyes with faith to Christ that the very angels before the House of God shall have a merrier Christmas because of your conversion!  Can I be mistaken in that notion? Did not our Lord
 
 Jesus Christ say, concerning the shepherd who had found his sheep which was lost. "When he comes home, he calls together his friends and neighbors," (who are they but the angels who are the friends and neighbors of Christ in Heaven?) "saying unto them, Rejoice with me, for I have found my sheep which was lost. I say unto you, that likewise joy shall be in Heaven over one sinner that repents, more than over ninety and nine just persons which need no repentance." In Heaven they sing more and with a more joyful song when sinners turn from the error of their ways. I wonder whether tonight will be a time for "beginning" with some of you? Oh, if the Spirit of God is now teaching you your sinnership, if you feel that you are lost and ruined, I have to remind you that on the Cross of Calvary, there hung a bleeding Savior and that&mdash;
 
@@ -95,9 +93,7 @@ Then I called upon the name of the LORD; O LORD, I beseech You, deliver my soul.
 
 Gracious is thee LORD, and righteous; yes, our God is merciful Listen to that blessed little sentence, those of you who are full of sin, and who are therefore afraid that God will cast you away forever! "Our God is merciful."
 
-The Lord preserves the simple: I was brought low and He helped me. There is here, first, a general Doctrine and then, there is a particular proof and application of it. It is true, in a general sense, that the Lord preserves the simple-hearted ones who have learned to trust in Him. But, in particular, you or I, if saved by His Grace, can say with the Psalmist, "I was brought low and He helped me." There is a little book of medicine [See Sermon #240, Volume 5&mdash;prayer
-
-ANSWERED, LOVE NOURISHED.] which Mr. John Wesley brought out
+The Lord preserves the simple: I was brought low and He helped me. There is here, first, a general Doctrine and then, there is a particular proof and application of it. It is true, in a general sense, that the Lord preserves the simple-hearted ones who have learned to trust in Him. But, in particular, you or I, if saved by His Grace, can say with the Psalmist, "I was brought low and He helped me." There is a little book of medicine  which Mr. John Wesley brought out
 
 and he put to some of the recipes, the word "Proved." He had evidently tried the medicine and proved it to be efficacious in his own case. In a similar fashion, we can often put in the margin of our Bibles, concerning the Word of the Lord, "Proved." We have tried it and proved it&mdash;and therefore we also can personally say, "The Lord preserves the simple: I was brought low, and He helped me."
 
@@ -117,9 +113,7 @@ and soon to be taken there&mdash;render unto the Lord? Whoever I am, let me make
 
 13, 14. I will take the cup of salvation, and call upon the name of the LORD. I willpay my vows unto the LORD now in the presence of all His people. There never was a better time than the present&mdash;and there never was better place than this for some holy resolve concerning consecrated service for the Master!
 
-Precious in the sight of the LORD is the death of His saints. They are themselves at all times so precious to the Lord that everything about them is very dear in His esteem&mdash;and they are never more precious than in their deaths. [See
-
-Sermon #1036, Volume 18&mdash;PRECIOUS DEATHS.] We constantly have some
+Precious in the sight of the LORD is the death of His saints. They are themselves at all times so precious to the Lord that everything about them is very dear in His esteem&mdash;and they are never more precious than in their deaths.  We constantly have some
 
 of the very choicest of the Lord's saints going Home to their Father. And when the Lord takes any of them Home to Himself, it becomes those of us who are left to try to do all the more for our God. Let some of us be baptized for the dead, let us press forward to fill the gaps in the ranks of the armies of God and do all that lies in our power to win the victory for His righteous cause!
 

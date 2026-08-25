@@ -2,9 +2,7 @@
 
 "Have you seen the doors of the shadow of death?" Job 38:17.
 
-Last Sabbath our spirits flew forward as far as the Judgment Day. We stood with wondering awe to gaze upon the Great White Throne and the fillet of gold about the head of the Reaper who gathered in the harvest of the earth. We trembled as we saw the other angel take the sharp sickle and reap the world's vintage and hurl it into the winepress of Jehovah's wrath where it was trampled underfoot until the blood of men flowed forth in torrents. [See Sermon #2910, Volume
-
-50&mdash;THE HARVEST AND THE VINTAGE] Our excursion at this time will
+Last Sabbath our spirits flew forward as far as the Judgment Day. We stood with wondering awe to gaze upon the Great White Throne and the fillet of gold about the head of the Reaper who gathered in the harvest of the earth. We trembled as we saw the other angel take the sharp sickle and reap the world's vintage and hurl it into the winepress of Jehovah's wrath where it was trampled underfoot until the blood of men flowed forth in torrents.  Our excursion at this time will
 
 not take us so far in human history. We shall halt at a nearer stopping place. We shall not journey even to the Resurrection&mdash;only to the doors of the shadow of death.
 

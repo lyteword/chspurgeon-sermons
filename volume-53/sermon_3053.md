@@ -18,9 +18,7 @@ But next I need to say to those of you who are still unconverted, how necessary 
 
 I want to ask you who have not yet believed in Jesus, whether you really understand this Truth of God of which I have been speaking. Lest there should be anyone here under a delusion upon this matter, let me say, once and for all, that there is no salvation in any charm or ceremony invented or performed by men. The common notion is that there is some kind of charm which operates upon a person, young or old, who is brought to a font&mdash;that some virtue or other goes through the fingers of the "priest" who sprinkles the water because at his "ordination" he received something or other, from somebody or other, who received that something or other from some other body and so on, and so on, and so on right up to the Apostles! All that is sheer superstition as base as the witchcraft for which old women were burned in the
 
-evil days of the past!  How I wish that all men, women and children could be undeceived concerning it! Then there is a notion that a piece of bread, or a drop of wine, "consecrated" and dispensed by properly authorized persons, will, somehow or other, charm away evil from a dying person. That is another superstition not a whit better than the fetish of the pretended rainmakers of South Africa! Neither the water, nor the bread and wine can convey Divine Grace to an unbeliever! But if I am a Believer in the Lord Jesus Christ, my being buried with Him in Baptism [See Sermon #1627,
-
-Volume 27, BAPTISM&mdash;a BURIAL.] reminds me that I am saved through
+evil days of the past!  How I wish that all men, women and children could be undeceived concerning it! Then there is a notion that a piece of bread, or a drop of wine, "consecrated" and dispensed by properly authorized persons, will, somehow or other, charm away evil from a dying person. That is another superstition not a whit better than the fetish of the pretended rainmakers of South Africa! Neither the water, nor the bread and wine can convey Divine Grace to an unbeliever! But if I am a Believer in the Lord Jesus Christ, my being buried with Him in Baptism  reminds me that I am saved through
 
 His death and burial&mdash;and if I, as a Believer in Christ, eat the bread and drink the wine at the Communion Table, those suggestive symbols help me, as Paul says, to "show the Lord's death till He comes." That is all. There is no charm in the water, or the bread, or the wine in themselves, whatever incantations any so-called "priest" may have muttered over them!
 
@@ -96,9 +94,7 @@ Nicodemus answered and said unto Him, How can these things be? He was puzzled an
 
 And no man has ascended up to Heaven, but He that came down from Heaven, even the Son of Man which is in Heaven. Now Nicodemus must have been indeed puzzled! Here was a Man who had come down from Heaven, yet who had gone up to Heaven and was still there, although He was at that moment talking to Nicodemus! Without the Spirit of God to explain the mystery, he could not make heads or tails of it.
 
-14, 15. And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whoever believes in Him should not perish, but have eternal life. [See Sermon #153, Volume 3&mdash;the mysteries of the bronze serpent&mdash;
-
-.] Mark, dear Friends, the blending of the different Truths of God
+14, 15. And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up: that whoever believes in Him should not perish, but have eternal life.  Mark, dear Friends, the blending of the different Truths of God
 
 in this wonderful chapter! There is no keeping back the necessity of the new birth and there is no cutting down of the glorious Doctrine of Salvation by Faith in Jesus! He puts the whole matter as broadly as it could be put.
 

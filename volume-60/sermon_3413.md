@@ -1,6 +1,6 @@
 # Sermon 3413 | God's Mercy Going Before
 
-> The God of my mercy shall prevent [go before] me.  
+> The God of my mercy shall prevent  me.  
 > Psalm 59:10
 
 If you read this Psalm, you will find that David was in a very grievous plight. He was surrounded by the most cruel and the most false of men. They were ravening like wolves over carrion and endeavoring to destroy his character&mdash;and even to take his life. David knew where his resort was. As the conies make their dwellings in the rocks, and as the swallows have built a nest for themselves at God's altar, so David resorted to his God, and to his God alone.

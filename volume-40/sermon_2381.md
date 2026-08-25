@@ -36,9 +36,7 @@ He gathers us, first, by making Himself known to us. When we come to understand 
 
 But God gathers many to Himself by the call of His servants. You see that of old, He sent His Prophets. Now, He sends His ministers. If God does not send us to you, we shall never gather you. If we come to you in our own name, we shall come in vain, but if the Lord has sent us, then He will bless us and our message will be made to you a means of gathering you to Christ. I would much rather cease to preach than be allowed to go on preaching but never to gather souls to God! I can truly say that I have no wish to say a pretty thing, or turn a period, or utter a nice figure of speech&mdash;I want to win your souls, to slay your sin, to do practical work for God with each man, each woman, each child who shall come into this Tabernacle&mdash;and I ask the prayers of God's people that it may be so! It is thus that God gathers men to Him-self&mdash;by the message which He gives to them through His servants.
 
-The Lord has, also, many other ways of calling men to Himself. You saw, this morning, [Sermon #2034, Volume 34&mdash;
-
-Peter's Restoration.] that Peter was called to repentance by the crowing of a cock,
+The Lord has, also, many other ways of calling men to Himself. You saw, this morning,  that Peter was called to repentance by the crowing of a cock,
 
 and the Lord can use a great many means of bringing sinners to Himself! Omnipotence has servants everywhere! And God can use every kind of agent, even though it appears most unsuitable, to gather together His own chosen ones. He has called some of you&mdash;He has called some of you who have not yet come to Him. The text says, "How often!" It does not tell us how often, but it puts it as a matter of wonder, "How often!" with a note of exclamation.
 

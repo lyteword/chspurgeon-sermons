@@ -75,7 +75,7 @@ For Christ is the end of the law for righteousness to everyone that believes. Fo
 
 But the righteousness which is of faith speaks on this wise, Say not in your heart, Who shall ascend into Heaven? (That is, to bring Christ down from above). Or, who shall descend into the deep? (That is, to bring up Christ again from the dead). But what does it say? The word is near you, even in your mouth and in your heart; that is the word of faith, which we preach. That if you shall confess with your mouth the Lord Jesus, and shall believe in your heart that God has raised Him from the dead, you shall be saved. How very simple! No climbing, no diving, no imagining, no long reckoning of the understanding, no strangling of the mental faculties. It is just believe God's testimony concerning His Son and you shall be saved!
 
-For with the heart man believes unto righteousness, and with the mouth confession is made unto salvation. For the Scripture says, Whoever believes on Him shall not be ashamed. For there is no difference between the Jew and the Greek [Gentile] in this matter.
+For with the heart man believes unto righteousness, and with the mouth confession is made unto salvation. For the Scripture says, Whoever believes on Him shall not be ashamed. For there is no difference between the Jew and the Greek  in this matter.
 
 For the same Lord over all is rich unto all that call upon Him. For whoever shall call upon the name of the Lord shall be saved. This was the old prophecy of Joel. The Jews knew it. It is the new teaching of the Gospel. The Gentiles know it. Oh, who would not wish to be in that broad "whoever," that he might find salvation?
 
