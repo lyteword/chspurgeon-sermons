@@ -48,7 +48,7 @@ There is another reason why you cannot commune with Christ unless you are in agr
 
 There is another reason why Christ will not commune with us unless we are agreed with Him, namely, for our own good. Christ cannot and will not hold sweet fellowship with His people unless they are in harmony with Him. If Christians swerve from Christ's path and backslide from His ways&mdash;and Christ were still to indulge them with love feasts&mdash; they would not realize their sin and would still continue in it. Let a father indulge the erring child with all the usual display of his affection. Let him put away the rod. Let him never use a harsh word at all, but treat the sinning one with the same love as another who is dutiful and obedient&mdash;how is it to be expected that the child would ever forsake its faults? If Christ should give the same love, the same enjoyments in sin and after sin, as He does in duty and after duty, His people would scarcely recognize their sins and they would continue in them. But just as the Lord is pleased to make pain the telltale of disease, so that a headache becomes an indication of something wrong within the system, so does He make the absence of His own fellowship the tell-tale by which we may know that there is something within our soul that is hostile to Him&mdash;something that must be driven away before the sacred Dove will come, with wings of comfort, to dwell in our hearts. "Can two walk together, unless they are agreed?" No. That is impossible.
 
-Now, thirdly, I want to urge all Christians to SEEK AFTER THIS AGREEMENT WITH CHRIST. Beloved Brothers and Sisters, in order that you may agree with Christ, I have first to remind you that the perpetual
+Now, thirdly, I want to urge all Christians to SEEK AFTER THIS AGREEMENT WITH Christ. Beloved Brothers and Sisters, in order that you may agree with Christ, I have first to remind you that the perpetual
 
 indwelling of the Holy Spirit must be with you. Unless the same Spirit that dwells in Christ shall dwell in you, your
 
@@ -66,9 +66,9 @@ Now there are some friends who are about to walk with Christ into this pool of B
 
 But, O, you humble followers of Jesus, you have testified to us your fellowship in the faith! Be not afraid, now, to confess it before men&mdash;and may God acknowledge all your names, at last, among the followers of the Lamb, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-JOHN 9.
+John 9.
 
 .
 

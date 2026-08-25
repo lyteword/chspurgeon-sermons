@@ -82,7 +82,7 @@ Brothers and Sisters, let every one of us retire to our closets and examine ours
 
 you knew a man whose limb was rotting with mortification, would you not urge him to have it cut off? Well, then, have your own cut off! If you saw a man who was rushing swiftly to Hell, would you not start off boldly and warn him? Then, be as bold with yourself as you would be with others! Talk to yourself as you would talk to other people. If you would observe this rule, I would not be afraid of what will happen to you&mdash;and some of you will thank God that you were ever led to examine yourselves, for now, as guilty sinners, you can flee to the Cross of Christ and, by faith, lay hold of Him who is able to save to the uttermost all them that come unto God by Him!
 
-EXPOSITION BY C. H. SPURGEON: LUKE14:25-35.
+Exposition by C. H. Spurgeon: Luke14:25-35.
 
 Verse 25. And there went great multitudes with Him. During at least a part of His earthly ministry, Christ was very popular. The people crowded at His feet and they were willing to make Him a king. But you must have observed that He was always faithful in speaking to the populace&mdash;He did not flatter them. He also dealt in the same fashion with those who professed to be His followers. He winnowed the heap that was laid upon the floor and drove away the chaff from the midst of the wheat.
 

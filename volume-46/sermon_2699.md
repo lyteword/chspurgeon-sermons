@@ -77,7 +77,7 @@ Then I take the cup and I say, "This cup represents to me the blood of Christ, a
 
 Now that is the way to discern the Lord's body and that is the way, "so," to eat of that bread, and to drink of that cup, as to be spiritually profited! May God, the Holy Spirit, help you to enter into the spirit of the ordinance, and to observe it as Christ ordained it, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW26:17-39; 1 CORINTHIANS11:20-34.
+Exposition by C. H. Spurgeon: Matthew26:17-39; 1 Corinthians11:20-34.
 
 Matthew 26:17, 18. Now on the first day of the Feast of the Unleavened Bread the disciples came to Jesus, saying unto Him, Where do You want us to prepare for You to eat the Passover? And He said, Go into the city to such a man, and say unto him, The Master says, My time is at hand; I will keep the Passover at your house with My discip1es. See here the blending of Christ's humiliation and His Godhead. The Master had no room of His own in which He could keep the Passover. He had not even where to lay His head, yet such was His power that He had only to send messengers to one whom He knew, though perhaps the man did not know Him&mdash;and as soon as ever the message was delivered, the large upper room, furnished and prepared, was at once freely tendered for the celebration of the supper! Jesus Christ, even in His lowest estate, had the hearts of all men beneath His control.
 

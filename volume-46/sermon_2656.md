@@ -89,9 +89,9 @@ While through Christ's blood absolved I am
 
 From sin's tremendous curse and shame?" Ah, Brothers and Sisters, if this is your experience, you may come to the Table of Communion now right happily&mdash;it will not be coming to a funeral, but to a feast of gladness! "He laid down His life for us."
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-JOHN 9; 1 CORINTHIANS 10:15-33; 11:1.
+John 9; 1 Corinthians 10:15-33; 11:1.
 
 We will first read about one of our Lord's miracles and then, as many of us will be coming to the Communion Table, we will read about the Lord's Supper.
 

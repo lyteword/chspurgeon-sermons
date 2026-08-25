@@ -74,7 +74,7 @@ That is the kind of sorrow to cultivate, for it leads to perpetual perseverance 
 
 Happy is that man who has had enough of the smart of sin to make it sour and bitter to him all the rest of his days, so that now, with changed heart and renewed spirit, he perseveres in the ways of God, never thinking of going back, but resolved "through floods or flames" to force his way to Heaven, to be, by Divine Grace, master over every sin that assails him! That is the kind of sorrow which I pray that God may work in everyone here who has never yet felt it.
 
-Now, to close, let us pray God the Holy Spirit to enable us to INDULGE OURSELVES IN GODLY SORROW FOR SIN.
+Now, to close, let us pray God the Holy Spirit to enable us to INDULGE OURSELVES IN GodLY SORROW FOR SIN.
 
 I will not say anything about the sorrow of the world that works death, but leave that sad subject in order that we may devote this little space that remains to the enjoyment of godly sorrow for sin.
 

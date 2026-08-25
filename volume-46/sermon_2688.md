@@ -1,6 +1,6 @@
 # Sermon 2688 | "Good Judgment"
 
-"You have dealt well with Your servant, O LORD, according unto Your Word. Teach me good judgment and knowledge: for I have believed Your Commandments." Psalm 119:65, 66.
+"You have dealt well with Your servant, O Lord, according unto Your Word. Teach me good judgment and knowledge: for I have believed Your Commandments." Psalm 119:65, 66.
 
 WHEN the Psalmist wrote these words, he was contemplating the goodness of God. In the verse preceding our text, the sixty-fourth, he sang, "The earth, O Jehovah, is full of Your mercy!" as if he could not walk abroad without seeing evidences of it, or look upward, or backward, or around him, without everywhere perceiving the Omnipresent goodness of the Most High. Whatever season of the year it is in which we take our walks abroad into the field of Nature, we ought to be in such a condition of mind and heart as to see proofs of the fullness of God's love everywhere around us, but especially, I think, it should be so in these summer months when the fields are ripening toward the harvest and we see how God is fulfilling His ancient Covenant, "While the earth remains, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease." How thankful we ought to be that the Lord thus remembers the earth and makes it bring forth the corn and everything else that is necessary to supply the needs of men! So let us bless God that the earth is still full of His mercy.
 
@@ -88,9 +88,9 @@ When Jonah went down to flee unto Tarshish, he found a ship going there&mdash;wa
 
 Be you, dear Friends, wise enough to stand to the plain Commandments of the Word. God help you to do so, for uprightness and integrity shall preserve you and nothing else will. "Trust in the Lord, and do good; so shall you dwell in the land, and verily you shall be fed." Those who do not believe God's Commandments and run off to all sorts of shifts and schemes, and tricks of their own, will have to suffer for it! Pray to God to teach you good judgment. And if He has given you a measure of it, may He continually give you more and more, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:64-72.
+Exposition by C. H. Spurgeon: Psalm119:64-72.
 
-Verses 64-67. The earth, O LORD, is full of Your mercy: teach me Your statutes. You have dealt well with Your servant, O LORD, according unto Your Word. Teach me good judgment and knowledge: for I have believed Your Commandments. Before I was afflicted I went astray.&mdash;Prosperity had been to the Psalmist like the gap in the hedge through which the sheep wander from the shepherd, but affliction had been to him like the prickly bushes that often stop the sheep from wandering still further, so he says, "Before I was afflicted I went astray."
+Verses 64-67. The earth, O Lord, is full of Your mercy: teach me Your statutes. You have dealt well with Your servant, O Lord, according unto Your Word. Teach me good judgment and knowledge: for I have believed Your Commandments. Before I was afflicted I went astray.&mdash;Prosperity had been to the Psalmist like the gap in the hedge through which the sheep wander from the shepherd, but affliction had been to him like the prickly bushes that often stop the sheep from wandering still further, so he says, "Before I was afflicted I went astray."
 
 But now have I kept Your Word. What a benefit, then, affliction had been to him! And what a blessing it often is to us! So, instead of dreading it, as we usually do, we ought to welcome it and be on the look-out for the blessing which is to come to us through it. Many a child of God has joined with Dr. Watts in singing&mdash;
 

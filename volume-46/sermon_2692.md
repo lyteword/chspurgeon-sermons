@@ -6,7 +6,7 @@ MEN who have no Grace in their hearts despise the Church of God. Those who have 
 
 I do not expect to say anything upon this subject which will interest those who have no love for the Church of God, but those who belong to her and who are spending their lives to promote her welfare because she is the bride of Christ, will, I trust, find something in what I say which will interest and perhaps encourage them. I shall come at once to the text and notice that, first, we must expect a measure of decrease in the Church But then, secondly, we may expect a great increase in the Church And, thirdly, from what this text has to say upon that subject and also for other reasons, we ought to be encouraged to seek the increase of the Church of God.
 
-First, then, dear Friends, THERE IS a DECREASE GOING ON IN THE CHURCH OF GOD ON EARTH.
+First, then, dear Friends, THERE IS a DECREASE GOING ON IN THE CHURCH OF God ON EARTH.
 
 Zion is represented here as mourning for the children that she had lost. The Jewish Church in the olden times saw her sons and daughters slain with the sword, or carried away captive. Afterwards, she saw the great majority of the nation refusing Christ and turning away from Him&mdash;and thus the Jewish Church was diminished and brought very low. The same thing has happened in many other cases and I am going to apply the text to ourselves and our own churches. We must naturally expect to see, in each separate church of Jesus Christ, a certain process and measure of decrease.
 
@@ -38,7 +38,7 @@ But we do not believe any such teaching as that! We still hold to it that when C
 
 I have brought this subject forward because I may be addressing some Brothers and Sisters who see the tide running out in their churches, and they are very sad as they watch the ebb. I have not seen much of that sort of thing, myself, but the least ebb troubles me and I go before God in prayer about it. I cannot bear to lose one of the members of my church, or to see one of them turn aside from the company of the faithful. Yet there is another side to this picture and we must not shut our eyes to it.
 
-So I ask you now to consider with me the second part of our subject. That is, THERE IS AN INCREASE TO BE EXPECTED IN THE CHURCH OF GOD. There are new converts yet to come in, as says my text&mdash;these children which Zion is to have, after she has lost the others.
+So I ask you now to consider with me the second part of our subject. That is, THERE IS AN INCREASE TO BE EXPECTED IN THE CHURCH OF God. There are new converts yet to come in, as says my text&mdash;these children which Zion is to have, after she has lost the others.
 
 And, Brothers and Sisters, these new converts are necessary. No church can be healthy without the constant infusion of fresh blood. Unless there are new converts, you cannot see the church built up. They often help to keep the old members warm and zealous. How I like, at a Prayer Meeting, to hear a Brother pray for the first time! I am not greatly grieved even if he breaks down, for it is the best kind of praying in the world when a man breaks down. Such an incident
 

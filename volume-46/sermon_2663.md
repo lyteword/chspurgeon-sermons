@@ -92,7 +92,7 @@ And, lastly, Paul proved that he was a true citizen of the New Jerusalem because
 
 Pray for this, dear Christian people. Pray for it tonight when you reach your homes as well as now! And then we shall have special reason to remember this twenty-ninth of February. Possibly, someone who will, in days to come, stand on this very spot preaching the Gospel of Jesus Christ, will say to you, "Do you remember the twenty-ninth of February, 1880? Do you remember the text, 'One born out of due time'?" I trust that some of you will be here to hear him say, "I remember it better than any of you do, for that was the night when I was born to God, glory be to His holy name!" Now pray for it with all your hearts, for our Lord Jesus Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN3:1-18.
+Exposition by C. H. Spurgeon: John3:1-18.
 
 If you were sent for to visit a dying man and you wished to select a chapter which would set the Truth of God before him very briefly and very clearly, you could not make a better choice than this third Chapter of the Gospel according to John. So, as we are all dying men and women, let us read it with that same desire&mdash;and may the Holy Spirit apply it to our hearts as we read it.
 

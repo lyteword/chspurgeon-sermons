@@ -38,7 +38,7 @@ My dear Friends, I should like you to so read the Bible that everybody in the Bi
 
 As for the doctrines revealed in the Bible, you should have them at your fingertips. The great Truths of the Word of God should be as familiar to you as a scholar makes his much-loved classics to be, or as the mathematician makes his plus and minus, his a and his x, familiar to him from hour to hour. So should you prize "the word of Christ." "Let it dwell in you richly in all wisdom."
 
-But now, secondly, I am to tell you How TO PROFIT BY THE WORD OF CHRIST, if we once get it to dwell in
+But now, secondly, I am to tell you How TO PROFIT by THE WORD OF Christ, if we once get it to dwell in
 
 us.
 
@@ -74,7 +74,7 @@ You have been upstairs to pray, you say, and you have got no comfort from the ex
 
 Praise God, then, "in Psalms and hymns and spiritual songs," and if you say you do not know how to do it, then "let the word of Christ dwell in you richly." It is a praise-begetting thing! Out of every Book of Scripture will stream praises unto Jehovah. Out of every promise will spring a sonnet. Out of every Divine Truth enjoyed and lived upon will rise a spiritual song. The whole Revelation of God is the condensed essence of praise&mdash;you have only to give it a fitting opportunity, by setting it simmering on the fire of a graceful heart&mdash;and you shall find a sweet cloud of holy incense rising from it, acceptable to the Most High. Therefore, Beloved, be much with your Bibles and let your Bibles be much with you&mdash;for your own profit, for the profit of others and for the glory of God! So be it, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: COLOSSIANS 3:1-17.
+Exposition by C. H. Spurgeon: Colossians 3:1-17.
 
 Verse 1. If you then are risen with Christ, seek those things which are above, where Christ sits at the right hand of God. Your Lord and Master has gone up to Heaven. You profess that He represents you and that you have gone up there in Him and with Him. Then do not seek the things that are down here below, the things of earth&mdash;but live where your life has gone. Where your treasure is, there let your heart be also. "Seek those things which are above."
 
