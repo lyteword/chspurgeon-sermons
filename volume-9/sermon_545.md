@@ -15,7 +15,7 @@ Brethren, whenever we endure adversities, or tribulations, or distresses, it is 
 
 Our subject this morning may, perhaps, be suitable to the experience of some. May the Lord make it useful to all. Taking the text as we find it, we shall, first of all, meditate upon the humanity of Christ as here declared. Secondly, we shall view it as here described&mdash;"A holy Child." And thirdly, we shall then behold it in the glory which surrounds it&mdash;signs and wonders are worked by the name of the holy Child, Jesus.
 
-First, then, dear Friends, may our hearts be enlightened to see, as the Apostles did, the beauty and excellence of THE REAL HUMANITY OF OUR LORD AND SAVIOR JESUS CHRIST.
+First, then, dear Friends, may our hearts be enlightened to see, as the Apostles did, the beauty and excellence of THE REAL HUMANITY OF OUR Lord AND SAVIOR Jesus Christ.
 
 While we always contend that Christ is God, very God of very God, let us never lose the firm conviction He is most certainly and truly a Man. He is not a God humanized, nor yet a human being deified. But as to His Godhead, pure Godhead, equal and co-eternal with the Father. As to His Manhood, perfect Manhood&mdash;made in all respects like unto the rest of mankind, sin alone excepted. His humanity was real, for He was born. He lay hidden in the virgin's womb, and in due time was born into a world of suffering. The gate by which we enter upon the first life, He also passed through.
 

@@ -11,7 +11,7 @@ The soul, overjoyed with the Divine communications of happiness and bliss which 
 
 It is to this sickness we call your attention this morning. This lovesickness breaks out in two ways and may be viewed in two lights. It is, first of all, the soul longing for a view of Jesus Christ in Grace. And then again, it is the same soul possessing the view of Divine Grace and longing for a sight of Jesus Christ in Glory. In both these senses we, as accurately as the spouse, may adopt the languishing words, "If you find my Beloved, tell Him that I am sick of love."
 
-First, then, let us consider our text as the language of a soul LONGING FOR THE VIEW OF JESUS CHRIST IN GRACE.
+First, then, let us consider our text as the language of a soul LONGING FOR THE VIEW OF Jesus Christ IN GRACE.
 
 Do you ask me concerning the sickness itself&mdash;What is it? It is the sickness of a soul panting after communion with Christ. The man is a Believer. He is not longing after salvation as a penitent sinner under conviction, for he is saved. Moreover, he has love to Christ and knows it. He does not doubt his evidence as to the reality of his affection for his Lord, for you see the word used is, "My Beloved," which would not be applicable if the person speaking had any doubt about her interest.
 
@@ -89,7 +89,7 @@ Well, all this is to come again, "I will see you again and your heart shall rejo
 
 "O love Divine, how sweet You are, When shall I find my willing heart All taken up with You? I thirst, I faint, I die to prove The fullness of redeeming love&mdash; The love of Christ to me."
 
-And now, secondly, with as great brevity as we can, this lovesickness may be seen in a SOUL LONGING FOR a VIEW OF JESUS IN HIS GLORY.
+And now, secondly, with as great brevity as we can, this lovesickness may be seen in a SOUL LONGING FOR a VIEW OF Jesus IN HIS GLORY.
 
 And here we will consider the complaint itself for a moment. This ailment is not merely a longing after communion with Christ on earth&mdash;that has been enjoyed and generally this sickness follows that&mdash;
 

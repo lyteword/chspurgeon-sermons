@@ -9,7 +9,7 @@ My text seems to me to be a staff fitted for hoary age to lean upon in the rough
 
 You that are tempted&mdash;and I suppose the major part of this present congregation is included in the list&mdash;you that are tempted&mdash;and indeed if you know yourselves you are all in your measure thus exercised&mdash;you that are tempted listen to me this morning while I endeavor to speak of your temptations and in parallel lines of the temptations of Him who, having known your trials is able to succor you at all times.
 
-Our first point this morning is this&mdash;MANY SOULS ARE TEMPTED&mdash;CHRIST WAS TEMPTED. All the heirs of Heaven pass under the yoke. All true gold must feel the fire. All wheat must be threshed. All diamonds must be cut. All saints must endure temptation.
+Our first point this morning is this&mdash;MANY SOULS ARE TEMPTED&mdash;Christ WAS TEMPTED. All the heirs of Heaven pass under the yoke. All true gold must feel the fire. All wheat must be threshed. All diamonds must be cut. All saints must endure temptation.
 
 They are tempted from all quarters. It is as Christ's parable puts it concerning the house whose foundation was on the rock&mdash;"The rain descended, the floods came and the winds blew and beat upon that house but it fell not, for it was founded upon a rock." The descending rain may represent temptations from above. The floods pouring their devastating torrents upon the land may well denote the trials which spring from the world while the howling winds may typify those mysterious influences of evil which issue from the Prince of the power of the air.
 
@@ -109,7 +109,7 @@ I cannot, of course, particularize this morning so as to hit upon the precise so
 
 Now for the third and last point. THEY THAT ARE TEMPTED HAVE GREAT NEED OF SUCCOR, AND
 
-CHRIST IS ABLE, HAVING HIMSELF BEEN TEMPTED TO SUCCOR THEM THAT ARE TEMPTED.
+Christ IS ABLE, HAVING HIMSELF BEEN TEMPTED TO SUCCOR THEM THAT ARE TEMPTED.
 
 Of course this is true of Christ as God. Apart from any temptation He has ever endured, He would be able to succor the tempted. But we are now speaking in our text of Christ as a High Priest in which we are to regard Him in His complex character as God-man. Christ is not only God but Man and not only man but God. The Christos&mdash;the Anointed One, the High Priest of our profession&mdash;is in His complex character able to succor them that are tempted. How? Why, first, the very fact that He was tempted has some succor in it to us.
 

@@ -11,7 +11,7 @@ Transfer your thoughts to a thousand years ago, and picture a people, who after 
 
 The gates are shut. The drawbridge is pulled up. The iron grating is let down. The warders are on the battlements, and the inhabitants within feel that they are safe. The enemy will rifle their deserted farms, and search for hidden treasure, and finding that the inhabitants are quite beyond their reach, they will betake themselves to some other place. Such is the figure which is in the text. "The name of the Lord is a strong tower: the righteous run into it and are safe."
 
-Of course we all know that by the name of God is meant the Character of the Most High, so that our first lesson is that THE CHARACTER OF GOD FURNISHES THE RIGHTEOUS WITH ABUNDANT SECURITY.
+Of course we all know that by the name of God is meant the Character of the Most High, so that our first lesson is that THE CHARACTER OF God FURNISHES THE RIGHTEOUS WITH ABUNDANT SECURITY.
 
 The Character of God is the refuge of the Christian, in opposition to other refuges which godless men have chosen. Solomon suggestively puts the following words in the next verse&mdash;"The rich man's wealth is his strong city, and as an high wall in his own conceit." The rich man feels that his wealth may afford him comfort. Should he be attacked in law, his wealth can procure him an advocate. Should he be insulted in the streets, the dignity of a full purse will avenge him. Should he be sick, he can hire the best physicians. Should he need ministers to his pleasures, or helpers of his infirmities, they will be at his call.
 

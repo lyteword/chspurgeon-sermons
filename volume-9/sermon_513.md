@@ -19,7 +19,7 @@ Still, it appears to me that without straining so much as one word even in the s
 
 I shall use the text in two ways, first, as the ground of my address to the young. And then, secondly, as a model for your address to God.
 
-WE WILL MAKE OUR TEXT THE GROUND WORK OF a SOLEMN PLEADING WITH YOUNG MEN AND WOMEN TO GIVE THEIR HEARTS TO CHRIST THIS DAY.
+WE WILL MAKE OUR TEXT THE GROUND WORK OF a SOLEMN PLEADING WITH YOUNG MEN AND WOMEN TO GIVE THEIR HEARTS TO Christ THIS DAY.
 
 The voice of Wisdom reminds you in this, our text, that you are not pure in God's sight, but NEED HIS MERCY. Early as it is with you, you must come before God on the same footing as those who seek Him at the eleventh hour. Here is nothing said about merit, nothing concerning the natural innocence of youth or the beauty of the juvenile character. You are not thus flattered and deceived. But Holy Scripture guides you aright, by dictating to you an evangelical prayer, such as God will deign to accept&mdash;"O satisfy us early with your mercy."
 
@@ -111,7 +111,7 @@ Jesus Christ loves to see young men and maidens join in His praise. We find that
 
 If you would be strong for God, eminent in His service, and joyful in His ways. If you would understand the heights and depths of the love of Christ which passes knowledge, if you would give yourselves before your bones are broken and before your spirit has become tinctured through and through with habits of iniquity&mdash;then offer this prayer&mdash;"O satisfy us early with Your mercy, that we may rejoice and be glad all our days."
 
-And now very briefly we shall take the text as YOUR ADDRESS TO GOD. Every word here is significant. "O." This teaches us that the prayer is to be earnest. I will suppose that I have led some of you young people here now to breathe this prayer to God. Am I so unhappy as to suppose that none of you will do it? Are there not some who now say, "I will, with my whole heart, God the Holy Spirit helping me, now in my pew offer this supplication to Heaven." It begins with an "O." Dull prayers will never reach God's Throne. What comes from our heart coldly can never get to God's heart.
+And now very briefly we shall take the text as YOUR ADDRESS TO God. Every word here is significant. "O." This teaches us that the prayer is to be earnest. I will suppose that I have led some of you young people here now to breathe this prayer to God. Am I so unhappy as to suppose that none of you will do it? Are there not some who now say, "I will, with my whole heart, God the Holy Spirit helping me, now in my pew offer this supplication to Heaven." It begins with an "O." Dull prayers will never reach God's Throne. What comes from our heart coldly can never get to God's heart.
 
 Dull, dead prayers, ask God to deny them. We must pray out of our very souls. The soul of our prayer must be the prayer of our soul. "O satisfy us." Young Man, the Lord is willing to open the door to those who knock, but you must knock hard. He is fully prepared to give to those who ask, but you must ask earnestly. The kingdom of Heaven suffers violence. It is not a gentle grasp which will avail. You must wrestle with the angel. Give no sleep to your eyes nor slumber to your eyelids till you have found the Savior. Remember, if you do but find Him, it will well repay you though you shed drops of blood in the pursuit.
 

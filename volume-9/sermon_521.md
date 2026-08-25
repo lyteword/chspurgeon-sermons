@@ -115,7 +115,7 @@ The man who has not consecrated the lap stone&mdash;who has not dedicated the co
 
 I hope this may come home to some of you. And if it does, may it produce from this day forth a more thorough love to Jesus&mdash;a more practical way of showing a more entire devotedness to that great cause which is either an awful imposition, or else deserves to have our whole heart, our whole spirit, soul and body devoted to it.
 
-Now, I will close, by trying to GIVE SOME REASONS WHY I PUT THE SERVICE OF GOD SO PROMINENT, AND THINK THAT AARON's ROD OUGHT TO SWALLOW UP ALL OTHER RODS.
+Now, I will close, by trying to GIVE SOME REASONS WHY I PUT THE SERVICE OF God SO PROMINENT, AND THINK THAT AARON's ROD OUGHT TO SWALLOW UP ALL OTHER RODS.
 
 What does the great Gospel revelation disclose to us? Does it not show us an awful danger and only one way of escape from it? Yonder is the place where the wrath of God burns without abatement, where souls suffer pangs indescribable. "To-phet is ordained of old. Yes, for the king it is prepared. He has made it deep and large: the pile there is fire and much wood. The breath of the Lord, like a stream of brimstone, does kindle it." Horrors, past imagination are revealed to us by the words of Jesus when He speaks of the worm that dies not, and of the fire that never shall be quenched.
 
@@ -135,7 +135,7 @@ I heard of one, speaking of a certain earnest man's religion, as riding his hors
 
 The Brahmins and the Hindus practice caste. A Hindu one day asked our missionaries whether they had caste in England. The missionary replied, No, all men might eat and drink together. The Brahmin said this was very disorderly and even immoral. But the missionary said, "Well, but upon your great feast day&mdash;for instance, the great feast of Juggernaut&mdash;the Sudra eats with the Brahmin." "Oh," says he, "that is because we are in the presence of our god." "So," said the missionary, "that is the reason why we have no caste in England, because we are always in the presence of our God."
 
-I would that we thought of this. And being always in the presence of our God, let us live every day as the idolater does some days. As the Romanist does now and then. Talk of holy days! Why, every day ought to be to you a holy day. Speak of keeping the Sunday holy! Every day should be kept holy. Only the Sunday is a day of rest unto us more than the others. Write upon the bells of the horses, "HOLINESS UNTO THE LORD," and let the pots in your own house be like the bowls before the altar.
+I would that we thought of this. And being always in the presence of our God, let us live every day as the idolater does some days. As the Romanist does now and then. Talk of holy days! Why, every day ought to be to you a holy day. Speak of keeping the Sunday holy! Every day should be kept holy. Only the Sunday is a day of rest unto us more than the others. Write upon the bells of the horses, "HOLINESS UNTO THE Lord," and let the pots in your own house be like the bowls before the altar.
 
 I shall not say any more upon this subject. Only pray that the Lord may give to this Church a larger number of consecrated men and women&mdash;and ask of you, for I make a point of it&mdash;to remember that this must always be a labor of love if it is to be acceptable. No man ever does anything for the Lord acceptably which he would rather not do&mdash;no man ever gives to the Lord acceptably that which he would rather withhold. The service of Christ is perfect freedom&mdash;to serve Him day and night is to enjoy perpetual liberty.
 
