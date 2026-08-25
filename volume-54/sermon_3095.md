@@ -4,7 +4,7 @@
 
 Acts 16:31.
 
-THE subject which I have chosen for this morning and which may God the Holy Spirit bless to us, is faith in the Lord Jesus Christ as the way of salvation. Nothing can be of more importance than this subject and, therefore, nothing will more thoroughly interest a company of practical businessmen.
+The subject which I have chosen for this morning and which may God the Holy Spirit bless to us, is faith in the Lord Jesus Christ as the way of salvation. Nothing can be of more importance than this subject and, therefore, nothing will more thoroughly interest a company of practical businessmen.
 
 The preaching of the Gospel has become, happily, very common in these days. You may hear it at the corner of the streets and any day you may have the same message pushed into your hands in the form of a tract as you go about your business. Since the late revival, when so many were drawn together to hear the Word of God, I should hope that there are few now among us who are unaware that the religion of the Gospel sets forth faith in the Lord Jesus Christ as the only way of salvation. I have no doubt that there may remain a remnant to whom this will be news but, in this city, after the great stir that was made, I should suppose that at least the vast majority of intelligent, educated people know that this is the teaching of Christ's ministers&mdash;that whoever believes in the Lord Jesus Christ is not condemned, but has passed from death unto life.
 
