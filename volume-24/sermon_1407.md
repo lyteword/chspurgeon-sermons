@@ -74,7 +74,7 @@ So, Beloved, I pray the Holy Spirit to overshadow the company of Christian worke
 
 But now for the second part of our subject, which may the eternal Spirit greatly bless. COMPASSION AND
 
-FORBEARANCE PREEMINENTLY DWELL IN JESUS CHRIST. Though He was not compassed with any sinful
+FORBEARANCE PREEMINENTLY DWELL IN Jesus Christ. Though He was not compassed with any sinful
 
 infirmity, for in Him is no sin, yet physical infirmity He did take and He is, to the highest possible degree, the Lord of tenderness&mdash;
 

@@ -2,7 +2,7 @@
 
 "The Lord God which gathers the outcasts of Israel says, Yet will I gather others to him, beside those that are gathered unto him." Isaiah 56:8.
 
-GOD's work flow is that of gathering. There was a time when it was scattering. Man built the tower of Babel which was intended to be the center of unity, the armory of power and the seat of dominion from where some mighty Nimrod might sway his scepter over all the human race. But the Lord would not have it so. Infinite wisdom baffled finite ambition! Man's center is not God's center and, therefore, He confounded their language and scattered them into nations by which the whole earth has been inhabited.
+God's work flow is that of gathering. There was a time when it was scattering. Man built the tower of Babel which was intended to be the center of unity, the armory of power and the seat of dominion from where some mighty Nimrod might sway his scepter over all the human race. But the Lord would not have it so. Infinite wisdom baffled finite ambition! Man's center is not God's center and, therefore, He confounded their language and scattered them into nations by which the whole earth has been inhabited.
 
 Now the Lord is gathering together in one the children of God which are scattered abroad. His Son Jesus Christ has descended and dwelt among us, working out our redemption and now, exalted in the highest heavens, He is God's appointed Center of His people! As Jacob said of old, "Unto Him shall the gathering of the people be." The Lord has made Him to "stand for an ensign of the people, to Him shall the Gentiles seek and His rest shall be glorious." The great promise given by the mouth of Isaiah is to be fulfilled under the Gospel dispensation&mdash;"I will gather all nations and tongues, and they shall come and see My Glory."
 
@@ -78,7 +78,7 @@ I advise you to be less obstinate, for you know not how soon you will yield and 
 
 This is why the Lord talks so positively, because He knows His own power and means to put it forth. "Yet will I gather others unto Him." So shall it be with you, dear Hearer. With your full consent, against your own wicked will, the Lord will lead you to Jesus and there shall you be found rejoicing to be united to Him and to His people! May the promise thus Divinely uttered be fulfilled in you who sit or stand before the preacher this day&mdash;and on those who shall read those words in days to come.
 
-I desire for a little time, in the third place, to mention THE FACTS WHICH SUSTAIN OUR FAITH IN THIS
+I desire for a little time, in the third place, to mention THE FActs WHICH SUSTAIN OUR FAITH IN THIS
 
 PROMISE. We believe it, whether or not, fact or no fact to back it up&mdash;God's Word is sure! But still this will help some of you who have but slender confidence. The facts which sustain our faith in the text are many&mdash;here is just a handful of them. The first is the perpetuity of the Gospel. Still is the Good News preached among you, dear Hearers. Still are we bid to go into all the world and preach the Gospel to every creature. Now, we feel certain that if all God's people were already saved, our Master would say, "You need not go any further, there are no more to be gathered in."
 
