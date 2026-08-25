@@ -17,7 +17,7 @@ Now, Brethren, though we forget our obligations, it is clear from the text that 
 
 I shall now ask your attention to the list of favors given in the text, with the view of enforcing the Divine conclusions from them.
 
-LET US PASS IN REVIEW THE FAVORS OF THE LORD, taking what He did for Israel as being typical of what He has done for us.
+LET US PASS IN REVIEW THE FAVORS OF THE Lord, taking what He did for Israel as being typical of what He has done for us.
 
 The first blessing mentioned in our text is that of humbling&mdash;"And He humbled them, and suffered them to hunger." Not very highly esteemed among men will this favor be. And at first, perhaps, it may be regarded by ourselves as being more of a judgment&mdash;one of the terrible things in righteousness&mdash;than a great favor from the Most High. But rightly judged, this is one of the most admirable proofs of the Lord's loving kindness, that He does not leave His people in their natural pride and obstinacy, but by acts of Grace brings them to their right mind.
 

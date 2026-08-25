@@ -68,7 +68,7 @@ Still is it a fact that even those who have not the Law, "are a Law unto themsel
 
 See then, that over and above our work which ought to be constant, incessant, intense, we have the Holy Spirit at work. We have Christ pleading. We have the whole company of the faithful sending up their perpetual intercessions. We have the blessed savor of the Truth of God spreading itself abroad. We have the evidence and power of holy living and triumphant dying. We have the wheels of Providence revolving, and the consciences of men made to yield an acquiescence to the Truth of God. I have thus very hurriedly run over a very extensive range of consideration.
 
-Secondly, reflect, my Brethren, that FROM THESE SOURCES WE MAY EXPECT REMARKABLE CONVERSIONS. We expect to see the major part of conversion through the daily instruction given to the children of Christian people, through the constant preaching of the Gospel, the distribution of religious literature, and the direct efforts of the followers of Christ. But over and above all this, we have a right to expect remarkable conversions from the less manifest sources of which I have spoken.
+Secondly, reflect, my Brethren, that FROM THESE SOURCES WE MAY EXPECT REMarkABLE CONVERSIONS. We expect to see the major part of conversion through the daily instruction given to the children of Christian people, through the constant preaching of the Gospel, the distribution of religious literature, and the direct efforts of the followers of Christ. But over and above all this, we have a right to expect remarkable conversions from the less manifest sources of which I have spoken.
 
 As in the case of Saul, these conversions will bring to us persons formerly violently opposed to the Truth through prejudice. In Paul we see a man opposed to Christ not because he was opposed to the Truth of God, but because he thought that Jesus was not the Messiah. He worshipped God, the God of his fathers, with a fervent heart&mdash;and because he conceived that Jesus of Nazareth claimed to be what He was not&mdash;he hunted down His disciples to the death.
 
@@ -116,7 +116,7 @@ And this also startles and impresses the world. What does the world know of the 
 
 Thus, you see, there are good reasons for the Lord thus working. He may do as He wills. He will have us see that He does not need us. He may, if He pleases, use us. It is His rule to do so, and we are to work knowing that to be the rule. But we must adore, and admire, and bless Him that sometimes, putting us aside, He puts His own bare arm to the work. Thus His glorious right arm is exalted, for the right hand of the Lord does valiantly.
 
-We shall now come to our fourth point, and draw towards a close. ALL THIS BY NO MEANS LOWERS THE
+We shall now come to our fourth point, and draw towards a close. ALL THIS by NO MEANS LOWERS THE
 
 VALUE OF INSTRUMENTALITY. It is not so intended, and only stupidity would so interpret it. For, first, such cases are rare, very much rarer than conversions by the agency of the Church. One Saul is struck to the earth, only one. But Peter preaches at Pentecost, and three thousand are pricked in their hearts. See the difference in numbers!
 

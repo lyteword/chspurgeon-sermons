@@ -10,7 +10,7 @@ And saints forget this, too, and therefore their minds become dark, their spirit
 
 There is no music out of Heaven equal to the sound of that word "Grace," save only the celestial melody of the name of Jesus. One of the early fathers was called the angelic doctor&mdash;surely he is most angelic who preaches most of Grace. Grace among the attributes is the Chrysostom, it has a golden mouth. It is the Barnabas, for it is full of consolation. It is the Boanerges, for it thunders against self-righteousness. It is man's star of hope, the wellspring of his eternal life, the seed of his future bliss.
 
-We shall draw from the text our first observation&mdash;IN SALVATION AS a WHOLE WE SEE THE GLORY OF GOD's GRACE. So the Apostle tells us, "To the praise of the glory of His Grace." Every attribute of God has its own appropriate opportunity for displaying itself. To each quality of the Divine Nature there is a glory, and the Lord takes care that there shall be a time when this glory shall be so seen as to become the subject of praise to intelligent creatures.
+We shall draw from the text our first observation&mdash;IN SALVATION AS a WHOLE WE SEE THE GLORY OF God's GRACE. So the Apostle tells us, "To the praise of the glory of His Grace." Every attribute of God has its own appropriate opportunity for displaying itself. To each quality of the Divine Nature there is a glory, and the Lord takes care that there shall be a time when this glory shall be so seen as to become the subject of praise to intelligent creatures.
 
 There is great glory in His power, and long ago He who speaks and it is done, who commands and it stands fast, made the heavens and the earth. It was a great triumph of power, and other grand attributes combined to make the display still more glorious. Wisdom was there to balance the clouds. Prudence set a compass upon the face of the deep. Truth appointed the times and the seasons, and Goodness arranged the habitable parts of the earth for the living creatures and for the sons of men.
 
@@ -130,7 +130,7 @@ You are degrading the Grace of God when you are not walking as becomes the house
 
 But at the same time tell it to others that the Grace of God has saved you. If you were, before conversion, given to great sins, be ashamed of them, but do tell that Grace has saved such as you are. Be bold to testify in all companies that the Grace of God is equal to all emergencies and can save the lost from going quite down into the jaws of perdition. Publish it everywhere that the mercy of God can blot out the grossest and vilest sins&mdash;that no man need despair&mdash;that the great heart of God is large enough to receive the most devilish of sinners. Proclaim that he passes by transgression, iniquity, and sin for Jesus Christ's sake. Let the angels know it! When you are introduced to Heaven, publish there what God's Grace has done&mdash;and till you get there let men know it here below&mdash;to the praise of the glory of His Grace."
 
-And now, lastly, let me say that the doctrine which we have taught this morning, THE TRUTH WHICH WE
+And now, lastly, let me say that the doctrine which we have taught this morning, THE TRuth WHICH WE
 
 HAVE TRIED FULLY TO PREACH, IS THE GREAT GROUND OF HOPE FOR SINNERS. For, in the first place, if
 
