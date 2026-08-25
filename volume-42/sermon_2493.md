@@ -34,7 +34,7 @@ Until in life's latest hour I bow
 
 And bless in death a bond so dear." With some degree of rapidity I will try to conduct your thoughts to various points of this interesting and instructive narrative.
 
-The first is that THIS CALL OF THE MAN NAMED MATTHEW SEEMED ACCIDENTAL AND UNLIKELY.
+The first is that THIS CALL OF THE MAN NAMED Matthew SEEMED ACCIDENTAL AND UNLIKELY.
 
 "As Jesus passed forth from there," just as He was going about some work or other, going away from Capernaum, perhaps, or merely going down one of its streets, it was as He "passed forth" that this event happened. As He passed, "He saw a man named Matthew." That is the way we talk when we speak of things that, as we say, "happen," we scarcely know why. Now, dear Friend, was that how you were converted? I do not know how long ago it was, but it did so happen, did it not? Yet it did not seem to you to be a very likely event ever to occur.
 
@@ -50,7 +50,7 @@ I cannot tell how you happen to be here, my dear Friend&mdash;a stranger in Lond
 
 So, in the first place, this call of Matthew seemed accidental and unlikely, yet it was according to the purpose of God and, therefore, it was duly given and answered.
 
-In the second place, THIS CALL OF THE MAN NAMED MATTHEW WAS ALTOGETHER UNTHOUGHT-
+In the second place, THIS CALL OF THE MAN NAMED Matthew WAS ALTOGETHER UNTHOUGHT-
 
 OF AND UNSOUGHT.
 
@@ -62,7 +62,7 @@ I do not know that even if Matthew had wished to folow Christ, he would have dar
 
 O my dear Hearer, if you have been converted, it may be that something like this was true in your case! At any rate, this I know is true&mdash;you were not the first to seek Christ, but Christ was the first to seek you. You were a wandering sheep and did not love the fold, but His sweet mercy went out after you. His Grace made you thoughtful and led you to pray. The Holy Spirit breathed in you, your first breath of spiritual life, and so you came to Christ. It was so, I am sure&mdash;you did not first seek Christ, but He first sought you! Let us who are saved now present the prayer to God, that many here who have never sought the Lord may nevertheless find Him, for it is written, "I am found of them that sought Me not: I said, Behold Me, behold Me, to a nation that was not called by My name." See, then, the freeness of the Grace of God, the sovereignty of His choice! Admire it in the man named Matthew. Admire it still more in yourself, whatever your name may be!
 
-Thirdly, THIS CALL OF MATTHEW WAS GIVEN BY THE LORD JESUS WITH FULL KNOWLEDGE OF
+Thirdly, THIS CALL OF Matthew WAS GIVEN by THE Lord Jesus WITH FULL KNOWLEDGE OF
 
 HIM.
 
@@ -76,7 +76,7 @@ I do not know, dear Friend, what the Lord may happen to see in you. I do not kno
 
 There is an adaptation in men, even while they are unconverted, which God has put into them for their future service. Luke, you know, was qualified to write his Gospel because he had been a physician. And Matthew was qualified to write the particular Gospel which he has left us because he had been a publican. There may be a something about your habits of life and about your constitution and your condition that will qualify you for some special niche in the Church of God in years to come. Oh, happy day when Jesus shall look upon you and call you to follow Him! Happy day when He didlook upon some of us and saw in us what His love meant to put there&mdash;that He might make of us vessels of mercy meet for the Master's use!
 
-Pressing on a little further, I want you to notice, in the fourth place, that MATTHEW's CALL WAS GRACIOUSLY CONDESCENDING&mdash;"As Jesus passed forth from there, He saw a man named Matthew, sitting at the receipt of custom: and He said to him, Follow Me."
+Pressing on a little further, I want you to notice, in the fourth place, that Matthew's CALL WAS GRACIOUSLY CONDESCENDING&mdash;"As Jesus passed forth from there, He saw a man named Matthew, sitting at the receipt of custom: and He said to him, Follow Me."
 
 Christ had the choice of His followers, so how came He to choose a publican? The Roman yoke was so detestable to the free-born son of Abraham that he could not bear the fact that the Roman, the idolater, should be lord in the Holy Land. So, if the Romans wanted Jews to collect the taxes, they could only get persons who had lost all care about public reputation! They might be no worse than other people&mdash;perhaps they were not&mdash;but they were esteemed as being the very off-scouring and pariahs of their race. But the Lord Jesus Christ sees this publican and says to him, "Follow Me." Not much of a credit will he be to his Master, so, at least those around him will say. "Look how this Man, Jesus Christ, goes about and picks up the scum of the people, the residue! He is taking a publican as His follower&mdash;the man who has given himself up to be the servant of the oppressors and who has been, himself, an oppressor! He is going to have him. Now, if the Nazarene had passed by and seen a learned Rabbi, or a Pharisee with his phylacteries&mdash;one who had made broad the borders of his garment&mdash;if Jesus had called him, it would have given a respectability to the community."
 
@@ -86,7 +86,7 @@ Yes, but it so happens that the Lord Jesus Christ does not care about that sort 
 
 "Well," you say, "it was great condescension when the Lord called Matthew, the publican." Yes, but was it not equal condescension when He called you and me? O man or woman, whatever your name, sit and wonder, and adore the condescending love that chose even youto be Christ's follower!
 
-Again, dear Friends&mdash;I hope I do not weary you while I try to bring this case of Matthew fully before you, wishing always that you may see yourself in it&mdash;observe next that THIS CALL OF MATTHEW WAS SUBLIMELY SIMPLE. Here it is in a nutshell&mdash;"He said."
+Again, dear Friends&mdash;I hope I do not weary you while I try to bring this case of Matthew fully before you, wishing always that you may see yourself in it&mdash;observe next that THIS CALL OF Matthew WAS SUBLIMELY SIMPLE. Here it is in a nutshell&mdash;"He said."
 
 It was not John who said it, or James, or any of the Apostles, but, "He said." And it is not my preaching, or your preaching, or an archbishop's preaching that can save souls&mdash;it is, "He said"&mdash;and it is when the Lord Jesus Christ, by the Divine Spirit, says to a man, "FollowMe," that then the decisive work is done! Did He not say to the primeval darkness, "Light be!" and light was? And God, the Omnipotent and Eternal, has but to speak to man and a like result will follow. "He said to him, Follow Me," and then immediately, just as simply as possible, the record says, "he arose and followedHim."There is no flattery, no priest-craft, no sacramentarianism. "He said, Follow Me and he arose and followed Him." That is the way of salvation! Christ bids you, while you are in your sin, leave it, and you leave it. He bids you trust Him and you do trust Him and, trusting Him, you are saved, for, "he that believes on the Son has everlasting life."
 
@@ -104,7 +104,7 @@ Matthew followed at once. Some might have waited and put the coins away, but it 
 
 The call to Matthew was the call of Effectual Grace. "Where the word of a king is, there is power," and Jesus Christ spoke to Matthew the word of the King. He said, "Follow Me," and Matthew did follow Him! I have heard that when the Queen sends for anybody to come and see her, she does not "request the pleasure of his company," but she sends her command to him to come. That is the way kings and queens talk&mdash;and that is just the way with the Lord Jesus Christ, the King of Kings, and Lord of Lords. He says, "Follow Me." And preaching to you in His name, we do not say, "Dear Friend, do be converted, if you will," but we say, "Thus says the Lord! Believe on the Lord Jesus Christ and you shall be saved"&mdash;and with that command goes the power of the Word of the King, and so sinners are saved. Jesus said to Matthew, "Follow Me. And he arose and followed Him."
 
-Now, lastly, MATTHEW's CALL WAS a DOOR OF HOPE FOR OTHER SINNERS. I have been speaking mostly about personal conversion and perhaps somebody says, "You know, Sir, we are to think about other people as well as ourselves." Precisely so! And there is never a man who is saved who wants to go to Heaven alone. So, when the Lord Jesus Christ saw "a man, named Matthew" and bade the publican follow Him, his salvation encouraged other publicans to come to Jesus. Christ saw a great many other publicans and sinners whom he intended to draw to Himself by means of that "man, named Matthew." He was to become a decoy for a great multitude of others like himself!
+Now, lastly, Matthew's CALL WAS a DOOR OF HOPE FOR OTHER SINNERS. I have been speaking mostly about personal conversion and perhaps somebody says, "You know, Sir, we are to think about other people as well as ourselves." Precisely so! And there is never a man who is saved who wants to go to Heaven alone. So, when the Lord Jesus Christ saw "a man, named Matthew" and bade the publican follow Him, his salvation encouraged other publicans to come to Jesus. Christ saw a great many other publicans and sinners whom he intended to draw to Himself by means of that "man, named Matthew." He was to become a decoy for a great multitude of others like himself!
 
 Next, his open house gave opportunity to his friends to hear Jesus. No sooner was Matthew called and led to follow the Lord Jesus, than he said to himself, "Now, what can I do for my new Master? I have a good big room where I have been accustomed to lock up the people's goods till they have paid their dues&mdash;the douane, the custom house where I put away their goods in bond. Here, John, Thomas, Mary&mdash;come and clean out this room! Put a long table right down the middle. I am going to have in all my old friends&mdash;they have known what kind of man I have been. I am going to invite them all to supper and it will not be a lean supper, either, it shall be the best supper they have ever had." Levi made a great feast in his own house and he said to the Lord Jesus, "You have bid me follow You and I am trying to do so. And one way in which I am following You is that I am going to have a great feast in my house, tonight, to fetch in all my old companions. Will You, my Lord, be so good as to come and sit at the head of the table and talk with them? They will be in a better humor for listening after I have fed them well. Will You come and when they are all happy around my table, will You do for them what You have done for me? Perhaps, Lord, if You will say that Matthew has become Your follower, they will say, 'What? Matthew? Does he follow Christ? Well, then, who must this Christ be that He will have such a follower as Matthew? Surely, He will have us, too, for we are like Matthew&mdash;and we will come to Him as Matthew has come to Him, if He will but speak the Word of Power to us as He did to Matthew.'" So the call of Matthew was Christ's way of bringing numbers of lost ones to a knowledge of the Truth of God and to eternal salvation!
 
@@ -114,7 +114,7 @@ I feel as if I must close my discourse by saying that as the Lord saw "a man nam
 
 God bless you and save the whole of this great company, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 9:1-13.
+Exposition by C. H. Spurgeon: Matthew 9:1-13.
 
 Verses 1, 2. And He (that is, Jesus) entered into a boat and passed over, and came into His own city. And, behold, they brought to Him a man sick of the palsy, lying on a bed. ' 'Behold," for it is something worth looking at! Wherever this word, "Behold," is put in Scripture, it calls for deep and earnest attention. There is nothing amazing in the sight of a man sick of the palsy, for there have been many such. But there issomething amazing in his friends having faith enough in Christ to bring the palsied man to the Savior! "Behold" this, that you may imitate it and bring your friends, palsied with sin, and lay them down at the feet of Jesus! "Behold" it till you feel that you must copy it. "Behold, they brought to Him a man sick of the palsy, lying on a bed."
 

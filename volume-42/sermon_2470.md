@@ -91,7 +91,7 @@ Decide for Christ now, I beseech you! May the Holy Spirit constrain you to decid
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;241, 508, 607.
 
-EXPOSITION BY C. H. SPURGEON: GENESIS45:9-28; JOHN5:24-44.
+Exposition by C. H. Spurgeon: Genesis45:9-28; John5:24-44.
 
 Genesis 45:9. Hurry up and go up to my father, and say to him, Thus says your son Joseph, God has made me lord of all Egypt; come down to me, tarry not. Joseph, having made himself known to his brothers, bids them return to their father and bring him down to Egypt to see his long-lost son.
 

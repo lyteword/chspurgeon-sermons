@@ -10,7 +10,7 @@ I suppose that these people, who were living at Laish, were originally a colony 
 
 I am not going into the moral of this business&mdash;how far Dan is to be blamed. I am simply going to use this incident as the picture of a very common condition which is to be found among the sons of men&mdash;which condition is a very dangerous and false one, and will end, unless the Grace of God prevents it, in the destruction of those who are thus carnally secure.
 
-First, let us notice THE CONDITION OF CARNAL SECURITY INTO WHICH CHRISTIANS SOMETIMES FALL.
+First, let us notice THE CONDITION OF CARNAL SECURITY INTO WHICH ChristIANS SOMETIMES FALL.
 
 If they fall into such a condition as that, they may rest assured that it is one of great danger. Let me describe it to you. Here is a man who is a believer in the Lord Jesus Christ. In times long gone by he struggled hard to get his feet upon the Rock of Ages and, at last, he obtained a firm footing and there he stood in blessed security. For some time, perhaps even for years, he has been free from all doubts and fears&mdash;and also free from all internal struggles and conflicts. He almost thinks that the devil is dead, or, if not, that the devil in him is dead, that sin has become so broken and bruised in his nature that it will never rise again, or cause him trouble! He rejoices and continues to rejoice, but it may be that in
 
@@ -70,7 +70,7 @@ Then there came back upon these people of Laish, in their death agony, the fact 
 
 Then listen to this Word of Grace which has the message of salvation in it&mdash;"Look and live." Jesus died upon the Cross that whoever believes in Him should not perish, but should have everlasting life. He is lifted up before you, now, that you who have been bitten by the fiery serpent of sin may look to Him, as Israel in the wilderness looked to the brazen serpent&mdash;and in that looking, you may be healed. As I shall meet you in that Day of Days for which all other days were made. As I shall make one of the vast throng that will be gathered before the Judgment Seat of Christ, I pray you, bear witness to me, in that day, that I have spoken honestly and faithfully and fearlessly&mdash;certainly in no smooth and flattering terms&mdash;to every one of you! And if you perish I shall be clear of your blood in that great day. If you will not have Christ and will be damned, you must. But it shall not be without my crying to you, "Turn you, turn you, for why will you die?" "Turn you, turn you," says the Lord God, Himself! Turn them, O Lord, by Your Grace, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1TTHESSALONIANS 4:13-18; 5.
+Exposition by C. H. Spurgeon: 1TThessalonians 4:13-18; 5.
 
 1 Thessalonians 4:13. But I would not have you to be ignorant, brethren, concerning them which are asleep, that you sorrow not, even as others which have no hope. You cannot help sorrowing, for you miss your dear ones so much. But you do not sorrow like the heathen who believe their departed friends to be extinct and annihilated. You have a glorious hope concerning those who have fallen asleep in Christ&mdash;you believe that they still live and that, by-and-by, their bodies will rise again!
 

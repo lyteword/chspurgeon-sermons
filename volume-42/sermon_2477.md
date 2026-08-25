@@ -73,7 +73,7 @@ But, all of a sudden, he was brought out into the light, by God's Grace! As he t
 
 Writing to the Romans, Paul says, "The Word is near you, even in your mouth." What is the thing to do with that which is in your mouth when you want to keep it? Why, swallow it, of course! Do so with Christ! Let Him go right down into your soul! Put Him into your mouth, as it were, while I am preaching. Accept Him, receive Him and He is yours directly. Then shall the day break and the shadows flee away and your Beloved shall have come to you over the mountains of division, never to leave you, but to abide with you forever! O blessed Spirit of God, grant all here Divine Grace to swallow Christ, now, for only You can grant them life that they may swallow! God bless you! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE12:22-48.
+Exposition by C. H. Spurgeon: Luke12:22-48.
 
 Verses 22-23. And He said to His disciples, Therefore I say to you, Take no thought for your life, what you shall eat; neither for the body, what you shall put on. The life is more than meat, and the body is more than raiment. If you are God's servants, He will clothe you. There is no servitor of the Lord of Hosts who will have to go without his necessities and not one who belongs to His vast household, even though he is but a menial in God's kitchen, who will ever be permitted to starve.
 

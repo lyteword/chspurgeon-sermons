@@ -10,7 +10,7 @@ I feel the more embarrassed with my subject, at the very onset, because this lov
 
 So, dear Friends, with great reverence, let us think, first, of how Christ loves the Church. Then, secondly, how He has proved His love by giving Himself for the Church. And then, thirdly, let us make the practical enquiry, how shall we think of this wondrous love of Christ?
 
-First, then, HOW DOES CHRIST LOVE HIS CHURCH?
+First, then, HOW DOES Christ LOVE HIS CHURCH?
 
 I cannot help beginning by saying that Christ loves His church specially. There would be no parallel whatever between the husband's love to the wife and Christ's love to the Church if there were not a specialty about it. Christ is Love itself&mdash;He is full of kindness and benevolence. In that sense, He loves allmankind, but that cannotbe the meaning of the text, for it would be a very strange kind of exhortation to the husband if that were the case. No, the husband's love to his spouse is something special and particular&mdash;and it stands quite alone and all by itself. He will be kind and benevolent and generous towards all others, but that love which he lavishes upon his wife he must give to nobody else in the world. It is certainly so with our blessed Lord. Free and rich and overflowing in loving kindness, yet He made a special choice of His people before the earth was. And having chosen because of His love, He loves because of His choice, and that love is a peculiar, special, remarkable, pre-eminent love such as He bestows upon no one else of all the human race! It must be so, or else the passage would be all but immoral! Certainly it would be manifestly incorrect.
 
@@ -46,7 +46,7 @@ The pith of all that I have said&mdash;and I have much more to say than time wil
 
 I have but very imperfectly spoken upon this part of my subject, but I must not linger longer on this most delightful theme.
 
-I now ask you briefly to notice HOW THE LORD JESUS PROVED HIS LOVE TO HIS CHURCH&mdash;"Christ also loved the Church and gave Himself for it."
+I now ask you briefly to notice HOW THE Lord Jesus PROVED HIS LOVE TO HIS CHURCH&mdash;"Christ also loved the Church and gave Himself for it."
 
 I will not at first restrict the meaning of this text to what is the real essence of it, but I will just observe that Christ gave Himself for His church when He was born into the world, when He did not disdain the virgin's womb, but was born of Mary, wrapped in swaddling bands and laid in a manger. The angels have never ceased to wonder at this great mystery of godliness! The God who made the heavens and the earth, the God who upholds all things by the word of His power, lay as an Infant in the manger of Bethlehem because there could be no manifestation of His love to His people unless it could be said that they two were one flesh! So He became bone of our bone, and flesh of our flesh, most surely and truly Man, with all the sinless infirmities of our nature, and liable even to death in order to be fully one with us. Oh, how really He gave Himself for us when He thus became a Babe, a Child, a Man!
 
@@ -76,7 +76,7 @@ I grow angry, I confess it, when I hear some men speak of Christ. They talk of m
 
 And what else shall we say? If such is the love of Christ, how shall we think of it but in a way of holiness? Let us seek to be like He is. Let us try to fulfill His will that He may purify us and sanctify us by the washing of water by the Word, that we may be holy as He who has called us is holy. Let us think of this love by striving after sanctification and let us think of this love, above all, by rendering to Him, now, and as long as we live, the full love of our heart. We cannot love Him without being moved to love Him more. We can love the more by thinking much of the Person towards whom our hearts are drawn, so think much of my Lord, think of Him every day! Get to be familiar with Him. Read frequently the story of His life and death. Get alone as often as you can and picture Him before your eyes until you find your heart exclaiming, "I love You, dearest Lord. You know all things. You know that I love You." I find it a profitable form of devotion, sometimes, to sit quite still and not say a word, but just thinkof Him. My heart has burned within me while doing that and I believe that it is not lost or wasted time, but time most profitably spent, for I come forth from my chamber and feel, "Now I am ready for the service of life&mdash;or for its suffering&mdash;for I have seen the Well-Beloved and the glances of His countenance have charmed away my grief and prepared me to take up my cross and follow Him wherever He goes." Oh, love the Lord, you His saints and, as long as you live, love Him more and more, love Him to the very utmost, till you die of love! Blessed, forever blessed be His holy name! Amen and Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 3.
+Exposition by C. H. Spurgeon: 1 John 3.
 
 I have read this chapter many times in your hearing, but we cannot read it too often, for it is full of the deepest and most important instruction. God grant that fresh light from above may shine upon it as we listen once more to the familiar words!
 

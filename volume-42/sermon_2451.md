@@ -81,7 +81,7 @@ Well, you have that blessedness, then, enjoy it! What would you think of a man w
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;72 (SONG I), 436, 438.
 
-EXPOSITION BY C. H. SPURGEON: PSALM72.
+Exposition by C. H. Spurgeon: Psalm72.
 
 This is a Psalm which relates to the Messiah, the Lord Jesus Christ, not as the Man of Sorrows, but as the King of Glory&mdash;not as David, struggling to secure the throne&mdash;but as Solomon, seated upon it, and reigning in peace.
 

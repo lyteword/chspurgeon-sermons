@@ -1,6 +1,6 @@
 # Sermon 2489 | Singing Saints
 
-"Sing to the LORD, O you saints of His, and give thanks at the remembrance of His holiness." Psalm 30:4.
+"Sing to the Lord, O you saints of His, and give thanks at the remembrance of His holiness." Psalm 30:4.
 
 DAVID had been seriously ill and the Lord had graciously restored him to health. He says, "O Lord my God, I cried to You and You have healed me. O Lord, You have brought up my soul from the grave: You have kept me alive, that I should not go down to the pit." As soon as he has recovered his health and strength, the holy instincts of the man lead him to praise the Lord. The first thing to do, when the throat is clear after an illness, is to sing praises to God! The first thing to do, when the eyes are brightened again, is to look up to the Lord with thankfulness and gratitude. Some people need to be told this, but the Psalmist did not&mdash;it came to him as a matter of course. Now that he was restored, he would take his place among the heavenly choristers and sing to Jehovah. He was not satisfied to sing alone, what child of God is? Among the birds in the springtime, when the first one wakes in the morning and begins to sing, does he not call up his fellows? Is not his song an invitation to all the feathered songsters of the grove to join with him and pour out their united harmony? In like manner, it is characteristic of a praiseful heart that it naturally desires society in praise. We do not like to praise God alone&mdash;we can do it and we will do it if we must&mdash;but our heart often cries aloud to our Brothers and Sisters in Christ, "Praise to the Lord." Our very, "Hallelujah," is intended to stir up others to this holy exercise, for it means, "Praise you the Lord."
 
@@ -72,7 +72,7 @@ We have not enough singing saints! The other Sunday morning I noticed that there
 
 "All hail the power of Jesus' name! Let angels prostrate fall. Bring forth the royal diadem, And crown Him Lord of all."
 
-EXPOSITION BY C. H. SPURGEON: LUKE22:39-65.
+Exposition by C. H. Spurgeon: Luke22:39-65.
 
 In anticipation of the Communion service that is to follow this service, l et us read once more the story of our Lord's agony and arrest, as recorded in the twenty-second Chapter of the Gospel according to Luke. Probably we are all familiar with the narrative of the event which happened on that dreadful night. May the Holy Spirit teach us what He meant!
 

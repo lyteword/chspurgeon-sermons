@@ -10,7 +10,7 @@ Take, again, even the love of friends. I only mention that to show how true our 
 
 Rest assured that this is pre-eminently true when we get into higher regions&mdash;when we come to think of the love of Jesus and when we think of that love which springs up in the human breast towards Jesus when the Spirit of God has renewed the heart&mdash;and shed abroad the love of God within the soul. Neither Christ's love to us nor our love to Him can be purchased. Neither of those could be bartered for gold, or rubies, or diamonds, or the most precious crystal. If a man should offer to give all the substance of his house for either of these forms of love, it would be utterly despised.
 
-We will begin at the highest manifestation of love and commune together upon it. So let me say, first, that THE LOVE OF OUR LORD JESUS CHRIST IS ALTOGETHER UNPURCHASABLE.
+We will begin at the highest manifestation of love and commune together upon it. So let me say, first, that THE LOVE OF OUR Lord Jesus Christ IS ALTOGETHER UNPURCHASABLE.
 
 This fact will be clear to us if we give it a moment's careful thought. Indeed, so clear is it that I scarcely like to multiply words upon it, and I do so only that you may dive the deeper into this glorious Truth of God! It must be quite impossible to purchase the love of Christ because it is inconceivable that He could ever be mercenary. It would be profane! Surely it would amount to blasphemy and a very high degree of it, to suppose that the love of His heart could be bought with gold, or silver, or earthly stores. No, if He loves, it must be all free, like His own royal Self! If He deigns to cast His eyes so far downward as to view the creatures of an hour and to set His love upon them so that His delights are with the sons of men, it is not possible that He could gain anything from them! No, were we angels, we could not think that He could love us because of some service we could render, or some price we could pay to Him!
 
@@ -56,7 +56,7 @@ God, the Holy Spirit, who creates us anew in Christ Jesus! Men do not like that 
 
 Still the Truth holds good, whatever men think of it. If you give not to God your heart, you have given Him nothing! If you give not to God your soul, if you love Him not, if you serve Him, not because you love Him, if you come not to Him and surrender to Him your inner self, you may have been baptized&mdash;immersed or sprinkled&mdash;you may have come to the Communion Table, you may have bowed your knees till your knees have grown calloused, you may have prayed till you are hoarse and wept till the fountains of your eyes are dry. You may have given all your gold and lacerated every member of your body with mortifications and starved yourself to a skeleton&mdash;but you have truly done nothing towards obtaining love to Christ! The substance of your house is utterly despised if you offer it to the Lord in place of the love of your heart! Love He must have! This is His lawful demand! His people delight to render it and if you do not, then you are none of His!
 
-This takes us to a third Truth of God, which is that THE SAINTS' LOVE IS NOT PURCHASED BY CHRIST's GIFTS.
+This takes us to a third Truth of God, which is that THE SAINTS' LOVE IS NOT PURCHASED by Christ's GIFTS.
 
 The love of saints to their Lord is not given to Christ because of His gifts to them. I must explain what I mean, lest at the very outset I am mistaken or misunderstood. We love our Lord and we love Him all the more because of the many gifts He bestows upon us&mdash;but His gifts do not win our love. I will show you why. All that He has given me, today, He gave me many years ago. The Covenant of Grace was always mine. I heard the preacher talk about it. He told how Christ had died for me, that He had loved me and given Himself for me. Truly, He had done so&mdash;He had poured out His blood for my redemption. I would not believe it to be so, or, believing it, I did not think it was of any consequence. Then the preacher spread out the rare gifts of Christ before me and I saw that He had given these to such as believed in Him&mdash;but I did not think them worth examining and I turned away from them. I would never have loved Him if He had not given me much more than the substance of His house. I needed His blessed Spirit to show me the value of the substance of His house and, above all, to show me that for which this day I love my Savior best of all, namely, Himself&mdash;HIMSELF!
 
@@ -76,7 +76,7 @@ We do not love Him merely for the substance of His house, but for Himself, and b
 
 The last observation I shall have to make upon our text is this&mdash;THE LOVE OF SAINTS CANNOT BE
 
-BOUGHT OFF FROM CHRIST AT ANY PRICE.
+BOUGHT OFF FROM Christ AT ANY PRICE.
 
 The love of some persons to religion is very cheaply bought and very speedily sold. It is very lamentable to notice the great numbers of persons who are quite content to go and worship God with Christian Brothers and Sisters, and to hear the Gospel preached while they are, themselves, poor, or in middling circumstances&mdash;but who find, as soon as they have accumulated a little wealth, that the world has a church of its own and they must go there, "because, you see, everybody goes there! And if you are cut off from Society, where are you?" I have been asked that question, sometimes, and I have replied, "Where are you? Why, where Christ would have you to be&mdash;'outside the camp, bearing His reproach.'" But that place of separation, "outside the camp," is a position which is not always taken up cheerfully by professedly Christian people! It is very sorrowful to see how, because God has entrusted them with wealth, they get drawn away from the Gospel and from the Church of God&mdash;and though they are troubled a little, at first, they soon get rid of one scruple after another and subside altogether into worldliness!
 
@@ -100,7 +100,7 @@ If a man should give all the substance of his house to bribe the saints to sell 
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;792, 811, 808.
 
-EXPOSITION BY C. H. SPURGEON: LUKE20:9-16.
+Exposition by C. H. Spurgeon: Luke20:9-16.
 
 Verse 9. Then He began to speak to the people this parable, a certain man planted a vineyard, and leased it to vinedressers, and went into a far country for a long time. It is a long time since Jesus left us and He has not yet returned. Many say that He is coming back very soon. Others say, "The Lord delays His coming."
 

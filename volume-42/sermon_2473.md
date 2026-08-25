@@ -88,7 +88,7 @@ and before Heaven and earth begin to flee away from the face of Him who sits upo
 
 If what I have been saying is all a dream, dismiss it and go your ways to your sins. But if these things are the very Truth of God&mdash;and verily they are&mdash;act as sane men should and think them over, and prepare to meet your Judge! God help you to do so, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW26:57-68;. REVELATION 6:12-17; 19:11-16; 20:11-15; 21:1.
+Exposition by C. H. Spurgeon: Matthew26:57-68;. Revelation 6:12-17; 19:11-16; 20:11-15; 21:1.
 
 We shall read two or three short portions of God's Word in order to bring before you the wonderful contrast to which I am about to direct your thoughts.
 
@@ -120,7 +120,7 @@ Shall joyfully sing, 'The Lord is come!'" 17. For the great day of His wrath is 
 
 "Bright with all His crowns of glory See the royal Victor's brow." Again, note the contrast&mdash;"Then they spat in His face." "And on His head were many crowns"&mdash; 12-16. And He had a name written, that no man knew, but He Himself. And He was clothed with a vesture dipped in blood: and His name is called The Word of God. And the armies which were in Heaven followed Him upon white horses,
 
-clothed in fine linen, white and clean. And out of His mouth goes a sharp sword, that with it He should strike the nations: and He shall rule them with a rod of iron: and He treads the winepress of the fierceness and wrath of Almighty God. And He has on His vesture and on His thigh a name written, KING OF KINGS AND LORD OF LORDS. And this is He in whose face His enemies did spit!
+clothed in fine linen, white and clean. And out of His mouth goes a sharp sword, that with it He should strike the nations: and He shall rule them with a rod of iron: and He treads the winepress of the fierceness and wrath of Almighty God. And He has on His vesture and on His thigh a name written, KING OF Kings AND Lord OF LordS. And this is He in whose face His enemies did spit!
 
 Now turn to the next chapter.
 

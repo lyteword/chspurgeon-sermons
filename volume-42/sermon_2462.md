@@ -74,11 +74,11 @@ God bless you, for Jesus Christ's sake! Amen.
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;757, 39, 626.
 
-EXPOSITION BY C. H. SPURGEON. PSALM147.
+Exposition by C. H. Spurgeon. Psalm147.
 
-Verse 1. Praise you the LORD: for it is good to sing praises to our God; for it is pleasant; and praise is comely. "It is good," that is to say, it is a thing that ought to be done, it is a right thing "to sing praises to our God." "It is good," that is to say, it is profitable, it is beneficial to our own hearts. Prayer is refreshing, but praise is even more so, for there may be and there often is, in prayer, the element of selfishness&mdash;but praise rises to a yet higher level. Prayer and praise, together, make up spiritual respiration&mdash;we breathe in the air of Heaven when we pray&mdash;and we breathe it out again when we praise. "It is good to sing praises to our God." What a mercy it is that it is pleasant, too! There are many things that are good that are not pleasant, and many more things that are pleasant that are not good. But here is a holy duty which is also a heavenly pleasure! It is the bliss of Heaven to praise God. Let us anticipate that bliss by praising Him now, "for it is pleasant." And then there is a third commendation&mdash;"and praise is comely." That is to say, it is beautiful, it is a good thing in its right place, it is according to the natural and spiritual fitness of things that God should be praised. In God's sight, one of the most beautiful things in the world is a grateful heart&mdash;"it is pleasant; and praise is comely."
+Verse 1. Praise you the Lord: for it is good to sing praises to our God; for it is pleasant; and praise is comely. "It is good," that is to say, it is a thing that ought to be done, it is a right thing "to sing praises to our God." "It is good," that is to say, it is profitable, it is beneficial to our own hearts. Prayer is refreshing, but praise is even more so, for there may be and there often is, in prayer, the element of selfishness&mdash;but praise rises to a yet higher level. Prayer and praise, together, make up spiritual respiration&mdash;we breathe in the air of Heaven when we pray&mdash;and we breathe it out again when we praise. "It is good to sing praises to our God." What a mercy it is that it is pleasant, too! There are many things that are good that are not pleasant, and many more things that are pleasant that are not good. But here is a holy duty which is also a heavenly pleasure! It is the bliss of Heaven to praise God. Let us anticipate that bliss by praising Him now, "for it is pleasant." And then there is a third commendation&mdash;"and praise is comely." That is to say, it is beautiful, it is a good thing in its right place, it is according to the natural and spiritual fitness of things that God should be praised. In God's sight, one of the most beautiful things in the world is a grateful heart&mdash;"it is pleasant; and praise is comely."
 
-The LORD does build up Jerusalem. There is something for which to praise Him. When the Jews came back from captivity and found their beautiful city all in ruins, God helped them to build it up, again, so they sang, "The Lord does build up Jerusalem." We may sing the same sacred song, for the Psalmist does not say, "The Lord has built," but, "The Lord does build up Jerusalem." He is going on to build it&mdash;the Divine Architect's plan of salvation is still being carried out! The great Master Builder is still placing stone upon stone in the wondrous courses of His election of Grace&mdash;"The Lord does build up Jerusalem." O Lord, build up this part of the wall!
+The Lord does build up Jerusalem. There is something for which to praise Him. When the Jews came back from captivity and found their beautiful city all in ruins, God helped them to build it up, again, so they sang, "The Lord does build up Jerusalem." We may sing the same sacred song, for the Psalmist does not say, "The Lord has built," but, "The Lord does build up Jerusalem." He is going on to build it&mdash;the Divine Architect's plan of salvation is still being carried out! The great Master Builder is still placing stone upon stone in the wondrous courses of His election of Grace&mdash;"The Lord does build up Jerusalem." O Lord, build up this part of the wall!
 
 He gathers together the outcasts of Israel. Those that were far away, captives in Babylon, He brought back. God has a long arm which He is casting round His outcast chosen ones, for He means to gather them all to Himself. He has an elect redeemed people and they are scattered throughout the whole world&mdash;but even Caiaphas knew enough of the Truth of God to declare that Christ, "should gather together in one the children of God that were scattered abroad."
 
@@ -88,11 +88,11 @@ And binds up their wounds. Oh, what a blessed God He is, thus to interest Himsel
 
 He counts the number of the stars; He calls them all by their names. There is as much grandeur and glory in His compassion as in His Omniscience! To bind up wounds is as God-like a work as to count the stars. God does both, taking, perhaps, a greater delight in the first than in the second. There is not a star in the Church's firmament to which God has not given the light! He knows the number of His shining ones and He keeps their light burning&mdash;their names are all in the Lamb's Book of Life.
 
-6. Great is our Lord, and of great power: His understanding is infinite. The LORD lifts up the meek. That is the Lord's usual way&mdash;those that are down, He raises. But&mdash;
+6. Great is our Lord, and of great power: His understanding is infinite. The Lord lifts up the meek. That is the Lord's usual way&mdash;those that are down, He raises. But&mdash;
 
 He casts the wicked down to the ground. This is what God is always doing&mdash;lifting up and overturning&mdash;putting people and things in their right places.
 
-Sing to the LORD with thanksgiving; sing praise upon the harp to our God. False gods have been served with discordant yells and cries of agony, but our God is to be worshipped with songs of thanksgiving. Think not that He desires you to come before Him with groans and moans&mdash;He will hear them if they are sincere&mdash;but He would have you raise your hearts to something higher and better.
+Sing to the Lord with thanksgiving; sing praise upon the harp to our God. False gods have been served with discordant yells and cries of agony, but our God is to be worshipped with songs of thanksgiving. Think not that He desires you to come before Him with groans and moans&mdash;He will hear them if they are sincere&mdash;but He would have you raise your hearts to something higher and better.
 
 Who covers the Heaven with clouds. Little children do not think that is a matter for gratitude. They are sorry to see the clouds and the rain, but wise men know how filled with blessing are the clouds God sends. It is even so in Providence and Grace.
 
@@ -102,11 +102,11 @@ He gives the beast his food, and the young ravens which cry. Unclean creatures t
 
 He delights not in the strength of the horse. He takes not pleasure in the legs of a man. Man boasts of his strength and he looks at his fine horse and glories in its strength. But God has something higher and better than sinew and muscle to boast about.
 
-The LORD takes pleasure in them that fear Him. That is His joy. As a man is proud of his horse, or of the muscles which enable him to run swiftly, so God takes delight in those that fear Him&mdash;
+The Lord takes pleasure in them that fear Him. That is His joy. As a man is proud of his horse, or of the muscles which enable him to run swiftly, so God takes delight in those that fear Him&mdash;
 
 In those that hope in His mercy. These are His jewels. These are His Glory.
 
-12-14. Praise the LORD, O Jerusalem; praise your God, O Zion. For He has strengthened the bars of your gates; He has blessed your children within you. He makes peace in your borders. What a blessing this is, not only in a nation, but in a church! If you were ever members of a church where they seemed to quarrel punctually once every month, you would soon be sorry to be a professor of religion at all&mdash;but to live in a Church where brotherly love rules&mdash;this is a thing for which to praise the name of the Lord. "He makes peace in your borders"&mdash;
+12-14. Praise the Lord, O Jerusalem; praise your God, O Zion. For He has strengthened the bars of your gates; He has blessed your children within you. He makes peace in your borders. What a blessing this is, not only in a nation, but in a church! If you were ever members of a church where they seemed to quarrel punctually once every month, you would soon be sorry to be a professor of religion at all&mdash;but to live in a Church where brotherly love rules&mdash;this is a thing for which to praise the name of the Lord. "He makes peace in your borders"&mdash;
 
 And fills you with the finest of the wheat. There is generally peace where there is plenty. Dogs fight when there are few bones. And when God's people are well fed, they do not so often quarrel with one another. If they are fed with the finest of the wheat, there will be peace in their borders.
 
@@ -130,4 +130,4 @@ He has not dealt so with any nation. There are no other people who know the Lord
 
 And as for His judgments, they have not known them. If they have been left in the dark, let us do all we can to carry or send the light of the Gospel to them! And as we think of the great things God has done for us, let us join in a joyful Hallelujah, as the Psalm ends&mdash;
 
-Praise you the LORD.
+Praise you the Lord.
