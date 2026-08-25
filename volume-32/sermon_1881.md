@@ -20,7 +20,7 @@ Whoever you may be, "Believe on the Lord Jesus Christ and you shall be saved," i
 
 But I do not think, dear Friends, that the only specialty about the thief is the lateness of his repentance. So far from being the only point of interest, it is not even the chief point! To some minds, at any rate, other points will be even more remarkable. I want to show you very briefly that there was a specialty in his case as to the means of his conversion. Secondly, a specialty in his faith. Thirdly, a specialty in the result of his faith while he was here below. And, fourthly, a specialty in the promise won by his faith&mdash;the promise fulfilled to him in Paradise.
 
-First, then, I think you ought to notice very carefully THE SINGULARITY AND SPECIALITY OF THE MEANS BY WHICH THE THIEF WAS CONVERTED.
+First, then, I think you ought to notice very carefully THE SINGULARITY AND SPECIALITY OF THE MEANS by WHICH THE THIEF WAS CONVERTED.
 
 How do you think it was? Well, we do not know. We cannot tell. It seems to me that the man was an unconverted, impenitent thief when they nailed him to the cross because one of the Evangelists says, "The thieves, also, which were crucified with Him, cast the same in His teeth." I know that this may have been a general statement and that it is reconcilable with its having been done by one thief, only, according to the methods commonly used by critics, but I am not enamored of critics even when they are friendly. I have such respect for Revelation that I never, in my own mind, permit the idea of discrepancies and mistakes&mdash;and when the Evangelist says, "they," I believe he meant, "they," and that both these thieves did, at the beginning of their crucifixion, rail at the Christ with whom they were crucified. It would appear that by some means, or other, this thief must have been converted while he was on the cross. Assuredly nobody preached a sermon to him, no evangelistic address was delivered at the foot of his cross and no meeting was held for special prayer on his account. He does not even seem to have had an instruction, or an invitation, or an expostulation addressed to him&mdash; and yet this man became a sincere and accepted Believer in the Lord Jesus Christ!
 
@@ -96,7 +96,7 @@ In addition to thus praying, you will see that he adores and worships Jesus, for
 
 Oh, that some penitent spirit here might be helped thus to believe, thus to confess, thus to defend his Master, thus to adore, thus to worship&mdash;and then the age of the convert would be a matter of the smallest imaginable consequence!
 
-Now, the last remark is this&mdash;There was something very special about the dying thief as to OUR LORD's
+Now, the last remark is this&mdash;There was something very special about the dying thief as to OUR Lord's
 
 WORDS TO HIM ABOUT THE WORLD TO COME. He said to him, "Today shall you be with Me in Paradise." He
 
