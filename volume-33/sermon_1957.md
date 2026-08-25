@@ -13,7 +13,7 @@ The love of the Lord Jesus is to His Church as a body&mdash;and it is the same t
 
 I shall call your attention to four things, with as much brevity and earnestness as possible. Come, gracious Spirit, and lead us into the sweetness of them!
 
-The first is, THE NEARNESS OF KIN OF THE CHURCH TO CHRIST AND CHRIST TO THE CHURCH. He calls her in the text, "My Sister, My Spouse." As if He could not express His near and dear relationship to her by any one term, He employs the two. "My Sister"&mdash;that is, one by birth, partaker of the same nature. "My Spouse"&mdash;that is, one in love, joined by sacred ties of affection that never can be snapped. "My Sister" by birth. "My Spouse" by choice. "My Sister" in communion. "My Spouse" in absolute union with Myself. I want you who love the Savior to get a full hold of this thought of near and dear kinship under this head. Oh, how near akin Christ is to all His people!
+The first is, THE NEARNESS OF KIN OF THE CHURCH TO Christ AND Christ TO THE CHURCH. He calls her in the text, "My Sister, My Spouse." As if He could not express His near and dear relationship to her by any one term, He employs the two. "My Sister"&mdash;that is, one by birth, partaker of the same nature. "My Spouse"&mdash;that is, one in love, joined by sacred ties of affection that never can be snapped. "My Sister" by birth. "My Spouse" by choice. "My Sister" in communion. "My Spouse" in absolute union with Myself. I want you who love the Savior to get a full hold of this thought of near and dear kinship under this head. Oh, how near akin Christ is to all His people!
 
 But first, try to realize the Person of Christ. I am not going to speak to you at this time of a doctrine, or a mere historical fact that has vanished into the dim past. No, we speak of a real Person. Jesus Christ is. As Man and as God in the perfection of His Nature, He still exists! He dwells at the right hand of God at this moment and though He cannot be here in His corporeal Person, yet He is everywhere by His spiritual Presence, which is still more real. Do not spirit Him away! Believe that He truly is and that He truly is here&mdash;as much here and as really here as He was at Jerusalem when He sat at the head of the table and entertained the 12 at the last supper. Jesus is a real Man, a real Christ&mdash;remember that.
 
@@ -66,7 +66,7 @@ Again I pray the Holy Spirit to make every Believer feel this and then we shall 
 > My Beloved,   
 > O'er the mountains hasten away.   
 
-To a second thought I would call your attention. See in the text THE SECURITY OF THE PEOPLE OF GOD
+To a second thought I would call your attention. See in the text THE SECURITY OF THE PEOPLE OF God
 
 IN CONSEQUENCE OF BEING WHAT THEY ARE. "A garden enclosed is My Sister, My Spouse; a spring shut up, a fountain sealed." We are not only like a garden, but an enclosed garden. If the garden were not enclosed, the wild boar
 

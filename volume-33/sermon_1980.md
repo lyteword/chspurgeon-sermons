@@ -74,4 +74,4 @@ I have come to this pass myselfif I perish, I will perish believing in Jesus. 
 
 PORTION OF SCRIPTURE READ BEFORE SERMON Luke 24:13-35.
 
-HYMNS FROM "OUR OWN HYMN BOOK"676, PSALM 42 (Ver. I ). 191.
+HYMNS FROM "OUR OWN HYMN BOOK"676, Psalm 42 (Ver. I ). 191.

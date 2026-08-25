@@ -83,7 +83,7 @@ The Lord bless you, Beloved, by making you all holy! And if you will not be holy
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Ephesians 4. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;386, 623, 435.
 
-LETTER FROM MR. SPURGEON
+LETTER FROM MR. Spurgeon
 
 DEAR FRIENDS&mdash;The severe weather in England has induced the officers of the Church at the Tabernacle to persuade me to remain in this sheltered spot for another week. I was reluctant to do this, but, at length, feeling myself very weak, I judged it to be the best economy to take the further rest. The little meditation at the Lord's table, which is here given, will be followed by a similar one next week. And after that I hope to deliver the Word from my own pulpit. Again I beg my Readers' prayers that I may return strong for service, anointed for high enterprise. With kindest regards to the thousands of my Brothers and Sisters.
 

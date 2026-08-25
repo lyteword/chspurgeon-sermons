@@ -47,7 +47,7 @@ Beloved, I say to you, one and all, study much the promises of God's Word! Have 
 
 Thus much upon the duty of making God's Word to live in your mind and memory.
 
-Secondly, "You said, I will surely do you good"&mdash;this is GOD's BOND.
+Secondly, "You said, I will surely do you good"&mdash;this is God's BOND.
 
 Nothing holds a man like his word and nothing so fully fixes the course of action of the Lord our God as His own promise. We speak with the deepest reverence in reference to the great God, but it would not be reverence if we said less than this&mdash;that God has bound Himself to be true to His Word. He can do all things, but He cannot lie. If God had made no promise, He would have been free to act, or not to act&mdash;but by His promise He engages Himself to act in a certain way&mdash;and He will do so. From the necessity of His Nature, He will be faithful.
 

@@ -13,7 +13,7 @@ Dear Friends, I am going to preach to you again upon the cornerstone of the Gosp
 
 You have before you a cup, filled with wine, which Jesus has just blessed and presented to His disciples. As you look into its rosy depths, hear Him speak of the cup as His blood, for thus He would teach us a solemn lesson!
 
-Note, first, THE IMPORTANCE OF THE PRECIOUS BLOOD OF CHRIST. The vital importance of the great Truth of God of the death of Christ as a vicarious Sacrifice is set before us in this cup, which is the memorial of His blood shed for many.
+Note, first, THE IMPORTANCE OF THE PRECIOUS BLOOD OF Christ. The vital importance of the great Truth of God of the death of Christ as a vicarious Sacrifice is set before us in this cup, which is the memorial of His blood shed for many.
 
 Blood represents suffering, but it goes further and suggests suffering unto death. "The blood is the life thereof" and when blood is too copiously shed, death is suggested. Remember that in the sacred Supper you have the bread as a separate emblem of the body and then the wine as a separate symbol of the blood&mdash;thus you have a clear picture of death, since the blood is separated from the flesh. "As often as you eat this bread and drink this cup, you do show the Lord's death." Both acts are essential.
 
@@ -51,7 +51,7 @@ Brethren, I do not believe in the wisdom of these men and I abhor their changes,
 
 Neither 19 centuries, nor 19,000 centuries can make the slightest difference in this Truth of God, nor in the relative proportion of this Truth to other Truths of God so long as this dispensation lasts. Until He comes a second time without a sin offering unto salvation, the grand work of His first coming must be kept first and foremost in all our teaching, trusting and testifying! As in the southern hemisphere the cross is the mariner's guide, so, under all skies is the death of our Redeemer the polestar of our hope upon the sea of life. In life and in death we will glory in the Cross of Christ and never be ashamed of it, be we where we may!
 
-Secondly, note well THE CONNECTION OF THE BLOOD OF CHRIST WITH THE COVENANT. Read the
+Secondly, note well THE CONNECTION OF THE BLOOD OF Christ WITH THE COVENANT. Read the
 
 text again&mdash;"This is My blood of the new testament." The translation would be better, "This is My blood of the Covenant."
 
