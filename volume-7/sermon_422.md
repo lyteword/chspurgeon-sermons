@@ -99,7 +99,7 @@ I thank God that there are so many among you who are alive to the love of souls.
 
 Blessed are such peacemakers! You have "saved a soul from death and hidden a multitude of sins." "They that turn many to righteousness shall shine as the stars forever and ever." They, indeed, in Heaven itself "shall be called the children of God." The genealogy of that Book, in which the names of all the Lord's people are written, shall record that through God the Holy Spirit they have brought souls into the bond of peace through Jesus Christ.
 
-The minister has now, in the last place, TO PRACTICE HIS OWN TEXT, AND ENDEAVOR THROUGH GOD THE HOLY SPIRIT TO BE a PEACEMAKER THIS MORNING.
+The minister has now, in the last place, TO PRACTICE HIS OWN TEXT, AND ENDEAVOR THROUGH God THE Holy Spirit TO BE a PEACEMAKER THIS MORNING.
 
 I speak to many a score of persons this morning who know nothing of peace. For "there is no peace, says my God, to the wicked." "The wicked is like the troubled sea, which cannot rest, whose waters cast up mire and dirt." I speak not to you with any desire of making a false peace with your souls. Woe to the prophets who say, "Peace, peace, when there is no peace!" Rather let me, first of all, that we may make sound work in this matter, expose the peaceless, the warring state of your soul.
 
