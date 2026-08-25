@@ -53,7 +53,7 @@ No, no! Value one soul more than a world's purchase. The full company of the red
 
 "When all the chosen race Shall meet around the Throne; Shall bless the conduct of His Grace, And make His glories known."
 
-Secondly, may the Spirit of God help me while I remind you that OUR LORD PUT FORTH SPECIAL
+Secondly, may the Spirit of God help me while I remind you that OUR Lord PUT FORTH SPECIAL
 
 EXERTION TO SAVE ONE SOLITARY INDIVIDUAL.
 

@@ -115,7 +115,7 @@ Introspection, or looking within, may degenerate into a morbid habit&mdash;under
 
 Do you wonder that our Lord seemed to hold up His hands in astonishment as He said, "If the light that is in you is darkness, how great is that darkness!" If that which should lead misleads, how misled you will be! If your better part turns out to be evil, how evil must you be! See to it then, dear Friends, as before the living God, that you have a clear eye and that the light of Christ comes streaming into your soul in all its glorious purity and power.
 
-I close by coming to the third and most important point&mdash;How THE LIGHT ACTS WHEN IT COMES
+I close by coming to the third and most important point&mdash;How THE LIGHT Acts WHEN IT COMES
 
 WITHIN. If the eye is right, single and clear, there is no laborious work for that eye to do to obtain the light. When the sun is shining, if you wish for light, you simply open your eyes and you have light at once. You have not to rub the eye, or work it into some singular position&mdash;let the outward light come to the eye and at once it enters it and conveys an image to the mind.
 

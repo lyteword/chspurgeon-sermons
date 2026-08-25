@@ -3,7 +3,7 @@
 > "One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him?"  
 > John 18:26  
 
-PETER was on dangerous ground. When his Master was being buffeted, he was trying to make himself comfortable. We read of the high priest's servants, that they warmed themselves and Peter stood with them and warmed himself. He stood with them and they were rough servants of ill masters. He was in bad company and he was a man who could not afford to be in bad company&mdash;for he was so impulsive and so easily provoked to rash actions.
+Peter was on dangerous ground. When his Master was being buffeted, he was trying to make himself comfortable. We read of the high priest's servants, that they warmed themselves and Peter stood with them and warmed himself. He stood with them and they were rough servants of ill masters. He was in bad company and he was a man who could not afford to be in bad company&mdash;for he was so impulsive and so easily provoked to rash actions.
 
 The Holy Spirit, having notified us once that Peter was on unsafe ground, in the words, "Peter stood with them and warmed himself," especially observes that he remained there, which was worse still. Any man may inadvertently stumble upon a boggy piece of ground. But if he is a wise man, he will make every effort to pass it and be on sound soil again. He does ill to linger upon a quagmire, for thus he toys with danger and courts destruction.
 
@@ -29,7 +29,7 @@ Now, it is this third thing that I commend to each of you. Get right into Christ
 
 So much concerning Peter and the mischief that he fell into. This brings me to consider one of the questions which led Peter into his denial of his Master. It is this question, "Did not I see you in the garden with Him?" Let us try to handle that a little. And may the Lord cause it to do us as much good as once to Peter it did harm!
 
-And the first thing I say about it is this&mdash;MANY OF US HAVE HAD SPECIAL ASSOCIATION WITH OUR LORD. If any were to ask us, "Did not I see you in the garden with Him?" we should right gladly answer, "Yes, you have probably seen me. For I have often been there." We are by no means ashamed to admit that we have been much in the company of the despised Redeemer. Let us think how we have been, many of us, associated with our Lord Jesus Christ&mdash; it will do us good to consider our close connection with our Well-Beloved Lord.
+And the first thing I say about it is this&mdash;MANY OF US HAVE HAD SPECIAL ASSOCIATION WITH OUR Lord. If any were to ask us, "Did not I see you in the garden with Him?" we should right gladly answer, "Yes, you have probably seen me. For I have often been there." We are by no means ashamed to admit that we have been much in the company of the despised Redeemer. Let us think how we have been, many of us, associated with our Lord Jesus Christ&mdash; it will do us good to consider our close connection with our Well-Beloved Lord.
 
 The large proportion of the friends present tonight have been associated with him in Church fellowship. Our names are on the Church Roll as belonging to Jesus. We, voluntarily and cheerfully, first gave ourselves to the Lord and afterwards to His people, according to His Word. Some of us have had our names enrolled among baptized Believers for many years, and we are right glad to have them there. May they never be erased by any shameful act of ours.
 
@@ -73,7 +73,7 @@ We have been with Christ almost in a bloody sweat concerning His base betrayal b
 
 Now I go a step further in the text. The question is, "Did not I see you in the garden with Him?" which leads me
 
-to observe that MANY OF US HAVE BEEN SEEN OF MEN IN OUR ASSOCIATION WITH OUR LORD JESUS CHRIST.
+to observe that MANY OF US HAVE BEEN SEEN OF MEN IN OUR ASSOCIATION WITH OUR Lord Jesus Christ.
 
 We did not want to be observed&mdash;we were far from courting observation. There are some of the Lord's people who would like to go to Heaven without being seen with the Lord Jesus in the streets by daylight. They desire to be saved and yet never be seen with their Savior. I do not think that the sin of this age, with most Christians, is obtrusiveness. Far more likely it is unholy fear. Some think it modesty. But I question whether this is its real name. I will not call it cowardice, but I will take their own expression and call it backwardness. They say they are of a "retiring" disposition, which I interpret in a way very little to their credit.
 

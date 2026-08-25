@@ -31,7 +31,7 @@ Let me read you the passage, "Thus says the Lord, The Heaven is My throne and th
 
 Aid me with your prayers while I try to answer the question&mdash;WHO ARE THESE PEOPLE THAT TREMBLE
 
-AT GOD's WORD? I think I hear your hearts crying, "Oh, that we may be numbered among them!" Let me begin to answer the question by telling you who they are not. They are not a proud people&mdash;they do not cry, "Who is the Lord, that I should obey His voice?" They are humbly hearing. Hearing the Word of God and inwardly reverencing the heavenly monitor. They are no longer careless and reckless, for the voice of the Lord has brought them to their bearings. They have bowed their heads before Jehovah and they listen with rapt attention to everything that He may speak. They are like the child Samuel when he said, "Speak, Lord. For Your servant hears." They are teachable and lowly, and by no means belong to the school who correct the Infallible and judge the unerring.
+AT God's WORD? I think I hear your hearts crying, "Oh, that we may be numbered among them!" Let me begin to answer the question by telling you who they are not. They are not a proud people&mdash;they do not cry, "Who is the Lord, that I should obey His voice?" They are humbly hearing. Hearing the Word of God and inwardly reverencing the heavenly monitor. They are no longer careless and reckless, for the voice of the Lord has brought them to their bearings. They have bowed their heads before Jehovah and they listen with rapt attention to everything that He may speak. They are like the child Samuel when he said, "Speak, Lord. For Your servant hears." They are teachable and lowly, and by no means belong to the school who correct the Infallible and judge the unerring.
 
 They are not a profane people, that is clear&mdash;they neither mock sin nor God's Word. It is a terrible sign of hardness of heart when a man can find no comic book so ready to his hand as Holy Scripture. Surely if men must play with words,
 
@@ -101,7 +101,7 @@ I believe Martin Luther would have faced the infernal Fiend, himself, without a 
 
 Now we have got through the description of these trembling ones and we have shown why they so exceedingly
 
-fear and quake. Our third question was to be, WHAT DOES GOD COMPARE THEM TO? Hearken, for here is a thing
+fear and quake. Our third question was to be, WHAT DOES God COMPARE THEM TO? Hearken, for here is a thing
 
 to be noted and thought upon.
 

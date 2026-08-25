@@ -21,7 +21,7 @@ I pray God, the Holy Spirit, to bless the Word to many, that they may learn more
 
 There are two things in my text which will suffice for our meditation. First, here is a description given of the Lord's people. "My sheep hear My voice, and I know them and they follow Me." And then, secondly, there is a privilege secured to them, namely, their everlasting, unquestionable safety. "I give unto them eternal life. And they shall never perish, neither shall any man pluck them out of My hand. My Father, which gave them Me, is greater than all. And no man is able to pluck them out of My Father's hand. I and My Father are One."
 
-First, and all that I can say will be but little, considering the largeness of the subject, let us notice THE DESCRIPTION HERE GIVEN OF THE PEOPLE OF GOD.
+First, and all that I can say will be but little, considering the largeness of the subject, let us notice THE DESCRIPTION HERE GIVEN OF THE PEOPLE OF God.
 
 They are first described by a specialty of possession&mdash;"My sheep." All men are not sheep, for some are foxes, or ravenous wolves, and others are compared to dogs and lions. All persons who might be called sheep are not Christ's sheep. All do not belong to His flock. All are not gathered into His fold. There is a special of possession. There may be many sheep, but the Savior speaks of, "My sheep," those whom He chose of old, those who were given Him of the Father, those who have been bought with His blood, redeemed from among men, and in due time have been ransomed by His power&mdash; for He has bought them back from the hand of the enemy and therefore claims them to be His own. "The Lord's portion is His people."
 
@@ -85,7 +85,7 @@ This is a grand mark of a Christian&mdash;not merely a life of morality, a life 
 
 I have run through, very briefly, the descriptions, and I now leave you to meditate upon it when you are alone. This descriptions of the sheep of Christ are worthy of reading, marking and inwardly digesting.
 
-But my main object tonight is to show you THE GREAT PRIVILEGE HERE CONFERRED ON THE PEOPLE OF GOD. Christ has secured to them the priceless gift of eternal security in Him. No sheep of Christ shall ever be lost. None that He has purchased with His blood and made to be His own, shall ever wander away so as to perish at last. This is the doctrine of the verses now before us. At any rate, if I wanted to express that doctrine, I could not find words in which I could set it forth more definitely, or more completely, than is done by the words before me.
+But my main object tonight is to show you THE GREAT PRIVILEGE HERE CONFERRED ON THE PEOPLE OF God. Christ has secured to them the priceless gift of eternal security in Him. No sheep of Christ shall ever be lost. None that He has purchased with His blood and made to be His own, shall ever wander away so as to perish at last. This is the doctrine of the verses now before us. At any rate, if I wanted to express that doctrine, I could not find words in which I could set it forth more definitely, or more completely, than is done by the words before me.
 
 The security of the people of God lies, first of all, in the character of the life which they have received. Listen to this&mdash;"And I give unto them ETERNAL LIFE." All the spiritual life which all the sheep in the flock now possess has been given to them by their Shepherd. Never was there another flock of which this could be said. No shepherd but this one can give life to his sheep. But He gave them all the true life that they have.
 

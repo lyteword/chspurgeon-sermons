@@ -90,7 +90,7 @@ Oh, that a deep peace, profound as the serenity of God, may fall upon all our he
 
 When God accepted Christ, my Head, He accepted me. When He glorified my Head, He made me a partaker of that glory through my Representative. The infinite delight of the Father in His Only begotten is an infinite delight in all the members of His mystical body. I pray that you may feel the power of His resurrection in this respect and become flooded with delight by the conviction that you are accepted, beloved, and delighted in by the Lord God. The resurrection will make your heart dance for joy if you fully see the pardon, justification and acceptance which it guarantees you. Oh that the Holy Spirit may now take of the things of Christ's resurrection and apply them to us with justifying power!
 
-Thirdly, let us now notice THE LIFE-GIVING POWER OF THE RESURRECTION OF CHRIST.
+Thirdly, let us now notice THE LIFE-GIVING POWER OF THE RESURRECTION OF Christ.
 
 This will be seen if we perceive that our Lord has life in Himself. I showed you this earlier&mdash;in the fact that He raised Himself from the dead. He took up the life which He laid down. He only has immortality&mdash;essential and underived. Remember how He said, "I am the resurrection and the life?" Do not say, "I believe in Christ and desire life." You have
 
@@ -122,7 +122,7 @@ I wish I could venture further to unveil this secret force and still more fully 
 
 Are you feeling cast down? Are your surroundings like those of a morgue? When you return will you seem to go home to endure the rottenness and corruption of profanity and lewdness? Your remedy will lie in eternal life flooding you with its torrents and bearing you above these evil influences. May you not only have life but have it more abundantly and so be vigorous enough to throw off the baneful influences of this evil world!
 
-The last point is THE CONSOLING POWER OF THE RESURRECTION OF CHRIST.
+The last point is THE CONSOLING POWER OF THE RESURRECTION OF Christ.
 
 This consoling power should be felt as to all departed saints. We are often summoned to the house of mourning in this Church. We seldom pass a week without one or two deaths of beloved ones. Here is our comfort&mdash;Jesus says, "Your dead men shall live, together with My dead body shall they arise."
 

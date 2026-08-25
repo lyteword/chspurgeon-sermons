@@ -11,7 +11,7 @@ Among the ungodly there are many whose lives prove that they know nothing about 
 
 Of this practical atheism I am going to speak at this time, pleading against that frame of mind by the argument of the text. "He that planted the ear, shall He not hear? He that formed the eye, shall He not see?" May the Holy Spirit help me in my endeavor and may all my hearers believe in the living, hearing, seeing Jehovah!
 
-Our first observation will be THE NOTION THAT GOD CANNOT HEAR OR SEE IS PERNICIOUS. In judging it, we will follow the line of the Psalm which now lies open before us.
+Our first observation will be THE NOTION THAT God CANNOT HEAR OR SEE IS PERNICIOUS. In judging it, we will follow the line of the Psalm which now lies open before us.
 
 We perceive that men who talked in this godless fashion were proud. Therefore the prayer, "Lift up Yourself, You Judge of the earth: render a reward to the proud." The man who thinks that God is not in the world, or is not at all concerned in its affairs, thinks that he is, himself, about the greatest person in existence. There may be some other poor creatures about, but he is, in many respects, the most deserving of esteem. He who thinks little of God, thinks much of himself. "Who is the Lord," he says, "that I should obey His voice?"
 
@@ -53,7 +53,7 @@ Oh, yes, a God that hears and sees&mdash;we must have Him&mdash;or else we are o
 
 Though it is veiled in the language of philosophy, the scientific jargon which makes God into insensible force is covert atheism. I must have a God that hears and sees, and comes into the arena of my daily life and helps me because He loves me, or else I have no God. My God dwells with me and works for me, or else I have no God. Fine words, pretty phrases and magnificent definitions, are so many bags of wind and go for nothing&mdash;there cannot be a deaf God, nor a blind God, nor an insensible God. If any of you so believe, go to Bedlam and find there your fit associates. As for us, we know that the God of Abraham, of Isaac, and of Jacob is the living God and His memorial is that He hears prayer. So much for the first point.
 
-But, secondly, THE NOTION THAT GOD CANNOT SEE AND HEAR IS AN ABSURD NOTION. According
+But, secondly, THE NOTION THAT God CANNOT SEE AND HEAR IS AN ABSURD NOTION. According
 
 to our text, it is proved to be unreasonable. "He that planted the ear, shall He not hear?" Think of that argument&mdash;here is a creature which has ears and can hear&mdash;the God who created that being&mdash;can He not hear? Has He given to His creature more than He has Himself? Has He made a creature which excels Himself in essential faculties? Has He bestowed a sense which He Himself never had? How can it be? The God that makes a man with ears to hear, must possess hearing Himself.
 
@@ -87,7 +87,7 @@ I have been inclined to cry out myself, as the Psalmist did, "Why withdraw You Y
 
 In the cloudy and dark day look for the Light. He does see&mdash;He does hear&mdash;He must work for truth and righteousness. Shall He that made the ear not hear? Shall He that formed the eye not see? Be not guilty of so absurd a thought as to fancy that these evil days are not watched over by the Lord.
 
-But now, thirdly and briefly, THAT GOD HEARS HIS OWN MUST BE ESPECIALLY CERTAIN, from the
+But now, thirdly and briefly, THAT God HEARS HIS OWN MUST BE ESPECIALLY CERTAIN, from the
 
 very argument of the text. "Why?" you say. Why, because they have new and spiritual ears and they have God-given spiritual eyes. And He that planted the spiritual ear, shall He not hear? And He that formed the spiritual eye, shall He not see? It has come to pass, my Brethren, that now when God speaks by His Spirit we hear Him, blessed be His name! Time was when His threats spoke to us as with noise of thunder. But we would not hear them.
 
@@ -125,7 +125,7 @@ The glorious doctrine of the atonement&mdash;when we hear it scoffed at&mdash;we
 
 Church?
 
-I have done when I say just this one thing more&mdash;a BELIEF THAT GOD HEARS AND SEES HAS a VERY
+I have done when I say just this one thing more&mdash;a BELIEF THAT God HEARS AND SEES HAS a VERY
 
 BENEFICIAL TENDENCY UPON THOSE WHO FIRMLY HOLD IT. It works good in a thousand ways. Time would fail me to recount a tithe of them. It may suffice to take a thought or two, and turn the matter over in our minds. If we feel that God sees and hears, what an incentive it is to do right and to be valiant for His Truth! Soldiers will play the man in the presence of their prince. If our Lord looks on, what will we not do and dare?
 
