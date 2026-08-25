@@ -13,7 +13,7 @@ But many will urge discouragements. "How is it likely," says one, "that we can h
 
 Having thus looked at the precedents of that prosperity enjoyed by the church at Jerusalem, we shall, this evening, with deep earnestness, ask your attention to the means by which a like prosperity may be procured for such churches as do not enjoy it now; secondly, we shall have a word or two upon the results of such prosperity; and then, thirdly, upon the alternative which is before every church, either to obtain such prosperity or else to mourn over grievous evils.
 
-WHAT ARE THE MEANS BY WHICH THIS PROSPERITY MAY BE PROCURED?
+WHAT ARE THE MEANS by WHICH THIS PROSPERITY MAY BE PROCURED?
 
 If we pant to see the Word of God increase, multitudes added to the disciples, and a great company of those who are least likely to be saved brought in, there must be an adequate instrumentality. Nothing can avail without the operation of the Holy Spirit and the smile from heaven. Paul planteth, Apollos watereth, and God giveth the increase. We must never begin our catalogue of outward means without referring to that blessed and mysterious potentate who abides in the church, and without whom nothing is good, nothing efficient, nothing successful.
 

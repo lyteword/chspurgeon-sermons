@@ -98,7 +98,7 @@ In most other instances the voice of Jesus calmed the spirit. But that voice cou
 
 Where Jesus heals He heals forever. Once bring the soul out of prison, it shall not go back again. If He says, "I forgive," the sin is forgiven. If He speaks peace, the peace shall be like a river that never ceases running until it melts away into the ocean of eternal love! The cure was hopeless in itself, yet absolutely certain when Jesus put forth His healing hand. O, you who are broken down and desponding this morning, there is nothing that you can do, nor that I can do!
 
-But there is nothing which JESUS cannot do! Only go yourself, this morning, to Him and with a word He will give you peace&mdash;a peace that shall never be broken again but shall last till you enter into eternal rest!
+But there is nothing which Jesus cannot do! Only go yourself, this morning, to Him and with a word He will give you peace&mdash;a peace that shall never be broken again but shall last till you enter into eternal rest!
 
 Nevertheless the word of Christ, though sure to win its way, was stoutly opposed. The devil had great wrath, for he knew that his time was short. He began to rend and tear, and put out all his devilish force upon the poor child. And the poor creature, foaming and wallowing, fell down as if he were dead, under a terrible excitement. So often will it happen that at first the voice of Christ will make the spirit more troubled than before&mdash;not because Jesus troubles us&mdash;but because Satan revolts against Him. A poor tempted creature may even lie down in despair as dead, and those around may cry, "He is dead!" But then shall come the healing hand of tenderness and love, at whose touch the spirit shall survive.
 

@@ -14,7 +14,7 @@ But this woman has many parallels in the spiritual world. Multitudes like she ar
 
 I intend, this morning, first of all, to expose the physicians upon whom poor sin-sick souls often trust. When I have done so, I will show you why all these physicians, without exception, fail. Thirdly, I shall describe the plight of the patient after the failure of these trusted physicians. And lastly, show how a cure can be worked even in those.
 
-Let me EXPOSE THE PHYSICIANS WHO DELUDE SO MANY BY THEIR VAIN PRETENSIONS. Among the herd of deceivers I single out one of the vilest, first&mdash;an old, established doctor who has had a wide practice among sin-sick souls&mdash;a wicked old poisoner he is, but for all that exceedingly popular, named Dr. Sadducee. He adopts usually the homoeopathic principle, namely, to cure like by its like. He gives one form of sin as a cure for another.
+Let me EXPOSE THE PHYSICIANS WHO DELUDE SO MANY by THEIR VAIN PRETENSIONS. Among the herd of deceivers I single out one of the vilest, first&mdash;an old, established doctor who has had a wide practice among sin-sick souls&mdash;a wicked old poisoner he is, but for all that exceedingly popular, named Dr. Sadducee. He adopts usually the homoeopathic principle, namely, to cure like by its like. He gives one form of sin as a cure for another.
 
 For instance, as soon as he sees one melancholy with unbelief, he prescribes licentiousness. He says, "You are getting dull. You must cheer up! You need to mix with society. A young person like you ought not to be disturbed with these serious thoughts. Those are mere fanatics who alarm you. Be calm. I would recommend you to attend the theater or the music hall, these will drive dull cares away."
 

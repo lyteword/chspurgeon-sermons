@@ -124,7 +124,7 @@ And this involves a fifth privilege, namely, complete transformation, "They shal
 
 Thus have I very briefly mentioned the privileges involved in seeing Christ face to face.
 
-We must conclude by noting WHO THEY ARE TO WHOM THIS CHOICE GIFT IS AFFORDED BY DIVINE MERCY. "They shall see His face." Who are they? They are all His elect, all His redeemed, all His effectually called ones, all the justified, all the sanctified. They are the tens of thousands and myriads who have died in Jesus, of whom the Spirit says, "Blessed are the dead which die in the Lord."
+We must conclude by noting WHO THEY ARE TO WHOM THIS CHOICE GIFT IS AFFORDED by DIVINE MERCY. "They shall see His face." Who are they? They are all His elect, all His redeemed, all His effectually called ones, all the justified, all the sanctified. They are the tens of thousands and myriads who have died in Jesus, of whom the Spirit says, "Blessed are the dead which die in the Lord."
 
 Thank God we are not strangers to those who now behold His face. As we look back to the associations of our youth, and to the friendships of our manhood, we remember many whose privilege it has been to precede us and to know long before us the things which we desire and expect so soon to learn. Some are taken away to see His face while yet young. We bless God that our babes shall have the same Heaven as our holy parents&mdash;they shall not be placed in the back settlements of Canaan&mdash;but they shall, with equal clearness, see the face of Jesus!
 

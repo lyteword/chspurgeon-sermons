@@ -37,7 +37,7 @@ And as we look at Him and study His Character as it is revealed by His griefs, w
 
 Thus much, then, upon the medicine that heals us&mdash;it is the substitutionary sacrifice of Christ as understood in our intellects and beloved in our hearts&mdash;and especially those incidents of ignominy and cruelty which surrounded that death with deeper gloom and revealed the patience and love of the Substitute.
 
-I shall ask you, now, for a briefmoment, to behold THE MATCHLESS CURES WROUGHT BY THIS REMARKABLE MEDICINE. Look at two pictures. Look at man without the stricken Savior. And then behold man with the Savior, healed by His stripes. I say, look at man originally and apart from the Savior! Naked, he is driven out of Eden's garden, the inheritor of the curse. Within him lies concealed the deadly cancer of sin.
+I shall ask you, now, for a briefmoment, to behold THE MATCHLESS CURES WROUGHT by THIS REMarkABLE MEDICINE. Look at two pictures. Look at man without the stricken Savior. And then behold man with the Savior, healed by His stripes. I say, look at man originally and apart from the Savior! Naked, he is driven out of Eden's garden, the inheritor of the curse. Within him lies concealed the deadly cancer of sin.
 
 If you would see that evil which dwells in every one of us from our very birth developing itself upon the surface, you might soon behold it in all its horror near at home. A street or two would conduct you to sin's carnival, but perhaps it were better that you should not gaze upon a scene so polluting, in the gambling halls. In the haunts where drunkards congregate&mdash;where thieves assemble amidst oaths and blasphemies, and lewd language, and lascivious acts&mdash;it is there that sin stalks forth as a full-grown monster.
 
@@ -126,7 +126,7 @@ Now he goes a step farther and he burns with hatred against the sins which slew 
 
 Now, Beloved, do you not see that all the healthy faculties of the new-born nature are by the griefs of Jesus set strongly at work, and even though sin may still remain within, there is a vitality about the new-born nature which will certainly cast out those baser powers, and, by God's Grace, make the man meet to be a partaker of the inheritance of the saints in light?
 
-It is scarcely necessary for me to say anymore except to remark, in the sixth place, that this medicine deserves to be commended to all of you, this morning, because of ITS REMARKABLY EASY APPLICATION. I have shown you how it works, and what it cures, and whom it cures.
+It is scarcely necessary for me to say anymore except to remark, in the sixth place, that this medicine deserves to be commended to all of you, this morning, because of ITS REMarkABLY EASY APPLICATION. I have shown you how it works, and what it cures, and whom it cures.
 
 Now, there are some material medicines which would be curative, but they are so difficult in administration, and attended with so much risk in their operation, that they are rarely, if ever, employed. But the medicine prescribed in the text is very simple in itself, and very simply received&mdash;so simple is its reception that, if there is a willing mind here to receive it, it may be received by any of you at this very instant, for God's Holy Spirit is present to help you. How, then, does a man get the stripes of Christ to heal him?
 
