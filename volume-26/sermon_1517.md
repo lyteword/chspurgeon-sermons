@@ -52,7 +52,7 @@ Renounce every idol, tho' dear it may be,
 
 And come to the Savior now pleading with thee.'
 
-LETTER FROM MR. SPURGEON.
+LETTER FROM MR. Spurgeon.
 
 DEAR FRIENDS,'Nothing remains to report to you but my hope of being in my own pulpit on Feb. 8. I beg you to join with me in thanks to the healing Lord for this restoration. The Lord bringeth down to the grave and raiseth up again, and to him be praise for ever.
 

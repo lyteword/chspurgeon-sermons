@@ -68,7 +68,7 @@ If you deny that you are liable to be judged and condemned, you will deny, also,
 
 That is the second point of the text and it is clear enough. May we be wise enough to put it into practice. May the Holy Spirit work in us a tender, humble and contrite spirit.
 
-Notice a third consideration&mdash;THE QUALIFICATIONS REQUIRED BY OUR LORD AS MEDIATOR TO
+Notice a third consideration&mdash;THE QUALIFICATIONS REQUIRED by OUR Lord AS MEDIATOR TO
 
 FULFILL HIS FIRST OFFICE OF JUDGE MATERIALLY COMFORT US IN LOOKING AT HIM UNDER HIS
 
@@ -100,7 +100,7 @@ I cannot speak upon this topic at any length, the theme is too dreadful. May non
 
 He is never dear to any but to sinners. Christ is never valued by any but the guilty. He came into the world to save sinners&mdash;it is well He did, for no one else will have Him but those who feel their sin and condemnation. Oh, come and take Him as your Savior and let that blessed word, "Whoever believes in Him," be like a wide door to let you in! "Whoever believes in Him shall receive remission of sins." Why should you not, at this moment, obtain that full remission? Here are some lines which I would have you think upon when you are in your own chambers at home&mdash;may their concluding prayer be yours&mdash;
 
-"That day of wrath, that dreadful day, When Hea ven and earth shall pass away, What power shall be the sinner's stay! How shall he meet that dreadful day, When, shriveling like a parched scroll, The flaming heavens together roll? When louder yet and yet more dread, Swells the high trumpet that wakes the dead? O, on that day, that wrathful day When man to judgment wakes from clay, Be YOU the trembling sinner's stay, Though Hea ven and earth shall pass away!" V. The last Observation is that THE SAVING WORK OF CHRIST's MEDIATORIAL OFFICE IS THAT WHICH
+"That day of wrath, that dreadful day, When Hea ven and earth shall pass away, What power shall be the sinner's stay! How shall he meet that dreadful day, When, shriveling like a parched scroll, The flaming heavens together roll? When louder yet and yet more dread, Swells the high trumpet that wakes the dead? O, on that day, that wrathful day When man to judgment wakes from clay, Be YOU the trembling sinner's stay, Though Hea ven and earth shall pass away!" V. The last Observation is that THE SAVING WORK OF Christ's MEDIATORIAL OFFICE IS THAT WHICH
 
 CONCERNS US MOST AT THIS PRESENT TIME. What does Jesus do as Mediator? He judges, but He also forgives.
 

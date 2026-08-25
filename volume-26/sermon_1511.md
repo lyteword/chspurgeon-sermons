@@ -16,7 +16,7 @@ And then there is a fourth point. None saith, Where is God my Maker, who teachet
 
 Four points are then before us. Man does not ask after his God, his Maker, his Comforter, his Instructor: is he not filled with a fourfold madness? How can he excuse himself?
 
-Supposing you do not ask these questions, let me remind you that THERE ARE QUESTIONS WHICH GOD WILL ASK OF YOU.
+Supposing you do not ask these questions, let me remind you that THERE ARE QUESTIONS WHICH God WILL ASK OF YOU.
 
 When Adam had broken God's command he did not say, Where is God my Maker?' but the Lord did not therefore leave him alone. No, the Lord came out, and a voice, silvery with grace, but yet terrible with justice, rang through the trees, Adam, where art thou?' There will come such a voice to you who have neglected God. Your Judge will enquire, Where art thou?' Though you hide in the top of Carmel, or dive with the crooked serpent into the depths of the sea, you will hear that voice, and you will be constrained to answer it. Your dust long scattered to the wind will come together, and your soul will enter into your body, and you will be obliged to answer, Here am I, for thou didst call me.'
 

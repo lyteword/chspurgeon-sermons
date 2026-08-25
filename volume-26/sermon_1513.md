@@ -52,7 +52,7 @@ PORTION OF SCRIPTURE READ BEFORE SERMON'John 21.
 
 HYMNS FROM OUR OWN HYMN BOOK'245, 674, 694.
 
-LETTER FROM MR. SPURGEON.
+LETTER FROM MR. Spurgeon.
 
 BELOVED FRIENDS,'On this first day of a New Year I salute you with hearty good wishes, and pray that every blessing may attend your future steps. I beg also on my own behalf your prayers that through another year my ministry may be more edifying to the saints, more persuasive with sinners, and more acceptable to the Lord. I thank the great Healer that this day smiles upon me, and sees me free from pain, reviving in strength, and restored in spirit. I shall hope soon to be at work again. Oh for an anointing with fresh oil.
 

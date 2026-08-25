@@ -16,7 +16,7 @@ God!
 
 "How shall you escape if you neglect so great a salvation?" O that you might be rescued from such folly! Perhaps God the Holy Spirit will show you the preciousness of this salvation and then you will no longer neglect, despise, or refuse it, but will offer the prayer which I have selected as a sort of second text and entreat the Lord to let His mercies come to you, even His salvation. The prayer may be helpful in enabling you to take with you words and turn to the Lord. God grant it may be so!
 
-First, I shall in much simplicity, with a vehement desire for the immediate conviction and salvation of my hearers, try to COMMEND THE SALVATION OF GOD by opening up what Peter has said in the verses before us. Let me urge you to give earnest heed to the salvation of God, because it is a salvation of Grace. The tenth verse says, "Of this salvation the Prophets have inquired and searched diligently, who prophesied of the Grace that would come to you." Salvation is altogether of Grace&mdash;Grace which comes from God in His mercy to man in his helplessness! The Gospel does not come to
+First, I shall in much simplicity, with a vehement desire for the immediate conviction and salvation of my hearers, try to COMMEND THE SALVATION OF God by opening up what Peter has said in the verses before us. Let me urge you to give earnest heed to the salvation of God, because it is a salvation of Grace. The tenth verse says, "Of this salvation the Prophets have inquired and searched diligently, who prophesied of the Grace that would come to you." Salvation is altogether of Grace&mdash;Grace which comes from God in His mercy to man in his helplessness! The Gospel does not come to
 
 you asking something of you, but its hands are laden with gifts more precious than gold which it freely bestows upon guilty men. It comes to us, not as a reward for the obedient and deserving, but as a merciful gift for the disobedient and undeserving.
 
@@ -93,7 +93,7 @@ From the first day in which man fell&mdash;when the Holy Spirit, at the gates of
 
 So far I have commended my Lord's salvation and now I would desire you, with all this in your minds, to turn to the prayer in the one hundred and nineteenth Psalm&mdash;"Let Your mercies come also unto me, O Lord, even Your salvation, according to Your Word." Use the prayer with this intent&mdash;Lord, I have been hearing what Prophets and Apostles and angels think of Your salvation. What Your Son and what Your Spirit think of it. Now let me humbly say what I think of it&mdash;Oh that it were mine! Oh that it would come to me! This, then, is my second head. I would RECOMMEND THE PRAYER OF
 
-THE PSALMIST.
+THE PsalmIST.
 
 I will say about it, first, that it is, in itself, a very gracious prayer, for it is offered on right grounds. "Let Your mercies come also unto me." There is no mention of merit or desert. His entreaty is only for mercy. He pleads guilty and throws himself upon the prerogative of the King who can pardon offenders. Are you willing, my dear Hearer, you who have never sought the Savior&mdash;are you willing at this moment to stand on that ground and to ask for salvation as the result of mercy? You shall have it on such terms, but you can never be saved until you will acknowledge that you are guilty and submit to Justice.
 
