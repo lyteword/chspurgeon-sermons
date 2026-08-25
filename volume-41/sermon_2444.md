@@ -94,7 +94,7 @@ But there are some poor souls here who have never got into this love at all, nor
 
 "Love's redeeming work is done! Come, and welcome, Sinner, come!" I have never heard of Jesus Christ shutting the door against a sinner. There is a notice that is put in some gentlemen's parks stating that they do not allow beggars or dogs there. But Jesus Christ puts up a notice that He does allow beggars! In fact, there are none but beggars who ever go to Him&mdash;and even those who are such beggars that you would not pick their clothes from a dunghill, Jesus Christ receives into His house, into His heart, into the bath of His blood and wraps them in the robe of His perfect righteousness! O poor Sinner, come and try Him, and He will not cast you out!
 
-EXPOSITION B Y C. H. SPURGEON: JOHN15.
+Exposition B Y C. H. Spurgeon: John15.
 
 Verse 1. I am the true Vine, and My Father is the Husbandman. Not only the Mosaic Law, but the whole of creation is full of types of Christ. All the vines that we see in this world are only, as it were, typical, but Christ is the substance&mdash;the substance of Nature as well as of Grace. "I am the true Vine," and the real Husbandman, who watches over everything, who has the whole Church, yes, the whole universe, under His care, is the great Father. "My Father is the Husbandman."
 

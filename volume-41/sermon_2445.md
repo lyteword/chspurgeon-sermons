@@ -72,7 +72,7 @@ Now give an account of it all! Ah, Sirs, you may not heed what I say, but you wi
 
 O Savior, Son of God, put Your pierced hands on these blind souls and give them light that they may be able to render up their account with joy, and not with grief! Give them Grace to believe in Your name and trust in Your atoning Sacrifice, for this is the way of salvation! O poor Sinners, trust in Christ Jesus and Him Crucified! You cannot be saved by your stewardship, any of you, but unfaithful stewardship will ruin you! Christ Crucified is your only hope of salvation! Look unto Him and live! Oh, look unto Him now! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 12:13-44.
+Exposition by C. H. Spurgeon: Luke 12:13-44.
 
 Verses 13, 14. And one of the company said unto Him, Master, speak to my brother, that he divide the inheritance with me. And He said unto him, Man, who made Me a judge or a divider over you? Our Lord was a Judge and a Divider, but His sphere of action was spiritual&mdash;He did not interfere in the personal disputes of those who gathered round Him.
 

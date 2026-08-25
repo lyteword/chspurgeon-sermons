@@ -2,7 +2,7 @@
 
 "To make ready a people prepared for the Lord." Luke 1:17.
 
-JOHN was the herald of Christ&mdash;he was to prepare the way for the coming King&mdash;but from this text it appears that he was to do more than that. He was not only to make the road ready for the Lord, but he was also "to make ready a people prepared for the Lord." That was a great work, a task in which he would require strength and wisdom greater than his own. He would need that the Spirit of God, who was to be given without measure to the coming One, should also be, in a measure, within himself, if he should really "make ready a people prepared for the Lord."
+John was the herald of Christ&mdash;he was to prepare the way for the coming King&mdash;but from this text it appears that he was to do more than that. He was not only to make the road ready for the Lord, but he was also "to make ready a people prepared for the Lord." That was a great work, a task in which he would require strength and wisdom greater than his own. He would need that the Spirit of God, who was to be given without measure to the coming One, should also be, in a measure, within himself, if he should really "make ready a people prepared for the Lord."
 
 This is not at all a usual expression. At first sight, it hardly looks to us like a Gospel expression. We sang just now&mdash;
 
@@ -17,7 +17,7 @@ The fact is, dear Friends, that to get men to come to Jesus just as they are is 
 
 Beloved Friends, this is the true preparedness of heart for coming to Christ&mdash;the preparedness of coming to Him just as you are! And it was John's business, thus, "to make ready a people prepared for the Lord." That is also my business at this time. May the good Spirit, who dwelt in John the Baptist, work through us, also, that some here may be made ready for Christ&mdash;"a people prepared for the Lord"! Let us see how John carried out his commission. We shall then be better able to understand the text.
 
-First, John made ready "a people prepared for the Lord" BY AWAKENING THEIR ATTENTION.
+First, John made ready "a people prepared for the Lord" by AWAKENING THEIR ATTENTION.
 
 The people were asleep&mdash;they had fallen into a condition of religious lethargy, when suddenly there stood in their midst a man clothed in camel's hair and with a leather girdle about his loins&mdash;a Prophet, manifestly, by the boldness and truthfulness of his utterances. He spoke in such a way that the people in general heard of his speaking and they advertised him by saying, the one to the other, "That is a strange man who has begun to preach by the River Jordan and whose meat is locusts and wild honey."
 
@@ -35,7 +35,7 @@ But John led his hearers on further than that, for they began to expect somethin
 
 John did more than this, for he cried, "Repent you: for the Kingdom of Heaven is at hand," that is to say, he put a pressure of urgency upon the people. A Brother, who is an eminent preacher, but who uses rather long words, was explaining to me the benefit of the preaching of Mr. Fullerton and Mr. Smith in his place of worship. He said, "I do not know exactly why these Brothers were the means of the conversion of many in my place whom I had never reached, but I perceived that they had the power to precipitate decision." It sounded rather strange, but when I thought it over a little while, I rather liked the expression, "the power to precipitate decision." That is the power that leads men to make up their minds and say, "Yes," or, "No"&mdash;to feel that the decision has to be made at once and that the putting of it off is impossible because it would be a kind of insanity! Now that is the meaning of what John said, "The Kingdom of Heaven is at hand! Repent you! He is coming who wields the axe of Divine Justice&mdash;bear fruit, or else be cut down! He is coming who uses the great winnowing fan&mdash;be the true wheat, or else be blown away." He put the Truth of God so pointedly and so earnestly, that he did, by that means, make ready "a people prepared for the Lord."
 
-Now, secondly, John made the people ready for CHRIST BY AWAKENING THEIR CONSCIENCES.
+Now, secondly, John made the people ready for Christ by AWAKENING THEIR CONSCIENCES.
 
 His very first utterance, as I have reminded you, was, "Repent you, for the Kingdom of Heaven is at hand." "Repent! Repent! Repent!" was John's continual cry. This awakened the consciences of his hearers concerning their sin. Preaching repentance meant, "You have sinned! Change your mind in reference to that sin you have sinned&mdash;quit the sin, mourn over it, ask forgiveness for it. Repent!" Whenever a man brings to the minds of others their sins&mdash;when he does it so that they begin to feel that they have sinned&mdash;then they are being prepared for the Lord, for no man will come to the Savior unless he knows that he needs a Savior. And no man will feel that he needs a Savior until he feels that he is a sinner. Hence it is a real preparation of men for Christ to convince them of sin.
 
@@ -47,7 +47,7 @@ He not only preached to the multitudes about repentance of sin in general, but h
 
 This is "to make ready a people prepared for the Lord"&mdash;by their being convinced of sin and led to repentance. That, I think, is a second meaning clearly illustrated in the ministry of John the Baptist.
 
-But thirdly, John had "to make ready a people prepared for the Lord" BY POINTING OUT THE NATURE OF TRUE RELIGION.
+But thirdly, John had "to make ready a people prepared for the Lord" by POINTING OUT THE NATURE OF TRUE RELIGION.
 
 He showed that it did not depend upon external privileges. As soon as John began to preach, the men of Jewish race, proud of their pedigree, pressed near, and John, with all the courage that a servant of the Lord could have, said, "Begin not to say within yourselves, 'We have Abraham as our father,' for I say unto you, that God is able of these stones to raise up children unto Abraham." You see the drift of his preaching, do you not? He says, practically, "Men and women, there is no virtue in your boasted privileges. There is no merit in your religious descent. As for supposing yourselves to be the peculiar people of God, you are not to be saved that way. Say not, 'We have Abraham as our father.'" Oh, how many hug that idea, "My father was a Christian." Others say, "Well, I live in a Christian country." They suppose that there is something in the very race from which they have sprung! Away with all such notions, for whatever external privileges you may have had, they are not sufficient to secure salvation for you!
 
@@ -71,7 +71,7 @@ All for sin could not atone." And then you are ready to finish the verse by sing
 
 "You must save, and You, alone."
 
-Now. I shall close my discourse by noticing a fourth way in which John made ready "a people prepared for the Lord." He did it BY DECLARING THE GRACE AND POWER OF JESUS CHRIST.
+Now. I shall close my discourse by noticing a fourth way in which John made ready "a people prepared for the Lord." He did it by DECLARING THE GRACE AND POWER OF Jesus Christ.
 
 My Brothers and Sisters, if I were to preach to you merely to awaken your attention, to awaken your consciences to a sense of sin, or simply to show you the nature of true religion, yet you would not be prepared for Christ unless you also knew something about Him, something about His suitableness and His power to save you. So, John preached Jesus Christ as a mighty and glorious Savior on whom the Spirit rested. He said, when he baptized our Lord, as Jesus came up out of the water, "I saw the Spirit descending from Heaven like a dove and it abode upon Him. And I knew Him not, but He that sent me to baptize with water, the Same said unto me, Upon whom you shall see the Spirit descending, and remaining on Him, the same is He which baptizes with the Holy Spirit." John boldly preached and told the people that the Spirit of God rested upon Jesus Christ, yes, abode upon Him!
 
@@ -103,7 +103,7 @@ Here is a text for you&mdash;"Whoever shall call on the name of the Lord shall b
 
 "You do not know me," says a sorrowing one over there in the corner, "you do not know me, Sir. Otherwise you would not talk so." I do not need to know you, but if you were the devil's own, if you would but come to Christ, you would be, at once and forever, Christ's own! Though you were sunk almost into Hell by a life of horrible crime, yet if you will now come and repent of your sin and lay hold on Christ, you shall be saved! I do not know how to use language that shall be stronger than that, but do not think that I will withdraw it, or qualify it. If I did know how to speak in broader terms, even, than those I have used, I would so speak! You guiltiest of the guilty, you most condemned of all the condemned, for whom the hottest Hell would be your due place, yet come and look to Christ, and you shall live, for none are too vile for Him to cleanse, none are too guilty for Him to pardon! Oh, that you would believe in Jesus while yet the Gospel bell rings out, "mercy, mercy, mercy!" God help you to do so, for the Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 155-17,3:1-18.
+Exposition by C. H. Spurgeon: Luke 155-17,3:1-18.
 
 Luke 1:5, 6. There was in the days of Herod, the king of Judea, a certain priest named Zacharias, of the division of Abia; and his wife was of the daughters of Aaron, and her name was Elizabeth. And they were both righteous before God, walking in all the commandments and ordinances of the Lord, blameless. You have, here, a very interesting couple, Zacha-rias and Elizabeth&mdash;a priest with a wife. I have often marveled why the Church of Rome thinks it wrong that priests should be married when it is evident that the priests under the Law were so. The priests had grown so numerous that there was not room for them all to work at the Temple at one time. They were divided into 24 divisions and Zacharias would, therefore, come up to Jerusalem for a fortnight to take his share of the service. Zacharias and Elizabeth were notable for excellence of character&mdash;"They were both righteous before God." Not only did they stand high in the esteem of men, but the great God who reads the hearts of all and sees how they live in secret, reckoned them to be righteous&mdash;
 

@@ -81,7 +81,7 @@ I have often said from this pulpit, and I say it again, that if I had to die lik
 
 If he had fixed his eyes on his father and had seen the greatness of his father's love, and the joy beaming in his father's face, I think that he would have rushed up to him and fallen on his father's neck, and kissed him, and said, "Now I know what a blessed thing it must be to dwell in your love." Oh, if you knew the joy of saved sinners, and the joys of those who have prayed and labored for their salvation. If you knew anything of the joy of the happy God, you would understand that a truly Christian life cannot be an unhappy one! God bring you, everyone, to trust in Jesus, His dear Son! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:73-88.
+Exposition by C. H. Spurgeon: Psalm119:73-88.
 
 In this Psalm we have, as it were, notes from David's diary.
 
@@ -89,7 +89,7 @@ Verse 73. Your hands have made me and fashioned me: give me understanding that I
 
 They that fear You will be glad when they see me; because I have hoped in Your Word. A hopeful godly man is a continual source of joy to other people. When a man can inspire hope in his fellows&mdash;and he cannot do that unless he is full of hope, himself&mdash;he lights a fire of comfort. Bring such a man into a storm and he helps you to be brave. "They that fear You will be glad when they see me; because I have hoped in Your Word."
 
-I know, O LORD, that Your judgments are right and that You in faithfulness have afflicted me. We are glad to listen to a man who can tell us that&mdash;an old man, a tried man who can say that God has been faithful in afflicting him&mdash;a man who, after having borne the brunt of tribulation, can yet bless God for it. Such testimonies as these are full of joy and gladness to the young folk&mdash;they can encounter trial with a joyous heart when they hear what their fathers tell of the goodness of God to them in their troubles!
+I know, O Lord, that Your judgments are right and that You in faithfulness have afflicted me. We are glad to listen to a man who can tell us that&mdash;an old man, a tried man who can say that God has been faithful in afflicting him&mdash;a man who, after having borne the brunt of tribulation, can yet bless God for it. Such testimonies as these are full of joy and gladness to the young folk&mdash;they can encounter trial with a joyous heart when they hear what their fathers tell of the goodness of God to them in their troubles!
 
 Let, I pray You, Your merciful kindness be for my comfort, according to Your Word unto Your servant. "Lord," he seems to say, "I have been a comfort to others&mdash;be You a comfort to me. You have made others glad to see me, make me glad with the recollection of all my experience of Your mercy. 'Let, I pray You, Your merciful kindness be for my comfort.'" If you have lost your own comfort, dear Friends, see where you are to look for it&mdash;to the merciful kindness of God! Those are two beautiful words, are they not? "Merciful"&mdash;take that to pieces and it is mercy-full. Is not God full of mercy? Take the next word to pieces&mdash;"kindness." That means, "kinned-ness"&mdash;that kind of feeling that we have to our own kin when they are very dear to us. "Lord, let Your mercy-full kinned-ness be for my comfort, according to Your Word unto Your servant."
 

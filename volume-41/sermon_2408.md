@@ -48,7 +48,7 @@ It is a great message that we have to deliver. Would you have a little Gospel fr
 
 I have lingered too long over this first division, yet I hope I have convinced you that the question is worth considering.
 
-The question we have now to consider is this&mdash;HAS YOUR TROUBLE ANYTHING TO DO WITH JESUS?
+The question we have now to consider is this&mdash;HAS YOUR TROUBLE ANYTHING TO DO WITH Jesus?
 
 This is what our Lord meant by enquiring of His disciples, "Why are you troubled and why do doubts arise in your hearts?" Their trouble had to do with Jesus, but they had made a great mistake concerning Him.
 
@@ -68,7 +68,7 @@ Yes, but that is not the spirit of Jesus Christ! He does not care about your dia
 
 If you have made any mistakes about my Lord and Master, I hope that what I have said may help to remove them.
 
-Now, lastly, and may God bless this word to you, dear troubled Friend, to bring you to the Savior! JESUS RIGHTLY KNOWN WILL MEET EVERY TROUBLE OF EVERY SEEKING SOUL.
+Now, lastly, and may God bless this word to you, dear troubled Friend, to bring you to the Savior! Jesus RIGHTLY KNOWN WILL MEET EVERY TROUBLE OF EVERY SEEKING SOUL.
 
 If you did but know Him, you would find an end to your trouble at once! Those lines are quite true&mdash;
 
@@ -94,7 +94,7 @@ Will you not trust Him tonight? Dear Friend, you might go down those stairs, you
 
 You good soldiers who are here, tonight, I hope you are already good soldiers of Jesus Christ. But if you are not, I would like to be the recruiting sergeant and enlist you beneath the standard of the Cross. Only trust my Lord and you shall be saved in the day of battle, and saved in the hour of death&mdash;yes, and saved amidst the temptations of this wicked city. He shall cover you! He, Himself, shall cover you and you shall be perfectly safe beneath that Divine Shelter! Who will trust Christ and be saved? Lord, give us many souls, tonight, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MARK16:1-14; LUKE24:32-44.
+Exposition by C. H. Spurgeon: Mark16:1-14; Luke24:32-44.
 
 Mark 16:1, 2. And when the Sabbath was past, Mary Magdalene, and Mary, the mother of James, and Salome, had bought sweet spices, that they might come and anoint Him. And very early in the morning, the first day of the week, they came unto the sepulcher at the rising of the sun. Their love made them prompt. Their affection was about to attempt a needless and, indeed, impossible thing. Yet I do not doubt that it was acceptable before God. Oh, that we had such love that even the dead body of the Christ should be so dear to us that we would be ready, at great expense, to anoint it! I fear that, nowadays, even His living Word is not valued as it should be. How few, therefore, should we be likely to find who would have cared for His dead body? These holy women had had cause enough to love their Lord and they showed that their hearts were full of affection for Him even after He had been taken from them.
 

@@ -104,7 +104,7 @@ What if my name should be left out,
 
 When You, for them, shall call?" You cannot be left outside the wedding feast if you have trusted in Jesus! Then trust Him at once! Rest in that Lamb who will be your Bridegroom and at whose marriage supper you shall be present to praise the Glory of His Grace forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: REVELATION18:20-24; 19:1-18.
+Exposition by C. H. Spurgeon: Revelation18:20-24; 19:1-18.
 
 May the Spirit of God take away the veil from our eyes while we read what was revealed to the beloved Apostle John! Here we have the prophecy of the destruction of the great anti-Christian system of Babylon, which, being interpreted, is and can be none other than the apostate Church of Rome!
 
@@ -122,7 +122,7 @@ And I saw Heaven opened, and behold a white horse; and He that sat upon Him was 
 
 And out of His mouth goes a sharp sword, He puts down vice and evil of every kind, not with the sword of steel, but with His Word&mdash;"Out of His mouth goes a sharp sword"&mdash;
 
-15, 16. That with it He should smite the nations: and He shall rule them with a rod of iron: and He treads the winepress of the fierceness and wrath of Almighty God. And He has on His vesture and on His thigh a name written, KING OF KINGS, AND LORD OF LORDS. For this Son of God whom we worship, this Jesus of Nazareth, is Master of all! All power is in His hand. He is, "KING OF KINGS, AND LORD OF LORDS."
+15, 16. That with it He should smite the nations: and He shall rule them with a rod of iron: and He treads the winepress of the fierceness and wrath of Almighty God. And He has on His vesture and on His thigh a name written, KING OF Kings, AND Lord OF LordS. For this Son of God whom we worship, this Jesus of Nazareth, is Master of all! All power is in His hand. He is, "KING OF Kings, AND Lord OF LordS."
 
 17, 18. And I saw an angel standing in the sun; and he cried with a loud voice, saying to all the fowls that fly in the midst of Heaven, Come and gather yourselves together unto the supper of the great God; that you may eat the flesh of kings, and the flesh of captains, and the flesh of mighty men, and the flesh of horses, and of them that sit on them, and the flesh of all men, both free and bond, both small and great. By this highly figurative language, we are to understand that when Christ goes forth to war in battling for the truth, and His true followers come after Him, their victory will be certain&mdash; and the slain of the Lord will be many! We look not for carnage and bloodshed to establish the Kingdom of Christ in the earth, but this Revelation gives us a picture of the utter overthrow and destruction of all forms of error through the power of the everlasting Gospel of Jesus Christ! Amen, so let it be!
 

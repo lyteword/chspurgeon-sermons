@@ -92,7 +92,7 @@ Come, then, let us make a solemn league and covenant together in the name of God
 
 No, they must speak their joys abroad! Let us endeavor to do so, always, by the help of the Holy Spirit. Amen and Amen!
 
-EXPOSITION BY C. H. SPURGEON: PHILIPPIANS4.
+Exposition by C. H. Spurgeon: Philippians4.
 
 This Epistle was written by Paul when he was in prison with iron fetters about his wrists, yet there is no iron in the Epistle. It is full of light, life, love and joy&mdash;blended with traces of sorrow&mdash;yet with a holy delight that rises above his grief.
 

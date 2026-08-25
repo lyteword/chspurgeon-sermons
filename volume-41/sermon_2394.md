@@ -84,7 +84,7 @@ It seems to me so sad that there should be anybody in the world who does not bel
 
 But you who are poor and needy, burdened with sin and full of guilt, this is the God for you! This is the Christ for you! Come and have Him, come and trust Him and then sing with all of us who have believed in Him&mdash;"Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins!" May His blessing rest on you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 4; PHILIPPIANS 4:1-9.
+Exposition by C. H. Spurgeon: 1 John 4; Philippians 4:1-9.
 
 1 John 4:1. Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world. If John had need to say that in the early morning of Christianity, I am sure we ought to say it with greater emphasis today! It is certainly true in these days that, "many false prophets are gone out into the world." Therefore we, also, must, "try the spirits whether they are of God."
 

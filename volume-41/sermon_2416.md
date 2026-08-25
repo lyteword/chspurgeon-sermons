@@ -82,7 +82,7 @@ Next, have patience under trouble. Be not afraid of sudden fear. Be not carried 
 
 A placid and steady calm is also a great adornment for the Gospel. One has seen such gentleness of spirit in some Christian matrons that we have felt that they have been an ornament to the Doctrine of Jesus Christ. May we learn that holy calm and may the Spirit of God so dwell in us that in all we say, and all we do, and all we are, we may adorn the Doctrine of God our Savior in all things! May the Lord add His blessing upon this discourse, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: TITUS 2:6-15; 3.
+Exposition by C. H. Spurgeon: Titus 2:6-15; 3.
 
 Titus 2:6. Young men, likewise, exhort to be sober minded. They are full of spirits, they are very sanguine, they are apt to be carried away with novelties&mdash;exhort them to have that which is thought to be a virtue of age, namely, sobriety. Let them be old when they are young that they may be young when they are old.
 

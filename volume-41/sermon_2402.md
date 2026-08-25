@@ -58,7 +58,7 @@ Then I remembered that, even if I kept the Law perfectly, and kept it for ten, t
 
 What was I to do? I was in the custody of one that showed no mercy whatever, for Moses never said, "Mercy." The Law has nothing to do with mercy! That comes from another mouth and under another dispensation. But before I turn to that other point, I would like to say that if any of you are passing through all that I have been describing, do not be at all discouraged! I rejoice that it is so with you, for this breaking down of the idols is the way to set up the true God in your heart! This cleaning out of your refuges of lies is a blessed work of God who loves you, though He seems, now, to be dealing out to you the blows of a cruel one! This is the way in which He is severing you from your deceptions, freeing you from your delusions so that He may bring you to His Truth and to Himself! That is my last point.
 
-THE REVELATION WHICH SET US FREE&mdash;"We were shut up unto the faith which should afterwards be revealed."
+THE Revelation WHICH SET US FREE&mdash;"We were shut up unto the faith which should afterwards be revealed."
 
 Now let me tell the story. It was on a day, never to be forgotten, when I first understood that salvation was in and through Another&mdash;that my salvation could not be of myself&mdash;but must be through One better and stronger than I. And I heard&mdash;and oh, what music it was that the Son of God had taken upon Himself our human nature and had, by His life and death, worked out a perfect salvation, finished from top to bottom, which He was ready to give to every soul that was willing to have it&mdash;and that salvation was all of Grace from first to last, the free gift of God through His blessed Son, Jesus Christ! Oh, the melody of that doctrine! "But I have heard that lots of times," says one. Have you ever heard it at all? "Why, I heard you say it just now!" Again I put the question&mdash;Have you heard it? It has passed your ears, but have you ever heard it? Have you ever caught the meaning of it?
 
@@ -76,7 +76,7 @@ I have nothing to tell of but Christ Crucified! Nothing to say to the sinner but
 
 Now, if there are any of you who have gotten into that position, I am right glad of it! This proves that you are God's child! He has chosen you, He loves you, He has given His Son to save you! Take the Lord Jesus Christ to be everything to you and go on your way rejoicing! "Before faith came," you were shut up, but you were shut up to faith in Christ! And now you have that faith, you are shut up no longer, you have received the liberty with which Christ makes His people free! Go home and enjoy it&mdash;and if you meet any other poor soul shut up as you were, tell how you came out to liberty! Do not be satisfied to go to your bed, tonight, without having told somebody of how the Lord Jesus came, dressed in garments dipped in blood, and with His pierced hands broke the bars of brass and cut the doors of iron in two&mdash;and set your soul at liberty, and said, "I have blotted out, as a thick cloud, your transgressions and, as a cloud, your sins." God bless you, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: GALATIANS3.
+Exposition by C. H. Spurgeon: Galatians3.
 
 Paul, writing, to those changeable Galatians, who had so soon deserted the faith, says to them in this chapter.
 

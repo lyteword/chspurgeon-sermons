@@ -82,7 +82,7 @@ A Universalist once said to a Christian man that whatever he did, God would not 
 
 So I beseech you, my Hearers, fly to Jesus at once! Weary, and heavy-laden, look to Him, for He says especially to you, "Come unto Me, and I will give you rest." The Lord add His blessing to His Truths I have tried to preach to you, the sweet and the terrible alike, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Hebrews 9
+Exposition by C. H. Spurgeon: Hebrews 9
 
 Verse 1. Then verily the first covenant had also ordinances of Divine service and a worldly sanctuary. That is to say, a material sanctuary, a sanctuary made out of such things as this world contains. Under the Old Covenant, there were certain outward symbols. Under the New Covenant, we have not the symbols, but we have the substance itself. The old Law dealt with types and shadows, but the Gospel deals with the spiritual realities themselves.
 

@@ -8,7 +8,7 @@ Judge yourself, dear Hearers, by these tests, whether you are godly or not. Let 
 
 In these words we have, first, the universal mark of godly men. They pray unto God. Then we have, secondly, a potent motive for praying&mdash;"For this cause shall everyone that is godly pray unto You." And then, thirdly, we have the special occasion when prayer is most useful, the occasion of which the godly avail themselves abundantly&mdash;they shall "pray unto You in a time when You may be found." All these points are well worthy of our earnest consideration.
 
-The first is, THE UNIVERSAL MARK OF GODLINESS&mdash;"For this cause shall everyone that is godly pray unto
+The first is, THE UNIVERSAL Mark OF GodLINESS&mdash;"For this cause shall everyone that is godly pray unto
 
 You."
 
@@ -82,44 +82,44 @@ I know that there are some here who are seeking the Lord. There are some who hav
 
 May God send His blessing on these words, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM33.
+Exposition by C. H. Spurgeon: Psalm33.
 
-Verse 1. Rejoice in the LORD, O you righteous: for praise is comely for the upright. Notice the context between the words, "rejoice," and, "praise." Joy is the soul of praise. God is not extolled by our misery, but by our holy mirth! Be glad in the Lord, for so can you make Him glorious. "Rejoice" and "praise," "for praise is comely for the upright." Praise is the beauty of a Christian. What wings are to a bird, what fruit is to the tree, what the rose is to the thorn, that is praise to a child of God!
+Verse 1. Rejoice in the Lord, O you righteous: for praise is comely for the upright. Notice the context between the words, "rejoice," and, "praise." Joy is the soul of praise. God is not extolled by our misery, but by our holy mirth! Be glad in the Lord, for so can you make Him glorious. "Rejoice" and "praise," "for praise is comely for the upright." Praise is the beauty of a Christian. What wings are to a bird, what fruit is to the tree, what the rose is to the thorn, that is praise to a child of God!
 
-Praise the LORD with harp: sing unto Him with the Psaltery and an instrument of ten strings. In the old days of forms, ceremonies and outward worship, musical instruments were abundantly used. But in the early Christian Church there was no such thing as a musical instrument because the Believers were afraid of going back to Judaism. It is curious that as men get further away from Christ, they get fonder and fonder of such things as these! Still, under certain conditions, they are lawful, though, we think, not expedient. God was acceptably worshipped in the olden time with harp and with Psaltery&mdash;and He may be so now&mdash;yet we worship Him, so we judge for our own selves, better without them.
+Praise the Lord with harp: sing unto Him with the Psaltery and an instrument of ten strings. In the old days of forms, ceremonies and outward worship, musical instruments were abundantly used. But in the early Christian Church there was no such thing as a musical instrument because the Believers were afraid of going back to Judaism. It is curious that as men get further away from Christ, they get fonder and fonder of such things as these! Still, under certain conditions, they are lawful, though, we think, not expedient. God was acceptably worshipped in the olden time with harp and with Psaltery&mdash;and He may be so now&mdash;yet we worship Him, so we judge for our own selves, better without them.
 
 Sing unto Him a new song. For, you see, that all the music had singing with it. "Praise the Lord with harp; sing unto Him." "Sing unto Him a new song." "Unto the Lord, unto the Lord, Oh, sing a new and joyful song!" It was only as it guided and strengthened the singing that the instrumental music was tolerated even in those early days.
 
 Play skillfully with a loud noise. God ought to be worshipped with our best&mdash;"Play skillfully." God ought to be earnestly worshipped&mdash;"with a loud noise." Hearty worship is what the Lord desires and what He deserves. Let us render it to Him.
 
-For the Word of the LORD is right. Let us praise Him for His Word. Men are depreciating it&mdash;let us appreciate it. "The Word of the Lord is right"&mdash;from the first page to the last it is right, emphatically right&mdash;let us praise Him for it!
+For the Word of the Lord is right. Let us praise Him for His Word. Men are depreciating it&mdash;let us appreciate it. "The Word of the Lord is right"&mdash;from the first page to the last it is right, emphatically right&mdash;let us praise Him for it!
 
 And all His works are done in truth. The book of Providence is full of the Truth of God! Oh, for Grace to read it with thankful hearts! Let us praise God and sing unto Him as every page passes under our eyes.
 
-He loves righteousness and judgment: the earth is full of the goodness of the LORD. You would think, from the way in which most people talk, that the world was full of misery and full of the anger of the Lord, but it is not! Notwithstanding all the evil that is in it, it is still true that "the earth is full of the goodness of the Lord."
+He loves righteousness and judgment: the earth is full of the goodness of the Lord. You would think, from the way in which most people talk, that the world was full of misery and full of the anger of the Lord, but it is not! Notwithstanding all the evil that is in it, it is still true that "the earth is full of the goodness of the Lord."
 
-By the Word of the LORD were the heavens made; and all the host of them by the breath of His mouth. They did not grow out of something that was there before&mdash;they were made out of nothing&mdash;"by the Word of the Lord." All the hosts of innumerable stars were created "by the breath of His mouth."
+By the Word of the Lord were the heavens made; and all the host of them by the breath of His mouth. They did not grow out of something that was there before&mdash;they were made out of nothing&mdash;"by the Word of the Lord." All the hosts of innumerable stars were created "by the breath of His mouth."
 
 He gathers the waters of the sea together as an heap: He lays up the depth in storehouses. We know not how much God has in store, out of sight, in the vast abysses, but we know that He drowned the world when He broke up the fountains of the great deep.
 
-Let all the earth fear the LORD: let all the inhabitants of the world stand in awe of Him. He is so great a God that all the oceans are in His sight but as a heap! Let us worship, and adore, and bow down before Him.
+Let all the earth fear the Lord: let all the inhabitants of the world stand in awe of Him. He is so great a God that all the oceans are in His sight but as a heap! Let us worship, and adore, and bow down before Him.
 
 For He spoke, and it was done; He commanded, and it stood fast. With God it is no sooner said than it is done! "He spoke, and it was done." All that He has to do is but to bid it be so and so it is. And, as it was for creation, so is it for confirmation&mdash;"He commanded, and it stood fast."
 
-The LORD brings the counsel of the heathen to nothing: He makes the devices of the people of no effect. If the folly of man yields to God's wisdom, so, also, shall the wisdom of man. No matter though men take counsel together against the Lord and against His Anointed, God will certainly carry out His purposes.
+The Lord brings the counsel of the heathen to nothing: He makes the devices of the people of no effect. If the folly of man yields to God's wisdom, so, also, shall the wisdom of man. No matter though men take counsel together against the Lord and against His Anointed, God will certainly carry out His purposes.
 
-The counsel of the LORD stands forever, the thoughts of His heart to all generations. What the Lord intends to do, He will do&mdash;there is no turning Him from His purpose&mdash;and His dispensations stand fast forever.
+The counsel of the Lord stands forever, the thoughts of His heart to all generations. What the Lord intends to do, He will do&mdash;there is no turning Him from His purpose&mdash;and His dispensations stand fast forever.
 
-Blessed is the nation whose God is the LORD; and the people whom He has chosen for His own inheritance. If you have chosen God, God has chosen you! It is a happy thing when it is so. When these two elections meet&mdash;your election of God and God's election of you&mdash;then you are happy, indeed!
+Blessed is the nation whose God is the Lord; and the people whom He has chosen for His own inheritance. If you have chosen God, God has chosen you! It is a happy thing when it is so. When these two elections meet&mdash;your election of God and God's election of you&mdash;then you are happy, indeed!
 
-14. The LORD looks from Heaven; He beholds all the sons of men. From the place of His habitation He looks upon all the inhabitants of the earth. Just as in a glass hive you can see all the bees and all they do, so can God see us&mdash;and He can see all that we think and read&mdash;and He knows us through and through.
+14. The Lord looks from Heaven; He beholds all the sons of men. From the place of His habitation He looks upon all the inhabitants of the earth. Just as in a glass hive you can see all the bees and all they do, so can God see us&mdash;and He can see all that we think and read&mdash;and He knows us through and through.
 
 15, 16. He fashions their hearts alike; He considers all their works. There is no king saved by the multitude of an host. Look at Napoleon who marched more than half a million men into Russia&mdash;but they nearly all melted away and, after a time&mdash;he, himself, became a captive on the lone rock of St. Helena! "There is no king saved by the multitude of an host."
 
 A mighty man is not delivered by much strength. Look at Goliath, stronger than all his fellows, yet how soon he lay prone upon the earth when a single stone from the sling of David smote him in the forehead.
 
-17-19. An horse is a vain thing for safety: neither shall he deliver any by his great strength. Behold, the eyes of the LORD are upon them that fear Him, upon them that hope in His mercy; to deliver their soul from death, and to keep them alive in famine. Whatever becomes of kings and princes in the day of need, the Lord will take care of those who fear Him and put their trust in Him! There have been vast numbers of cases of amazing Providences&mdash;so many that they have ceased to be amazing&mdash;in which God has provided for those who have trusted in Him.
+17-19. An horse is a vain thing for safety: neither shall he deliver any by his great strength. Behold, the eyes of the Lord are upon them that fear Him, upon them that hope in His mercy; to deliver their soul from death, and to keep them alive in famine. Whatever becomes of kings and princes in the day of need, the Lord will take care of those who fear Him and put their trust in Him! There have been vast numbers of cases of amazing Providences&mdash;so many that they have ceased to be amazing&mdash;in which God has provided for those who have trusted in Him.
 
-Our soul waits for the LORD: He is our help and our shield. Dear Friends, notice those three, "ours"&mdash;three firm clasps, three strong holdfasts&mdash;"Our soul waits for the Lord: He is our help and our shield." Why did He not say, "Our souls wait," for there are many of us? Ah, but we are so alike in this one thing that it is as if we had only one soul in all these many bodies, so the Psalmist says, "our soul." You remember when the disciples went to Emmaus and Christ talked with them, they said, "Did not our heart burn within us?" There were two of them&mdash;why did they not say, "Did not our hearts burn?" Well, their hearts were so one that he who spoke, called them, "heart," rather than, "hearts." And it is so here&mdash;"Our soul waits for the Lord: He is our help and our shield."
+Our soul waits for the Lord: He is our help and our shield. Dear Friends, notice those three, "ours"&mdash;three firm clasps, three strong holdfasts&mdash;"Our soul waits for the Lord: He is our help and our shield." Why did He not say, "Our souls wait," for there are many of us? Ah, but we are so alike in this one thing that it is as if we had only one soul in all these many bodies, so the Psalmist says, "our soul." You remember when the disciples went to Emmaus and Christ talked with them, they said, "Did not our heart burn within us?" There were two of them&mdash;why did they not say, "Did not our hearts burn?" Well, their hearts were so one that he who spoke, called them, "heart," rather than, "hearts." And it is so here&mdash;"Our soul waits for the Lord: He is our help and our shield."
 
-21, 22. For our heart shall rejoice in Him because we have trusted in His holy name. Let your mercy, O LORD, be upon us, according as we hope in You. That is a good prayer with which to close our reading! Let us all present it at the Throne of heavenly Grace!
+21, 22. For our heart shall rejoice in Him because we have trusted in His holy name. Let your mercy, O Lord, be upon us, according as we hope in You. That is a good prayer with which to close our reading! Let us all present it at the Throne of heavenly Grace!

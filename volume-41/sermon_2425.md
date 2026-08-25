@@ -84,7 +84,7 @@ Lastly, I pray you, do not fight against your best Friend, or contend against yo
 
 The Lord bless you, and this simple testimony of mine, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HOSEA 13:1-14.
+Exposition by C. H. Spurgeon: Hosea 13:1-14.
 
 Verse 1. When Ephraim spoke trembling, he exalted himself in Israel. When we are little in our own esteem. When we are full of fears concerning ourselves. When we dare not think of boasting, then it is that we grow! "When Ephraim spoke trembling, he exalted himself in Israel."
 
@@ -96,7 +96,7 @@ And have made there molten images of their silver, and idols according to their 
 
 Therefore they shall be as the morning cloud, and as the early dew that passes away, as the chaff that is driven with the whirlwind out of the floor, and as the smoke out of the chimney. If they make idols their gods, they shall be like their idols! Idols are but for a day&mdash;what is there in them of endurance? What is there in them of power? "They that make them are like unto them, so is everyone that trusts in them." If we trust in anything that we can see. If we trust in anything but God, then our hope shall be "as the morning cloud, and as the early dew that passes away," and we, ourselves, shall be like the chaff that is driven from the threshing floor by a whirlwind, or like the smoke driven out of the chimney by the blast!
 
-Yet I am the LORD your God from the land of Egypt, and you shall know no god but Me: for there is no Savior beside Me. Now here is the wickedness of idolatry&mdash;that we have so good a God and yet must look after another! Here is the sin of trusting to an arm of flesh&mdash;that we have an almighty arm to lean upon and instead of doing so, we begin to look to a poor arm that has not strength enough to support itself, much less to support us! Are any of you children of God forgetting your God? Is your faith turning away from the great Invisible and the sure promises of His Word? Are you looking to the creature? Beware of it, I pray you! Whenever you do that, you are making a rod for your own back! If you forsake the Lord, to whom will you go?
+Yet I am the Lord your God from the land of Egypt, and you shall know no god but Me: for there is no Savior beside Me. Now here is the wickedness of idolatry&mdash;that we have so good a God and yet must look after another! Here is the sin of trusting to an arm of flesh&mdash;that we have an almighty arm to lean upon and instead of doing so, we begin to look to a poor arm that has not strength enough to support itself, much less to support us! Are any of you children of God forgetting your God? Is your faith turning away from the great Invisible and the sure promises of His Word? Are you looking to the creature? Beware of it, I pray you! Whenever you do that, you are making a rod for your own back! If you forsake the Lord, to whom will you go?
 
 I did know you in the wilderness, in the land of great drought. Look back upon days of your trouble, when God was very near to you. Do you not remember when He was everything to you? When you were poor, when you were sick, when you were despised, God knew you, then, yet now you sing&mdash;
 

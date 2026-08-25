@@ -77,7 +77,7 @@ Oh, I think these questions must have helped to make sin seem contemptible and l
 
 God bless you, Beloved, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM51.
+Exposition by C. H. Spurgeon: Psalm51.
 
 This is a portion of Scripture which can never be read too often. If any among us have never found mercy, let them use this Psalm as their own personal prayer&mdash;while those who have found mercy can read between the lines and read the sweetness of pardon into the bitterness of sorrow for sin! This Psalm was written by David when Nathan came to him after his great sin with Bathsheba. He needed Nathan to come to him to rebuke him. If David had not been in a very sad state of heart, he would not have fallen into the sin. It was that state of heart which left him so hardened, so obdurate, that he needed Nathan pointedly to say to him, "You are the man." After that, he wrote and prayed this truly penitential Psalm.
 

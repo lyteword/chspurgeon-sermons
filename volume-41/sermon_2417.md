@@ -64,7 +64,7 @@ Oh, that all were as obedient to Christ as this man was, that, having the simpli
 
 Now, lastly, this man, it is said, "immediately rose up before them, and took up that whereon he lay, and departed to his own house glorifying God." I think I hear what he said. "Glory!" he cried, "Glory be to God!" He felt so glad, so happy, that he took up his bed before them all and, as he walked along, he glorified God. And would you not have done the same if you had been paralyzed and had been restored as he had been? And will you not do so? If you have been sin-bound and Christ has set you free, surely you will take the earliest opportunity of telling others what Jesus has done for you and seek to glorify His name! I did not wonder when a Brother lately said to me, "I have been spending all the morning in the workshop telling the men that I have found the Savior." And one, last Sunday, turned to his wife in this Tabernacle and said, "I am saved!" She said to him, "Don't disturb the worship," but I almost wish he had done so! What a mercy it is to be saved! Salvation puts a new sun in our sky and a new joy in our hearts! Believe on Jesus and this salvation is yours! God grant that it may be, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE512-26.
+Exposition by C. H. Spurgeon: Luke512-26.
 
 Verse 12. And it came to pass, when He was in a certain city, behold a man full of leprosy. As far gone with leprosy as he could be&mdash;thoroughly tainted and eaten up with that loathsome disease.
 

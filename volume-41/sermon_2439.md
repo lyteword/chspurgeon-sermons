@@ -24,7 +24,7 @@ But, Beloved, many of you are joined together by spiritual ties in other relatio
 
 But Beloved, as many of you as believe in Jesus Christ are members of one family. You are related to one another in the highest possible way through the kinship of the spiritual life. Therefore let us now salute each other in the Lord. Standing or sitting in our places and without using any outward sign or symbol, let our hearts go out to one another in loving greeting. As one family we dwell in Christ, knit to one another by ties of sympathy, love and mutual delight, because knit to Christ Jesus the Lord! I want you to feel that blessed union. Let us make this service a sort of family gathering, as when the father stands up at the head of the table at Christmas time, or on New Year's Day, and says that he is glad to see all the family at home once more. I seem to stand among you, thus, not as the oldest in years, but still the chief official member of this Church&mdash;and I salute you all, and bid you rejoice together because of ties of love which time cannot loose and death, itself, cannot dissolve!
 
-Then the Apostle, wishing to show how real was the union between himself and Titus, next mentioned that THEY WERE BRETHREN BY a COMMON FAITH&mdash;"Titus, my true son after the common faith."
+Then the Apostle, wishing to show how real was the union between himself and Titus, next mentioned that THEY WERE BRETHREN by a COMMON FAITH&mdash;"Titus, my true son after the common faith."
 
 Yes, Beloved, and our faith is also common. It is the same faith in two respects. First, because we believe the same truths and, secondly, because we believe them with "like precious faith." We who are rightly members of this Tabernacle Church have believed the same Truths of God&mdash;there is no dispute or discussion among us about the fundamentals of our faith. To us, there is one God&mdash;Father, Son and Holy Spirit. To us, there is one Mediator&mdash;Jesus Christ the Savior. We believe in the election of Grace by the Divine Father. We believe in the vicarious Sacrifice of the Eternal Son. We believe in the regenerating work of the Holy Spirit and in the need of it in the case of every living man, woman and child.
 
@@ -58,7 +58,7 @@ These blessings not only all come from the same source, but they all come by the
 
 Some people say that they try to remember other people, but if you really love them, you will not "try" to remember them&mdash;you will not be able to keep from remembering them! Their image will come up before your mind's eye. You cannot avoid it and you will not wish to avoid it. So, dear Friends, we will not say that we will try to remember each other while we are parted a while&mdash;but every blessing that comes to us shall remind us that it comes from our Father, through Jesus Christ our Mediator&mdash;and so we shall feel that we are truly one.
 
-Then, to close, there is one more point of union and that lies in OUR COMMON RELATIONSHIP TO OUR LORD JESUS CHRIST. See how Paul puts it, "The Lord Jesus Christ our Savior."
+Then, to close, there is one more point of union and that lies in OUR COMMON RELATIONSHIP TO OUR Lord Jesus Christ. See how Paul puts it, "The Lord Jesus Christ our Savior."
 
 I must dwell briefly upon every word of this title. First, Jesus is Lord to all His people&mdash;and equally to be obeyed by them all, and adored by them all. It is important that, with bowed knee and reverent love, we call Him Lord and God. We put our finger into the print of the nails and the wound in His side, confessing that He is and must be real Man, but, at the same moment, we cry with Thomas, "My Lord and my God." I cannot pretend to have any union with the man who cannot, from his heart, say that! If you do not count Christ to be God, well, go your way, my fellow man, and I will go mine&mdash;but your way and my way cannot be the same. We know that this is the Christ of God, and he who does not know it needs to be taught of God the very first principles of the Gospel. So, you see, we have a true unity in the Lordship of Christ&mdash;we desire, as one man, to be obedient to all His commands and to worship Him as "very God of very God."
 
@@ -80,7 +80,7 @@ Now is our time, Brothers and Sisters! Let us, as one man, pray God to send this
 
 As for you who do not know and love the Lord, we love you, we desire to bring you into the blessed circle of love by the door of faith in Christ. Look alone to Jesus Christ, who is the only way of salvation for you as for us. Oh, that you would look to Him and live! God grant it, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: TITUS1; 2
+Exposition by C. H. Spurgeon: Titus1; 2
 
 While reading this chapter we must understand that Titus was sent to Crete to superintend the preaching of the Gospel throughout that island. Crete was, at that time, inhabited by a people who were only partially civilized, and sunk in the very worst of vices. Paul, therefore, tells Titus to speak to them about things which would hardly be mentioned to Christians nowadays.
 
