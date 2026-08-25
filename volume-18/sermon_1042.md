@@ -74,7 +74,7 @@ You will find that old shaft is not shut up. There is light. Look up! There is t
 
 PORTION OF SCRIPTURE READ BEFORE SERMON'Hebrews 3.
 
-'THE SWORD AND THE TROWEL.' Edited by C. H. SPURGEON.
+'THE SWORD AND THE TROWEL.' Edited by C. H. Spurgeon.
 
 Contents for April, 1872.
 

@@ -68,7 +68,7 @@ When God's Grace helps the preacher to wield the Gospel hammer and it comes down
 
 Poor Soul, there is no need you should! For there is One who can do the work for you and these are His absolute promises to you if you are now looking to Christ upon the Cross and resting all your hopes in Him&mdash;"A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh."
 
-But time flies, and therefore let us consider, in the second place, THE INDWELLING OF THE HOLY SPIRIT.
+But time flies, and therefore let us consider, in the second place, THE INDWELLING OF THE Holy Spirit.
 
 When the Spirit has thus prepared His habitation, He comes to reside within the renewed man. I call your attention to each word of the text. Observe first that the Lord says, "I will put My Spirit within you." Now it does not say, "the influences of the Spirit shall come within you"&mdash;not that&mdash;but, "I will put My Spirit within you." It is literally the fact that God Himself, the Eternal Spirit in "propria Persona," in His own Person, resides and dwells within the renewed heart. I again remark that it is not said, "I will put the Grace of My Spirit, I will put the work of My Spirit," but, "I will put My Spirit within you."
 

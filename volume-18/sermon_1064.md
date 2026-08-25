@@ -92,7 +92,7 @@ And then say to Him again, "I thank You, O God, that You have permitted even me 
 
 Then throw yourself down before Him and if you perish, perish there. Go to the Cross with such pleas as these and resolve that if it can be that a sinner may die at the foot of the Cross, you will die there, but nowhere else. As the Lord my God lives, before whom I stand, there shall never a soul perish that can cast itself upon the sovereign Grace of God through Jesus Christ His Son!
 
-Now, to turn away from that to a third point. A FULL CONVICTION OF THIS TRUTH WILL RECONCILE
+Now, to turn away from that to a third point. A FULL CONVICTION OF THIS TRuth WILL RECONCILE
 
 OUR HEARTS TO ALL DIVINE ORDINANCES WITH REGARD TO SALVATION. I feel in my own heart, and I
 

@@ -10,7 +10,7 @@ If ever we should be placed in like circumstances may we be able to witness a go
 
 May the sorrowful visage of Jesus, the faithful and true Witness, the Prince of the kings of the earth, be often before our eyes to check the first sign of flinching and to inspire us with dauntless courage! We have before us, in the words of the text, a part of our Savior's good confession touching His kingdom.
 
-Note, first of all, that OUR LORD CLAIMED TO BE a KING. Pilate said, "Are You a king, then?" asking the question with a sneering surprise that so poor a being should put forth a claim to royalty. Do you wonder that he should have marveled greatly to find kingly claims associated with such a sorrowful condition? The Savior answered, in effect, "It is even as you say, I am a king." The question was but half earnest&mdash;the answer was altogether solemn&mdash;"I am a king." Nothing was ever uttered by our Lord with greater certainty and earnestness.
+Note, first of all, that OUR Lord CLAIMED TO BE a KING. Pilate said, "Are You a king, then?" asking the question with a sneering surprise that so poor a being should put forth a claim to royalty. Do you wonder that he should have marveled greatly to find kingly claims associated with such a sorrowful condition? The Savior answered, in effect, "It is even as you say, I am a king." The question was but half earnest&mdash;the answer was altogether solemn&mdash;"I am a king." Nothing was ever uttered by our Lord with greater certainty and earnestness.
 
 Now, notice that our Lord's claim to be a king was made without the slightest ostentation or desire to be advantaged thereby. There were other times when, if He had said, "I am a king," He might have been carried upon the shoulders of the people and crowned amid general acclamations. His fanatical fellow countrymen would gladly have made Him their leader. At one time we read that they would have "taken Him by force and made Him a king." At such times He said but little about His kingdom and what He did say was uttered in parables and explained only to His disciples when they were alone.
 
@@ -42,7 +42,7 @@ But He was speaking of that rule which He personally exercises over the minds of
 
 It is as a spiritual Lord that Christ claims sovereignty among men! He is King over minds that love Him, trust Him and obey Him because they see in Him the Truth which their souls pine for. Other kings rule our bodies, but Christ our souls! Other kings govern by force, but He by the attractions of righteousness&mdash;theirs is, to a great extent, a fictitious royalty, but His is true and finds its force in the Truth of God. So much, then, upon Christ's claims to be a king.
 
-Now, observe secondly that OUR LORD DECLARED THIS KINGDOM TO BE HIS MAIN OBJECT IN LIFE.
+Now, observe secondly that OUR Lord DECLARED THIS KINGDOM TO BE HIS MAIN OBJECT IN LIFE.
 
 "To this end was I born, and for this cause came I into the world." To set up His kingdom was the reason why He was born of the virgin. To be king of men it was necessary for Him to be born. He was always the Lord of All&mdash;He needed not to be born to be a king in that sense&mdash;but to be king through the power of Truth it was essential that He should be born in our nature.
 
