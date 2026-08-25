@@ -12,7 +12,7 @@ The Apostle, I say, was conscious of imperfection, but he was also conscious tha
 
 Notice that there are two forces here mentioned which are at work in every gracious man. There is Christ's power by which He apprehends us and then there is the new power, the new life of God-given faith, by which we, in our turn, seek to apprehend that for which Christ has apprehended us. Christ has apprehended us for a purpose&mdash;we wish to realize that purpose even to the fullest. That is the intent of the Apostle's words. Let us consider them in detail.
 
-First, let us think of PAUL's APPREHENSION BY CHRIST JESUS.
+First, let us think of PAUL's APPREHENSION by Christ Jesus.
 
 We do not often use the word, "apprehended," now, in the sense in which it is here used. The only instance that I remember is when we speak of a policeman apprehending a person, that is, laying hold upon him, seizing him. At his conversion, Paul had been apprehended by his Lord. Take the word, "apprehend," in the sense of arresting him, and it stands true of Saul of Tarsus. I need not repeat the story&mdash;you all know how that desperate rebel was going down to Damascus to persecute the saints of God. Nothing was further from his mind than the thought of becoming a Christian, but while he was riding the high horse and Damascus lay below him, just like a sheep within reach of a wolf, the Lord Jesus Christ stepped in and laid His hand on his shoulder&mdash;
 
@@ -34,7 +34,7 @@ I want your hearts to talk over this first part of the sermon. Never mind my fal
 
 Ah, dear Souls, you who have never been apprehended of Him, I hope that you will be, tonight! I pray God that you may run away from your old master, the devil, and not give him even five minutes' notice, but just start off directly! And while you are a runaway slave, may my Divine Master come and lay His hand upon you and say, "You are Mine. You never did really belong to your old master and even though you promised and swore that you would be his, thus says the Lord, 'Your Covenant with death shall be disannulled, and your agreement with Hell shall not stand.' I have redeemed you, I have called you by your name, you are Mine, and now I only take what I bought on the tree. I take by power, by might, by main force, by Grace, what I purchased with the blood of My hands and feet and heart. I will have you, for you are Mine." Lord, will You thus arrest some sinner, tonight, to the praise of the glory of Your Grace?
 
-Now let us notice PAUL's DESIRE TO APPREHEND THAT FOR WHICH THE LORD HAD APPREHENDED HIM.
+Now let us notice PAUL's DESIRE TO APPREHEND THAT FOR WHICH THE Lord HAD APPREHENDED HIM.
 
 Well, why did Christ apprehend Paul? First, it was to convert him completely&mdash;to make a new man of him, to turn him from all his old ways and pursuits&mdash;and put him on quite a different road. Now, Brothers and Sisters, that is why the Lord apprehended us&mdash;to make us new creatures in Christ Jesus! Let us pray God to carry out that design to the fullest, to make us altogether new creatures. Do not let us be satisfied while there are any remains of the old nature&mdash;let us cry to the Lord to drive the Canaanites out&mdash;and though they have chariots of iron, let us, by Divine Grace, drive them all out! Pray, "Lord Jesus, You have come to turn me from every sin&mdash;turn me and I shall be turned! You have provided medicine for every disease&mdash;Lord, heal me and I shall be healed!"
 
@@ -76,7 +76,7 @@ I believe that every action in this mortal life thrills through eternity. Time a
 
 I wish, dear Friends, that in Heaven we might feel, "Well, I did as God helped me. I apprehended that for which my Master apprehended me." You have no idea what you are going to do in Glory. I expect, one day, to preach to an assembled universe concerning my Lord and Master, to tell to principalities and powers what Christ has done&mdash;not to sit with a lot of you good people, some listening to me, and some, perhaps, not&mdash;but to have angels, and principalities, and powers to be my congregation! And I want to learn to preach well, here, that they may be attentive to me. Each one of you who has served your Lord shall be a monument of His love and His mercy&mdash;and the angels shall stop and read what is inscribed on you! Oh, that there might be some good letters written on you, that when Gabriel stops to read, he may clap his hands and then fly with swifter flight, as he says, "Bless the Lord for what He did for that poor man, for what He worked in that poor woman! His Grace is conspicuous there." As you are to be seen throughout all eternity, may you be fit to be seen! May the Lord, of His Grace, work in you that which shall be to the praise of His Glory!
 
-I have done when I just take a minute or two to show THE LESSONS WHICH PAUL IS TEACHING US BY THIS TEXT.
+I have done when I just take a minute or two to show THE LESSONS WHICH PAUL IS TEACHING US by THIS TEXT.
 
 The first is this, make sure of your apprehension by Christ Jesus, so that you can talk like Paul about it, "That for which I am apprehended." Pray the Lord that you may feel His hand on your shoulder, that you may feel His Grace in your heart, His blessed fetters on your feet, His Divine manacles upon your wrists. Pray that you may have no doubt about it, but may know beyond all doubt that the Lord has arrested you.
 
@@ -86,7 +86,7 @@ Finally, let this lead you to hope for the salvation of others. Go forward hopef
 
 May the Lord arrest some sinners, tonight! Pray, as you go down the aisles, "Lord, arrest them! Bring them to Your dear feet and save them this night, for Jesus' sake!" Amen.
 
-EXPOSITION BY C. H. SPURGEON. PHILIPPIANS 3.
+Exposition by C. H. Spurgeon. Philippians 3.
 
 The Holy Spirit indited this Epistle by the pen of His servant, Paul. May He also write it on our hearts!
 

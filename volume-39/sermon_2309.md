@@ -8,7 +8,7 @@ It was, therefore, in the last degree, absurd to suppose that if a man was born 
 
 That will be the subject that we shall talk about, tonight, how God takes opportunity from the sorrows and the sins of men to make manifest His own works to His own Glory. As this man was born blind, in order that, through his blindness, the power of God might be seen in giving him sight, so I think there are many in whom the power of God may very readily be seen and the works of God be very clearly made manifest.
 
-So, first, let us enquire what works these are. WHAT WORKS OF GOD ARE SEEN IN THE SALVATION OF MEN?
+So, first, let us enquire what works these are. WHAT WORKS OF God ARE SEEN IN THE SALVATION OF MEN?
 
 There is a man over yonder who is all out of order. There is nothing right about him. He is a man upside down. His heart loves that which will ruin it and does not love that which would bless it. His understanding is darkened. He puts bitter for sweet and sweet for bitter. His will has become very domineering and has usurped power which it never ought to possess. If you will study him well, you will not make much of him. He is all out of gear, like a piece of machinery in which the wheels do not operate correctly. To describe him briefly by one word, I should say that he is in a state of chaos, everything is in confusion and disorder, tossed up and down. "Well," says one, "that is my case. I am like that tonight."
 
@@ -73,7 +73,7 @@ When this man was converted, instead of being a public beggar, he became a publi
 
 The Lord send out a great company of men who are not ashamed of Jesus Christ! We need many men and women who will come straight out from the world and say, "Christ for me, for He has so touched my heart, that I am for Him! And if no one else will confess Him, I must do so, for He is my best Friend, my Lord, my Savior, my All!" In such cases, the works of God are made manifest.
 
-Now I have done when I have just said three or four things by way of hints upon this last point, How MAY GOD's WORKS BE MANIFEST IN US?
+Now I have done when I have just said three or four things by way of hints upon this last point, How MAY God's WORKS BE MANIFEST IN US?
 
 Some of you are very poor. Others are very lame or very sickly. You are consumptive, asthmatic, full of aches, pains and complaints. Now, then, perhaps all this suffering is permitted that the work of God may be manifest in your afflic-
 
@@ -89,7 +89,7 @@ By-and-by, we shall come to die and, in our deaths, God's work may be manifest. 
 
 May God bless these words of mine and may many, here, be eternal monuments of the boundless, Sovereign Grace of God! And unto Him be Glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON. JOHN 9:1-38.
+Exposition by C. H. Spurgeon. John 9:1-38.
 
 Verse 1. And as Jesus passed by, He saw a man who was blind from his birth. The man could not see Jesus, but sight came to the man from Jesus. If there are any here who cannot look to Christ as yet, our prayer is that He may look on them as He looked on this blind man.
 

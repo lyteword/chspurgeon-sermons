@@ -50,7 +50,7 @@ But then He takes something away from it. It was necessary that He should do so,
 
 have said, "Into Your hand I commit My spirit, for I have redeemed My people." But that He did not choose to say. He simply took that part which suited Himself and used it as His own, "Father, into Your hands I commend My spirit." Oh, my Brothers and Sisters, you will not do better, after all, than to quote Scripture, especially in prayer! There are no prayers so good as those that are full of the Word of God! May all our speech be flavored with texts! I wish that it were more so. They laughed at our Puritan forefathers because the very names of their children were fetched out of passages of Scripture, but I, for my part, had much rather be laughed at for talking much of Scripture than for talking much of trashy novels&mdash;novels with which (I am ashamed to say it) many a sermon nowadays is larded, yes, larded with novels that are not fit for decent men to read and which are coated over till one hardly knows whether he is hearing about a historical event, or only a piece of fiction&mdash;from which abomination, good Lord, deliver us!
 
-So, then, you see how well the Savior used Scripture, and how, from His first battle with the devil in the wilderness till His last struggle with death on the Cross, His weapon was always, "It is written." FATHERHOOD OF GOD
+So, then, you see how well the Savior used Scripture, and how, from His first battle with the devil in the wilderness till His last struggle with death on the Cross, His weapon was always, "It is written." FATHERHOOD OF God
 
 Now, I am coming to the text, itself, and I am going to preach from it for only a very short time. In doing so, firstly, let us learn the doctrine of this last cry from the Cross. Secondly, let us practice the duty. And thirdly, let us enjoy the privilege.
 
@@ -96,7 +96,7 @@ This privilege is not only that of having rest in danger, and confidence in the 
 
 O Beloved, begin tomorrow morning and end tonight with, "Father, into Your hands I commend my spirit." The Lord be with you all! Oh, if you have never prayed, God help you to begin to pray now, for Jesus' sake! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON. LUKE23:27-49, MATTHEW27:50-54.
+ExpositionS by C. H. Spurgeon. Luke23:27-49, Matthew27:50-54.
 
 Luke 23:27. And there followed Him a great company ofpeople, and of women, which also bewailed and lamented Him. Their best Friend, the Healer of their sick, the Lover of their children, was about to be put to death, so they might well bewail and lament.
 

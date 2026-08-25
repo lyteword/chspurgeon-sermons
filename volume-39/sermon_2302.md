@@ -8,7 +8,7 @@ The posture at the Communion Table, as you know, according to our Lord's example
 
 I do not think we ought to feel at all surprised if we were to go always expecting Him, not knowing at what hour the Master of the house shall come. The world does not expect Him&mdash;it goes on with its eating and drinking, its marrying and giving in marriage&mdash;but His own family should expect Him. When He will return from the wedding, I trust that He will not find the door shut against Him, but that we shall be ready to open to our Lord immediately when He knocks. That is the object of the few words that I shall have to say, tonight, to stir you up, and my own heart, also, to be always watching for Christ's Second Coming.
 
-First, THE LORD WILL COME. He that has come once is to come again. He will come a second time. The Lord will come.
+First, THE Lord WILL COME. He that has come once is to come again. He will come a second time. The Lord will come.
 
 He will come again, for He has promised to return. We have His own word for it. That is our first reason for expecting Him. Among the last of the words which He spoke to His servant John are these, "Surely I come quickly." You may read it, "I am coming quickly. I am even now upon the road. I am traveling as fast as wisdom allows. I am always coming, and coming quickly." Our Lord has promised to come and to come in Person. Some try to explain the Second Coming of Christ as though it meant the Believer dying. You may, if you like, consider that Christ comes to His saints in death. In a certain sense, He does, but that sense will never bear out the full meaning of the teaching of the Second Advent with which the Scripture is full. No, "the Lord Himself shall descend from Heaven with a shout, with the voice of the archan-
 
@@ -38,7 +38,7 @@ I do not wish you to be shaken in mind so as to act fanatically or foolishly, as
 
 That is the first point, Brothers and Sisters, the Lord will come. Settle that in your minds. He will come in His own time and we are always to be looking for His appearing.
 
-Now, secondly, THE LORD BIDS US WATCH FOR HIM. That is the marrow of the text&mdash;"Blessed are those servants whom the master, when he comes, shall find watching."
+Now, secondly, THE Lord BIDS US WATCH FOR HIM. That is the marrow of the text&mdash;"Blessed are those servants whom the master, when he comes, shall find watching."
 
 Now what is this watching? Not wishing to use my own words, I thought that I would call your attention to the context. The first essential part of this watching is that we are not to be taken up with present things. You remember that the twenty-second verse is about not taking thought what you shall eat, or what you shall drink&mdash;you are not to be absorbed in that. You who are Christians are not to live the fleshly, selfish life that asks, "What shall I eat and drink? How can I store up my goods? How can I get food and raiment, here?" You are something more than dumb, driven cattle that must think of hay and water. You have immortal spirits! Rise to the dignity of your immortality! Begin to think of the Kingdom, the Kingdom so soon to come, the Kingdom which your Father has given you and which, therefore, you must certainly inherit! Think of the Kingdom which Christ has prepared for you, and for which He is making you kings and priests unto God, that you may reign with Him forever and ever. Oh, be not earthbound! Do not cast your anchor, here, in these troubled waters. Build not your nest on any of these trees&mdash;they are all marked for the axe and are coming down&mdash;and your nest will come down, too, if you build it here. Set your affection on things above, up yonder&mdash;
 
@@ -84,7 +84,7 @@ May the Lord keep you waiting, working, watching, that when He comes, you may ha
 
 God grant that we may believe in the Lord Jesus unto life eternal and then wait for His appearing from Heaven, for His love's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. LUKE 12:12-48.
+Exposition by C. H. Spurgeon. Luke 12:12-48.
 
 Verses 13, 14. And one of the company said unto Him, Master, speak to my brother, that he divide the inheritance with me. And He said unto him, Man, who made Me a judge or a divider over you? Our Lord kept to His proper business, which was the preaching of the Gospel and the healing of the sick. We find, in these days, that the minister of the Gospel is asked to do almost everything. He must be a politician. He must be a social reformer. He must be, I know not what! For my part, I often feel as if I could answer, "Who made me to do anything of the kind? If I can preach the Gospel, I shall have done well if I do that to the glory of God and to the salvation of men. Surely there are enough people to be judges and dividers, there are quite sufficient politicians to attend to politics and plenty of men who feel themselves qualified to direct social reforms. Some of us may be spared to attend to spiritual affairs."
 

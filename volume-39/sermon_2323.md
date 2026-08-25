@@ -84,7 +84,7 @@ As for you, my dear Hearers, who do not know my Lord, how I wish that you did! H
 
 Thus I have preached to you and now there are some Believers to be baptized. That is the second part of our work. At the end of this chapter we read, "Go you, therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit: teaching them to observe all things whatever I have commanded you." We will at another time go on with the teaching that follows this evening's meditation, if the Lord wills.
 
-EXPOSITION BY C. H. SPURGEON. MATTHEW 28:1-15.
+Exposition by C. H. Spurgeon. Matthew 28:1-15.
 
 Verses 1, 2. In the end of the Sabbath, as it began to dawn toward the first day of the week, came Mary Magdalene and the other Mary to see the sepulcher. And, behold, there was a great earthquake: for the angel of the Lord descended from Heaven, and came and rolled back the stone from the door, and sat upon it. See what concern angels have about our Lord. Are they here tonight? Do they make a habit of coming where the saints meet together? I think they do. We have intimations in Scripture that that is the case. Let us behave ourselves aright, tonight, "because of the angels." And as they worship and count it their highest honor to serve the Son of Man, let us also worship Jesus and adore Him! What a picture this scene would make!
 

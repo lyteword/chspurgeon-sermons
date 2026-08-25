@@ -1,6 +1,6 @@
 # Sermon 2289 | The Right Keynote for the New Year
 
-"But we will bless the LORD from this time forth and forevermore. Praise the LORD." Psalm 115:18.
+"But we will bless the Lord from this time forth and forevermore. Praise the Lord." Psalm 115:18.
 
 IT has been truly said that if the members of our churches were in a right condition of heart, the work of the pastor towards them would be no more difficult than that of a commanding officer to his troops. A general, or a captain has never to study eloquence&mdash;he has simply to give the word of command tersely and plainly&mdash;and himself to lead the way. So, if our hearts were right in the sight of God, we would not need illustrations to win attention or arguments to urge us on&mdash;we would only need to know what is the special duty of the hour and, helped by the Divine Spirit&mdash;we would, with alacrity, seek to perform it.
 
@@ -134,9 +134,9 @@ of Divine Grace within us ceases to recognize His blessedness? That, also, canno
 
 If any man cannot join in that praise, let him remember that he is not fit to live, nor fit to die&mdash;for to die without praising God and to rise again&mdash;would be to remain in a state in which he could not possibly enter Heaven, since the one occupation of Heaven is magnifying and blessing and praising the Lord forever and forever! Let such an one seek the Lord, now! Let him trust in the Lord Jesus Christ! Then he shall be saved and he will be able to join us in saying, "We will bless the Lord from this time forth and forevermore. Praise the Lord."
 
-EXPOSITION BY C. H. SPURGEON. PSALM115.
+Exposition by C. H. Spurgeon. Psalm115.
 
-Verses 1-3. Not unto us, O LORD, not unto us, but unto Your name give Glory, for Your mercy, and for Your Truth's sake. Why should the heathen say, Where is now their God? But our God is in the heavens: He has done whatever He has pleased. It was very natural that the heathen should say, "Where is their God? because they had no outward emblem, no visible image, no tangible token&mdash;whereas the heathen had their many gods, such as they were, made of wood and stone, so that they asked, "Where is their God?" I think that when that question is suggested, it is a good sign, for it proves the purity of the faith which has cleansed itself from outward symbolism. May men often have to ask of us, "Where is their
+Verses 1-3. Not unto us, O Lord, not unto us, but unto Your name give Glory, for Your mercy, and for Your Truth's sake. Why should the heathen say, Where is now their God? But our God is in the heavens: He has done whatever He has pleased. It was very natural that the heathen should say, "Where is their God? because they had no outward emblem, no visible image, no tangible token&mdash;whereas the heathen had their many gods, such as they were, made of wood and stone, so that they asked, "Where is their God?" I think that when that question is suggested, it is a good sign, for it proves the purity of the faith which has cleansed itself from outward symbolism. May men often have to ask of us, "Where is their
 
 God?"
 
@@ -146,16 +146,16 @@ But I fear that the people of Israel were brought into so low a state, at times,
 
 They that make them are like unto them; so is everyone that trusts in them. They are as doltish and as stupid, as blind and as deaf, and as ridiculous as the gods that they make, for no man was ever better than the god he worshipped!
 
-9-11. O Israel, trust you in the LORD: He is their help and their shield. O house of Aaron, trust in the LORD: He is their help and their shield. You that fear the LORD, trust in the LORD: He is their help and their shield. There is real help in the living Jehovah, real protection in Him.
+9-11. O Israel, trust you in the Lord: He is their help and their shield. O house of Aaron, trust in the Lord: He is their help and their shield. You that fear the Lord, trust in the Lord: He is their help and their shield. There is real help in the living Jehovah, real protection in Him.
 
-The LORD has been mindful of us: He will bless us. There is a New Year's motto for you. It will go back through the old year, and forward into the new one&mdash;"The Lord has been mindful of us: He will bless us." See how mindful He has been of us all through the past year in a thousand ways! Long before we have known our needs, He has supplied them. He has delivered us from dangers of which we never knew and led us into mercies of which we never dreamed!
+The Lord has been mindful of us: He will bless us. There is a New Year's motto for you. It will go back through the old year, and forward into the new one&mdash;"The Lord has been mindful of us: He will bless us." See how mindful He has been of us all through the past year in a thousand ways! Long before we have known our needs, He has supplied them. He has delivered us from dangers of which we never knew and led us into mercies of which we never dreamed!
 
-12, 13. He will bless the house of Israel; He will bless the house of Aaron. He will bless them that fear the LORD, both small and great. Great blessings for small people, and not small blessings for those whom He makes great in Israel.
+12, 13. He will bless the house of Israel; He will bless the house of Aaron. He will bless them that fear the Lord, both small and great. Great blessings for small people, and not small blessings for those whom He makes great in Israel.
 
-14, 15. The LORD shall increase you more and more, you and your children. You are blessed of the LORD which made Heaven and earth. This is the Creator's blessing, therefore a real one. Many of you have had the new creation worked in you&mdash;you shall live to see new heavens and a new earth!
+14, 15. The Lord shall increase you more and more, you and your children. You are blessed of the Lord which made Heaven and earth. This is the Creator's blessing, therefore a real one. Many of you have had the new creation worked in you&mdash;you shall live to see new heavens and a new earth!
 
-The Heaven, even the heavens, are the LORD's: but the earth has He given to the children of men. And they seem as if they meant to keep it, too. The sad thing is that they get the earth into their hearts and so they miss the blessing which the Lord intended them to receive from His gift of it.
+The Heaven, even the heavens, are the Lord's: but the earth has He given to the children of men. And they seem as if they meant to keep it, too. The sad thing is that they get the earth into their hearts and so they miss the blessing which the Lord intended them to receive from His gift of it.
 
-The dead praise not the LORD, neither any that go down into silence. As far as this world is concerned, no note is heard from the grave.
+The dead praise not the Lord, neither any that go down into silence. As far as this world is concerned, no note is heard from the grave.
 
-But we will bless the LORD from this time forth and forevermore. Praise the LORD. So let us do tonight. Let us have an extra Psalm of praise to the Lord who has brought us safely through another year!
+But we will bless the Lord from this time forth and forevermore. Praise the Lord. So let us do tonight. Let us have an extra Psalm of praise to the Lord who has brought us safely through another year!

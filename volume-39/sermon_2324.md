@@ -96,7 +96,7 @@ I do not feel inclined to preach any more, but just to shout, "Hallelujah," agai
 
 My hope is in the precious blood that cleanses from all sin and I have pointed all my hearers to that precious blood! And the day will come when I, with all who believe in Jesus, shall be without fault before the Throne of God! The very thought of it makes me cry, "Hallelujah!" And with that I finish. Hallelujah! Hallelujah! Say "Hallelujah," all of you!  Hallelujah! Hallelujah to God and the Lamb! The Lord bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. REVELATION 14.
+Exposition by C. H. Spurgeon. Revelation 14.
 
 Verse 1. And I looked, and, lo, a Lamb&mdash;John always writes of Jesus as the "Lamb." His Lord is to him in His sacrificial Character, always, "the Lamb of God which takes away the sin of the world" by the shedding of His blood. "I looked, and, lo, a Lamb"&mdash;
 

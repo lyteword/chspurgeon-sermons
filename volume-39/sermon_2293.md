@@ -123,7 +123,7 @@ I seem as if I did not need to see anything else, after having seen Christ as Go
 
 Now, that is not what we do, but still, we would act in the spirit of it. "My eyes have seen Your salvation." People say, "See Naples and die." They mean that it is so lovely that when you have seen it, there is nothing more to see. See Christ, and what else is there to see? Now, whether you sail over the blue sea beneath a bluer sky, or dive into the deeps of this murky atmosphere&mdash;whether you are in a palace or in a dungeon, sick or full of bounding health&mdash;all these are items of small consequence, if your eyes have seen God's salvation, for God has blessed you as only God can bless you! Go and live in peace and go and die in peace&mdash;and praise the name of Him who gave you such a Savior to see, and the power to see Him! The Lord bless you, Beloved! Amen and amen.
 
-EXPOSITION BY C. H. SPURGEON. LUKE2:21-38.
+Exposition by C. H. Spurgeon. Luke2:21-38.
 
 Verse 21. And when eight days were accomplished for the circumcising of the Child, His name was called Jesus, which was so named of the angel before He was conceived in the womb. Although the old Law ends with Christ, it is very instructive to notice that He came under the Law and conformed to all its appointments. Jesus, therefore, had to be circumcised. In Him the Law was fulfilled in every point, even to the jots and tittles&mdash;nothing was omitted. Behold how perfect is the righteousness which He worked out for His people!
 

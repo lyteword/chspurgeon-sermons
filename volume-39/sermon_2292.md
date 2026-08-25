@@ -95,7 +95,7 @@ Saints look for their Home at the end of their pilgrimage. When a man goes on a 
 
 Oh, but I wish you were all going with us! I wish you were all going the way that leads to the city that has foundations. Trust Christ! Trust Christ! He is the Way! Come out from the world. Lead the separated life. Live upon an unseen God and as surely as there is a God in Heaven, you shall be in Heaven in His good time, for He will never leave one Believer outside in the cold! God bless you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. HEBREWS 11:1-21.
+Exposition by C. H. Spurgeon. Hebrews 11:1-21.
 
 This is the triumphal arch of faith. Here we find the names of many of the heroes of faith and a brief record of some of the battles in which they fought and conquered. May you and I possess "like precious faith" as that of which we have here the story! We cannot enter Heaven without it! We cannot fight our way through the world without it.
 

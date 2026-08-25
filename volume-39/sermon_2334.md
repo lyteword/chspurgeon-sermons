@@ -8,7 +8,7 @@ We must not start back at the sight of the service which is required of us. It i
 
 With those two thoughts on your minds, that, being saved, you are servants, and being servants, it is your intense desire to make that word mean all it possibly can mean, follow me while I try to bring out the teaching of the passage before us.
 
-First, WE ARE, ADMITTEDLY, THE SERVANTS OF CHRIST.
+First, WE ARE, ADMITTEDLY, THE SERVANTS OF Christ.
 
 If the word, doulos, is interpreted here, "slave," as it certainly might be, we are quite willing to be known as the bond-slaves of Jesus Christ. Like Paul, we have no objection, even, to be branded with the mark of a slave, and with him we dare to say, "From henceforth let no man trouble me: for I bear in my body the marks of the Lord Jesus."
 
@@ -102,7 +102,7 @@ Do any of you here say, "I am no servant of Christ and I do not want to be one?"
 
 God give me but to have a place where, washed in His blood, I may wear the white garments of an everlasting servitude to Him and He shall have the praise for it, world without end! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE171-10.
+Exposition by C. H. Spurgeon: Luke171-10.
 
 Verse 1. Then said He unto the disciples, It is impossible but that offenses will come. We are so strangely made that even good men do not always agree and there are so many bad men about that they will cast a stumbling block in our way if they can.
 

@@ -68,7 +68,7 @@ And then the test must be boldly put. Daniel showed his faith when he said to Me
 
 Now, in closing, I want to show you that THERE ARE CERTAIN POINTS WHICH WILL HAVE TO BE
 
-PROVED BY EXPERIENCE. I speak, now, to you Christian people who hold fast by the old doctrines of the Gospel, who mean to hold fast by the old ways and will not be led astray by modern temptations. Now what have you to prove?
+PROVED by EXPERIENCE. I speak, now, to you Christian people who hold fast by the old doctrines of the Gospel, who mean to hold fast by the old ways and will not be led astray by modern temptations. Now what have you to prove?
 
 Well, I think that you have to prove that the old faith gives you a bright and cheerful spirit. Really, I cannot help laughing, sometimes, when I see myself as some other people see me. One gentleman describes me as having "settled down into an ever-deepening gloom." It is a curious thing that I was not aware of this at all! You who know me and with whom I mix&mdash;have you noticed this "ever-deepening gloom" falling upon me? Do I preach like a man who has lost all the joy of life and all his comfort? I think not! If there is a happier man beneath the skies than I am, I will not change places with him, for I am perfectly satisfied to take things as they come to me&mdash;and I am glad that he has more to rejoice in than I have! Yet I am sure I do not know what he has that I have not. I have God in Heaven, I have God on earth! My heart is filled with an intense satisfaction in the firm conviction that what I believe is true and that what I preach to you is true! I am ready to stand before the Judgment Seat to give an account of what I have preached! That which I have asked you to believe, I myself believe, and if I am lost with faith in Christ, and you are lost, well, we will both be lost and go down in the same ship, for I have not a little private boat on the davits, ready to be let down, that I may got away by myself! I shall stick to the old ship and be the last man to leave it&mdash;and I shall not leave it&mdash;neither will the ship go down, but it will carry us all safely to the desired haven!
 
@@ -86,7 +86,7 @@ May God bless to many here the words which I have spoken so feebly&mdash;and may
 
 "Dare to be a Daniel! Dare to stand alone! Dare to have a purpose firm! Dare to make it known!"
 
-EXPOSITION BY C. H. SPURGEON. DANIEL 1.
+Exposition by C. H. Spurgeon. Daniel 1.
 
 Verse 1. In the third year of the reign of Jehoiakim king of Judah came Nebuchadnezzar king of Babylon unto Jerusalem, and besieged it. Sin always brings its punishment. King Jehoiakim did evil in the sight of the Lord, so God used Nebuchadnezzar, king of Babylon, to be the rod in His hand to scourge His sinful people and their wicked king.
 

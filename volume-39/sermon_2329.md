@@ -28,7 +28,7 @@ But, once more, when John said to His disciples, "Behold the Lamb of God!" it wa
 
 Thus I have put the text before you pretty simply. Now I want to talk to you a little about beholding this Lamb of God, taking a hasty run through various Scripture references to the lamb. And I will ask you, first, to Behold the Lamb of God in His connections with men. And secondly to Behold the Lamb of God in His benedictions to men.
 
-Let us, first, BEHOLD THE LAMB OF GOD IN HIS CONNECTIONS WITH MEN.
+Let us, first, BEHOLD THE LAMB OF God IN HIS CONNECTIONS WITH MEN.
 
 How was the Lamb of God first seen in the world? It was the case of the lamb for one man, brought by one man for himself, and on his own behalf. You all know that I refer to Abel, who was a shepherd, and brought of the firstlings of his flock, that is, a lamb, and he brought this lamb for himself, and on his own account, that he might be accepted of God, and that he might present to God an offering well-pleasing in His sight. Cain brought of the fruit of the ground as an offering to God. I think that there was a difference in the sacrifice, as well as in the man bringing it, for the Holy Spirit says little about the difference of the man, but He says, "By faith Abel offered unto God a more excellent sacrifice than Cain," and he was accepted because he brought a more excellent sacrifice. The one sacrifice was bloodless, the fruit of the ground&mdash;the other was typical of Christ, the Lamb of God and was, therefore, accepted. "And the Lord had respect unto Abel and to his offering."
 
@@ -56,7 +56,7 @@ If it is possible to think of something more glorious than I have already descri
 
 I think I have given you something to consider if you turn over the pages of Scripture and follow the track of the bleeding Lamb.
 
-But now, taking you again over the same road a little, I want you, in the second place, to BEHOLD THE LAMB OF GOD IN HIS BENEDICTIONS TO MEN.
+But now, taking you again over the same road a little, I want you, in the second place, to BEHOLD THE LAMB OF God IN HIS BENEDICTIONS TO MEN.
 
 The first blessing of all is that of Abel. He was accepted of God. He offered a more acceptable sacrifice than Cain. Well now, let anybody here who does not know it, try to learn this lesson tonight. You can only be "accepted in the Beloved." God loves His Son with such an overflowing love that He has love enough for you, love enough for me&mdash;if we are in Christ Jesus. He is the great conduit or channel of God's love and that love flows through all the pipes to every soul that believes in Jesus. Hide behind your Lord and you are safe! Trust His name, living and dying, and nothing can harm you. How many dear hearts, when passing through the Valley of the Shadow of Death&mdash;when grim thoughts have clustered about them&mdash;have been cheered and comforted by the thought of Christ! Remember the monk who, as he died, put away the priest, the crucifix and everything else, and cried, "Tua vulnera, Jesu! Tua vulnera, Jesu!" "Your wounds, Jesus! Your wounds, Jesus!" I am not saved by what I can do, but by what He has done&mdash;not by what I have suffered, but by what He has endured. There hangs our everlasting hope&mdash;we trust to Christ in life and in death and we are accepted for His sake! Come, every sinner, bring the Lamb of God! Put Him on the altar and you shall be accepted at once, and you may at once begin to praise the name of the Lord!
 
@@ -92,7 +92,7 @@ I would to God that you had all beheld Him, and I pray you to behold Him tonight
 
 Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 1:1-37.
+Exposition by C. H. Spurgeon: John 1:1-37.
 
 John is the majestic Evangelist. He is the high-soaring eagle with piercing eyes. His is the Gospel of the Son of God!
 
