@@ -70,6 +70,6 @@ We are to preach to you first because, when you have received him, you will prai
 
 Thus have I tried to expound "Beginning at Jerusalem," O that my Lord would begin with you. Amen.
 
-PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;MATTHEW 28.
+PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Matthew 28.
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;486, 537.
