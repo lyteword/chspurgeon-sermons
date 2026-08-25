@@ -55,7 +55,7 @@ Can the hart in the wilderness cease from panting for the water brooks? Can a si
 
 Brethren, will you look at yourselves, and at your own experience this morning, and see if you ever were brought down to the spot where Judah and his brothers stood? For I fear we have never been brought rightly unless we have been brought here. He that was never condemned, I think, was never forgiven. He who never confessed his guilt cannot have had a pardon. And if we have never trembled before Jesus the Judge, we can never have rejoiced before Jesus the elder Brother.
 
-We turn, however, now to remark that THE SINGULARLY ROUGH BEHAVIOR OF JOSEPH IS a NOTABLE REPRESENTATION OF THE WAY IN WHICH CHRIST DEALS WITH SOULS UNDER CONVICTION OF SIN.
+We turn, however, now to remark that THE SINGULARLY ROUGH BEHAVIOR OF JOSEPH IS a NOTABLE REPRESENTATION OF THE WAY IN WHICH Christ DEALS WITH SOULS UNDER CONVICTION OF SIN.
 
 Joseph always was their brother, always loved them, had a heart full of compassion for them, even when he called them spies. Kind words were often hastening to his lips, yet for their good he showed himself to be as a stranger and even as an enemy, so that he might bring them very low and prostrate before the throne.
 
@@ -91,7 +91,7 @@ Let us remember, then, if we are today guilty and moaning our guiltiness&mdash;w
 
 I now come to the last point, and here may God be pleased to let light break in upon darkened souls. JOSEPH
 
-AFTERWARDS REVEALED HIMSELF TO HIS BROTHERS, AND SO THE LORD JESUS DOES IN DUE TIME
+AFTERWARDS REVEALED HIMSELF TO HIS BROTHERS, AND SO THE Lord Jesus DOES IN DUE TIME
 
 SWEETLY REVEAL HIMSELF TO POOR CONSCIENCE-STRICKEN PENITENT SINNERS.
 

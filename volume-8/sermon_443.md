@@ -73,7 +73,7 @@ You frequently meet with the observation, if a man is successful in winning soul
 
 So far, then, there is a likeness running through the whole. Means must be used&mdash;means alone, unavailing&mdash;Christ's Presence gives the success. That success develops human weakness and leads to the exclamation&mdash;"It is the Lord."
 
-Having, then, shown the likeness, you will be still more interested in REMARKING THE DISSIMILARITY.
+Having, then, shown the likeness, you will be still more interested in REMarkING THE DISSIMILARITY.
 
 Allow us to say in the commencement, that we think the first picture represents the Church of God as we see it. The second represents it as it really is. The first pictures to us, the visible, the second the invisible. Luke tells us what the crowd see. John tells us what Christ showed to His disciples, alone. The first is common truth which the multitude may receive, the next is special mystery revealed only to spiritual minds. Observe, then, carefully, the points of divergence.
 

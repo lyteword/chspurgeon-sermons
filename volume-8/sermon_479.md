@@ -29,7 +29,7 @@ And I shall say here, that this sympathy is sure to be a great blessing to yours
 
 Thus have I said as much as may be fitting this morning in commendation of Christian sympathy.
 
-We speak now of THE HINDRANCES TO CHRISTIAN SYMPATHY.
+We speak now of THE HINDRANCES TO ChristIAN SYMPATHY.
 
 Some say that there is very little Christian sympathy abroad. I do not believe them, except as regards themselves. I dare say they have measured other men's corn with their own bushels. When any say, "O, there is no love in the Church," I have always noticed that, without exception, they have no love themselves. On the other hand, we have heard others say, "What a blessed unity there is in the Church; when we come to the Tabernacle it does us good to get such hearty shakes of the hand, and to see such love in every brother's eye." When they speak thus, I know the reason is that they carry fire in their own hearts, and then they think the Church warm, while the others carry lumps of ice in their hearts, and then they imagine that everybody must be cold.
 
@@ -41,7 +41,7 @@ Much want of sympathy is produced by our ignorance of one another. We do not kno
 
 No doubt the abounding deception which exists among those who seek our help has checked much liberality. I think I can tell the moment a man opens his mouth to address me, when a man wants to beg of me. There is such a particular whine and a sanctified unction, that the moment you hear it, you think, "I will give that man nothing; he is an old established beggar, and gets his living by it." Seeing, as I have done, not scores, but hundreds of these beings, there is a tendency to get one's heart hard and callous, and to say "Oh! they are all deceivers." But they are not all such; there is a vast amount of real distress of a private character, a suffering which will not cry nor moan; and I take it that it ought to be your business and mine to seek out these cases; not to stop till they come to us, but to go to them, avoiding ever, with a stern discretion, those ill cases which do but prey upon Christian charity, but seeking out the genuine sufferers, and giving them relief. Let none of these things, great obstacles though they be, hinder your sympathy to-day, for none of them exist in the case which we shall have to plead this morning.
 
-A few minutes upon THE FRUITS OF CHRISTIAN SYMPATHY.
+A few minutes upon THE FRUITS OF ChristIAN SYMPATHY.
 
 The fruit of Christian sympathy will be seen in a kindly association with all Christians: we shall not shun them nor pass them by.
 

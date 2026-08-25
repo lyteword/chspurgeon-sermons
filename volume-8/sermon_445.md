@@ -87,7 +87,7 @@ After sowing and decay, comes a springing up and the farmer soon perceives, in a
 
 Dear Friends, if such is death&mdash;if it is but a sowing, let us have done with all faithless, hopeless, graceless sorrow. "The granary is empty," says the farmer. Yes, but he does not sigh over it. For the seed is put into the ground, in order that the granary may be filled again. "Our family circle has been broken," you say. Yes, but only broken that it may be formed again. You have lost a dear friend&mdash;yes, but only lost that friend that you may find him again, and find more than you lost. They are not lost. They are sown. And as "light is sown for the righteous," so are the righteous sown for light. The stars are setting here to rise in other skies to set no more. We are quenched like torches only to be lit once more with all the brilliance of the sun.
 
-We will not tarry longer on this point but rapidly carry you to the second&mdash;THE CONNECTION BETWEEN THE RESURRECTION OF CHRIST AND THAT OF BELIEVERS.
+We will not tarry longer on this point but rapidly carry you to the second&mdash;THE CONNECTION BETWEEN THE RESURRECTION OF Christ AND THAT OF BELIEVERS.
 
 The text tells us that Christ is "the first fruits of them that slept." Some professors take very great delight in the hope that they may be "alive and remain," at the coming of Christ and so may never die. I confess I greatly rejoice in the hope that Christ will come. But the prospect of never dying has no sort of charms for me, for methinks those who never die lose a great privilege. At least, to our comprehension it seems so, for Christ is "the first fruits of them that slept." Oh, then, it is a blessed thing to sleep, that Christ may be to us in the relationship of first fruits. They who never die can hardly know so much of fellowship with Christ in His death as those who fall asleep in Jesus.
 
@@ -115,7 +115,7 @@ He was, again, the first fruits, not only as a pledge but as the representative 
 
 Triumph, you children of God, triumph in this. You are risen in Christ today! We see not the saints as yet ascended&mdash; rather, we see their bones dried in the valley, and we ask, "Can these dry bones live?" But we see Jesus, who was made a little lower than the angels for the suffering of death. And we know that He is risen, and sits at the right hand of the Father! And by faith we perceive that as our Covenant Head He has raised us up together and made us sit together in heavenly places even in Him&mdash;for He is the Head over all things to His Church, which is His Body, the fullness of Him that fills all in all. Never doubt, Believer, of your resurrection, since the second Adam was loosed from the bands of the tomb.
 
-And now, lastly, we will close by noticing THE INFLUENCE OF THE WHOLE DOCTRINE OF THE RESURRECTION AND CHRIST's CONNECTION WITH IT UPON OUR OWN SPIRITS.
+And now, lastly, we will close by noticing THE INFLUENCE OF THE WHOLE DOCTRINE OF THE RESURRECTION AND Christ's CONNECTION WITH IT UPON OUR OWN SPIRITS.
 
 First, let us look well to the holiness of our bodies. "Know you not that your bodies are the temples of the Holy Spirit? If any man defile the temple of God, him will God destroy." We do not believe in consecrated Churches. We think it altogether absurd to talk of holy bricks and mortar. But we do know by Scriptural authority that the body is holy&mdash;that the body of the saint is as really holy as men pretend that Churches and temples may be.
 

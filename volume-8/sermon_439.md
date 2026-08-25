@@ -57,7 +57,7 @@ What would you say to your child if he were sitting down at the table crying. "W
 
 "The clouds you so much dread, Are big with mercies and shal break With blessings on your head. Judge not the Lord by feeble sense, But trust Him for His Grace. Behind a frowning Providence He hides a smiling face."
 
-But I must now, while my strength shall hold out, proceed to the second part of the discourse, namely, HOW WAS IT THAT DAVID CAME TO THINK THUS OF HIS GOD?
+But I must now, while my strength shall hold out, proceed to the second part of the discourse, namely, HOW WAS IT THAT DAVID CAME TO THINK THUS OF HIS God?
 
 The first answer I give is, because he was a man. The best of men are men at the best, and man at the best is such a creature that well might David himself say, "Lord, what is man?" If we always performed feats of faith, onlookers might imagine that we were demi-gods. In truth, I say that the feats which a man of faith can do, are only surpassed by the doings of the Almighty One Himself. Next to omnipotence is faith. No, not next to it in some respects, for faith can do all that omnipotence can, when God makes it strong.
 

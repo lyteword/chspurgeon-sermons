@@ -13,7 +13,7 @@ How necessary then&mdash;in what a tenfold degree is it absolutely necessary tha
 
 I would try, this morning to explain the text, understanding it in two senses. First, some reader might think it means obtaining the promises in themselves. Perhaps, a more thoughtful reader would perceive that it may be better understood as obtaining the fulfillment of the promises. The phrase means certainly both, but we think that the mind of the Spirit is most fully expressed by the second sense.
 
-It is certain that holy men of old, and that good men now, do BY FAITH, OBTAIN PROMISES.
+It is certain that holy men of old, and that good men now, do by FAITH, OBTAIN PROMISES.
 
 Let us give you an instance&mdash;the memorable case of Abraham. Abraham is bid by God to offer up his son Isaac. He was already an heir of the promises, but not as yet had they been revealed to him in their utmost length and breadth. Obedient to the Divine command, Abraham prepares to offer up his son Isaac, his only son, on whom his hope of posterity depended, counting that God was able either of stones to raise up children, or to raise up Isaac again from the dead. He unsheathes the knife to slay his son.
 

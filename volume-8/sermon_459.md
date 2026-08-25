@@ -101,7 +101,7 @@ And whereas before he thought Christ sweet, now he knows He is! Where he once co
 
 And he can cry out with Rutherford, "Black heavens, black moon, black sun! But fair, fair, incomparably fair Lord Jesus!" He can now tread everything beneath his feet as he would a dead and corrupt thing. But his soul cries, "Jesus! Jesus! Jesus! You are brighter, fairer and more lovely to me than ever You were before!" God give us Grace that we may understand and know&mdash;experimentally&mdash;-what it is to taste that the Lord is gracious.
 
-MEN WHO HAVE THUS TASTED OF CHRIST HAVE SPECIAL SINS TO AVOID AND OBJECTS TO DESIRE.
+MEN WHO HAVE THUS TASTED OF Christ HAVE SPECIAL SINS TO AVOID AND OBJECTS TO DESIRE.
 
 We first dwell upon evils to be avoided. Malice. "Revenge is sweet," is the proverb of the Italians and many an Englishman has half learned it, if not wholly. "Revenge is sweet." But not to the man who has tasted Christ, for he says, "How can I have vengeance upon my fellow, when Christ has put away my sin?" Now, forgiveness is sweet and he loathes malice and turns aside from it as from venom itself.
 

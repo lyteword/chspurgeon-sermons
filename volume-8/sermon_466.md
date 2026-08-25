@@ -19,7 +19,7 @@ Now, it is to be understood, dear Friends, before we proceed farther, that our t
 
 Just, then, as a cart has the axles bent and&mdash;to use an old Saxon word&mdash;as the wheels "screak" under the excessive load, so the Lord says that under the load of human guilt He is pressed down, until He cries out, because He can bear no longer the iniquity of those that offend Him. We shall now turn to the first point, this morning. O that the Holy Spirit may make it pointed to our consciences!
 
-The first and most apparent truth in the text is, that SIN IS VERY GRIEVOUS AND BURDENSOME TO GOD.
+The first and most apparent truth in the text is, that SIN IS VERY GRIEVOUS AND BURDENSOME TO God.
 
 Be astonished, O heavens and be amazed, O earth, that God should speak of being pressed and weighed down! I do not read anywhere so much as half a suggestion that the whole burden of creation is any weight to the Host High. "He takes up the isles as a very little thing." "He weighs the mountains in scales and the hills in balances." Neither sun, nor moon, nor stars, nor all the ponderous orbs which His Omnipotence has created, cost Him any labor whatever in their sustenance. The heathens might picture Atlas as stooping beneath the tremendous load of the world&mdash;but the eternal God, who bears up the pillars of the universe, "faints not, neither is He weary."
 
@@ -57,7 +57,7 @@ We, in England, sin against extraordinary light and sevenfold knowledge. And is 
 
 This is our first point but I cannot teach it to you. Only God can teach it by His Spirit. O that the Holy Spirit may make you feel that sin is exceedingly sinful, because it is grievous and burdensome to God.
 
-Secondly, SOME SINS ARE MORE ESPECIALLY GRIEVOUS TO GOD. The connection of our text will help you to see the force of this observation. There is no such thing as a little sin, but still, there are degrees of guilt, and it were folly to say that a sinful thought has in it the same extent of evil as a sinful act. A filthy imagination is sinful&mdash; wholly sinful and greatly sinful&mdash;but still the act has attained a higher degree of provocation.
+Secondly, SOME SINS ARE MORE ESPECIALLY GRIEVOUS TO God. The connection of our text will help you to see the force of this observation. There is no such thing as a little sin, but still, there are degrees of guilt, and it were folly to say that a sinful thought has in it the same extent of evil as a sinful act. A filthy imagination is sinful&mdash; wholly sinful and greatly sinful&mdash;but still the act has attained a higher degree of provocation.
 
 Now, there are sins that especially provoke God. In the connection of the text we read that licentiousness does this. The people seem, from the seventh verse, to have gone to a very high degree of fornication and lecherousness. This sin is not uncommon in our day. Let our midnight streets and our divorce courts be the witness. Perhaps the saddest proof that society is far from pure is found in the fact that seducers and fornicators, if they are but gentlemen, may enter respectable society. Brand the miscreants, I say. If the woman is shut out as a harlot, what shall be done unto the lustful maker and cherisher of harlots? If Hell burns hotter at one time than another, it is for those who make what should have been a temple of the Holy Spirit into an instrument of rebellion against both man and God.
 
@@ -105,7 +105,7 @@ Now you say "Let him feel what you can do. Let the law have its way with him." I
 
 And this brings me now to pass over to the fourth head, on which I would have your deepest attention. Many here present, I fear, have never repented of sin. You have never seen it in the light of grieving God, or else methinks you would not wish to grieve Him. But, perhaps some of you feel how evil a thing rebellion is, but you want to know how you can get rid of it.
 
-This is our fourth head. Not only does God still bear with sin, but GOD, IN THE PERSON OF HIS SON, DID
+This is our fourth head. Not only does God still bear with sin, but God, IN THE PERSON OF HIS SON, DID
 
 BEAR AND TAKE AWAY SIN. These words might have deep meaning if uttered by the lips of Jesus, "I am pressed under you, as a cart is pressed that is full of sheaves." Here stood the great problem. God must punish sin, and yet He would have mercy. How could it be? Lo! Jesus comes to be the Substitute far all who trust Him. See how they pile on Him the sheaves of human sin! There are MY sheaves of sin&mdash;
 
