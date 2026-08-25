@@ -2,17 +2,17 @@
 
 "And the donkeys of KKish, Saul's father, were lost. And Kish said to Saul, his son, Take now one of the servants with you, and arise, go seek the donkeys...And as for your donkeys that were lost three days ago, set not your mind on them; for they are found. And on whom is all the desire ofIsrael? Is it not on you, and on all your fathers house?" 1 Samuel 9:3,20.
 
-SAUL went out to seek his father's donkeys. He failed in the search, but he found a crown. He met with the Prophet Samuel, who anointed him king over God's people, Israel, and this was far better than finding the obstinate colts. Let us consider this amazing incident. Perhaps, though it treats of donkeys, it may yield us some royal thoughts.
+Saul went out to seek his father's donkeys. He failed in the search, but he found a crown. He met with the Prophet Samuel, who anointed him king over God's people, Israel, and this was far better than finding the obstinate colts. Let us consider this amazing incident. Perhaps, though it treats of donkeys, it may yield us some royal thoughts.
 
-Our first remark shall be&mdash;OBSERVE HOW THE HAND OF God's PROVIDENCE CAUSES LITTLE THINGS TO LEAD ON TO GREAT MATTERS.
+Our first remark shall be&mdash;observe how the hand of God's Providence causes little things to lead on to great matters.
 
 This man Saul must be placed in the way of the Prophet Samuel. How shall a meeting be brought about? Poor beasts of burden shall be the intermediate means! The donkeys go astray and Saul's father bids him take a servant and go seek them. In the course of their wanderings, the animals might have gone North, South, East or West&mdash;for who shall account for the wild will of runaway donkeys? But so it happened, as men say, that they strayed, or were thought to have strayed, in such a direction that, by-and-by, Saul found himself near to Ramah, where Samuel, the Prophet, was ready to anoint him. On how small an incident the greatest results may hinge! The pivots of history are microscopic.
 
 Hence, it is most important for us to learn that the smallest trifles are as much arranged by the God of Providence as the most startling events. He who counts the stars has also numbered the hairs of our heads. Our lives and deaths are predestined, but so, also, are our sitting down and our rising up. Had we but sufficiently powerful perceptive faculties, we would see God's hand as clearly in each stone of our pathway as in the revolution of the earth. In watching our own lives, we may plainly see that on many occasions the merest grain has turned the scale. Whereas there seemed to be but a hair's-breadth between one course of action and another, yet that hair's-breadth has sufficed to direct the current of our life! "He," says Flavel, "who will observe Providences shall never be long without a Providence to observe." Providence may be seen as the finger of God, not merely in those events which shake nations and are duly emblazoned on the pages of history, but in little incidents of common life&mdash;yes, in the motion of a grain of dust, the trembling of a dewdrop, the flight of a swallow or the leaping of a fish!
 
-But that is not the consideration to which we now invite you. Our drift is this&mdash;as Saul went out to find donkeys, but found a crown, so, IN THE MATTER OF GRACE, MANY a MAN HAS RECEIVED WHAT HE LOOKED NOT
+But that is not the consideration to which we now invite you. Our drift is this&mdash;as Saul went out to find donkeys, but found a crown, so, in the matter of Grace, many a man has received what he looked not
 
-FOR.
+for.
 
 That is a remarkable text in Isaiah&mdash;"I am found of them that sought Me not." Sometimes the Sovereign Grace of God is pleased to light on persons who had no thought about it&mdash;who were, to all appearance, quite unprepared for it&mdash;no, even opposed to its Divine operations. These persons have stumbled on the treasures hid in the field when they were only thinking of their plow. They have met Jesus at the well when they only purposed to fill their water pots. They have heard glad tidings of the Savior when they were only caring for their flocks.
 
@@ -38,7 +38,7 @@ I remember quite well, and the subject of the story is most probably present in 
 
 These cases are not at all uncommon. They were not unusual in the days of Whitefield and Wesley. They tell us, in their Journals, of persons who came with stones in their pockets to throw at the Methodists, but whose enmity was slain by a stone from the sling of the Son of David. Others came to create disturbances, but a disturbance was created in their hearts which could never be quelled till they came to Jesus Christ and found peace in Him! The history of the Church of God is studded with the remarkable conversions of persons who did not wish to be converted, were not looking for Grace and were even opposed to it! And yet, by the interposing arm of Eternal Mercy, were struck down and transformed into earnest and devoted followers of the Lamb!
 
-That fact being established, we may now range our thoughts around the question. WHAT SHALL WE SAY ABOUT IT?
+That fact being established, we may now range our thoughts around the question. What shall we say about it?
 
 What shall we say about these acts of Sovereign Preventing Grace? Why, first, we will say, behold the freeness of the Grace of God. It is like the dew that comes on the earth which stays not for man, neither waits for the sons of men. It is like the sunbeam shining into the hovel and finding its way through grimy windowpanes, more calculated to shut it out than to admit it! It is like the wind which whistles among the ropes, whether the mariners desire it or not. God will have mercy on whom He will have mercy! He will have compassion on whom He will have compassion&mdash;not because of any goodness in the sinner, or because of any preparedness in the creature&mdash;but simply because He wills it, He visits men with salvation! He is so able to work salvation that He waits not for any contributory arm, but when the creature is most dead and most corrupt&mdash;then comes in the quickening Grace of God and gets to itself all the Glory of salvation!
 
@@ -52,9 +52,9 @@ What else shall we say about this Doctrine? There is one other thing we will say
 
 There is one living in your parish, a swearer, and everything that is bad. You did once think of asking him to come and hear the Gospel, but you said, "It is of no use&mdash;he will be sure to turn it into ridicule." How do you know? It is the very boast of Grace that it shines into the unlikeliest hearts! God's electing love has, in many cases, selected great fools and great sinners. At least I know that God's people think themselves such. I have said never despair of your child, and I will put it to you again&mdash;if you have friends who are infidel, or persecuting, or profane, yet, as long as you live and they live, it is your business to labor for their conversion and to weep and pray for them! O Brothers and Sisters, if the lives of some of us before conversion had been known, good men might have denied the possibility of our salvation! If all the secrets of our hearts had been written, some would have said, "This is a hopeless case." But mercy saved us and, therefore, it can save anybody Never say of any place, "It is such a den of iniquity I can do no good there." Never say, "That workshop is so profane I could not speak of religion there." Oh, you do not know&mdash;you do not know! With God at your back, if it were possible to save the damned in Hell, you might go and preach there and win trophies for Christ! Never think any too bad or too vile, but labor on, for God can work wonders in every case.
 
-We will close when we have noticed, with great brevity, WHAT WE OUGHT NOT TO SAY ABOUT THESE
+We will close when we have noticed, with great brevity, what we ought not to say about these
 
-THINGS.
+things.
 
 We have told you what we should say about these remarkable conversions&mdash;we should behold the freeness and sovereignty of the Grace of God. We should be encouraged to seek it for ourselves and we should hope for the conversion
 
