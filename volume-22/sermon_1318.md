@@ -104,7 +104,7 @@ So does Faith, by its blessed expectation of the future, make the troubles of th
 
 But my time has gone sooner than I desired and, therefore, I must close by noticing, in the third place, HOW
 
-THE LORD JESUS CHRIST ANSWERED THE PRAYER FOR INCREASED FAITH. He did it in two ways. First, by
+THE Lord Jesus Christ ANSWERED THE PRAYER FOR INCREASED FAITH. He did it in two ways. First, by
 
 assuring them that faith can do anything. The Lord said, "If you had faith as a grain of mustard seed, you might say unto this sycamore tree, be you plucked up by the root and be you planted in the sea, and it should obey you." I think He meant that to be understood as a proverbial expression, to signify that faith can accomplish anything.
 
