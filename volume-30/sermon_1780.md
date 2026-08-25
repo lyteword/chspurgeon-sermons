@@ -24,7 +24,7 @@ All this is symbolic of the work of the Lord Jesus and the manifold effects of H
 
 ing." This displays the influence of the blood of Christ on all our service for the Lord. Oh, for the Spirit's power to us to show the things of Christ!
 
-We begin with THE SACRIFICE OF CHRIST IN ITS RELATION TO THE LORD GOD OF ISRAEL.
+We begin with THE SACRIFICE OF Christ IN ITS RELATION TO THE Lord God OF ISRAEL.
 
 In the type before us the prominent thing before God is the blood of atonement. No mention is made of a meat offering, or a drink offering, or even of sweet spices upon the golden altar&mdash;the one conspicuous object is blood. This was sprinkled before the Lord before the veil of the Most Holy place. I am well aware that some persons cry out, "The preacher continually talks about blood and, this morning, from the first hymn to the last, he has brought before us constant allusions to blood. We are horrified by it!" I wish you to be horrified for, indeed, sin is a thing to shudder at&mdash;and the death of Jesus is not a matter to be treated lightly! It was God's intent to awaken in man a great disgust of sin by making him see that it could only be put away by suffering and death.
 

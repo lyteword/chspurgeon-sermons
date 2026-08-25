@@ -1,6 +1,6 @@
 # Sermon 1772 | Slaying the Sacrifice
 
-"And he shall kill the bullock before the LORD." Leviticus 1:5.
+"And he shall kill the bullock before the Lord." Leviticus 1:5.
 
 
 You will find this order continually repeated whenever a sacrifice is spoken of. As I said on the last occasion, I feel great satisfaction, in this time of my weakness, in being permitted to speak to you about essential things. It was always a stigma upon the character of Caligula that he gathered his warriors, fitted out his ships and, when the people of Rome looked for some great addition to the empire by the vast naval expedition, he simply anchored his vessels near the beach and bade his legions advance upon the shore and gather shells and pebbles&mdash;and carry them home as trophies of their undisputed conquest. He trifled where he should have struggled. He spent time and labor upon matters of no importance and neglected the weighty business of his kingdom.
