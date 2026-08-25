@@ -12,7 +12,7 @@ The Lord works gloriously by agents and events small and despised. God, by openi
 
 Our subject at this time shall be the opening of eyes, taking rather a wide range, because it is a wide subject, and hoping that both to those who see and to those who cannot see, there may come a gracious opening of the spiritual eye.
 
-Our first head shall be that IF OUR EYES WERE FURTHER OPENED, THE RESULT TO ANY ONE OF US WOULD BE VERY REMARKABLE. We are at present limited in our range of sight. This is true of our natural or physical vision, of our mental vision and of our spiritual vision. And in each case, when the range of sight is enlarged, very remarkable discoveries are made. God has been pleased to open the natural eyes of mankind by the invention of optical instruments. What a discovery it was when, first of all, certain pieces of glass were arranged in connection with each other and men began to peer into the stars!
+Our first head shall be that IF OUR EYES WERE FURTHER OPENED, THE RESULT TO ANY ONE OF US WOULD BE VERY REMarkABLE. We are at present limited in our range of sight. This is true of our natural or physical vision, of our mental vision and of our spiritual vision. And in each case, when the range of sight is enlarged, very remarkable discoveries are made. God has been pleased to open the natural eyes of mankind by the invention of optical instruments. What a discovery it was when, first of all, certain pieces of glass were arranged in connection with each other and men began to peer into the stars!
 
 What a change has come over the knowledge of our race by the invention of the telescope! How much of truly devout, adoring thought and of deep, intense, unutterable reverence has been born into the world by the Lord's having, in this sense, opened men's eyes! When he turned his telescope upon the nebulae and discovered that these were innumerable stars, what a hymn of praise must have burst from the reverent astronomer's heart! How infinite You are, most glorious Lord! What wonders have You created! Let Your name be had in reverence forever and ever!
 
@@ -104,12 +104,12 @@ Yes, in less than it takes the moon to fill her horns you shall be where the Lor
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Genesis 21:1-21. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;852, 785.
 
-Eyes Opened LETTER FROM MR. SPURGEON:
+Eyes Opened LETTER FROM MR. Spurgeon:
 
 TO MY FRIENDS IN ENGLAND,
 
 Until yesterday the weather here has been so unsettled that it was not favorable to my complaint, but now I hope it has taken a turn for the better and will be more suitable for rheumatic joints. It has taken me six weeks to get rid of the disease and now I hope to spend the rest of my sojourn here in gathering strength. If it may please God to permit me to return in full vigor to my delightful work, I shall indeed rejoice! Till then be so good as to maintain by your prayers and liberality the good works over which I have so long presided, so that there may be no lack. College, Orphanage, Colportage and Evangelists are all work and must not be forgotten. May the Lord's own blessing rest on them all.
 
-Yours heartily, C. H. SPURGEON,
+Yours heartily, C. H. Spurgeon,
 
 Mentone, February 28, 1879

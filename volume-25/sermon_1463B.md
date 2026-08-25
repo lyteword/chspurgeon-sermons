@@ -86,10 +86,10 @@ Yield yourself up, you icicle! Yield to the sun and it will melt you. Yield your
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Malachi 3, 4. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;795, 799, 19.
 
-LETTER FROM MR. SPURGEON:
+LETTER FROM MR. Spurgeon:
 
 DEAR FRIENDS&mdash;Although I am still weak upon my knees, I am so greatly refreshed in spirit that I feel able to return to preach on Sunday, April 13. Glad tidings of the Lord's work at home have greatly cheered me and I am also rejoiced that most of the work committed to me has prospered during my absence. This is a great point gained, for now all will know that the work is a living one and does not depend upon personal oversight. I heartily thank all the workers and givers, and most of all our gracious God who has kept them faithful. Right glad shall I be to see the beloved Tabernacle people again. I beg to be daily remembered in prayer and I am Yours to serve,
 
-H. SPURGEON
+H. Spurgeon
 
 Mentone, March 14, 1879

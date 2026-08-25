@@ -116,12 +116,12 @@ If you are nothing. If you are clean emptied out and stripped and done for, grou
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;2 Corinthians 11:13-33; 12:1-12. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;625, 627.
 
-LETTER FROM MR. SPURGEON:
+LETTER FROM MR. Spurgeon:
 
 BELOVED FRIENDS&mdash;Yesterday I was gladdened by a telegram from our well-beloved deacon, Mr. Murrell. "All going well. Tabernacle crowded each service. All friends united and hearty, expecting great results this February." This was more precious to me than a banknote for a large amount! I have no greater joy than to hear that the Lord blesses the work at home. For myself, as you desire to hear frequently of my welfare, I can only say that the weather here is variable and I have varied with it, but yet I am greatly refreshed and in a fair way to recover strength. I still lean heavily upon my staff and can only totter a short distance, but my spirits are revived and my mind is regaining its tone. Pray for me daily, as I also do for you with all my heart.
 
 Your loving friend,
 
-H. SPURGEON
+H. Spurgeon
 
 Mentone, February 11, 1879

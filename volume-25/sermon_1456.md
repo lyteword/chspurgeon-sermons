@@ -6,7 +6,7 @@ WONDERFUL is the power of faith. In the Epistle to the Hebrews our Apostle tells
 
 Now, faith brings to the soul, according to the text, two blessings. It is not the creator of these things, but the conveyance, the channel, the conduit pipe through which these favors come to us. First, it brings us a state of peace&mdash; "being justified by faith." And, secondly, it bring us a sense of peace&mdash;"we have peace with God through our Lord Jesus Christ."
 
-Our first thoughts shall be about that most important of all matters&mdash;a STATE OF PEACE WITH GOD. In our natural state we have no peace. God is angry with us because we are sinful and we are at variance with God because He is holy. God cannot agree with us&mdash;"Can two walk together except they are agreed?" And we cannot agree with God, for "the carnal mind is enmity against God: for it is not subject to the Law of God, neither indeed can be." There is a breach between the rebellious creature and the righteous Creator. Sad that it should be so, but such is the case by nature with every man that is born of woman. We are set against the Lord. We kick against His Providence, we rebel against His commands, we resist His Holy Spirit, we reject His love as manifested in the death of Christ and we would live and die in this hostility if it were not for His almighty Grace.
+Our first thoughts shall be about that most important of all matters&mdash;a STATE OF PEACE WITH God. In our natural state we have no peace. God is angry with us because we are sinful and we are at variance with God because He is holy. God cannot agree with us&mdash;"Can two walk together except they are agreed?" And we cannot agree with God, for "the carnal mind is enmity against God: for it is not subject to the Law of God, neither indeed can be." There is a breach between the rebellious creature and the righteous Creator. Sad that it should be so, but such is the case by nature with every man that is born of woman. We are set against the Lord. We kick against His Providence, we rebel against His commands, we resist His Holy Spirit, we reject His love as manifested in the death of Christ and we would live and die in this hostility if it were not for His almighty Grace.
 
 Before we can enjoy peace within our hearts there must be a state of peace established between us and God. We must submit ourselves to the Lord and He must forgive the past and make with us a Covenant of peace, or else there is no peace for us. "There is no peace, says my God, unto the wicked." Let me briefly explain to you the way in which we come to possess peace with God. We are condemned criminals, though we do not consider ourselves to be in such a critical condition. We persist that we are righteous! We decline to acknowledge the jurisdiction of God's Law and we refuse to acknowledge the justice of its sentence. Therefore, before we can have peace with God we must be brought into court, hear the indictment against us and be put on our trial.
 
@@ -120,7 +120,7 @@ The life within us is Divine, for we have been begotten again by Himself and, fr
 
 PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Romans 5. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;775, 397, 708.
 
-LETTER FROM MR. SPURGEON:
+LETTER FROM MR. Spurgeon:
 
 DEAR FRIENDS&mdash;The sermon is so long that only a line or so is left for me. I will say the less of myself. The warm sunny days which I have spent in this retreat are, by God's blessing, bringing back to me health and strength. I shall be happy, indeed, if my mental and spiritual vigor should also be renewed by the removal of the daily care which pressed upon me. If it is so, my hearers shall be the gainers, for all my strength has been and always shall be laid out in my ministry.
 
@@ -128,4 +128,4 @@ I am right glad to hear that special services are commencing at the Tabernacle a
 
 We long to see souls saved&mdash;do we not? My heart cannot be content while men are being lost! I cannot be among the crowds to preach, but my inmost soul prays for those who are indulged with that privilege and for you, also, who have the joy of helping in the work of the Lord. I am bound to thank those generous friends who continue to send aid to the various works under my care&mdash;the Lord reward them.
 
-To each and all my hearers and readers I send my hearty Christian salutations, C H. SPURGEON MENTONE
+To each and all my hearers and readers I send my hearty Christian salutations, C H. Spurgeon MENTONE

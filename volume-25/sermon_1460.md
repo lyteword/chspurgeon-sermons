@@ -8,7 +8,7 @@ Our God has taught us more and given us to understand more clearly, for His Holy
 
 We cannot attempt to explain the deep mysteries of our text, but rather, as the swallow touches the brook with his wing and is away again, we will glance at these crystal waters of this sacred Truth of God and then up and away! The text teaches us, first, what Christ must be to us. We shall consider, secondly, what is bound up in this. And, thirdly, what reflections naturally arise out of it.
 
-WHAT CHRIST MUST BE TO US. The answer from the text is, He must be our meat and drink. He must be everything to us&mdash;the one thing necessary, the indispensable, necessary all-sufficient supply. He must be the source of strength, the support of life and we must feel Him to be so. He must, to come back to the figure, be meat and drink to us. Our Lord, in speaking to the Jews, was doubtless thinking of the Paschal Lamb and of the time when Israel came out of Egypt&mdash;when they not only had the blood of the lamb sprinkled upon their houses for their security, but the lamb, itself, within them as their sustenance.
+WHAT Christ MUST BE TO US. The answer from the text is, He must be our meat and drink. He must be everything to us&mdash;the one thing necessary, the indispensable, necessary all-sufficient supply. He must be the source of strength, the support of life and we must feel Him to be so. He must, to come back to the figure, be meat and drink to us. Our Lord, in speaking to the Jews, was doubtless thinking of the Paschal Lamb and of the time when Israel came out of Egypt&mdash;when they not only had the blood of the lamb sprinkled upon their houses for their security, but the lamb, itself, within them as their sustenance.
 
 They sat down to feed upon it before they enjoyed the fullness of redemption by passing out of Egypt from under the bondage of Pharaoh. They did not understand that symbol and they little knew what our great Lord and Master meant when He employed it to set forth Himself and said, "My flesh is meat, indeed, and My blood is drink, indeed." Our Lord Jesus Christ must be to us, then, our spiritual meat and drink. What do we mean by that? First, that the doctrine of God Incarnate must be the food of our souls. Brothers and Sisters, we have no doubt as to the true and proper Deity of our Lord Jesus. We have long since passed out of the region of controversy about that, for He has been God to us in the work of salvation and in the new creation which we have experienced through His power.
 
@@ -86,7 +86,7 @@ And then there is bound up with it one other matter, namely, in-dwelling. I go o
 
 Moreover, He enters into us by our feeding upon Him so that He becomes our life, the spring of our being, the object of our desire, the motive force of our service! We are woven together&mdash;Christ warp and ourselves woof&mdash;woven together in a living loom and so conjoined that it were hard to tell where He ends who has no end and where we begin who are lost in Him! We are less than the least of all saints and yet members of His body who is Lord of All! We must leave the mystery remarking that if we have fed on Christ for ourselves, we have proof of what good meat it is we have fed on and we shall always pray, "Lord, evermore give us this bread."
 
-I need your attention for a few minutes while, in the third place, we consider WHAT REFLECTIONS ARISE OUT OF THIS TRUTH. I will simply throw them out for you to turn over for yourselves. They occurred to me when I was hearing a Brother preach upon a kindred subject. They took hold of my soul! May they prove useful to you. And the first was this. If I have a life that feeds on Christ, what a wonderful life it must be. My bodily life is wonderful, yet it only feeds on the fruits of the earth. My mental life is a marvel, but I know that I can build it up with literature and thought. Above all these I have a life which cannot feed on anything but the flesh and blood of the Son of God! What a life that must be!
+I need your attention for a few minutes while, in the third place, we consider WHAT REFLECTIONS ARISE OUT OF THIS TRuth. I will simply throw them out for you to turn over for yourselves. They occurred to me when I was hearing a Brother preach upon a kindred subject. They took hold of my soul! May they prove useful to you. And the first was this. If I have a life that feeds on Christ, what a wonderful life it must be. My bodily life is wonderful, yet it only feeds on the fruits of the earth. My mental life is a marvel, but I know that I can build it up with literature and thought. Above all these I have a life which cannot feed on anything but the flesh and blood of the Son of God! What a life that must be!
 
 What a wonderful being a man is when God is in him! I almost reverence the meanest saint when I think of this, for he bears about with him not a Kohinoor, but a gem of life, compared with which the queenly diamond pales into a glittering vanity! O Love Divine, do You tabernacle in the sons of men? I have been speaking of mysteries, but I ask you to explain which is the greater mystery, the Incarnation of God in Christ or the indwelling of the Holy Spirit in Believers? They are two wondrous stoops of Deity which can only be likened to each other, being each one without parallel. The spiritual life given to the regenerate must be a life of inconceivable excellence and heavenliness since it can only feed on Christ Himself.
 
@@ -114,7 +114,7 @@ Prince of the blood royal of Heaven! O Peer of God's own kingdom, you are more n
 
 PORTION OFSCRIPTUREREAD BEFORE SERMON&mdash;John 6:41-71. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;260, 820, 761.
 
-LETTER FROM MR. SPURGEON:
+LETTER FROM MR. Spurgeon:
 
 BELOVED FRIENDS, By the time that this note is printed, the Special Services at the Tabernacle will be drawing to a close and it will be meet to harrow in the seed with renewed supplication. Shall so much effort be in vain? It cannot be and yet everything depends upon the mighty working of the Spirit of God and, therefore, we must seek His face if we would see large results! I suggest that every sermon reader should spend a special time in prayer, next Lord's Day, in pleading for the revival of Evangelical religion.
 
@@ -122,4 +122,4 @@ The Times pronounced the funeral oration of the Evangelical party, but it is not
 
 For myself, one word only. I am recovering and rest is restoring mind and heart. Pray for me. Yours to serve always,
 
-C H. SPURGEON, Mentone, February 20, 1879.
+C H. Spurgeon, Mentone, February 20, 1879.
