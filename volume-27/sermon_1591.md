@@ -10,7 +10,7 @@ And so we will not go, at this time, to listen to this side nor to that, but we 
 
 We shall not, therefore, dive into the deeps with the hope of finding pearls, for these could not feed hungry men, but we will navigate the surface of the sea and hope that some favoring wind will bear us to the desired haven with a freight of corn which to supply the famishing. May the Holy Spirit bless the teaching of this hour to the creation and nourishment of saving faith.
 
-The first observation from the text is this&mdash;THE APPOINTED WAY OF OUR SALVATION IS BY THE FREE GIFT OF GOD. We were ruined by the Fall, but we are saved by a free gift. The text tells us that "the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many." "Where sin abounded, Grace did much more abound." "Grace reigns through righteousness unto eternal life by Jesus Christ our Lord." Although this doctrine is well known and is taught in our synagogues every Sabbath, yet this grand essential Truth of God is often enough forgotten or ignored so that it is necessary to repeat it again and again.
+The first observation from the text is this&mdash;THE APPOINTED WAY OF OUR SALVATION IS by THE FREE GIFT OF God. We were ruined by the Fall, but we are saved by a free gift. The text tells us that "the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many." "Where sin abounded, Grace did much more abound." "Grace reigns through righteousness unto eternal life by Jesus Christ our Lord." Although this doctrine is well known and is taught in our synagogues every Sabbath, yet this grand essential Truth of God is often enough forgotten or ignored so that it is necessary to repeat it again and again.
 
 I could wish that every time the clock struck it said, "By Grace are you saved." I could wish that there were a trumpet voice ringing out at daybreak both on sea and land&mdash;over the whole round globe&mdash;the words, "By Grace are you saved." As Martin Luther said of a certain other Truth of God, so say I of this, "You so constantly forget it that I feel inclined to take the Bible and beat it over your heads that you may feel it and keep it in remembrance." Men do not naturally love the Doctrines of Grace and, therefore, they cast them out of their minds as much as possible. The larger portion of mankind do not believe that salvation is of Grace&mdash;another part of them profess to believe it but do not understand its
 
@@ -44,7 +44,7 @@ Thus I have tried to set before you God's way of salvation.
 
 Starting aside, as it may seem, from the current of our thoughts, but only with the view of coming back to it with
 
-a forcible argument, we next note that IT IS CERTAIN THAT GREAT EVILS HAVE COME TO US BY THE FALL.
+a forcible argument, we next note that IT IS CERTAIN THAT GREAT EVILS HAVE COME TO US by THE FALL.
 
 Paul speaks in this text of ours of the "offense," which word may be read, the "Fall," which was caused by the stumbling
 
@@ -60,9 +60,9 @@ Where can you go and not find traces of the first transgression in the sepulcher
 
 This sad truth leads me on to the one which is the essence of the text and constitutes my third observation.
 
-FROM THE FALL WE INFER THE MORE ABUNDANT CERTAINTY THAT SALVATION BY GRACE
+FROM THE FALL WE INFER THE MORE ABUNDANT CERTAINTY THAT SALVATION by GRACE
 
-THROUGH CHRIST JESUS SHALL COME TO BELIEVERS. If all this mischief has happened to us through the fall of Adam why should not immense blessings flow to us by the work of Christ? Through Adam's transgression we lost Paradise, that is certain. But if anything can be more certain, we may, with greater positiveness, declare that the Second Adam will restore the ruin of the first! If through the offense of one man many are dead, much more the Grace of God and the gift by Grace, which is by one Man, Jesus Christ, shall abound and has abounded unto many.
+THROUGH Christ Jesus SHALL COME TO BELIEVERS. If all this mischief has happened to us through the fall of Adam why should not immense blessings flow to us by the work of Christ? Through Adam's transgression we lost Paradise, that is certain. But if anything can be more certain, we may, with greater positiveness, declare that the Second Adam will restore the ruin of the first! If through the offense of one man many are dead, much more the Grace of God and the gift by Grace, which is by one Man, Jesus Christ, shall abound and has abounded unto many.
 
 Settle in your minds, then, that the fall of Adam has worked us great damage and then be as much assured that the life, death and Resurrection of Christ, in which we had no hand whatever, must do us great service! Believing in Christ Jesus, it becomes beyond all measure sure to us that we are blessed in Him, seeing that it is already certain that through the fall of Adam we have become subject to sorrow and death. For, first, this appears to be more delightful to the heart of God. It must be fully according to His gracious Nature that salvation should come to us through His Son. I can understand that God, having so arranged it that the human race should be regarded as one and should stand or fall before Him in one man, should carry out the arrangement to its righteous end and allow the consequences of sin to fall upon succeeding generations of men&mdash;but yet I know that He takes no pleasure in the death of any and finds no delight in afflicting mankind.
 
@@ -108,7 +108,7 @@ Is not this killing a lion and finding honey in its carcass? "Out of the eater c
 
 It seems certain that if from the fall of Adam such great results flow, GREATER RESULTS MUST FLOW
 
-FROM THE GRACE OF GOD AND THE GIFT BY GRACE, WHICH IS BY ONE MAN, JESUS CHRIST. Brothers
+FROM THE GRACE OF God AND THE GIFT by GRACE, WHICH IS by ONE MAN, Jesus Christ. Brothers
 
 and Sisters, suppose that Adam had never sinned and we were, at this moment, unfallen beings, yet our standing would have remained in jeopardy, seeing that at any moment Adam might transgress and so pull us down. Thousands of years of obedience might not have ended the probation, seeing there is no such stipulation in the original Covenant! You and I, therefore, would be holding our happiness by a very precarious tenure&mdash;we could never glory in absolute security and eternal life as we now do in Christ Jesus!
 

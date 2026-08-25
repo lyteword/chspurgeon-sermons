@@ -82,7 +82,7 @@ I have seen those creatures invade a land! They climb up the walls and down them
 
 I may not linger longer over this, for I must advance to the fourth part which is the most practical. This is my
 
-point&mdash;THIS TWO-FOLD MINISTRY IS URGED UPON ALL WHO HAVE HEARD THE WORD OF GOD. I will
+point&mdash;THIS TWO-FOLD MINISTRY IS URGED UPON ALL WHO HAVE HEARD THE WORD OF God. I will
 
 leave the point of saying, "Come, Lord Jesus," till the close of the sermon and, as it is not easy to ride upon two horses at once, I will keep to that part of our ministry which consists in bidding the thirsting ones come to Jesus. First, dear Brother, dear Sister, you who have with the ear of your inner nature heard the Word of God, you are called to cry to others, "Come to Christ." You are called to this work by an obligation&mdash;the fact that you have received a very gracious privilege.
 

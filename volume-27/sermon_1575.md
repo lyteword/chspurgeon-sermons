@@ -80,7 +80,7 @@ And where is the Refiner? Has He gone? By no means. There He is! He has been sit
 
 He undertook a stupendous labor and He went through with it till He shouted from the Cross, "It is finished!" And, therefore, we may rest assured that He will go on with the further portions of His great enterprise till, from His Throne above He will say, "It is finished," as He surveys every one of us, "without spot, or wrinkle, or any such thing"&mdash;pure lumps of gold and silver brought Home by Himself without a speck of dross about us. Oh, blessed hope! Where should we dare to indulge it but in the Presence of an almighty Savior whose Immutable oath has bound Him to carry out the work of our perfection?
 
-Now, dear Brothers and Sisters, suffer a few words upon THE GREAT OBJECTIVE OF OUR LORD's REFINING WORK. This point has come up all along. May the Spirit of God instruct us concerning it. The great objective of His refining is that He may deliver us from all evil and make us perfect. Remember, the subjects of purifying are His own chosen ones&mdash;"He shall purify the sons of Levi." Levi was the tribe taken out of the rest for God's service. The Lord has a people whom He has set apart unto Himself and these He will purify! Do others think that He does them an injustice by this act of choice?
+Now, dear Brothers and Sisters, suffer a few words upon THE GREAT OBJECTIVE OF OUR Lord's REFINING WORK. This point has come up all along. May the Spirit of God instruct us concerning it. The great objective of His refining is that He may deliver us from all evil and make us perfect. Remember, the subjects of purifying are His own chosen ones&mdash;"He shall purify the sons of Levi." Levi was the tribe taken out of the rest for God's service. The Lord has a people whom He has set apart unto Himself and these He will purify! Do others think that He does them an injustice by this act of choice?
 
 Would they like to be purified? Then, depend upon it, He will not refuse them! No, the quarrel lies in words and has no truth in it. Men pretend to be angry with electing love, though they have no desire for it, themselves! God's election is
 
@@ -106,7 +106,7 @@ See how splendidly the Refiner will do His work, then, so that throughout eterni
 
 This, then, is the objective of His refining.
 
-Thirdly, and to conclude, WHAT WILL BE THE IMMEDIATE RESULT OF THIS REFINING AS CHRIST
+Thirdly, and to conclude, WHAT WILL BE THE IMMEDIATE RESULT OF THIS REFINING AS Christ
 
 CARRIES IT ON? It will be this&mdash;"That they may offer to the Lord an offering of righteousness." First, these Levites shall attend to their business. They ought to have been working at the Temple, but they had forgotten their high calling. The sons of Levi had taken up their portion in the world, though their God had never given them any, for He gave no portion to Levi when the land was divided among the tribes. "The Lord's portion is His people" and the Lord is the portion of their inheritance. The Levites had gotten away from their spiritual calling and had given themselves up to mind this and that&mdash;but it is pleasant to observe that when God purifies them, they begin to do their own business&mdash;"That they may offer to the Lord."
 

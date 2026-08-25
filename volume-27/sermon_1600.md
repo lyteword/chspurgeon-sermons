@@ -24,7 +24,7 @@ Brethren, if our Saviour Himself said that He was greater than Solomon, you and 
 
 First, then, we shall try to draw a parallel between Jesus and Solomon; and, secondly, we will break away front all comparisons, and show where there cannot be any parallel between Christ and Solomon at all.
 
-First, then, BETWEEN CHRIST AND SOLOMON there are some points of likeness.
+First, then, BETWEEN Christ AND SOLOMON there are some points of likeness.
 
 When the Saviour Himself gives us a comparison it is a clear proof that a likeness was originally intended by the Holy Spirit, and therefore we may say without hesitation that Solomon was meant to be a type of Christ. I am not going into detail, nor am I about to refine upon small matters; but I shall give you five points in which Solomon was conspicuously like to Christ, and in which our Lord was greater than Solomon. O for help in the great task before me.
 
@@ -64,7 +64,7 @@ A day is long to us: but a thousand years to Him are but the twinkling of a star
 
 Thus have I tried to draw the parallel, but I pray you to see the Lord Jesus for yourself, and know whether I have spoken the truth about Him. You have heard the report; now, like the Queen of Sheba, go and see for yourself. Get to Christ, as to His dominion, come under His sway and own His sceptre. Go and trust your King; love your King; praise your King; delight in your King. How courtiers delight to be summoned to court! How glad they are to see the queen's face. How pleased they are if she gives them but a kindly word! Surely, their fortune is made, or at least their hopes arc raised and their spirits lifted up. Shall we not sun ourselves in the presence of the blessed and only Potentate? Let us come into the presence of our King tonight, or else let us sit here and weep. Let us come to His table to feed upon Himself. Let us live on His Word. Let us delight in His love; and we shall surely say, a greater than Solomon is here.'
 
-I shall not detain you longer than a minute or two while I remark that we must rise beyond all parallels, if we would reach the height of this great argument, for BETWEEN CHRIST AND SOLOMON THERE IS MUCH MORE CONTRAST THAN COMPARISON'much more difference than likeness.
+I shall not detain you longer than a minute or two while I remark that we must rise beyond all parallels, if we would reach the height of this great argument, for BETWEEN Christ AND SOLOMON THERE IS MUCH MORE CONTRAST THAN COMPARISON'much more difference than likeness.
 
 In His nature the Lord Jesus is greater than Solomon. Alas, poor Solomon! The strongest man that ever lived, namely, Samson, was the weakest of men; and the wisest man that ever lived, was, perhaps, the greatest, certainly the most conspicuous, fool. How different is our Lord! There is no infirmity in Christ, no folly in the incarnate God. The backsliding of Solomon finds no parallel in Jesus, in whom the prince of this world found nothing though he searched Him through and through.
 
@@ -74,6 +74,6 @@ As in nature He was infinitely superior to Solomon, and not to be compared with 
 
 Oh, that all loved Him! Alas that so many do not! What strange monsters! Why, if you do not love Christ, what are you at? You hearts of stone, will you not break? If His dying love does not break them, what will? If you cannot see the beauties of Jesus, what can you see? You blind bats! O you that know not the music of His name, you are deaf. O you that do not rejoice in Him, you are dead. What are you at, that you are spared through the pleadings of His love, and yet do not love Him? God have mercy upon you, and bring you to delight yourselves in Christ, and trust him! As for us who do trust Him, we mean to love Him and delight in Him more and more, world without end. Amen.
 
-PORTION OF SCRIPTURE READ BEFORE SERMON'COLOSSIANS 1.
+PORTION OF SCRIPTURE READ BEFORE SERMON'Colossians 1.
 
 HYMNS FROM OUR OWN HYMN BOOK''390, 389, 416.
