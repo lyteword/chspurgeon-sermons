@@ -35,7 +35,7 @@ Moreover, remember that there is one blessed person of the divine Unity who make
 
 Thus, then, we have brought two points before you: the great lack of the seeker is "wisdom;" and the right place to get that lack removed.
 
-Thirdly, THE RIGHT MODE IN WHICH TO GO TO GOD. "Let him ask." Oh! That simple word, "Let him ask"&mdash;"let him ask!" No form of asking is precribed, no words laid down, no method dictated, no hour set apart, no rubric printed; but there it stands in gracious simplicity, "let him ask." He
+Thirdly, THE RIGHT MODE IN WHICH TO GO TO God. "Let him ask." Oh! That simple word, "Let him ask"&mdash;"let him ask!" No form of asking is precribed, no words laid down, no method dictated, no hour set apart, no rubric printed; but there it stands in gracious simplicity, "let him ask." He
 
 who will not have mercy when it is to be had for the asking for, deserves to die without it. While I am thinking of this word, before I plunge into its fullest meaning, I may well say, if God will give wisdom to the seeker only because he asks for it, what shall I say of the folly which will not even ask to be made wise? May God forgive you such folly for the past, and deliver you from it for the future.
 

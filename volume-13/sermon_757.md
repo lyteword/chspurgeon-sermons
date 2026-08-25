@@ -46,7 +46,7 @@ Beloved, have we not proven that promise true in this House of Prayer? "In this 
 
 Whenever you see the sheep at noontide, resting in the rich herbage beneath the spreading oak, think of that enquiry of Solomon when he said, "Tell me where you feed, where you make your flock to rest at noon." And when you see the herds with all their needs supplied both in summer and in winter, then sing with the Psalmist, "The Lord is my Shepherd, I shall not want." Thus you see the grass, itself, is not without instruction for those who will incline their ear. It is a memorial of our mortality, and of the passing away of the wicked. It is a picture of the elect of God when watered with the dew of Heaven, and an emblem of the spiritual meat with which God will satisfy the sheep of His pasture.
 
-In the second place, GOD IS SEEN IN THE GROWING OF THE GRASS. He is seen, first, as a Worker, "He causes the grass to grow." He is seen secondly as a Caretaker, He causes the grass to grow for the cattle.
+In the second place, God IS SEEN IN THE GROWING OF THE GRASS. He is seen, first, as a Worker, "He causes the grass to grow." He is seen secondly as a Caretaker, He causes the grass to grow for the cattle.
 
 First, as a Worker, God is to be seen in every blade of grass if we have but eyes to discern Him. A blind world this, which always talks about "natural laws," and "the effects of natural causes," but forgets that laws cannot operate of themselves, and that natural causes, so called, are not causes at all unless the First Cause shall set them in motion. The old Romans used to say, God thundered, God rained. We say, it thunders, it rains. What "it?" All those expressions are subterfuges to escape from the thought of God.
 
@@ -101,7 +101,7 @@ Though the grass is free to all men who choose to eat it, yet no creature cares 
 
 God is seen in the grass as the Worker and the Caretaker. Then let us see His hand in Providence at all times. Let us see it and lean upon it, not only when we have abundance, but even when we have none, for the grass is preparing for the cattle even in the depth of winter. God is preparing and breaking the soil. He is sending the juices into the roots, giving the roots a little rest that they may afterwards bring forth abundance. And you, you sons of sorrow, in your trials and troubles, are still cared for by God. He has an end to serve in all your griefs and miseries. He will accomplish His own Divinely gracious purpose in you&mdash;only be still and see the salvation of God! Every winter's night has a direct connection with the joyous days of mowing and reaping, and each time of grief is linked to future joy.
 
-Our third head is most interesting. GOD's WORKING IN THE GRASS FOR THE CATTLE GIVES US ILLUSTRATIONS CONCERNING DIVINE GRACE. I ask every Christian here to give me his earnest attention for a few
+Our third head is most interesting. God's WORKING IN THE GRASS FOR THE CATTLE GIVES US ILLUSTRATIONS CONCERNING DIVINE GRACE. I ask every Christian here to give me his earnest attention for a few
 
 minutes, and I think he may hear something which may cheer him. I will suppose that I am soliloquizing, and I will say to myself as I read the text, "He causes the grass to grow for the cattle. Here I perceive a satisfying provision for that form of creature.
 

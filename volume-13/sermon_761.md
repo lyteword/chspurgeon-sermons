@@ -10,7 +10,7 @@ The unusual repose of Moab had been the envy of the people of Israel, but they m
 
 In the first place, this is the common mischief of ungodly men. In the second place, this is the frequent danger of the most godly.
 
-I shall first speak to THE UNCONVERTED, THE GODLESS, THE PRAYERLESS, THE CHRISTLESS. Many of you, though not all, become like Moab. At ease from your youth you are not emptied from vessel to vessel but settled upon your lees, and therefore you grow careless and heedless. This is so common a mischief among the ungodly that the whole world was in this condition immediately before the great deluge which destroyed the ancient race.
+I shall first speak to THE UNCONVERTED, THE GodLESS, THE PRAYERLESS, THE ChristLESS. Many of you, though not all, become like Moab. At ease from your youth you are not emptied from vessel to vessel but settled upon your lees, and therefore you grow careless and heedless. This is so common a mischief among the ungodly that the whole world was in this condition immediately before the great deluge which destroyed the ancient race.
 
 We read that "they married and were given in marriage." They did eat and did drink, and were drunk even until the day when Noah entered the ark, and the floods came and swept them all away. The preacher of righteousness for 120 years warned them that their sins had become intolerable to Heaven, and that vengeance would surely be taken upon their devices, but they laughed the Prophet to scorn. They made "the old Fool," as they doubtless called him, the butt of their ridicule. The wits quoted him as the chief of fools, and the drunkards in their songs spoke against him.
 

@@ -70,11 +70,11 @@ Last year was, perhaps, the most gloomy of our lives. All the newspaper summarie
 
 wilderness, for the pillar of fire and cloud will never leave us! The manna will never cease to drop, and the Rock that followed us will never cease to flow with living streams. Onward, onward, let us go, joyously confident in our God!
 
-The next word that springs from the text is that great word JEHOVAH. It is a pity that our translators did not give us the names of God as they found them in the original. The word LORD in capitals is well enough, but that grand and glorious name of "Jehovah" should have been retained. In this case we read, "the eyes of Jehovah are always upon it." He who surveys us with love and care is none other than the one and indivisible God, so that we may conclude, if we have His eyes to view us, we have His heart to love us!
+The next word that springs from the text is that great word JEHOVAH. It is a pity that our translators did not give us the names of God as they found them in the original. The word Lord in capitals is well enough, but that grand and glorious name of "Jehovah" should have been retained. In this case we read, "the eyes of Jehovah are always upon it." He who surveys us with love and care is none other than the one and indivisible God, so that we may conclude, if we have His eyes to view us, we have His heart to love us!
 
 And if we have His heart, we have His wings to cover us. We have His hands to bear us up. We have the everlasting arms to be underneath us. We have all the attributes of Deity at our command. Oh, Christian, when God says that He always looks at you, He means this&mdash;that He is always yours! There is nothing which is necessary for you which He will refuse to do! There is no wisdom stored up in Him which He will not use for you. There is no one attribute of all that great mass of splendor which makes up the Deity which shall be withheld from you in any measure. All that God is shall be yours. He shall be your God forever and ever! He will give you Grace and glory, and be your guide even unto death.
 
-Perhaps the sweetest word of the text is that next one&mdash;the eyes of Jehovah "YOUR GOD." Ah, there is a blessed secret! Why? Ours in Covenant! Our God, for He chose us to be His portion, and by His Grace He has made us choose Him to be our portion. We are His and He is ours&mdash;
+Perhaps the sweetest word of the text is that next one&mdash;the eyes of Jehovah "YOUR God." Ah, there is a blessed secret! Why? Ours in Covenant! Our God, for He chose us to be His portion, and by His Grace He has made us choose Him to be our portion. We are His and He is ours&mdash;
 
 "So I my best Beloved's am, So He is mine."
 

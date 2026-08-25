@@ -63,7 +63,7 @@ Now, I will read the text again, and if any of you feel that its ready obedience
 
 Now, leaving that&mdash;not forgetting it in our hearts, though, for I trust we shall continue praying God to bless that short word to the unconverted&mdash;I now come to talk to the Believer about THE CULTIVATION OF a CONSTANT
 
-SPIRIT OF OBEDIENCE TO THE LORD's WILL. My dear Brothers and Sisters in Christ, will you please notice in the text two or three points which I want you to attend to, and will you labor, by the help of God's Spirit, to get your spirits up to them?
+SPIRIT OF OBEDIENCE TO THE Lord's WILL. My dear Brothers and Sisters in Christ, will you please notice in the text two or three points which I want you to attend to, and will you labor, by the help of God's Spirit, to get your spirits up to them?
 
 The first point is, notice the universality of this spirit of obedience in the text. David says, "When You said, Seek you My face," he does not mention any time. Notice, "When You said." If it were early in the morning, his heart said, "Your face, Lord, will I seek. I want You, for I have the day before me." If it were at midday and the Spirit of God said, "Seek you My face," David's heart said, "O Lord, I will seek You. I want You now that the sun is scorching." If it were towards evening and the voice said, "Seek you My face," David said, "Ah, Lord, the day is far spent. I may well seek Your face now." And if it were in the dead of night, when he awoke, his heart was still with God, and still ready to hear the Divine
 
