@@ -36,7 +36,7 @@ And, dear Friends, I can no more believe that Christ will repulse a sinner than 
 
 Now this woman, notwithstanding this terrible discouragement, after actually hearing the Savior say, "I am not sent to you," yet nevertheless persevered with her appeal. None of you have ever heard Him say that you are not among the elect. Why should you not be elect as well as anybody else? None of you have ever climbed to Heaven and found that your names were not written in the roll of God's chosen&mdash;and you never will climb there to read it at all! All such things are hidden from your sight. Your business is to cling to Christ's dear feet and never let Him go until He grants you the desire of your heart. That is my first remark&mdash;admire this woman's importunity.
 
-Now for a few minutes I invite you, dear Friends, to ADMIRE HER RESORT TO THE LORD HIMSELF. "Then came she and worshipped Him, saying, Lord, help me!"
+Now for a few minutes I invite you, dear Friends, to ADMIRE HER RESORT TO THE Lord HIMSELF. "Then came she and worshipped Him, saying, Lord, help me!"
 
 She is to be admired, first, because she turned away from the disciples. I could not help smiling as I read, just now, what the disciples said, "Send her away, for she cries after us." Poor soul, she never cried after them&mdash;she knew better than to do that! It was their own self-importance that made them think so. If she had begun to cry after them, their black looks would soon have stopped her from doing so. But she did not make such a mistake as that. "Oh, no," she seemed to say, "it is not after you that I am crying. Neither Peter, nor James, nor John can give me the help I need." So is it with us&mdash;we are not crying after the saints, as some poor souls are doing, hoping that saints, long since dead and buried, who have done with this mortal life, may make intercession for them before the Throne of God! No, we are not crying after them. If any of you are, I pray you cease that folly and cry to the Master! And let this be your cry, "Lord, help me!" Not, "Peter, help me," nor, "Mary, help me," but, "Jesus, help me!" "Lord, help me!" He can do it, but the saints cannot. They were poor sinners who had to be saved by Grace like the rest of us&mdash;and they are now singing to the praise of the God of Grace, but they have no Grace to give to us! Mind, dear Friends, that you never think of going to them, but go straight to the Master, as this poor woman did! "Then came she and worshipped Him, saying, Lord, help me!"
 
@@ -78,7 +78,7 @@ And you, young Brother against the door, you came just inside, hoping to get a m
 
 Blessed be His name, the Lord will answer this prayer! He has helped His people! He is still Israel's Helper! He will be their Helper even to the end! Therefore put your trust in Him and go forward with confidence into the future. And may His gracious Presence be with you forevermore! Amen.
 
-EXPOSITION: MATTHEW 15:10-31.
+Exposition: Matthew 15:10-31.
 
 Verses 10, 11. And He called the multitude, and said unto them, Hear, and understand: not that which goes into the mouth defiles a man, but that which comes out of the mouth, this defiles a man. True religion does not consist in meats and drinks, in feasting or in fasting. It is not that which goes into us, but that which comes out of us which is the main matter.
 

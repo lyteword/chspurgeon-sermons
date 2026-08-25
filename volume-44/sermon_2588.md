@@ -68,7 +68,7 @@ And then, what is worse, it may happen to you that some future day, when you com
 
 And when you lift up your eyes, in the day of judgment, and find yourself about to be condemned by Christ, it will put a terrible sting into that just sentence as you think, "There was a time when mercy was within my reach. There was an hour when I stood on praying ground and pleading terms with God, and when the preacher, as best he could, pleaded with me, in God's name, and said that if I would repent, and return unto the Lord, it would be as though I had never been cast off because of my sin. Yet I would not have the mercy of God and I have perished by my own hands." Let it not be so, I implore you! There are those here whom I have looked for with eager heart. I have pleaded with them and I know that they are within an inch of decision&mdash;but that last inch is damning them! If they do not soon yield to Christ, they will perish. May God awaken them from their fatal slumber, even now, and unto His name shall be praise forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM51
+Exposition by C. H. Spurgeon: Psalm51
 
 a Psalm of David, after Nathan had rebuked him and he had been convinced of his great guilt in having sinned with Bathsheba. The music to which this Psalm can be sung must be composed of sighs, groans, sobs and cries. I believe that many of us here present have prayed this prayer of David many times&mdash;and he who has never prayed it has need to begin to do so at once! That is an old proverb, but a true one&mdash;"There is no road to Heaven except by Weeping Cross." He that has never repented will have to repent if he is ever to enter into life eternal. Hear, then, the prayer of David.
 

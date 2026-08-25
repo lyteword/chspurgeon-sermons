@@ -1,6 +1,6 @@
 # Sermon 2600 | A Strange Yet Gracious Choice
 
-"For the LORD has chosen Jacob unto Himself, and Israel for His peculiar treasure." Psalm 135:4.
+"For the Lord has chosen Jacob unto Himself, and Israel for His peculiar treasure." Psalm 135:4.
 
 This is a Psalm of praise all through. It is to be sung to the high-sounding cymbals. There is not a low note anywhere&mdash;it is all robust, exhilarating, joyful! It is "Hallelujah!" from beginning to end and it did not seem possible to the Psalmist that he could omit from it the high jubilant note of election, for if there is anything that makes Believers' hearts sing unto the Lord, it is the recollection that He has chosen them and fixed His love upon them! "You have not chosen Me, but I have chosen you," is one of the best reasons in the world why we should adore the Lord with all our heart and mind and soul and strength! If the Lord has made us to be His people, we will, indeed, with joy and gladness declare Him to be our God! If He has blessed us with all spiritual blessings in Christ Jesus, we will make such return to Him as we can, and bless Him with our loudest and sweetest music. Blessed be the Lord because He "has chosen Jacob unto Himself, and Israel for His peculiar treasure."
 
@@ -28,7 +28,7 @@ Ah, me, why did He do it? When you have told me why He chose Jacob, I shall then
 
 So we leave this first point, the choice&mdash;"The Lord has chosen Jacob."
 
-The second part of our subject is full of practical teaching, for it concerns THE REASON OR RESULT OF GOD's CHOICE.
+The second part of our subject is full of practical teaching, for it concerns THE REASON OR RESULT OF God's CHOICE.
 
 There are many persons who like to hear about God having chosen Jacob, but listen, dear Friends, to the next words in our text. "The Lord has chosen Jacob unto Himself" It does not say, "unto Heaven"&mdash;"unto certain privileges"&mdash; "unto certain favors." All that is quite true, but it does not say so here. "The Lord has chosen Jacob unto Himself" Oh, what a blessed choice is this&mdash;to be chosen unto God! Then Jacob is not his own, for God has chosen him, "unto Himself." Then Jacob does not belong to any man, for the Lord has chosen him, "unto Himself." Now Jacob must have no motives except such as he finds in God. He must have no aims for which he is to live but that he may glorify his God, for "the Lord has chosen Jacob unto Himself." So, my Brothers and Sisters, if you are chosen by the Lord, you are chosen to be God's child, picked out from the rest of mankind to be, from henceforth, no longer your own, or the world's, or the devil's, but to be God's&mdash;and God's alone!
 
@@ -76,30 +76,30 @@ Go home, then, and take delight in God. If He can and delight in you, much more 
 
 The Lord be with you, Beloved, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM135.
+Exposition by C. H. Spurgeon: Psalm135.
 
-Verse 1. Praise you the LORD. Or, "Hallelujah." "Hallelujah" is the keynote of it. So this is one of the Hallelujah Psalms, for so it begins. And if you look at the end, you will see that so it closes. There is, "Hallelujah," again. The whole Psalm is shut in at the beginning and at the end with this which is both our duty and our delight! "Praise you the Lord."
+Verse 1. Praise you the Lord. Or, "Hallelujah." "Hallelujah" is the keynote of it. So this is one of the Hallelujah Psalms, for so it begins. And if you look at the end, you will see that so it closes. There is, "Hallelujah," again. The whole Psalm is shut in at the beginning and at the end with this which is both our duty and our delight! "Praise you the Lord."
 
-Praise you the name of the LORD. The Character, the work, all that is revealed of God is a subject for praise. And especially that wonderful and incommunicable name, Jehovah&mdash;never mention it without praise! "Praise you the name of the Lord."
+Praise you the name of the Lord. The Character, the work, all that is revealed of God is a subject for praise. And especially that wonderful and incommunicable name, Jehovah&mdash;never mention it without praise! "Praise you the name of the Lord."
 
-Praise Him, Oyou servants of the LORD. Make it a part of your service. Praise Him because you are His servants. Praise Him because He accepts your service. You ought to be first in sounding His praises, therefore, "Praise Him, O you servants of the Lord."
+Praise Him, Oyou servants of the Lord. Make it a part of your service. Praise Him because you are His servants. Praise Him because He accepts your service. You ought to be first in sounding His praises, therefore, "Praise Him, O you servants of the Lord."
 
-You that stand in the house of the LORD, in the courts of the house of our God. You are permitted to dwell near Him. You have a standing and an abode, an office and a work in the courts of the Lord's house. Therefore take care that you begin the strain. Should not the King's courtiers praise Him? Praise Him, then, "you that stand in the courts of the house of our God."
+You that stand in the house of the Lord, in the courts of the house of our God. You are permitted to dwell near Him. You have a standing and an abode, an office and a work in the courts of the Lord's house. Therefore take care that you begin the strain. Should not the King's courtiers praise Him? Praise Him, then, "you that stand in the courts of the house of our God."
 
-Praise the LORD; for the LORD is good. There is one excellent reason for praising Him and you can never praise Him too much. He is so good that you can never extol Him to an exaggeration.
+Praise the Lord; for the Lord is good. There is one excellent reason for praising Him and you can never praise Him too much. He is so good that you can never extol Him to an exaggeration.
 
 Sing praises unto His name; for it is pleasant. That is, singing God's praises is pleasant&mdash;it is a pleasant duty and the Lord's name is pleasant, or lovely. The very thought of God brings the sweetest emotions to every renewed heart. There is no pleasure in the world that exceeds that of devotion. As we sing praises unto the Lord, we shake off the cares of the world, we rise above its smoke and mists and we get, then, the clearer atmosphere of communion with Him.
 
-For the LORD has chosen Jacob unto Himself, and Israel for His peculiar treasure. There is something for you who are the Lord's chosen to sing about&mdash;
+For the Lord has chosen Jacob unto Himself, and Israel for His peculiar treasure. There is something for you who are the Lord's chosen to sing about&mdash;
 
 > In songs of sublime adoration and praise,   
 > You pilgrims to Zion who press,   
 > Break forth and extol the great   
 > Ancient of Days, His rich and distinguishing Grace.   
 
-For I know that the LORD is great, and that our Lord is above all gods. "I know it," says the writer of the Psalm. "I know it by experience. I know it by observation. I am sure of it. There is no god like our God. He is a great Creator, a great Preserver, a great Redeemer, a great Friend, a great Helper. 'I know that Jehovah is great, and that our Adonai is above all gods.'"
+For I know that the Lord is great, and that our Lord is above all gods. "I know it," says the writer of the Psalm. "I know it by experience. I know it by observation. I am sure of it. There is no god like our God. He is a great Creator, a great Preserver, a great Redeemer, a great Friend, a great Helper. 'I know that Jehovah is great, and that our Adonai is above all gods.'"
 
-Whatever the LORD pleased, that He did in Heaven and in earth, in the seas, and all deep places. The heathen divided out the universe into provinces&mdash;they had Jupiter to rule Heaven and earth, and Neptune for the sea, and even today many sing, but, oh, how inaccurately, "Britannia rules the waves." It is Jehovah and no one else that rules the waves! And the people on either land or sea! He is Lord everywhere and whatever He pleases to do is done! He is no lackey to wait upon the free will of His creatures&mdash;"Whatever Jehovah pleased, that He did."
+Whatever the Lord pleased, that He did in Heaven and in earth, in the seas, and all deep places. The heathen divided out the universe into provinces&mdash;they had Jupiter to rule Heaven and earth, and Neptune for the sea, and even today many sing, but, oh, how inaccurately, "Britannia rules the waves." It is Jehovah and no one else that rules the waves! And the people on either land or sea! He is Lord everywhere and whatever He pleases to do is done! He is no lackey to wait upon the free will of His creatures&mdash;"Whatever Jehovah pleased, that He did."
 
 He causes the vapors to ascend from the ends of the earth. That is a very wonderful work! What millions of tons of water are every day turned into vapor and caused to ascend from different regions of the earth to fall, again, in cheerful, refreshing rain! What would we do if this process were suspended? It is the very life-blood of the world.
 
@@ -113,16 +113,16 @@ Who sent tokens and wonders into the midst ofyou, O Egypt, upon Pharaoh, and upo
 
 Who smote great nations and slew mighty kings. Two of them are mentioned, perhaps because they were two of the most powerful kings who blocked the road of Israel.
 
-11-13. Sihon king of the Amorites, and Og king ofBashan, and all the kingdoms of Canaan: and gave their land for an heritage, an heritage unto Israel His people. Your name, O LORD, endures forever. He is the same Jehovah now as He ever was. Multitudes of people, nowadays, have made unto themselves new gods&mdash;they have imagined a new character for Jehovah altogether, and the God of the Old Testament is ignored and slandered. But not by His chosen people&mdash;they still cling to Him! The God of Abraham, of Isaac, and of Jacob is not the God of the dead, but of the living! And that is true spiritually as well as naturally. Those who are spiritually dead refuse to acknowledge Him and set up gods that they have imagined&mdash;but those who are quickened by His Grace delight in Him and glorify His name. Let this, Beloved, be our joyful song, "Your name, O Lord, endures forever!"
+11-13. Sihon king of the Amorites, and Og king ofBashan, and all the kingdoms of Canaan: and gave their land for an heritage, an heritage unto Israel His people. Your name, O Lord, endures forever. He is the same Jehovah now as He ever was. Multitudes of people, nowadays, have made unto themselves new gods&mdash;they have imagined a new character for Jehovah altogether, and the God of the Old Testament is ignored and slandered. But not by His chosen people&mdash;they still cling to Him! The God of Abraham, of Isaac, and of Jacob is not the God of the dead, but of the living! And that is true spiritually as well as naturally. Those who are spiritually dead refuse to acknowledge Him and set up gods that they have imagined&mdash;but those who are quickened by His Grace delight in Him and glorify His name. Let this, Beloved, be our joyful song, "Your name, O Lord, endures forever!"
 
-13, 14. And Your memorial, O LORD, throughout all generations. For the LORD will judge His people, and He will repent Himself concerning His servants. For they have their dark times and are often in trouble through their sin. Then the Lord sends chastisement upon them, but when it has answered His purpose, He gladly enough withdraws it. How different are the idols of the heathen from our God!
+13, 14. And Your memorial, O Lord, throughout all generations. For the Lord will judge His people, and He will repent Himself concerning His servants. For they have their dark times and are often in trouble through their sin. Then the Lord sends chastisement upon them, but when it has answered His purpose, He gladly enough withdraws it. How different are the idols of the heathen from our God!
 
 The idols of the heathen are silver and gold, the work of men's hands. They can do no works, for they are themselves the result of the work of men! Their handiwork can be nothing, for they are the work of men's hands.
 
 16-18. They have mouths, but they speak not; eyes have they, but they see not; they have ears, but they hear not; neither is there any breath in their mouths. They that make them are like unto them: so is everyone that trusts in them. The original conveys the idea that those who make such gods grow to be like them&mdash;they are continually getting to be more and more like them. They become dumb, blind, deaf, dead as they worship such idols as these.
 
-19, 20. Bless the LORD, O house of Israel: bless the LORD, Ohouse of Aaron: bless the LORD, Ohouse of Levi: you that fear the LORD, bless the LORD. All of you, whether you are of the house of Aaron or of the tribe of Levi, to whatever house or tribe you belong, bless the Lord! And if you are Gentiles, even though Abraham acknowledges you not, yet, "you that fear the Lord, bless the Lord."
+19, 20. Bless the Lord, O house of Israel: bless the Lord, Ohouse of Aaron: bless the Lord, Ohouse of Levi: you that fear the Lord, bless the Lord. All of you, whether you are of the house of Aaron or of the tribe of Levi, to whatever house or tribe you belong, bless the Lord! And if you are Gentiles, even though Abraham acknowledges you not, yet, "you that fear the Lord, bless the Lord."
 
-Blessed be the LORD out of Zion, which dwells at Jerusalem. Our inmost hearts would bless Him. We cannot make Him more blessed than He is! We cannot add to His Glory, but, oh, we do wish that everything we can do, everything that can be done to His honor, may be done!
+Blessed be the Lord out of Zion, which dwells at Jerusalem. Our inmost hearts would bless Him. We cannot make Him more blessed than He is! We cannot add to His Glory, but, oh, we do wish that everything we can do, everything that can be done to His honor, may be done!
 
-Praise you the LORD. That is, once again, "Hallelujah!" Oh, for the spirit of Divine Grace to set us praising God from the heart&mdash;and to keep us at that holy exercise all our days!
+Praise you the Lord. That is, once again, "Hallelujah!" Oh, for the spirit of Divine Grace to set us praising God from the heart&mdash;and to keep us at that holy exercise all our days!

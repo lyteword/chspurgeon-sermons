@@ -106,9 +106,9 @@ Lastly, the Lord knows&mdash;and this is the best thing that He knows about us&m
 
 God bless this searching message to every one of you for His dear Son's sake! Amen.
 
-EXPOSITION BY C. G. SPURGEON: PSALM139.
+Exposition by C. G. Spurgeon: Psalm139.
 
-O LORD, You have searched me, and known me. God does not need to "search" us, for that implies a lack of knowledge, a knowledge obtained by search. But the meaning of the text is that God knows us as well as if He hadexam-ined us through and through, just as an excise officer searches a house to find contraband goods. "O Lord, You have searched me, and known me."
+O Lord, You have searched me, and known me. God does not need to "search" us, for that implies a lack of knowledge, a knowledge obtained by search. But the meaning of the text is that God knows us as well as if He hadexam-ined us through and through, just as an excise officer searches a house to find contraband goods. "O Lord, You have searched me, and known me."
 
 You know my sitting down, and my rising up. "Such commonplace things as these, my sitting down at home, my rising up to go to my business, You, O Lord, observe and know even such minor matters as these."
 
@@ -118,7 +118,7 @@ You compass my path and my lying down, "You surround me when I go out, or when I
 
 And are acquainted with all my ways. "You know all that I do, as One that is most intimate and familiar with me. You, great God, 'are acquainted with all my ways.'"
 
-For there is not a word on my tongue, but, lo, O LORD, You know it altogether ''Not only the words of my tongue, but the words on my tongue, are known to You, O Lord." As we sang just now&mdash;
+For there is not a word on my tongue, but, lo, O Lord, You know it altogether ''Not only the words of my tongue, but the words on my tongue, are known to You, O Lord." As we sang just now&mdash;
 
 "My thoughts, before they are my own, Are to my God distinctly known! He knows the words I mean to speak, Ere from my opening lips they break."
 
@@ -152,7 +152,7 @@ Surely You will slay the wicked, O God. I t cannot be that God, who sees everyth
 
 Depart from me therefore, you bloody men.' 'I do not want to be with you, or to have you with me, in the day when God metes out vengeance upon the ungodly."
 
-20-22. For they speak against You wickedly and Your enemies take Your name in vain. Do not I hate them, O LORD that hate You? And am not I grieved with those that rise up against You? I hate them with perfect hatred: I count them my enemies. We are bound to love our enemies, but we are not bound to love God's enemies. We are to wish them, as enemies, a complete overthrow, but to wish them, as men, a gracious conversion, that they may obtain God's pardon and become His friends, followers and servants.
+20-22. For they speak against You wickedly and Your enemies take Your name in vain. Do not I hate them, O Lord that hate You? And am not I grieved with those that rise up against You? I hate them with perfect hatred: I count them my enemies. We are bound to love our enemies, but we are not bound to love God's enemies. We are to wish them, as enemies, a complete overthrow, but to wish them, as men, a gracious conversion, that they may obtain God's pardon and become His friends, followers and servants.
 
 Search me, O God. Is it not amazing that what the Psalmist started with as a doctrine, now becomes a prayer? Before, he said, "O Lord, You have searched me, and known me." Now he cries, "Search me, O God!
 

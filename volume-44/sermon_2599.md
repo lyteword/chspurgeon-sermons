@@ -76,7 +76,7 @@ He gives us all things and withholds
 
 No real good from upright souls." "Lord, visit me with Your salvation." Others may have their own salvation of any sort or kind that they please, but do visit me with Your salvation! Take my case in Your hands, then the work will be done, well done, and done forever." Pray thus, dear Friend, for yourself. "O visit me with Your salvation," and He will do so. "Believe on the Lord Jesus Christ and you shall be saved." "He that believes and is baptized shall be saved; but he that believes not shall be damned." God lead you all to accept His great salvation even now, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM106.
+Exposition by C. H. Spurgeon: Psalm106.
 
 This Psalm relates the story of God's mercy to Israel, of the people's provocation of Jehovah, and of His great patience with them, It commences with an exhortation to praise the Lord.
 
@@ -84,11 +84,11 @@ Verse 1. Praise you Jehovah. Or, "Hallelujah." I cannot help remarking, here, th
 
 O give thanks unto Jehovah; for He is good: for His mercy endures forever As long as you and I are sinners, this will be one of the sweetest notes in our song of thanksgiving unto Jehovah&mdash;"His mercy endures forever."
 
-Who can utter the mighty acts of the LORD? Who can show forth all His praise? Neither the angels nor the perfect spirits who day without night circle His throne rejoicing can show forth all Jehovah's praise.
+Who can utter the mighty acts of the Lord? Who can show forth all His praise? Neither the angels nor the perfect spirits who day without night circle His throne rejoicing can show forth all Jehovah's praise.
 
 Blessed are they that keep justice, and he that does righteousness at all times. There is great comfort in walking near to God. The way of peace, the way of blessing is the way of righteousness, but, alas, my Brothers and Sisters, we do not always keep in that way as we should. The Psalmist himself felt that he did not, therefore he prayed&mdash;
 
-Remember me, O LORD, with the favor that You bear unto Your people: O visit me with Your salvation. He felt that he needed God's Grace in all its saving power.
+Remember me, O Lord, with the favor that You bear unto Your people: O visit me with Your salvation. He felt that he needed God's Grace in all its saving power.
 
 That I may see the good of Your chosen, that I may rejoice in the gladness of Your nation, that I may glory with Your inheritance. He longs to get in among the people of God. He wants to share the favor which God bestows upon them&mdash;the Free Grace which He manifests to them. He wants to be included in their election, to rejoice in their gladness and to glory in their inheritance.
 
@@ -104,7 +104,7 @@ That He might make His mighty power to be known. Free Grace finds in itself, not
 
 14, 15. But lusted exceedingly in the wilderness, and tempted God in the desert And He gave them their request; but sent leanness into their soul I do not know of anything more dreadful than that&mdash;to be fattened outside and to be starved within&mdash;to have everything that heart could wish for and yet not to have the best thing that the heart ought to wish for! May God save us from that appearance of prosperity which is only a veiled desolation!
 
-They envied Moses also in the camp, and Aaron the saint of the LORD. These two men had done everything for the children of Israel. They had been the instruments in the hand of God of innumerable blessings to them, yet they envied Moses and Aaron.
+They envied Moses also in the camp, and Aaron the saint of the Lord. These two men had done everything for the children of Israel. They had been the instruments in the hand of God of innumerable blessings to them, yet they envied Moses and Aaron.
 
 17, 18. The earth opened and swallowed up Dathan, and covered the company of Abiram. And a fire was kindled in their company; the flame burned up the wicked. Jehovah's mercy did not melt the people's hard hearts, so perhaps the fear of His judgment would. God tried both methods with them, as He has done with us, for sometimes He has been very gracious to us and at other times He has chastened us very sorely. He has tried the kiss and He has tried the blow. Yet what happened in the case of Israel?
 
@@ -114,7 +114,7 @@ Therefore He said that He would destroy them, had not Moses, His chosen, stood b
 
 Yes, they despised the pleasant land. They said that the Canaan towards which they were traveling was not worth the trouble of getting to it&mdash;"They despised the pleasant land."
 
-24-28. They believednot His Word: but murmured in their tents, and hearkened not unto the voice of the LORD. Therefore He lifted up His hand against them, to overthrow them in the wilderness: to overthrow their seed also among the nations, and to scatter them in the lands. They joined themselves also unto Baal-Peor, and ate the sacrifices of the dead. They began to study necromancy and spiritualism and to join in the abominations of the worship of Baal.
+24-28. They believednot His Word: but murmured in their tents, and hearkened not unto the voice of the Lord. Therefore He lifted up His hand against them, to overthrow them in the wilderness: to overthrow their seed also among the nations, and to scatter them in the lands. They joined themselves also unto Baal-Peor, and ate the sacrifices of the dead. They began to study necromancy and spiritualism and to join in the abominations of the worship of Baal.
 
 Thus they provoked Him to anger with their inventions: and the plague broke in upon them. Now notice how something always happened to spare them from the destruction which they deserved.
 
@@ -122,10 +122,10 @@ Thus they provoked Him to anger with their inventions: and the plague broke in u
 
 32, 33. They angered Him also at the waters of strife, so that it went ill with Moses for their sakes: because they provoked his spirit, so that he spoke unadvisedly with his lips. Does it not seem remarkable that Moses, the true servant of God, was not spared from punishment when it was but a word that He spoke unadvisedly, yet still the mercy of God was continued to that provoking generation? Ah, that is always the way with our jealous God&mdash;those whom He loves best will be sure to feel His chastising rod, whatever happens to others. At last the Israelites reached Canaan&mdash;they entered into the land that flowed with milk and honey! Did that change their character? No, not in the least.
 
-34-38. They did not destroy the nations, concerning whom the LORD commanded them: but were mingled among the heathen and learned their works. And they served their idols: which were a snare unto them. Yes, they sacrificed their sons and their daughters unto devils, and shed innocent blood, even the blood of their sons and of their daughters, whom they sacrificed unto the idols of Canaan: and the land was polluted with blood. Just think how low they had sunk! God's own people had come down to this&mdash;that they actually offered their own children in sacrifice to Moloch!
+34-38. They did not destroy the nations, concerning whom the Lord commanded them: but were mingled among the heathen and learned their works. And they served their idols: which were a snare unto them. Yes, they sacrificed their sons and their daughters unto devils, and shed innocent blood, even the blood of their sons and of their daughters, whom they sacrificed unto the idols of Canaan: and the land was polluted with blood. Just think how low they had sunk! God's own people had come down to this&mdash;that they actually offered their own children in sacrifice to Moloch!
 
-39-43. Thus were they defiled with their own works and went a whoring with their own inventions. Therefore was the wrath of the LORD kindled against Hispeople, insomuch that He abhorred His own inheritance. And He gave them into the hand of the heathen; and they that hated them ruled over them. Their enemies also oppressed them, and they were brought into subjection under their hand. Many times did He deliver them. You would not have expected to find such a sentence as that, here, yet there it stands! Notwithstanding all that these people did, "many times did He deliver them."
+39-43. Thus were they defiled with their own works and went a whoring with their own inventions. Therefore was the wrath of the Lord kindled against Hispeople, insomuch that He abhorred His own inheritance. And He gave them into the hand of the heathen; and they that hated them ruled over them. Their enemies also oppressed them, and they were brought into subjection under their hand. Many times did He deliver them. You would not have expected to find such a sentence as that, here, yet there it stands! Notwithstanding all that these people did, "many times did He deliver them."
 
 43-45. But they provoked Him with their counsel, and were brought low for their iniquity. Nevertheless He regarded their affliction when He heard their cry: and He remembered His Covenant with them and repented according to the multitude of His mercies. Was there ever so strange a story as this&mdash;a story of provocation continued almost beyond belief, and yet of mercy which would not be overcome&mdash;of persevering love that would not turn aside?
 
-46-48. He made them also to be pitied of all those that carried them captives. Save us, O LORD our God, and gather us from among the heathen, to give thanks unto Your holy name, and to triumph in Your praise. Blessed be the LORD God of Israel from everlasting to everlasting: and let all the people say, Amen. Praise you the LORD. So the Psalm ends upon its keynote&mdash;"Hallelujah"&mdash;"Praise You Jehovah."
+46-48. He made them also to be pitied of all those that carried them captives. Save us, O Lord our God, and gather us from among the heathen, to give thanks unto Your holy name, and to triumph in Your praise. Blessed be the Lord God of Israel from everlasting to everlasting: and let all the people say, Amen. Praise you the Lord. So the Psalm ends upon its keynote&mdash;"Hallelujah"&mdash;"Praise You Jehovah."

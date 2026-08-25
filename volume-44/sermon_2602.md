@@ -42,7 +42,7 @@ What is the glory of a saint? Is it not Christ's righteousness? And shall I, the
 
 In this matter of eternal rewards, God will display His Sovereignty. There shall be some old man who has lived to be ninety and who was saved only in the last year of his life&mdash;and when he enters Heaven, he will sit as much beside Christ as one like Timothy, who was called in his early youth, preached the Gospel during a long course of usefulness, and died with honors on his head! There shall be a poor wretched sinner, like the thief who was saved when he hung upon a cross, and he will sing as sweet, and as loud, and as strong as the Apostle Paul, or the Apostle Peter, "for there is no difference between the Jew and the Greek"&mdash;between one man and another&mdash;"for the same Lord over all is rich unto all that call upon Him." Thus He displays His Sovereignty in choosing the persons who shall be saved, in selecting the time when they shall be saved and in their ultimate reward.
 
-This brings us to consider THE GREAT MERCY OF GOD EXHIBITED IN HIS SOVEREIGNTY.
+This brings us to consider THE GREAT MERCY OF God EXHIBITED IN HIS SOVEREIGNTY.
 
 This householder went out to hire men for his vineyard because he needed them, didn't he? Yes, but God does not go to hire men and bring them into His vineyard because He needs them. There is not a man in this world that God could not do without. "Oh," you hear persons say, sometimes, "suppose Mr. So-and-So were to die? What would the Church do?" Why, do as it did before&mdash;live on its God! For&mdash;
 
@@ -98,7 +98,7 @@ He strikes that match. On it depends his life&mdash;it is his last one&mdash;yet
 
 God bless you, dear Friends! A happy new year to everyone of you! Many of them to those of you who are bound for Heaven&mdash;and a new year in Heaven to those whom God may take away before another year comes round! Adieu!
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 20:1-7.
+Exposition by C. H. Spurgeon: Matthew 20:1-7.
 
 (This Exposition is reprinted from Mr. Spurgeon's last literary work, The Gospel of the Kingdom. The Sermon and Exposition combined show the harmony between almost his earliest and his very latest proclamation of the Gospel).
 

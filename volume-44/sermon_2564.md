@@ -4,7 +4,7 @@
 
 The first part of this chapter is very dark, but the second part is clear daylight. As we read the first verses, we tremble, for we seem to stand at the foot of Sinai when it is altogether on a smoke. But when we reach the second half of the chapter, we can say that, "we have come unto Mount Zion." We hear no sound of trumpet, but the voice of that blood "which speaks better things than that of Abel." The reason for this is not that God has changed, nor that the person who is here spoken of has changed&mdash;up to this point there is no change indicated in the person&mdash;it is the same unchaste, unholy, obstinate, rebellious, ungrateful creature. Yet there is a wonderful change in the words spoken and the reason is because there is a change of dispensation&mdash;the sinner is brought from under Law to come under Grace! God no longer convinces of sin by the terrors of the Law, but He comes to deal with the poor guilty soul on terms of love and mercy! This is the great wonder of wonders that ever it should be truly said that, "in due time Christ died for the ungodly," and that he is saved who believes on Him that justifies the ungodly! Christ died for us, not as saints, not as godly persons, but as the ungodly! Our subject is all about the dealings of Divine Love with guilty sinners, by which God brings them unto Himself. I shall speak of four things.
 
-The first is that in our text, FOR GOD's DEEDS OF LOVE, THERE IS a REASON BEYOND ALL REASON.
+The first is that in our text, FOR God's DEEDS OF LOVE, THERE IS a REASON BEYOND ALL REASON.
 
 The text begins with, "therefore." God is very fond of that word, for He never acts illogically. There is always a good reason for all that He does. But His ways are not our ways, neither are His thoughts our thoughts and, sometimes, our logic is altogether baffled and our reasoning faculties seem as if they could not in any way follow the working of the mind of God, if such an expression may be used concerning His wondrous thoughts.
 
@@ -72,7 +72,7 @@ I tell you, you desponding and despairing ones, you may come out of the iron cag
 
 May God make this promise true to everyone here who does not yet know Him, "I will allure her, and bring her into the wilderness, and speak comfortably unto her"! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HOSEA 2.6-23.
+Exposition by C. H. Spurgeon: Hosea 2.6-23.
 
 Verse 6. Therefore, behold, I will hedge up your way with thorns, and make a wall, that she shall not find her paths. God will cause sin to be painful. He will make the way of it difficult. He will do everything to prevent the sinner running in it&mdash;"She shall not find her paths."
 
@@ -86,7 +86,7 @@ For she did not know that I gave her corn, and wine, and oil, and multiplied her
 
 And I will destroy her vines and her fig trees, of which she has said, These are my rewards that my lovers have given me. So I will make them a forest, and the beasts of the field shall eat them. So that the joys of sin shall become miseries, as if vineyards were suddenly trained into dense forests wherein lions and wolves might make their lairs. There are some people who can understand this in a spiritual sense. Some, perhaps, who have been made to realize it in their own experience.
 
-And I will visit upon her the days of Baalim, wherein she burned incense to them, and she decked herself with her earrings and her jewels, and she went after her lovers, and forgot Me, says the LORD. It is terrible when God comes to visit upon men the days of their sin&mdash;when for every night of sin they shall have a night of anguish&mdash;when for every pleasure that they took in sin they shall feel the scourge of conscience till they have measured out the weary round. "She went after her lovers, and forgot Me, said the Lord." This was said by Him who never forgot her, by Him whose love was true and faithful to her when she thus went away from Him and defiled herself and dishonored His holy name!
+And I will visit upon her the days of Baalim, wherein she burned incense to them, and she decked herself with her earrings and her jewels, and she went after her lovers, and forgot Me, says the Lord. It is terrible when God comes to visit upon men the days of their sin&mdash;when for every night of sin they shall have a night of anguish&mdash;when for every pleasure that they took in sin they shall feel the scourge of conscience till they have measured out the weary round. "She went after her lovers, and forgot Me, said the Lord." This was said by Him who never forgot her, by Him whose love was true and faithful to her when she thus went away from Him and defiled herself and dishonored His holy name!
 
 Now read the next verse and be astonished&mdash;
 
@@ -94,7 +94,7 @@ Therefore, behold, I will allure her, and bring her into the wilderness, and spe
 
 And I will give her her vineyards from there, and the valley of Achor for a door of hope: and she shall sing there, as in the days of her youth, and as in the day when she came up out of the land of Egypt. ' 'I will pluck this Israel of Mine out of all her sin. I will give her back the purity and the happiness of her early days. 'she shall sing, there, as in the days of her youth, and as in the day when she came up out of the land of Egypt.'" You must have noticed how often God speaks of that coming out of Egypt. He says, in another place, "I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness." Here the Lord promises to give back to Israel the joy she had when she was young and espoused herself to her God.
 
-And it shall be at that day, said the LORD, that you shall call Me Ishi; and shall call Me no more Baali. ' 'You shall call me, my Man, my Husband"&mdash;a name of sweet endearment. "and shall call me no more, Baali," that is, "my Lord, my lordly Husband," for the Lord's love shall not be galling to you, but it shall sweetly and gently rule you. Oh, what a sweet change this is, when we no longer tremble before God with slavish fear, but love Him with intense affection and see in Him our soul's Husband in whom is all our delight!
+And it shall be at that day, said the Lord, that you shall call Me Ishi; and shall call Me no more Baali. ' 'You shall call me, my Man, my Husband"&mdash;a name of sweet endearment. "and shall call me no more, Baali," that is, "my Lord, my lordly Husband," for the Lord's love shall not be galling to you, but it shall sweetly and gently rule you. Oh, what a sweet change this is, when we no longer tremble before God with slavish fear, but love Him with intense affection and see in Him our soul's Husband in whom is all our delight!
 
 For I will take away the names of Balaam out of her mouth and they shall no more be remembered by their name. The word, Baalim, had been profaned&mdash;they had applied it to other lords&mdash;and when they used it concerning Jehovah, it sounded harsh, as if He, too, was a tyrant master!
 
@@ -104,8 +104,8 @@ Andl will break the bowand the sword ofthe battle out ofthe earth, and willmake 
 
 And I will betroth you unto Me forever; yes, I will betroth you unto Me in righteousness, and in judgment, and in loving kindness, and in mercies. What a glorious promise is this! It is marvelous that our wayward, wanton, wicked souls should be brought back, by infinite mercy, and then that God should be so enamored of us as to declare, "I will betroth you unto Me forever."
 
-I will even betroth you unto Me in faithfulness: and you shall know the LORD. It is said three times that He will betroth us unto Himself, as if the Lord knew that we would hardly be able to believe it.
+I will even betroth you unto Me in faithfulness: and you shall know the Lord. It is said three times that He will betroth us unto Himself, as if the Lord knew that we would hardly be able to believe it.
 
-22. Andit shall come to pass in that day, I willanswer, said the LORD, will answer the heavens, and they shall answer the earth; and the earth shall answer with corn, and wine, and the oil and they shall answer Jezreel. So that there shall be no famine to try God's people! Their prayers shall be abundantly answered and all their needs shall be supplied.
+22. Andit shall come to pass in that day, I willanswer, said the Lord, will answer the heavens, and they shall answer the earth; and the earth shall answer with corn, and wine, and the oil and they shall answer Jezreel. So that there shall be no famine to try God's people! Their prayers shall be abundantly answered and all their needs shall be supplied.
 
 And I will sow her unto Me in the earth; and I will have mercy upon her that had not obtained mercy; and I will say to them which were not My people, You are My people; and they shall say, You are my God. Oh, blessed Scripture! May the Lord write it on all our hearts! Amen.

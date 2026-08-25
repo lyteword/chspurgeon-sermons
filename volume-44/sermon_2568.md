@@ -74,7 +74,7 @@ As for you who have never trusted the Savior, all you have to do is to cast your
 
 As I look at some of my hearers, I might well settle my countenance, as Elisha did when he looked on Hazael. He could not bear to think of all that the man would do&mdash;and when the man himself heard the prophecy, he said, "Is your servant a dog, that he should do this great thing?" Yes, he was dog enough to do even that! A Friend was speaking to me of an unhappy man whose life has been one of licentiousness and crime&mdash;and who has gone away from his country&mdash;he used to sit by his wife's side in this house and he said that he would one day turn over a new leaf. But then he did not yield himself to Christ. So, when he did turn over a new leaf, it was a blacker one than he had ever turned over, before, and, unless you repent, some of you will do the same as that man did. God bless and save you, dear Friends, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE4:33-36; 6:6-11; 13:10-17; 14:1-6; JOHN 5:1-9; 9:1-14.
+Exposition by C. H. Spurgeon: Luke4:33-36; 6:6-11; 13:10-17; 14:1-6; John 5:1-9; 9:1-14.
 
 We are going to read the Inspired records of several of our Savior's Sabbath cures, for they are very instructive.
 

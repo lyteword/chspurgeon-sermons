@@ -32,7 +32,7 @@ But that is not the subject upon which I especially wish to speak at this time. 
 
 Among many things which the text teaches us&mdash;and I do not pretend to exhaust its meaning, but merely to give a hint or two concerning it&mdash;it means, first, that Believers are called by God into the society of His Son Jesus Christ our Lord. And, secondly, called into partnership with His Son Jesus Christ our Lord.
 
-First then, Beloved, all who truly believe are CALLED INTO THE SOCIETY OF JESUS CHRIST OUR LORD.
+First then, Beloved, all who truly believe are CALLED INTO THE SOCIETY OF Jesus Christ OUR Lord.
 
 We enjoy that society when we draw near to God in prayer and, indeed, whenever we draw near to God at all! We dare not come to God without Jesus Christ&mdash;that dear name should begin and end all our prayers. He is the one Mediator between God and men. He is our Great High Priest and Intercessor. "No man comes unto the Father but by Me." "I am the door"&mdash;the way of access to God. He is the Mercy Seat, the Propitiatory where God meets with us and hears our prayers&mdash;so that we always pray in the society of Christ. There is no true praying without it.
 
@@ -50,7 +50,7 @@ Then, dear Friends, there is also this wonderful fact, that we are so called int
 
 And now, we are so called into the society of Christ that if we are living as we ought to live, where we go, Christ goes. We are to represent Christ among men. Most of them do not know much about Christ, but what they do know of Him, they will very largely learn from us. I am grieved to say that Christ has sometimes had a bad name because of the conduct of those who have professed to be His friends. "Ah," men say, "so this is your Christianity, is it?" But the man who really is in the society of Christ lives in such a way that men take knowledge of him that he has been with Jesus and has learned of Him. We are Christ's representatives in the world and He trusts His honor and His cause in our hands. We are so much in His society that we compromise His dignity if we do wrong&mdash;but we adorn His Doctrine in all things if, by His Grace, we are enabled to do what is right. May you and I know to the fullest what it is to be in the society of Christ and walk worthy of the vocation wherewith we are called!
 
-Now I want to turn to my second point, which is this&mdash;WE ARE CALLED INTO PARTNERSHIP WITH JESUS CHRIST OUR LORD.
+Now I want to turn to my second point, which is this&mdash;WE ARE CALLED INTO PARTNERSHIP WITH Jesus Christ OUR Lord.
 
 I do not know when I have felt so utterly unable to speak my thoughts as now that I have reached this part of my subject. If I could only make you enjoy a hundredth part of what I have enjoyed in looking into this subject, I would be perfectly satisfied! But I am afraid that I cannot. However, I will tell you as well as I can how thoroughly and how perfectly every true Christian is brought into partnership with Christ.
 
@@ -94,7 +94,7 @@ Many of you, I trust, will be ready enough to give Him your tongues, but does He
 
 Sometimes, Jesus needs you to act as a foot-washer, to wash His feet. If you see a Brother going wrong, backsliding, and getting his feet dirty, your Lord does not want you to go and call out so that everybody can hear you, "Here is a Brother who has dirty feet." No, no! Go and fetch a basin of water and a towel, and wash the man all by himself, and set your fallen Brother right again. Then Christ has some very poor members of His family, perhaps in the workhouse&mdash;and He wants you to go and relieve them. There are some who are sick. He wants you to visit them. There are some of His loved ones, it may be, who are cast down and ready to sink in utter despair&mdash;He wants you to go and comfort them. Since it is a joint-stock concern in which you are a partner, look out for Christ's poor people, and say to yourself, "If I cannot give anything to Him, I will give it to them, for they are a part of Him and He will accept it as given to Himself." God help you to do so&mdash;you who love His dear name&mdash;and thus may we have fellowship with the Father and with His Son Jesus Christ, to whom, with the ever-blessed Spirit, be glory forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 CORINTHIANS 1:1-9.
+Exposition by C. H. Spurgeon: 1 Corinthians 1:1-9.
 
 Verse 1. Paul, called to be an Apostle of Jesus Christ through the will of God, and Sosthenes our brother Paul could never have sustained the great weight of responsibility and tribulation which fell upon him if he had not felt that he was "called to be an Apostle of Jesus Christ through the will of God." No man will ever be fit for the ministry of the Word unless he is called to it by God. This also will be your strength in every other station of life&mdash;if God has called you to your peculiar work and warfare, He will not send you at your own charges, but He will be at the back of you and support you even to the end. I think it is for this reason that Paul so constantly dwells upon his own calling when he is about to write to the Churches&mdash;that he may remind other Believers that they have similar privileges in their spheres of labor.
 

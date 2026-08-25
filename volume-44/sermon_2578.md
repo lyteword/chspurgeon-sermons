@@ -66,7 +66,7 @@ One little illustration, and I have done. I have noticed that when a dog is very
 
 "Artful doubts and reasoning be Nailed with Jesus to the tree." Come and trust Him and He is yours forever! The Lord help you to do it, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 77.
+Exposition by C. H. Spurgeon: Psalm 77.
 
 This "Psalm of Asaph" has a mournful tone in it. At times the writer is in the deeps, but we may be quite sure that he will end the Psalm cheerfully because he begins it with prayer. No matter what sorrow falls to your lot, if you can pray, you will rise out of it. When Jonah went to the bottoms of the mountains, in the belly of the fish, and took to praying, it was well with him. If you, dear troubled Soul, can but pray, you need not despair.
 
@@ -93,7 +93,7 @@ But I will remember the years of the right hand of the most High. ' 'I will reme
 
 It is a good thing to make a record of your experiences when they are sweet. You may need that record, one of these days. I do not believe in always keeping a diary, for one is apt to put down more than may be true, but there are times of special mercy when I would say, "Write that down for a memorial and keep it by you, for the day may come when that record will minister comfort to you."
 
-11, 12. I will remember the works of the LORD: surely I will remember Your wonders of old. I will meditate also on all Your work. "I will not have any more of my works&mdash;I will meditate on Your work. I will get to You, my God, and think of what You have done; especially of Your works of Grace, how brightly they shine! I will meditate also on all your work."
+11, 12. I will remember the works of the Lord: surely I will remember Your wonders of old. I will meditate also on all Your work. "I will not have any more of my works&mdash;I will meditate on Your work. I will get to You, my God, and think of what You have done; especially of Your works of Grace, how brightly they shine! I will meditate also on all your work."
 
 12, 13. And talk of Your doings. Your way, O God, is in the sanctuary. Or, "is in holiness." God's way is sometimes in the sea, but it is always a holy way. God never deals with His people, or with any of His creatures unjustly or unrighteously. "I cannot trace God," Luther once said, "but I can trust Him." And from that saying of his we have coined the phrase, "To trust Him when you cannot trace Him." When you are unable to see God's footprints because He rides upon the storm, yet still say, " Your way, O God, is in holiness."
 
