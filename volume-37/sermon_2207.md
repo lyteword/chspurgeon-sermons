@@ -30,7 +30,7 @@ Let me say, here, that full forgiveness of sin, consciously enjoyed, will not on
 
 The Lord fills the hungry with good things, but the rich He sends away empty. God Himself will never comfort you till you are driven to self-despair&mdash;and if you have already come to that, it is a great privilege to me to be allowed to tell you that the fact of forgiveness of sin is not only a doctrine of the creed, but it is a promise of God's Word! "I believe in the forgiveness of sins"&mdash;this is no mere formula, but a realized fact with me. Removal of the penalty, removal of God's offense against us, the clearing away of all the turbid waters within the heart and the creation of joy and peace through perfect reconciliation to God&mdash;this is a summary account of the forgiveness of sin. It is a vast and rich blessing!
 
-And now, secondly, THE FORGIVENESS OF SINS IS BOUND UP WITH REDEMPTION BY BLOOD. Take the text, "In whom we have redemption through His blood, the forgiveness of sins." Redemption and forgiveness are so put together as to look as if they were the same thing. Assuredly they are so interlaced and intertwisted that there is no having the one without the other.
+And now, secondly, THE FORGIVENESS OF SINS IS BOUND UP WITH REDEMPTION by BLOOD. Take the text, "In whom we have redemption through His blood, the forgiveness of sins." Redemption and forgiveness are so put together as to look as if they were the same thing. Assuredly they are so interlaced and intertwisted that there is no having the one without the other.
 
 Do you ask&mdash;"How is it that there should always need to be redemption by blood in order to the forgiveness of sin?" I call your attention to the expression, "Redemption through His blood." Observe, it is not redemption through His power, it is through His blood. It is not redemption through His love, it is through His blood. This is insisted upon emphatically, since, in order to the forgiveness of sins, it is redemption through His blood, as you have it over and over again in Scripture. "Without shedding of blood is no remission." But they say&mdash;they say&mdash;that Substitution is not just! One said, the other day, that to lay sin upon Christ and to treat Him as guilty&mdash;and let Him die for the unjust&mdash;was not just! Yet the objector went on to say that God forgave men freely without any atonement at all! Of this wise critic I would ask&mdash;Is that just? Is it just to pass by breaches of the law without a penalty? Why any law at all? And why should men care whether they keep it or break it? It was stated by this critic that God, out of His boundless love, treated the guilty man as if he were innocent. I would ask&mdash;if that is right, where is the wrong of God's treating us as innocent because of the righteousness of Christ?
 
@@ -80,7 +80,7 @@ Do you not feel at this time, you that have been pardoned, that nothing but the 
 
 Thus far have I brought you, then, in three remarks. Kindly follow me in the fourth one, upon which I will not be long.
 
-Fourthly, THIS FORGIVENESS OF SINS IS ENJOYED BY US NOW. "In whom we have"&mdash;we have&mdash;
+Fourthly, THIS FORGIVENESS OF SINS IS ENJOYED by US NOW. "In whom we have"&mdash;we have&mdash;
 
 "redemption through His blood, the forgiveness of sins, according to the riches of His Grace." I remember the astonishment with which I felt as I sat in a ministers' meeting and heard one who professed to be a preacher of the Gospel, assert that he did not think that any of us could be sure that he was forgiven. I ventured at once to say that I was sure&mdash;and I was pleased, but by no means surprised, to find that others dared to say the same. I hope I have hundreds before me who enjoy the same assurance!
 
@@ -96,7 +96,7 @@ Dear Friend, what would you give to have this assurance? You may have it&mdash;"
 
 Fifthly&mdash;and this is only a brief head, but it is a point that must not be left out&mdash;THE FORGIVENESS OF SINS
 
-BINDS US TO OUR LORD JESUS CHRIST. Let us read the text again. "In whom we have redemption through His
+BINDS US TO OUR Lord Jesus Christ. Let us read the text again. "In whom we have redemption through His
 
 blood." We have nothing apart from Jesus! Every blessing of the Covenant binds us to Christ. Covenant gifts are so many golden chains to fasten the soul of the Believer to his Lord. Our wealth of mercy is all in Christ. There is nothing good outside of Christ. When are we pardoned, Brothers and Sisters? When have we forgiveness? Why, when we are in Him, "in whom we have redemption through His blood, the forgiveness of sins." O son of Adam, living without Jesus, hear and take warning! So long as you are out of Christ, you must bear your own burden till it crushes you to the dust! But as soon as you have touched the hem of His garment there is a link of connection&mdash;and if you can rise from that to holding Him by the feet&mdash;the union is closer! And if you can, from that, become like Simeon, who took Him up in his arms, then may you cry, "My eyes have seen Your salvation!" When you have Christ to the fullest, you have Grace to the fullest! It is as you are in Christ&mdash;in connection and communion with Christ&mdash;that you receive the pardon of sin, for all the pardon is in Him. Do you see that?
 

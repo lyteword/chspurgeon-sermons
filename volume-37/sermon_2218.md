@@ -16,7 +16,7 @@ outside motion does not join on to any human need, nor produce any practical res
 
 With all Your quickening powers," or else all our service for the Lord is in vain.
 
-The text asks this question, "Is the Spirit of the Lord straitened?" As we try and dwell upon it a little while, we remark, first, that THE SPIRIT OF THE LORD IS NOT STRAITENED BY THE COMMANDS OF MEN, for in a previous verse we find that the people said to their Prophets, "Prophesy you not." When men spoke in the name of God, these people had grown so besotted, through their evil doings, that they bade them hold their tongues! They did not want to hear any more about God. They had given Him up and they wished to have no more to do with Him! What was said by the Prophets was unpleasant. It provoked unhappy memories. It made them think of things that they would rather forget. So they said to the Prophets, "Prophesy you not."
+The text asks this question, "Is the Spirit of the Lord straitened?" As we try and dwell upon it a little while, we remark, first, that THE SPIRIT OF THE Lord IS NOT STRAITENED by THE COMMANDS OF MEN, for in a previous verse we find that the people said to their Prophets, "Prophesy you not." When men spoke in the name of God, these people had grown so besotted, through their evil doings, that they bade them hold their tongues! They did not want to hear any more about God. They had given Him up and they wished to have no more to do with Him! What was said by the Prophets was unpleasant. It provoked unhappy memories. It made them think of things that they would rather forget. So they said to the Prophets, "Prophesy you not."
 
 And here comes the question of the text. These men speak under the impulse of the Spirit of God. What do you think? Is the Spirit of the Lord to be straitened, shut up, put down, silenced by the commands of men? They thought so! They thought that they had only to say to these men of God, "Be quiet. If you speak again, we will put you in prison, or we will banish you, or we will cut off your heads." By those means they thought to stifle the voice of the Spirit of God and make Him dumb in their midst! The question comes, "Have you done it? Can you do it? Is the Spirit of the Lord straitened?"
 
@@ -36,7 +36,7 @@ But if those who believe in God's name should die and if no more were raised up,
 
 And if all books were gone, the Spirit of God could act directly upon the hearts of men. He is not straitened! He can still call some Saul of Tarsus without a Bible and without a minister. And if the enemies of the Lord were so to conquer that the very name of Christian should be forgotten&mdash;still the Spirit of God could begin again and, out of nothing, "create a new Heaven and a new earth wherein dwells righteousness." Despair? What have we who know the might of God to do with despair? What have we to do, even, with doubt or fear? The Lord lives and His eternal Spirit will work His Divine purposes without fail.
 
-Our second remark is equally emphatic. THE SPIRIT OF THE LORD IS NOT STRAITENED BY ANY CONCEIVABLE CAUSE&mdash;if not by the commands of men, certainly not by any other cause.
+Our second remark is equally emphatic. THE SPIRIT OF THE Lord IS NOT STRAITENED by ANY CONCEIVABLE CAUSE&mdash;if not by the commands of men, certainly not by any other cause.
 
 The Spirit of the Lord is not straitened by any change in Himself The Holy Spirit, as very God of very God, might truly say of Himself, "I am the Lord, I change not." He is today what He was at Pentecost, what He always was from that beginning which had no beginning. He is Divine, Omnipresent, Omniscient, Omnipotent, All-Wise, Infinite. He does as He wills. Therefore He is not straitened. He is not straitened by the spirit of the age, whatever that may be. I have heard a good deal about it and I believe that "the spirit of the age" is Satan. That is short and not very sweet&mdash;but that is the only spirit of the age that I know of. Ages have followed ages, but there has never been but one "Prince of the power of the air, the spirit that now works in the children of disobedience." He has appeared in different forms&mdash;the spirit of ignorance, the spirit of intolerance, the spirit of superstition, the spirit of envy, the spirit of infidelity, the spirit of speculation. All these work one and the same spirit, dividing unto his disciples severally as he wills. And though the spirit of evil is mighty, he must fly before the Spirit of God, who is infinitely more powerful and who is not to be hindered, hampered or straitened by the spirit of the age!
 
@@ -52,9 +52,9 @@ And the Spirit of the Lord is not straitened, even, by the skill of His enemies.
 
 I do not know how to express all that I feel about this, but this I do know&mdash;that I cannot imagine anything that can really diminish the power of the Holy Spirit. If He is Divine, He is Omnipotent and, if Omnipotent, nothing can lay hands on Him to bind Him as the Philistines bound Samson. He would burst their bands asunder! He is the free Spirit of God and no power can hold Him&mdash;
 
-"When He makes bare His arm, What shall His work withstand?" III. But now I come to a very practical part of my subject, which is this&mdash;THE SPIRIT OF THE LORD MUST
+"When He makes bare His arm, What shall His work withstand?" III. But now I come to a very practical part of my subject, which is this&mdash;THE SPIRIT OF THE Lord MUST
 
-NOT BE TREATED BY US AS THOUGH HE WERE STRAITENED. How can we do this? In many ways. I mention
+NOT BE TREATED by US AS THOUGH HE WERE STRAITENED. How can we do this? In many ways. I mention
 
 nine.
 
@@ -98,7 +98,7 @@ Once more&mdash;we act as if we did not believe in this Divine Truth concerning 
 
 And again, we may treat the Spirit of God as straitened if we cannot believe that He can bless us today. "I feel so gloomy," you say. "I hope that I shall be better tomorrow." Brother, why should you not be converted at this good hour? "Oh," says some sister, "I mean to serve the Lord when I got a little older." Do you? Well, you are a little older since I began to speak to you, and I think that your best time to begin is now. Believe in God's nows. Believe that any moment is a good moment with God. "This day is a day of good tidings." Why should not I, at this moment, dedicate myself afresh to God? Why should I not come to Christ, again, and ask Him to give me more life, more faith, more hope, more joy, more likeness to Himself now? "Is the Spirit of the Lord straitened?"
 
-On the fourth and last point, our words must be few, though the Truth of God affords much scope for instruction. THE SPIRIT OF THE LORD WILL PROVE THAT HE IS NOT STRAITENED and at the last all men shall acknowledge His power, whether they have bowed to it or not! He will be magnified in those who are saved and in those who are lost.
+On the fourth and last point, our words must be few, though the Truth of God affords much scope for instruction. THE SPIRIT OF THE Lord WILL PROVE THAT HE IS NOT STRAITENED and at the last all men shall acknowledge His power, whether they have bowed to it or not! He will be magnified in those who are saved and in those who are lost.
 
 He will exact punishment for resistance. Those who now despise the messages which are sent to them will, at last, be left to their own devices. "My Spirit shall not always strive with man," says the Eternal God. And continual rejection will, at last, end in the total withdrawal of His Presence and the eternal ruin of all who have resisted Him.
 

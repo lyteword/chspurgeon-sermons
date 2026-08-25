@@ -20,7 +20,7 @@ I would desire to be as bold in addressing you as the sergeant is in his calling
 
 among the sons of men!
 
-First, let me say that Amasiah is distinguished from the other mighty men of King Jehoshaphat by the fact that HE MADE IT HIS LIFEWORK TO SERVE THE LORD. He "willingly offered himself to the Lord," and he was accepted and became a life-long servant of Jehovah, the God of Israel!
+First, let me say that Amasiah is distinguished from the other mighty men of King Jehoshaphat by the fact that HE MADE IT HIS LIFEWORK TO SERVE THE Lord. He "willingly offered himself to the Lord," and he was accepted and became a life-long servant of Jehovah, the God of Israel!
 
 It should not need much talk to make men feel that this is reasonable service. To serve your Maker, who created you that you should glorify Him, is surely a natural thing to do. And it becomes a thing to be more expected when you are asked to serve your Redeemer who shed His blood that you might be set free from sin and, "yield your members servants unto holiness." Would it not be a right thing for you to offer yourself to Him who yielded Himself to the death for us?&mdash;
 
@@ -65,7 +65,7 @@ Amasiah, the leader of this host of "mighty men of valor," would be certain to b
 
 But we need for Christ and for His cause, some who cannot be turned aside to offer themselves willingly to the Lord, doing it decidedly, at once, and from the bottom of their hearts! God grant, by His Spirit, that some such may, by this sermon, be led to the knowledge and service of the Lord!
 
-The third point about Amasiah is that, while he was a volunteer, HE OFFERED HIMSELF TO THE LORD.
+The third point about Amasiah is that, while he was a volunteer, HE OFFERED HIMSELF TO THE Lord.
 
 "Himself"&mdash;it was the best thing he had! Some of you, perhaps, have not anything else to offer. Then, do as he did&mdash; willingly offer yourself! I have heard of a little boy at a public meeting where there was a missionary collection. When the collector came to him, he asked him to hold the plate a little lower. Thinking he wanted to see his money drop on the plate and, being a kindly man, he held the plate down low. "Please, Sir, it is not low enough. Would you mind putting it on the floor?" The collector good-humoredly put it down and then the boy said, "I have not even a penny to give to the collection, so I want to get into the plate and give myself to God." It was a simple thing to do, but that is exactly what we desire that many may do at this good hour. Willingly offer yourselves, like Amasiah, to the Lord!
 

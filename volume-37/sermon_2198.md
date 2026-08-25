@@ -14,7 +14,7 @@ When the second census was taken, it was found that the people were nearly of th
 
 Concerning the second census of Israel, I would speak with you, since this is the morning of the day on which our British census is to be taken. May we gather lessons of wisdom from the theme!
 
-First, observe with interest and with a design to be profited&mdash;THE NOTABLE CHANGE WORKED AMONG THE PEOPLE BY DEATH. "But among these there was not a man of them whom Moses and Aaron, the priest, numbered, when they numbered the children of Israel in the wilderness of Sinai."
+First, observe with interest and with a design to be profited&mdash;THE NOTABLE CHANGE WORKED AMONG THE PEOPLE by DEATH. "But among these there was not a man of them whom Moses and Aaron, the priest, numbered, when they numbered the children of Israel in the wilderness of Sinai."
 
 They answered to their names, 600,000 and more of them&mdash;and there they stood in their ranks, full of vigorous life. About 40 years had passed away and if these same names had been read out, not a man save Caleb and Joshua could have answered to the roll call. The entire mass of the nation had been changed! The old ones were all gone. All that stood in their places by the Jordan were men who were under age at the first census, or who were not even born at that time. "Not a man of them" remained, says the text. And it repeats the statement&mdash;"There was not left a man of them."
 
@@ -44,7 +44,7 @@ is well that the age of man is not so protracted as in the days of Methuselah. A
 
 One other remark I cannot help making and that is that these changes are most instructive. If we are now serving God, let us do so with intense earnestness, since only for a little while shall we have the opportunity to do so among men. "Whatever your hands find to do, do it with all your might; for there is no work, nor device, nor knowledge, nor wisdom in the grave where you go." Live while you live! At the same time, lay plans for influencing the rising generation. Lay yourself out to work while it is called today. If anything should be done, it were well that it were done quickly. If we wish the Truth of God to conquer and the Gospel to prevail, let us fight the Lord's battles now! And if we would see Truth prevail after we are gone, let us seek out faithful young men who will teach others that the testimony for the Lord God of Israel dies not out of the land. We must soon quit the field. Let each man set his house in order, for he must soon leave it to be gazed upon by strangers' eyes. Let us see that our lifework is rounded off and well-finished, so that in the survey of it by our successors they may say of us, "He being dead yet speaks." As we must soon be gone from among the living, let us bless them while we may. Arise, you saints, and bestir yourselves, for the day is far spent and the shadows of evening are falling! I pray that we may learn well this first lesson of our text. O Spirit of Life, teach us life even by the doings of death!
 
-Secondly, we have here before us THE PERPETUITY OF THE PEOPLE OF GOD. There was a change in the
+Secondly, we have here before us THE PERPETUITY OF THE PEOPLE OF God. There was a change in the
 
 constituent elements of the Israelite nation, but the nation was still there. Not one man was there who was counted 38 years before, save Caleb and Joshua, and yet the nation was the same! Do you ask for Israel? There it is. Balaam can see the people from the top of the hill and they are the same people whom Pharaoh pursued to the Red Sea. The nation is living, though a nation has died. It is the same chosen seed of Abraham with whom Jehovah is in covenant. God has a Church in the world and He will have a Church in the world till time shall be no more! The gates of Hell and the jaws of death shall not prevail against the Church, though each one of its members must depart out of this world in his turn.
 
@@ -62,7 +62,7 @@ At this second numbering, the people stood ready for greater work than they had 
 
 It was Israel's joy that God's love was not withdrawn from the nation. The Lord still acknowledged the tribes as His people. His Glory was still above the Mercy Seat and His fiery, cloudy pillar still guided their marching or fixed their stopping. Still the manna dropped from Heaven and still they drank of the water from the smitten Rock. Thus the Lord still has a Church and it is always the same Church, loved of her lord, indwelt by His Spirit and dedicated to His praise. Let us take courage&mdash;the Church is not destroyed! Many changes take place and many sorrows are involved therein, but the Church of God is as always as alive as her Immortal Head, who has declared, "Because I live, you shall live also." Her stars are still the hope of the world's night and her angels are the heralds of the eternal morning! She follows the bleeding Lamb who is the Doctrine of her teaching, the Model of her acting, the Glory of her hope!
 
-Thirdly, let me bring before your minds THE UNCHANGEABLENESS OF THE WORD OF GOD. This we
+Thirdly, let me bring before your minds THE UNCHANGEABLENESS OF THE WORD OF God. This we
 
 perceive in the last verse. "For the Lord had said of them, They shall surely die in the wilderness. And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun."
 

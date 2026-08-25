@@ -46,7 +46,7 @@ Still, his folly was not equal on the one side to the stupidity of these who err
 
 Ministers, Deacons and Elders of Churches are specially called to this. You older and more advanced Christians should lead the way in this holy employment and, as I have already shown you, the sick must take their turn. Every Christian should aspire to take his place in the cordon and in some way watch on the behalf of Zion. But especially should we be constant, instant and fervent in pleading the precious promises of our Lord. These were not given to be forgotten, but to be pleaded and then to be fulfilled. It is written, "For this will I be enquired of by the house of Israel, to do it for them." It is the rule of God's Kingdom that we must bring to His remembrance the promise which we would have fulfilled in our own experience! Therefore, "You that are the Lord's remembrancers, take you no rest."
 
-My second head is a REMARKABLE CAUTION&mdash;"You that are the Lord's remembrancers, take you no rest." I quote the best translation.
+My second head is a REMarkABLE CAUTION&mdash;"You that are the Lord's remembrancers, take you no rest." I quote the best translation.
 
 Take no rest from prayer. Be always praying. If not always in the act of prayer, be always in the spirit of prayer. "Pray without ceasing." Not only reason, but wrestle with God in prayer. Sometimes pray without words and, sometimes, with them. Pray alone, but often pray with Brothers and Sisters. There is special prevalence in the prayer of two or three. "If two of you shall agree on earth as touching anything that they shall ask, it shall be done for them of My Father which is in Heaven." Gather in the greater congregations for prayer. "Forsake not the assembling of yourselves together, as the manner of some is," as, I regret to say, the manner of many Churches has come to be in these days. The moderns despise the meeting for prayer and in this, they condemn themselves, by acknowledging that they attach little value to their own prayers! Possibly their consciousness of having lost all power with God in prayer is thus betraying itself. Where the Prayer Meeting is despised, there may be cleverness in the preacher, but there will be no unction for the hearer. O my Brothers and Sisters, I beseech you, both as individuals and as a Church, do not restrain prayer! "Watch and pray"&mdash;that precept is a condensation of our text.
 
@@ -72,7 +72,7 @@ Only one more observation&mdash;avoid setting any time limits to God in your pra
 
 And so I come, in the last place, to dwell upon the third matter, which is very amazing. The charge to take no
 
-rest was notable, but here is a STILL MORE REMARKABLE CHARGE&mdash;Give Him no rest." What a word is this! I
+rest was notable, but here is a STILL MORE REMarkABLE CHARGE&mdash;Give Him no rest." What a word is this! I
 
 speak with solemn awe! When the Lord condescends so greatly, we must be doubly reverent. Give God no rest? I am amazed at such a command! Come, gracious Spirit and teach me how to speak!
 

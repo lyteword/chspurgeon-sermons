@@ -50,7 +50,7 @@ Observe once more that this Word is a very effectual one. "I will put My Spirit 
 
 If I should fail in expounding the text, I hope I have so fully commended it to you that you will turn it over and meditate upon it yourselves&mdash;and so get a home-born exposition of it! The key of the text is within its own self, for if the Lord gives you the Spirit, you will then understand His Words&mdash;"I will put My Spirit within you."
 
-But now I must work upon THE EXPOSITION OF THE TEXT. I trust the Holy Spirit will aid me. Let me show
+But now I must work upon THE Exposition OF THE TEXT. I trust the Holy Spirit will aid me. Let me show
 
 you how the good Spirit manifests the fact that He dwells in men. I have to be very brief on a theme that might require a great length of time and can only mention a part of His ways and workings.
 
