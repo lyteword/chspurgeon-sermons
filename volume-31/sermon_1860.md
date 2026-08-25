@@ -54,7 +54,7 @@ I say again this makes terrible work of a great many persons who have been broug
 
 religion this morning&mdash;that you may have been a praying man or woman for years, you may have come, like Saul of Tarsus, to the fullness of your age and have abounded in the appearance of devotion&mdash;and yet you may have to pray to God for the first time!
 
-This brings me to my second reflection, and that is, IT IS IMPLIED IN THE TEXT THAT IT WAS a REMARKABLE THING FOR SUCH a PERSON TO NOW PRAY. It is put with an ecce, a mark of admiration, "Behold,
+This brings me to my second reflection, and that is, IT IS IMPLIED IN THE TEXT THAT IT WAS a REMarkABLE THING FOR SUCH a PERSON TO NOW PRAY. It is put with an ecce, a mark of admiration, "Behold,
 
 he prays!" It is a very difficult thing, a very marvelous thing, for a man to truly pray who has been, all his lifetime, praying in a false way! It is a miracle of Grace to bring a proud Pharisee to plead for mercy like a penitent publican! It is not half so wonderful that an irreligious man should begin to pray as that a vainglorious professor should begin to pray. The most remarkable conversion that could take place here, today, would not be that of Elymas, the sorcerer, but of Saul, the Pharisee! The most remarkable conversion in the Apostolic age was that of a man who, from his youth up, had been plunged in self-righteousness and in the self-content which comes of attention to ritual, ceremony and the form of godliness. "Behold he prays."
 
@@ -90,7 +90,7 @@ Do you not think that when he had gone over those promises, he would then plead 
 
 And, Beloved, all this must have been steeped in a wonderful fervor. If we could have stood outside the door and listened, we should have understood why the Lord said, "Behold, he prays." Before, you might have heard him repeating words, but now he uttered groans, cries, sobs and tears! Before, you might have said to yourself, "He is saying his prayers," but this time it was as when a man wrestles for his life and is in bitterness for his only son! All previous prayer was sham, but this was real! All the rest was but a performance, but now he did real business with the Most High! "Behold, he prays." Now he is a real Israel, and lo, he comes off more than conqueror through Him that has taught him to pray!
 
-Lastly, we see that as soon as he did pray, IT WAS EVIDENT THAT THE LORD ACCEPTED HIS PRAYER.
+Lastly, we see that as soon as he did pray, IT WAS EVIDENT THAT THE Lord ACCEPTED HIS PRAYER.
 
 How do I know this from the text, "Behold, he prays?" Well, I know it from the text, first, because here is God bearing witness that he did pray. Might not the Lord stand in a Prayer Meeting and hear a dozen of us talk our piece and never say, "Behold, he prays?" But if a voice from Heaven were to say concerning someone, "Behold, he prays," we would know that the man was accepted of the Lord. So it was with Saul. The first time he prayed, God heard him. Try it, my Friend, try it! If this is your first prayer this morning, breathe it to God with humble faith and He will hear you!
 

@@ -24,7 +24,7 @@ I shall leave you to that consideration; for my business this morning is not wit
 
 And first, this morning, let me exhort you to consider how great this man is: then let me assist you to consider how great this man is: and then let us practically improve our consideration of how great this man is, trying to turn it to holy account as the Holy Ghost may enable us.
 
-First, then, LET ME EXHORT YOU TO CONSIDER HOW GREAT THIS MAN, THE LORD JESUS CHRIST, is.
+First, then, LET ME EXHORT YOU TO CONSIDER HOW GREAT THIS MAN, THE Lord Jesus Christ, is.
 
 This subject claims your consideration. I do not think it should be a matter of option with you whether you will now consider the greatness of your Lord or not; it is his due and right that you should consider his greatness. For he of whom we speak,&mdash;"this man," is one well known among us. If you be true to your profession he is one most dear to you, to whom you owe all things, aye, owe your very selves. He is one between whom and you there is a troth plighted: you are espoused unto him, your hearts are his, even as his heart is yours. If you do not consider him, who will? He has loved you, and given himself for you. Strangers may listen to our teaching at this time, and in vain we may cry,
 

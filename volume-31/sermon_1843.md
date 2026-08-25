@@ -9,7 +9,7 @@ The question which makes our text is meant to end other questions. You may carry
 
 The question now before us is one of very wide application. I shall not attempt to suggest all the ways in which it may be employed, but I am going to turn it to three uses this morning. The first is for the man of God in distress. Let him take this question, and put it to his own reason and common sense, and especially to his own faith, "Hath God forgotten to be gracious?" When we have handled the question in that way, we will pass it over to the seeking sinner who is despondent, and we will ask him whether he really believes that God hath forgotten to be gracious. When this is done, we may have a moment or two left for the Christian worker who is dispirited, who cannot do his work as he would wish to do, and who mourns over the little result coming from it. "Hath God forgotten to be gracious?" Will you be allowed to go forth weeping, bearing precious seed, and will you never come again rejoicing, bringing your sheaves with you? We shall have quite enough matter to fill up our time, and many fragments remaining when the feast is over. May God the Holy Spirit bless the word!
 
-TO THE MAN OF GOD IN DISTRESS, this question is commended, "Hath God forgotten to be gracious?"
+TO THE MAN OF God IN DISTRESS, this question is commended, "Hath God forgotten to be gracious?"
 
 What kind of distress is that which suggests such a question? Where had Asaph been? In what darkness had he wandered? In what tangled wood had he lost himself? How came he to get such a thought into his mind?
 

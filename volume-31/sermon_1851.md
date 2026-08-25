@@ -48,7 +48,7 @@ But now I must come closer to the text. Having shown you what these converts hav
 
 I need, in the second place, to answer the question, WHAT IS THE FULL REWARD OF THOSE WHO COME TO
 
-TRUST UNDER THE WINGS OF GOD?
+TRUST UNDER THE WINGS OF God?
 
 I would answer that a full reward will come to us in that day when we lay down these bodies of flesh and blood, that they may sleep in Jesus, while our unclothed spirits are absent from the body but present with the Lord. In the disembodied state, we shall enjoy perfect happiness of spirit. But a fuller reward will be ours when the Lord shall come a second time and our bodies shall rise from the grave to share in the glorious reign of the descended King! Then, in our perfect manhood, we shall behold the face of Him we love and shall be like He! Then shall come the adoption, to wit, the redemption of our body and we, as body, soul and spirit&mdash;a trinity in unity&mdash;shall be forever with Father, Son and Holy Spirit&mdash;our triune God! This unspeakable bliss is the full reward of trusting beneath the wings of Jehovah!
 

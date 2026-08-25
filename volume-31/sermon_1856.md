@@ -56,7 +56,7 @@ Among all the carcasses that shall be washed up on the Dead Sea shore, there sha
 
 At the end, Little-Faith will grow to full assurance and will come up into the vessel, yes, into Heaven with Christ! Little-Faith shall find its way across the Jordan and stand in its lot in the end of the days. And, perhaps, among the most rapturous song that shall ever salute the Redeemer's ears will be the song of those who were weak and trembling when they were here below and yet were kept to the end. Therefore have confidence!
 
-I come, now, to the second head of my discourse, which is an interesting one&mdash;LITTLE-FAITH ACKNOWLEDGED BY THE LORD. In my text you will observe the Savior did not say, "O you of no faith," or, "O you of pretended faith," but, "O you of little faith." There are times when we would give all that we have if we could only have our Master's assurance that we have even a little faith! If He does but acknowledge that it is faith, then the root of the matter
+I come, now, to the second head of my discourse, which is an interesting one&mdash;LITTLE-FAITH ACKNOWLEDGED by THE Lord. In my text you will observe the Savior did not say, "O you of no faith," or, "O you of pretended faith," but, "O you of little faith." There are times when we would give all that we have if we could only have our Master's assurance that we have even a little faith! If He does but acknowledge that it is faith, then the root of the matter
 
 is in us! I would rather have great faith than little faith, but I would rather have little faith than have great presumption and mistake it for holy confidence. It ought to have comforted Peter, even as it rebuked him, to hear his Lord, who could not make a mistake, acknowledge that he had faith!
 

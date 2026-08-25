@@ -61,7 +61,7 @@ Portion of Scripture read before Sermon&mdash;Psalms 61 and 62.
 
 Hymns from "Our Own Hymn Book"&mdash;560, 589, 514.
 
-LETTER FROM MR. SPURGEON
+LETTER FROM MR. Spurgeon
 
 DEAR FRIENDS AND BRETHREN,&mdash;As I am expected to report myself weekly, and have only this corner left to do it in, the bulletin shall be brief. Weather unsettled; progress fair, but not rapid. I find myself too readily depressed with small matters, and I have a sense of unfitness for my future work. This shows that while rest has done much, there is more to be done. Three weeks have worked such marvels that I hope in due time to return in full vigor.
 
