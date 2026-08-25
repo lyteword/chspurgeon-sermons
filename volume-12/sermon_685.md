@@ -89,7 +89,7 @@ Some professing Christians also give themselves up to their taste. They believe 
 
 Do not serve God thoughtlessly. Do not come to any devout exercises merely because it is the time and season for them, but take heed, weigh the matter, see what you are doing&mdash;do not rush into God's Presence, do not worship because others do so, but take heed and consider&mdash;and then, deliberately in God's strength, whether others do so or not, perform the Lord's will with your whole heart.
 
-I will now come to the third point, and that is that CAREFUL THOUGHT WITH REGARD TO ALL GOD's
+I will now come to the third point, and that is that CAREFUL THOUGHT WITH REGARD TO ALL God's
 
 WILL IS MOST USEFUL. Because in the first place, a man who gives heed to walk in all the Lord's will with all his heart proves that he has the true serving spirit. He has become a servant, for his eyes were up to God as the eyes of the handmaiden towards her mistress. He has the true child-like spirit, for he says to his Father, "Father, tell me what You would have me do and be."
 

@@ -9,7 +9,7 @@ But this particular vision is so instructive, so unattended by serious difficult
 
 I shall, first, endeavor to explain what John saw. And then, in the second place, I shall try to set forth the effect which I think would be produced by this sight if the eyes of our faith should now be fixed on it.
 
-First, then, I have to call your very earnest attention to WHAT JOHN SAW. It was a scene of the Last Day&mdash;that wondrous day whose coming none can tell&mdash;
+First, then, I have to call your very earnest attention to WHAT John SAW. It was a scene of the Last Day&mdash;that wondrous day whose coming none can tell&mdash;
 
 "For, as a thief unheard, unseen, it steals Through night's dark shade."
 

@@ -13,7 +13,7 @@ In this latter verse Job teaches us how he meant to plead and intercede with God
 
 There are two things here set forth as necessary in prayer&mdash;ordering of our cause, and filling our mouth with arguments. We shall speak of those two things, and then if we have rightly learned the lesson, a blessed result will follow.
 
-First, IT IS NEEDFUL THAT OUR SUIT BE ORDERED BEFORE GOD.
+First, IT IS NEEDFUL THAT OUR SUIT BE ORDERED BEFORE God.
 
 There is a vulgar notion that prayer is a very easy thing, a kind of common business that may be done anyhow, without care or effort. Some think that you have only to reach a book down and get through a certain number of very excellent words, and you have prayed and may put the book up again; others suppose that to use a book is superstitious, and that you ought rather to repeat extemporaneous sentences, sentences which come to your mind with a rush, like a herd of swine or a pack of hounds, and that when you have uttered them with some little attention to what you have said, you have prayed. Now neither of these modes of prayer were adopted by ancient saints. They appear to have thought a great deal more seriously of prayer than many do now-a-days. It seems to have been a mighty business with them, a long-practised exercise, in which some of them attained great eminence, and were thereby singularly blest. They reaped great harvests in the field of prayer, and found the mercy seat to be a mine of untold treasures.
 

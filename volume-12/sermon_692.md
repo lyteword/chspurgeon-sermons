@@ -69,7 +69,7 @@ May the Lord forgive you, my dear Friends, who are in this state of heart, for b
 
 Well, I have just exposed these two matters and want your patient attention while I seek to bring out the truth of the text. We are finished with the errors that are not in it&mdash;now for the Truth of God that is in it.
 
-The great truth of the text is THAT BELIEVING IN CHRIST IS THE TRUE GROUND FOR JOY AND
+The great truth of the text is THAT BELIEVING IN Christ IS THE TRUE GROUND FOR JOY AND
 
 PEACE. What is believing in Christ? In one word it is trusting Christ. He is sent of God to save sinners and those sinners who trust in Him to save them are saved. Faith then, the faith which is the ground of our joy and peace, is a simple trust in Christ.
 

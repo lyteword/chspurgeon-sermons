@@ -3,7 +3,7 @@
 > "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the la w sitting by, which were come out of every town of Galilee, and Judea, and Jerusalem: and the power of the Lord was present to heal them."  
 > Luke 5:17.  
 
-LUKE, the writer of this Gospel, was a physician and therefore had a quick eye for cases of disease and instances of cure. You can trace throughout the whole of his Gospel the hand of one who was skilled in surgery and medicine. I gather from this that whatever may be our calling, or in whatever art or science we may have attained proficiency, we should take care to use our knowledge for Christ. And that if we are called being physicians we may understand the work of the Lord Jesus all the better by what we see in our own work, and we may also do much for our Lord in real substantial usefulness among our patients.
+Luke, the writer of this Gospel, was a physician and therefore had a quick eye for cases of disease and instances of cure. You can trace throughout the whole of his Gospel the hand of one who was skilled in surgery and medicine. I gather from this that whatever may be our calling, or in whatever art or science we may have attained proficiency, we should take care to use our knowledge for Christ. And that if we are called being physicians we may understand the work of the Lord Jesus all the better by what we see in our own work, and we may also do much for our Lord in real substantial usefulness among our patients.
 
 Let no man despise his calling. Whatever instrument of usefulness God has put into your hands, consider that the Great Captain knew what weapons were best for you to wield. Covet not your neighbor's sword or spear, but use that which your Lord has given you and go forth to the battle of life to serve according to your capacity. If you are placed in this corner of the vineyard or that, consider that you are in the best place for yourself and the best place for your Master. And do not always be judging what your fellow servants ought to do in their place, nor what you could do if you were in another place, but see what it is that you can do where you are and use such things as you have in glorifying your Lord and Master.
 
@@ -13,7 +13,7 @@ To do the same in religion is even more unwise. To say, "You shall all speak aft
 
 Luke did not cease to be Luke when he was called by Divine Grace. He was the same man elevated and refined, and taught to consecrate to noblest ends the gifts which he had acquired in his earthly calling. He was a physician before, and he became "the beloved physician" after his conversion.
 
-The text, as we read it, suggests, in the first place, that THE POWER OF CHRIST IN THE GOSPEL IS MAINLY a POWER TO HEAL. "The power of the Lord was present to heal them." The power of the Gospel, of which Christ is the Sum and Substance, is a healing power. My Brethren, when Christ came on earth He might have come with destroying power. Justly enough might God have sent His only Son with the armies of vengeance to destroy this rebellious world.
+The text, as we read it, suggests, in the first place, that THE POWER OF Christ IN THE GOSPEL IS MAINLY a POWER TO HEAL. "The power of the Lord was present to heal them." The power of the Gospel, of which Christ is the Sum and Substance, is a healing power. My Brethren, when Christ came on earth He might have come with destroying power. Justly enough might God have sent His only Son with the armies of vengeance to destroy this rebellious world.
 
 But&mdash;
 
@@ -91,7 +91,7 @@ Last Monday was a day of wrestling of such a kind that the blessing could not be
 
 Now with all these signs meeting together&mdash;a desire to hear, a set time of private prayer, the teaching of the Word, and the manifest blessing of souls under that Word&mdash;I gather that we have arrived at this present moment at that state which is described in the text.
 
-Passing on to a third thought, we observe that WHEN THE POWER OF THE LORD IS PRESENT TO HEAL,
+Passing on to a third thought, we observe that WHEN THE POWER OF THE Lord IS PRESENT TO HEAL,
 
 IT MAY NOT BE SEEN IN ALL, BUT MAY BE SHOWN IN SPECIAL CASES AND NOT IN OTHERS. It is a melancholy reflection that men may be in the region of Divine power and yet not feel its operations. I have read this verse through a great many times with one object&mdash;I have tried, if I could&mdash;to make the text mean that the Pharisees and doctors of the law were present and that the power of the Lord was present to heal them.
 
@@ -119,7 +119,7 @@ But if they quarrel, if they raise questions, if they dispute, we know their bre
 
 Beware, lest you have those jests in your mouth on earth, which you will have to digest in Hell! Beware, lest your mockery return upon you at the Last Great Day when the words of Solomon shall be fulfilled, "Because I called and you refused, I stretched out My hands and no man regarded, I also will mock at your calamity, I will laugh when your fear comes." There were persons, then, to whom the present power of Christ to heal was of no service whatever and there may be such now. Friend, are you such an one?
 
-In the last place, I want Christian people here to observe that WHEN THE POWER OF CHRIST WAS PRESENT IT CALLED FORTH THE ENERGY OF THOSE WHO WERE HIS FRIENDS TO WORK WHILE THAT
+In the last place, I want Christian people here to observe that WHEN THE POWER OF Christ WAS PRESENT IT CALLED FORTH THE ENERGY OF THOSE WHO WERE HIS FRIENDS TO WORK WHILE THAT
 
 POWER WAS MANIFEST. My dear Brothers and Sisters, the members of this Church especially&mdash;what I have to say is earnestly addressed to you.
 
