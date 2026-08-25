@@ -87,7 +87,7 @@ Simply to Your Cross I cling." Yes, more than this, you will need Divine aid eve
 
 My strength is at Your feet to lie." And, poor helpless one, if you are but hidden in Christ, you are forever secure! Storms may arise, but you cannot be overwhelmed! Old Boreas may blow until his cheeks burst, but not a breath of wind can injure you, for in the cleft of the Rock you shall be hidden until the vengeance is gone!
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 11:1-21.
+Exposition by C. H. Spurgeon: Hebrews 11:1-21.
 
 This is the Arc de Triomphe erected to the memory of the heroes of faith, whose names are here recorded by the Apostle's Inspired pen with a brief mention of some of their most memorable actions. If it had not been for their faith, which moved them to accomplish such valiant deeds, we might not have known anything about them.
 

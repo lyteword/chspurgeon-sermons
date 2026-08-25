@@ -67,7 +67,7 @@ And when the Lord will bring out any that shall really fear Him and do anything 
 
 Oh, how great your sin has been, my Hearers! But Jesus Christ is still greater! You have gone deeply into sin, but the arm of Mercy can reach you! You have wandered far, but the eyes of Love can see you and the voice of Love calls to you now, "Come, come, come and welcome, come and welcome!" Come just as you are and you will not be cast away, but be accepted in the Beloved! "There is forgiveness with You, that You may be feared," and none fear, and love, and bless, and praise God as much as those who know that there is forgiveness with Him!
 
-EXPOSITION BY C. H. SPURGEON: PSALM 145.
+Exposition by C. H. Spurgeon: Psalm 145.
 
 When you get to the one hundred and forty-fifth Psalm, you enter the Beulah Land of the Psalms. Henceforth the time of the singing of birds is come and you go from one Hallelujah to another! In the Hebrew, this is one of the alphabetical Psalms, but one letter (nun) is omitted, perhaps, as Dr. Bonar suggests, "we must be kept from putting stress on the mere form of the composition." Those ancient singers sang their way through the alphabet from a to Z, and it is also well for us to begin to praise the Lord while we are yet children, and to keep on praising Him till we get to the "Z" in the very hour of death, gasping His praises till we get into eternity&mdash;
 
@@ -76,7 +76,7 @@ When you get to the one hundred and forty-fifth Psalm, you enter the Beulah Land
 > And praise You when I rise again,   
 > And to eternity!   
 
-Verses. 1-3. I will extol You, my God, O King, and I will bless Your name forever and ever Every day will I bless You, and I will praise Your name forever and ever Great is the LORD, and greatly to be praised; and His greatness is unsearchable. Such as the Lord is, such should His worship be. If He were a little God, He would deserve little praise, but the great God is "greatly to be praised." There is no fear of going to any excess in our praises&mdash;we will never laud Him too highly, however lofty our expressions may be.
+Verses. 1-3. I will extol You, my God, O King, and I will bless Your name forever and ever Every day will I bless You, and I will praise Your name forever and ever Great is the Lord, and greatly to be praised; and His greatness is unsearchable. Such as the Lord is, such should His worship be. If He were a little God, He would deserve little praise, but the great God is "greatly to be praised." There is no fear of going to any excess in our praises&mdash;we will never laud Him too highly, however lofty our expressions may be.
 
 "Great is the Lord, and greatly to be praised; and His greatness is unsearchable." David knew what it was to be searched by God and he prayed, "Search me, O God." But he could not search the greatness of his God. There, he was utterly lost&mdash;the utmost range of his faculties could not compass the greatness of Jehovah&mdash;"His greatness is unsearchable."
 
@@ -90,7 +90,7 @@ And I will declare Your greatness. While other men were talking, David did not s
 
 They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness. What a beautiful expression! "They shall abundantly utter." The original has in it the idea of bubbling up, boiling over, bursting out like a fountain! Men's hearts shall get to be so full of gratitude to God that they shall overflow with the memory of His great goodness! Then they shall sing. Singing is the language ofjubilant nature&mdash;"the mountains and the hills shall break forth before you into singing." Singing is the language of men when they wish to express their highest joys. The saints sing the high praises of their God. Singing is the language of the holy angels! Did they not, when they came to Bethlehem, sing concerning the newborn King? Singing is the language of Heaven and most marvelous of all, singing is the highest language that God ever uses! "He will rejoice over you with joy; He will rest in His love, He will joy over you with singing." Oh, for more holy singing!
 
-The LORD is gracious. That alone is enough to make us sinners sing, for we need Divine Grace and, "the Lord is gracious."
+The Lord is gracious. That alone is enough to make us sinners sing, for we need Divine Grace and, "the Lord is gracious."
 
 And full of compassion. There is no "passion" in Him, but there is "compassion" in Him. What a mercy that is for us! He is full of compassion."
 
@@ -112,12 +112,12 @@ down? Daughter of Abraham, have you been bowed down these many years? Oh, that y
 
 15, 16. The eyes of all wait upon You; and You give them their meat in due season. You open Your hands and satisfy the desire of every living thing. What a glorious God we have! How easily can He supply the needs of His people! He has but to open His hands and it is done! We need not be afraid to come to Him, as though our needs would be too great for Him to supply. The commissariat of the universe is superintended by this truly Universal Provider, who has but to open His hands to satisfy "the desire of every living thing."
 
-The LORD is righteous in all His ways, and holy in all His works. This is a thing for which many modern divines do not praise God. The attribute of righteousness in the Character of God is expelled from a good deal of modern theology. But he who loves God rightly, loves the righteousness of God! I would not care to have salvation if it were unrighteous salvation. The righteousness of God gleams like a sharp two-edged sword and it is terrible to those who are at enmity against Him. But the true children of the Most High delight to see this sword of State carried in the front of the great King of kings! The seraphim cry, one to another, "Holy, holy, holy, is the Lord of Hosts!" The redeemed in Glory sing, "Just and true are Your ways, You King of saints!" But the critical critics of the present day care nothing for these attributes of Jehovah.
+The Lord is righteous in all His ways, and holy in all His works. This is a thing for which many modern divines do not praise God. The attribute of righteousness in the Character of God is expelled from a good deal of modern theology. But he who loves God rightly, loves the righteousness of God! I would not care to have salvation if it were unrighteous salvation. The righteousness of God gleams like a sharp two-edged sword and it is terrible to those who are at enmity against Him. But the true children of the Most High delight to see this sword of State carried in the front of the great King of kings! The seraphim cry, one to another, "Holy, holy, holy, is the Lord of Hosts!" The redeemed in Glory sing, "Just and true are Your ways, You King of saints!" But the critical critics of the present day care nothing for these attributes of Jehovah.
 
-The LORD is near unto all them that call upon Him, to all that call upon Him in truth. If you read this Psalm through carefully, you will notice the great number of, "alls," with which the latter part of the Psalm is studded. And this is appropriate, for God is All-in-All, He is the One, the All, so let Him have all praise from all!
+The Lord is near unto all them that call upon Him, to all that call upon Him in truth. If you read this Psalm through carefully, you will notice the great number of, "alls," with which the latter part of the Psalm is studded. And this is appropriate, for God is All-in-All, He is the One, the All, so let Him have all praise from all!
 
 He will fulfill the desire of them that fear Him: He also will hear their cry, and will save them. When you have respect to God's will, God will have respect to your will. When you fear Him you will have no one else to fear, and when you make His service your delight, He will make your needs His care.
 
-The LORD preserves all them that love Him: but all the wicked will He destroy. As in a state of sanitary perfection, everything that breeds pollutants and disease is banished&mdash;so must it be in God's great universe when He has completed His works&mdash;"all the wicked will He destroy."
+The Lord preserves all them that love Him: but all the wicked will He destroy. As in a state of sanitary perfection, everything that breeds pollutants and disease is banished&mdash;so must it be in God's great universe when He has completed His works&mdash;"all the wicked will He destroy."
 
-My mouth shall speak the praise of the LORD: and let all flesh bless His holy name forever and ever.
+My mouth shall speak the praise of the Lord: and let all flesh bless His holy name forever and ever.

@@ -6,7 +6,7 @@ PERHAPS you remember the circumstances under which these words were spoken. Davi
 
 I am not going to spiritualize my text. I want to do nothing unfair. Let me use it as a slogan. You will all allow that apt words may be employed at sundry times and in divers manners. I will simply say that as a general principle, the conviction of excellence leads us to desire possession. "There is none like that," is the conviction of excellence. "Give it to me"&mdash;there is the desire to possess. I shall illustrate this Truth of God in spiritual things upon some six or seven matters.
 
-Speak of "the sword of the Spirit, which is THE WORD OF GOD," and you may well say, "there is none like that."
+Speak of "the sword of the Spirit, which is THE WORD OF God," and you may well say, "there is none like that."
 
 It is incomparable in its Authorship. We are persuaded that He who Inspired the Scriptures is none other than He who made the heavens and the earth, the God who cannot lie. All other books are but human at the best&mdash;let the authors be ever so refined&mdash;they cannot pretend to write as God writes. "There is none like that" for Authorship.
 
@@ -20,7 +20,7 @@ The conclusion, therefore, that I draw is, "Give it to me." Oh, give it to me th
 
 discard it, "Give it to me." There are some who want to put it up on the shelf, as a thing that has seen its best days. They suppose the old sword is rusty and worn out, but we can say, "There is none like that; give it to me!"
 
-I shall have no time to enlarge upon this subject, so I must give you much in little. Therefore I pass on to another instance of the conviction of excellence with regard to THE SALVATION WHICH IS PROVIDED IN CHRIST JESUS.
+I shall have no time to enlarge upon this subject, so I must give you much in little. Therefore I pass on to another instance of the conviction of excellence with regard to THE SALVATION WHICH IS PROVIDED IN Christ Jesus.
 
 All of you who are acquainted with the salvation that is in Christ will confess that "there is none like that." Beginning with that which always must lie at the root of all Gospel, the precious blood of Jesus&mdash;where can there be found anything like that? The blood of the Son of God, shed in so remarkable a manner, with sufferings so extraordinary, having about it a voice so loud which "speaks better things than that of Abel." The blood which, when sprinkled upon us, enables us to boldly enter into that which is within the veil. The blood which, when sprinkled upon our door posts, preserves us from the destroying angel. The blood in which, if we are washed, leaves us whiter than snow, so that "neither spot nor wrinkle" can remain on those who have received the Atonement of our Lord&mdash;there is no blood like that! Search the world round and you will find that there is no truth so consolatory as the Truth of God of the Substitution of Christ and His suffering, "the Just for the unjust, that He might bring us to God."
 
@@ -48,7 +48,7 @@ And, certainly, as difficulties are removed, this unstaggering faith preserves a
 
 I think, if I had mentioned only these four things concerning unstaggering faith, you would say, "There is none like that." It grasps promises, wins positions, overcomes difficulties and lives in perpetual peace. What then? Why, "give it to me." O Little-Faith, do you not say, "Give it to me?" Perhaps you have been in Giant Despair's castle and you have thought he would surely devour you. But if you could get hold of this Goliath's sword, you might soon have the giant's head in your hand! If you keep better company, if your spiritual lungs take in more of the air of Heaven, there is no reason why that little trembling faith of yours should not grow into strong faith, for the promise is as true to you as to any other. You are as much a child of God as any other. God is as willing to answer your prayer as the prayer of any of His people. He is as true to you as He is to others. He "waits to be gracious." I hope before you go home you will say of this strong faith, "There is none like that; give it to me."
 
-The fourth thing is one which I think equally as precious as any I have spoken of, and that is a LIFE OF NEAR AND DEAR COMMUNION WITH CHRIST.
+The fourth thing is one which I think equally as precious as any I have spoken of, and that is a LIFE OF NEAR AND DEAR COMMUNION WITH Christ.
 
 There may not be many here who have enjoyed it, for it is not given to all God's people to live in this center of true religion. The higher life is neither known nor possessed by all the saints, but those who do know and possess it will tell you that "there is none like that." A man who gets into close communion with Christ is sure that his soul is saved. He does not sing&mdash;
 
@@ -68,7 +68,7 @@ me."
 
 But I must pass on. The bee is in a field that has many flowers in bloom and must fly from one to another. THE
 
-POSSESSION OF SPIRITUAL POWER&mdash;THE POWER AND INDWELLING OF THE HOLY SPIRIT&mdash;is another
+POSSESSION OF SPIRITUAL POWER&mdash;THE POWER AND INDWELLING OF THE Holy Spirit&mdash;is another
 
 most precious thing concerning which, I trust, we have a conviction of excellence which will lead us to desire its possession.
 
@@ -78,7 +78,7 @@ This power shows itself in their public work They may he preachers and if God ha
 
 This power often shows itself in a Church. I want to get you to pray for a public blessing, for a whole Church may get this spiritual power. Look at the Prayer Meetings, how well they are attended. Look at the various societies, how earnestly they are conducted. Look how the young men and women are seeking to bring in others; how the matrons are mothers in Israel; how the old men are fathers in Christ. Oh, it is a blessed thing when a whole Church is alive! One may blow the coals so well that they may touch a Prophet's lips, but a whole mass of coals together&mdash;what a conflagration of Divine Grace may this cause throughout the world! Oh, that all our Churches had power from on high! Then would come revival seasons, true revivals, when everything would be full of holy joy and vigor and the Kingdom of Christ would grow and His arm revealed! You are sure to see the effect of this power in the Church in the blessing of the world, for the Church that is revived soon tells upon the neighborhood! If there is a great fire, you may see the blaze of it a long way off, and so if there is a fire in the Church of God, the blaze of it must be seen by the world! You bless the neighborhood where you are blessed in yourselves. With regard to this spiritual power, "there is none like that." We may preach new doctrines, or use fine music, or try to build our edifices so as to make them attractive, but oh, when we come to spiritual power, "there is none like that." I think I can hear all the members of this Church and members of other Churches who are here, say, "Give it to us, Lord, give it to us now." I am persuaded that we might exercise this power more, but we sometimes think that this sword of Goliath is laid up before the Lord and is never to be used&mdash;that this shaking of the dry bones, this fire from Heaven running along upon the ground, is a thing to be read about and dreamt of, but not to be possessed and seen! O God, show that You have not changed Your ancient prowess! O arm of the Lord, be You made bare again! Let this be our constant prayer, "There is none like that; give it to me."
 
-I want to speak so as to touch some who are not yet converted and I think I must use another illustration of the principle which leads wise men to desire possession, namely, The PRIVILEGE OF THE CHRISTIAN.
+I want to speak so as to touch some who are not yet converted and I think I must use another illustration of the principle which leads wise men to desire possession, namely, The PRIVILEGE OF THE ChristIAN.
 
 Every Christian who possesses this privilege will tell you that there is nothing like it in all the world. What is a Christian? Well, first, he is a son of God, an heir of Heaven, a prince of the blood imperial, one of God's aristocrats soaring right above the common level! He is as much above other men as other men are above brutes. He is a man of a new race&mdash;he does not belong to this world&mdash;he is an alien, a stranger! His citizenship is in Heaven! He can look up to God and say, "My Father." The Spirit of adoption is in his heart.
 
@@ -86,7 +86,7 @@ The Christian knows that he is "accepted in the Beloved. "He knows that whatever
 
 And now, Sinner, does not your heart say, "Give it to me. Let me be treated as You treat the rest of the family. Do unto me as You use to do unto them that fear Your name?" There is a gate to God's heart and that gate is not shut! And by the way we came into that heart, dear Sinner, you may also come! "I am the Way," says Christ. If you look to Him bleeding, suffering, bearing the guilt of man, you are accepted, for looking to Jesus is a token off your being "accepted in the Beloved." But never be satisfied with merely knowing what is the privilege of a Christian, try to get it! "There is none like that; give it to me."
 
-Only once more on this point. Mark THE CHRISTIAN's HOPE and may we not justly say, "There is none like
+Only once more on this point. Mark THE ChristIAN's HOPE and may we not justly say, "There is none like
 
 that"?
 

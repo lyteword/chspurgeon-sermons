@@ -10,7 +10,7 @@ Knowing this general aversion to my theme, I shall not treat it in a gloomy and 
 
 OUR BODY, OUR PROPERTY, OUR FAMILY, THIS PRESENT LIFE AND ALL ITS SURROUNDINGS ARE, IN THE TEXT, DESCRIBED AS a HOUSE. This simile is not at all unusual either in the Old or the new Testaments. The Apostle Paul tells us that "Moses was faithful in all his house," that is to say, in his lifelong charge and duty. Our Lord said of the Pharisees that they devoured widow's houses, meaning their estates. And Paul, referring to his body, said, "We know that if our earthly house of this tabernacle were dissolved, we have a building of God, an house not made with hands, eternal in the heavens." We will see what instruction we can find in this most simple but comprehensive comparison.
 
-This mortal life and its surroundings are likened to a house and the first point of the similitude will be seen if we enquire, WHO IS THE LANDLORD?
+This mortal life and its surroundings are likened to a house and the first point of the similitude will be seen if we enquire, WHO IS THE LANDLord?
 
 The first answer is that certainly we are not To all men, it may be truthfully said, "You are not your own." We are tenants, but not freeholders. We are mere tenants at will without a lease. The earthly house of this tabernacle belongs to Him who built it. He who sustains it keeps the title deeds in His own possession. Our house belongs to God. Dear Friend, do you ever think of this? Do you remember, as a matter of fact, that you and yours are God's property?. He created you and created you for His own Glory. Your soul was spoken into existence by Him. Your bodily powers were all bestowed by His hand. You are the creature of the Almighty! In every vein, sinew and nerve of your body there are traces of the Divine Embroiderer's skill. You are God's in all the most secret goings and issues of your life, for you owe the continued possession of your existence every day to Him. Your breath is in your nostrils, but He keeps it there. He has but to will it and the atoms composing your body, which He now keeps apart from their fellows, would return to the bosom of the earth. You are but a walking heap of dust and the cohesion of the various particles is maintained by the hand of Omnipo-
 
@@ -104,4 +104,4 @@ As for you who have no redeeming blood upon you, I do not marvel that you live t
 
 Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

@@ -74,11 +74,11 @@ Remember, too, that some of the vilest sinners that have ever livedhave been man
 
 May the Spirit of the living God stir you up to this, for, if not, I have one more consideration to urge upon you. Remember how soon you may be in Hell And they who go there, if they have been such as you are, go there with a vengeance. To go from under the shadow of the pulpit to the Pit is terrible. To go from the Communion Cup, to drink the cup of devils&mdash;from the song of saints to the weeping, and wailing, and gnashing of teeth of lost souls&mdash;from all the hallowed joys of God's Sabbath, of God's House and of His Word, down to the unutterable infamy of spirits that have no love of God, but curse Him day and night&mdash;my Hearers, that may be your lot within an hour, a week, a year! It matters not what the period may be, for if it ever is your lot, the time past shall seem to have been but the twinkling of an eye for its joy, though it may appear to you to have been ages for the awful responsibility which the day of mercy will have entailed upon you. Repent and be baptized, everyone of you!" As Peter said, so say I! If you have not as yet received Christ, lay hold on eternal life and oh, that the Spirit of the living God, while I preach the Word generally, may apply it particularly, finding out His own chosen and gathering them out of the ruins of the Fall, that they may be jewels in the crown of the Redeemer! The Lord make us doves, but God forbid that we should be "silly doves without heart."
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
 www.spurgeongems.org
 
-PSALM 88:10-61; 1 PETER 4:1-13.
+Psalm 88:10-61; 1 Peter 4:1-13.
 
 The story of how the children of Israel behaved themselves towards their gracious God.
 
@@ -94,7 +94,7 @@ They said, Can God furnish a table in the wilderness That is speaking against Hi
 
 Behold, He smote the Rock, that the waters gushed out, and the streams overflowed; can He give bread also? Can He provide flesh for His people These things, which they lusted after, they also turned into subjects for unbelief. And they even misused the miracle which they dared not deny.
 
-22. Therefore the LORD heard this, and was angry: so a fire was kindled against Jacob, and anger also came up against Israel Because they believed not in God, and trusted not in His salvation. This was the provoking sin. The Lord would not endure such wanton and wicked unbelief as this. After He had turned the rocks into rivers, could He not turn the stones into bread, and the dust of the desert into flesh if He chose to do so?
+22. Therefore the Lord heard this, and was angry: so a fire was kindled against Jacob, and anger also came up against Israel Because they believed not in God, and trusted not in His salvation. This was the provoking sin. The Lord would not endure such wanton and wicked unbelief as this. After He had turned the rocks into rivers, could He not turn the stones into bread, and the dust of the desert into flesh if He chose to do so?
 
 23-32. Though He had commanded the clouds from above, and opened the doors of Heaven, and had rained down manna upon them to eat, and had given them of the corn of Heaven. Man did eat angels' food: He sent them meat to the full. He caused an east wind to blow in the Heaven: and by His power He brought in the south wind. He rained flesh also upon them as dust, and feathered fowls like as the sand of the sea: and He let it fall in the midst of their camp, round about their habitations. So they did eat, and were well filed: for He gave them their own desire; they were not estranged from their lust. But while their meat was yet in their mouths, the wrath of God came upon them, and slew the fattest of them, and smote down the chosen men of Israel For all this they still sinned. Mercy failed to move them, and judgment failed too. The right hand of God's gifts and the left hand of His chastisement were equally ignored.
 

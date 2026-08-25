@@ -65,7 +65,7 @@ own child, and on your way to Heaven, and a crown of eternal life is yours"&mdas
 
 God give to all of you the Grace to believe in Jesus and to go your way rejoicing, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN20:1-18.
+Exposition by C. H. Spurgeon: John20:1-18.
 
 Verse 1. The first day of the week Mary Magdalene came early, when it was yet dark, unto the sepulcher, and saw the stone was taken away from the sepulchei. Her love for her Lord made her rise early and helped her to overcome the fear which would have prevented many from going out "when it was yet dark, unto the sepulcher." There are fears which some cannot shake off in the dark&mdash;and those fears would be apt to become intensified in going to a sepulcher in the dark. But love wakes early to try to find Christ and love can see in the dark when looking for Jesus! Mary little expected to find the tomb of Jesus rifled and the stone rolled away&mdash;she was so surprised at what she saw that she hurried away to tell the story to other friends of her Lord.
 

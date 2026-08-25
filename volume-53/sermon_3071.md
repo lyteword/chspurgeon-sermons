@@ -79,7 +79,7 @@ He seek fame? Did He labor for earthly honor and glory? Did He hoard up wealth? 
 
 God bless you. And if any of you are living without Christ, perhaps it is some beloved idol that is keeping you from Him. If so, may you be delivered from its thralldom by coming to Jesus right now, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 JOHN 5.
+Exposition by C. H. Spurgeon: 1 John 5.
 
 Verse 1. Whoever believes that Jesus is the Christ, is born of God. Where there is real faith in Jesus Christ as the Anointed of God, there is the evidence that the new birth has taken place. Let the first, the best and the clearest proof of our regeneration be the fact that we do verily and in our heart believe that Jesus is the Christ!
 

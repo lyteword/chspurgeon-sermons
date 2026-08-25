@@ -94,7 +94,7 @@ And, lastly, how holy we ought to be with such holy beings watching over us If t
 
 May He graciously keep us in His holy way. And if we are so kept, we shall be preserved from all evil while we are here and, at last, we shall see His face with joy and live with Him forever! I would to God that all who are now present were in that holy way. I remind you once more that the entrance to it is by a door that has the blood-mark upon the lintel and the two doorposts&mdash;"The blood shall be to you for a token." "Believe on the Lord Jesus Christ, and you shall be saved."
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:25-32.
+Exposition by C. H. Spurgeon: Psalm119:25-32.
 
 Verse 25. My soul cleaves unto the dust "It sticks to it as though it were glued to it. My soul cannot be lifted up, at least by myself, out of its sadness and its earthiness." The Psalmist was not one who could boast of perfection. He had to lament that the earth which was in him by nature made even his soul cleave to Mother Earth. He did not like it. He was not content that it should be so and, therefore, he breathed this prayer&mdash;
 

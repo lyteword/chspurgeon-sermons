@@ -104,7 +104,7 @@ If nothing else will make us weep, there is one other reflection that should bri
 
 Oh, how could I ever offend such a God as this? Shame on my heart! Gladly would I smite you that you could ever be an enemy to One who loved you before the day-star knew its place. And O base spirit that does not now serve God better, more ardently, more passionately, more perfectly, seeing that all this love has been spent on you! Beloved, God grant that we may realize, in all its sweetness, the meaning of our text, "going and weeping," and unto Him shall be glory forever and ever. Amen.
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS 1:1-14.
+Exposition by C. H. Spurgeon: Ephesians 1:1-14.
 
 In this chapter we see what Paul, writing under the Inspiration of the Holy Spirit, has to say about the possessions and privileges of Believers in the Lord Jesus Christ.
 

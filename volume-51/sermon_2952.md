@@ -10,7 +10,7 @@ And when a man has no self remaining, but has given himself up as a living sacri
 
 I have two or three things to talk of, so let me proceed with them at once.
 
-The first practical observation founded upon my text is this&mdash;a GODLY MAN MAY OFTEN BE THROWN INTO AN ILL POSITION FOR THE GOOD OF OTHERS.
+The first practical observation founded upon my text is this&mdash;a GodLY MAN MAY OFTEN BE THROWN INTO AN ILL POSITION FOR THE GOOD OF OTHERS.
 
 Paul was put into a ship&mdash;into a ship among thieves and other criminals. He was put into a ship among sailors and soldiers, who were none of the best in those days, but he was put there for their good. This, then, I would lay down as a general theory&mdash;there are multitudes of Christians who are in places very uncomfortable and, perhaps, very unsuitable for them, but who are put there for the good of others.
 
@@ -42,7 +42,7 @@ You have no need to run after a fresh ordeal, but if God has placed you there, b
 
 The best sermon Paul preached was when he took bread and gave thanks. He did not do that for show. It was just in the daily course of his habitual godliness that the man of God came forth boldly before their eyes. Do not conceal your godliness from those around you! Though at first they may laugh at you and despise you, who can tell but that, like Paul, you may gain influence till they will do anything you tell them? And like Paul, by means of that influence, you may save all that are in the house and so the text may come true of you, "God has given you all them that sail with you."
 
-A second lesson suggested to us is this. WHEREVER WE ARE CAST, WE SHOULD ANXIOUSLY ASK OF GOD ALL THE SOULS THAT SAIL WITH US.
+A second lesson suggested to us is this. WHEREVER WE ARE CAST, WE SHOULD ANXIOUSLY ASK OF God ALL THE SOULS THAT SAIL WITH US.
 
 God says He gave to Paul all that sailed with him and, therefore, I conclude that Paul had asked Him to do so. How many were they? Some 270 and yet He gave them all to Paul! Father, some seven or eight make up your family, or, if it is of larger dimensions, at least you have not, in all your kinsfolk, I should think, so many as the two hundred and seventy! Do not, in your prayers, therefore, leave out one child, or one connection, or one friend. Pray to God for them all!
 

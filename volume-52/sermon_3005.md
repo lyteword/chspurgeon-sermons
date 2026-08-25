@@ -68,9 +68,9 @@ We have heard, in our church meetings, that on several occasions when, at the cl
 
 My dear Hearers, you whose face I look upon every Sabbath, and into whose ears this poor, dry voice has spoken so many hundreds of times, we do not wish to be parted. I know that to some of you, this is the very happiest, as well as the holiest spot you ever occupied. You love to be here. I am glad you do and I am glad to see you. I do not like to be separated from you. When any of you move to other towns, it gives me pain to miss your faces. I hope we shall not be separated in the world to come. My beloved Friends around me, who have been in Christ these many years, you also love them. We do not wish to be divided. I would like that all this ship's company should meet on the other side of the sea. I do not know one among you that I could spare. I would not like to miss any of you who sit yonder, nor any of you who sit near&mdash;neither the youngest nor the oldest of you. Well, but we cannot meet in Heaven unless we meet in Jesus Christ! We cannot meet father, mother, pastor and friends unless we have a good hope through Jesus Christ our Lord! Will not that band of love draw you? Mother, from the railings of Heaven, a little angel-child is looking down tonight, beckoning with his finger. He is looking out for you and he is saying, "Mother, follow your baby to Heaven." Father, your daughter charged you, as she died, to give your heart to Christ&mdash;and from her seat in Heaven her charge comes down to you with as great force as it came from her sick-bed, I trust, "Follow me, follow me to Heaven!" Friends who have gone before&mdash;godly ones who have fallen asleep in Jesus&mdash;in one chorus, say to you, "Come up here! Come up here for we, without you, cannot be made perfect." Will not this band of love draw you? Oh, will not this cord of a man lay hold upon you and bring you to the Savior's feet? The Lord grant that it may, but, as I have said, I can only show you the cords. It is God's work to pull them&mdash;and they will be pulled if the saints will join in earnest prayer, invoking a blessing upon sinners. The Lord grant it, for His love's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-HOSEA 11; 14.
+Hosea 11; 14.
 
 Hosea 11:1. When Israel was a child, then I loved him, and called My son out of Egypt. God's love was very early love. He began with the nation of Israel when it was a mere handful of men in Egypt. There He multiplied them and, in due time, He called them out from among the heathen. God's love to some of us manifested itself at a very early period of our lives when we were yet children. It is among our most joyous memories that we have known the Lord from our youth up. Happy man, happy woman, of whom God can say, as He said concerning His ancient people, "When Israel was a child, then I loved him, and called My son out of Egypt."
 
@@ -92,13 +92,13 @@ My heart is turned within Me, My repentings are kindled together. O Backsliders,
 
 I will not execute the fierceness of My anger, I will not return to destroy Ephraim: for I am God, and not man. What a mercy this is for us! If the Lord had been man, He would have cast us off long ago. But, as He is God, He is infinitely patient and He loves to forgive. "I am God, and not man."
 
-9, 10. The Holy One in the midst ofyou: andl willnot enter into the city. They shall walk after the LORD.See what His almighty Grace will do to make these wanderers come back to Him.
+9, 10. The Holy One in the midst ofyou: andl willnot enter into the city. They shall walk after the Lord.See what His almighty Grace will do to make these wanderers come back to Him.
 
 10, He shall roar like a lion: when He shall roar, then the children shall tremble from the west. Even His roaring like a lion will only make them tremblingly come back to Him.
 
-11, 12. They shall tremble as a bird out ofEgypt, and as a dove out of the land of Assyria: andl willplace them in their houses, says the LORD. Ephraim compasses Me about with lies, and the house of Israel with deceit: but Judah yet rules with God, and is faithful with the saints.
+11, 12. They shall tremble as a bird out ofEgypt, and as a dove out of the land of Assyria: andl willplace them in their houses, says the Lord. Ephraim compasses Me about with lies, and the house of Israel with deceit: but Judah yet rules with God, and is faithful with the saints.
 
-Hosea 14:1. O Israel, return unto the LORD your God; for you have fallen by your iniquity. Let anyone here who has turned aside from the Lord, hear these tender pleading words and then yield to Him who utters them! God speaks, not to condemn, but to comfort. He would gladly allure you back to Him with His gracious words of love! "O Israel, return unto the Lord your God; for you have fallen by your iniquity."
+Hosea 14:1. O Israel, return unto the Lord your God; for you have fallen by your iniquity. Let anyone here who has turned aside from the Lord, hear these tender pleading words and then yield to Him who utters them! God speaks, not to condemn, but to comfort. He would gladly allure you back to Him with His gracious words of love! "O Israel, return unto the Lord your God; for you have fallen by your iniquity."
 
 Take with you words, and turn to the Lord. But the poor penitent cries, "Alas, Lord, I do not know what to say. So God puts in the sinner's mouth the very words he is to utter.
 
@@ -136,4 +136,4 @@ They shall revive as the corn, and grow as the vine: the scent thereof shall be 
 
 Ephraim shall say, What have I to do any more with idols "He will spontaneously purge himself from the evil things which he once loved. I shall not need to send the hammer to break his idols, but he shall say, out of the fullness of his own heart, 'What have I to do any more with idols?'"
 
-8, 9. Ihave heardhim, and observedhim: Iam like a green fir tree. From Me isyour fruit found. Who is wise, andhe should understand these things? Prudent, andhe shall know them? For the ways of the LORD are right and the just shall walk in them: but the transgressor shall fall therein. Yes, they shall fall even when they are in the right ways&mdash;and I know of no falling that is worse than for men to be in the ways of religion and yet to stumble and fall even there! For, if they fall there, where will they notfall?
+8, 9. Ihave heardhim, and observedhim: Iam like a green fir tree. From Me isyour fruit found. Who is wise, andhe should understand these things? Prudent, andhe shall know them? For the ways of the Lord are right and the just shall walk in them: but the transgressor shall fall therein. Yes, they shall fall even when they are in the right ways&mdash;and I know of no falling that is worse than for men to be in the ways of religion and yet to stumble and fall even there! For, if they fall there, where will they notfall?

@@ -20,7 +20,7 @@ He sleeps. But think not that He is unconscious of what is going on. He knows ev
 
 You know the story. I have told it poorly, but it is the most magnificent of all stories that ever were told! "Arms, and the man, I sing," said one of the great classic poets of old, but I can say, 'The Cross and the Christ, I sing." 'Tis my delight to tell of Him who espoused the cause of His people and, though for a while a captive, broke the green straps and fetters of brass and, having gained the victory for Himself, also liberated others, then goes, at the head of His emancipated people, along the way which He has opened&mdash;the new way which He leads to the right hand of God!
 
-Let us go now, dear Brothers and Sisters, and calmly SURVEY THE WORK WHICH CHRIST HAS ACCOMPLISHED.
+Let us go now, dear Brothers and Sisters, and calmly SURVEY THE WORK WHICH Christ HAS ACCOMPLISHED.
 
 We will stand at the gates of old Gaza and see what the Champion has done. Those are ponderous hinges, and they must have held up huge doors. We will look at these doors, posts and this bar. Why, it is a mass of iron that ten men could hardly lift&mdash;and it might take 50 more to carry those huge doors! They were scarcely moved, even on their hinges, without the efforts of a dozen men&mdash;and yet this one man carried them all and I read not that his shoulders were bent, or that he grew weary. Seven miles, at least, Samson carried that tremendous load, uphill all the way, too! Still he bore it all without staggering, nor do I find that he was faint as he was aforetime at Ramath-Lehi.
 
@@ -82,9 +82,9 @@ Once more and I am through. Is not this an incentive for us, who profess to be s
 
 And now, as we come to the Lord's Table, let us have before us this vision of our glorious Samson achieving His mighty victory! And while we weep for sin, let us praise His superlative power and love that have worked such marvels for us. The Lord give us to enjoy His Presence at His table, and He shall have the praise! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
-PSALM 51.
+Psalm 51.
 
 A Psalm of David, when Nathan the Prophet came to him and rebuked him, in the name of God, for his great sin with Bathsheba.
 

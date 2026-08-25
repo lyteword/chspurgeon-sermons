@@ -10,7 +10,7 @@ I have been specially praying for the guidance of the Holy Spirit in handling a 
 
 The two verses which form my text seem to me to set before us, first, a great Truth of God&mdash;a great fact which is to be the subject of our reckoning&mdash;"Likewise reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord." And, secondly, a great lesson to be put into practice. "Let not sin therefore"&mdash;for the argument is carried on from the former verse&mdash;"Let not sin therefore reign in your mortal body, that you should obey it in the lusts thereof."
 
-What is the meaning of the first verse? What is THE GREAT TRUTH which is taught to us by the Holy Spirit? It is this&mdash;"Reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord."
+What is the meaning of the first verse? What is THE GREAT TRuth which is taught to us by the Holy Spirit? It is this&mdash;"Reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord."
 
 It is quite certain that God never asks Believers to reckon anything to be true which is not true, for to reckon a thing to be what it is not would be to build upon a false basis and, in fact, to argue upon that which is false. This would not be consistent with the Character of God, Himself, nor with the nature of the Gospel, which is, essentially, a proclamation of the Truths of God. There are no suppositions and imaginations in the Gospel&mdash;it tells of positive sin, positive punishment, positive substitution and positive forgiveness&mdash;for God would not have His people reckon upon anything which is not absolutely true. Therefore the text does not mean that you are to reckon that there is no sin in you, but that you are "dead indeed unto sin." You are not to reckon that which is lie&mdash;that which God the Holy Spirit intends you to reckon is a matter of positive, undoubted fact. If you read the context, you will see what that matter of fact is.
 
@@ -103,4 +103,4 @@ May we all learn that Christ is everything and that we are nothing! That He is h
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

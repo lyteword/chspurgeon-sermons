@@ -14,7 +14,7 @@ I want to show you, first, that faith needs no warrant for its action but the co
 
 ourselves practically. And then I shall show you, in the last place, that the principle is a grand one and commends itself to our best judgment
 
-First, FAITH NEEDS NO WARRANT FOR ITS ACTION BUT THE COMMAND OF GOD.
+First, FAITH NEEDS NO WARRANT FOR ITS ACTION BUT THE COMMAND OF God.
 
 Believers have no need to consult with flesh and blood. I may refer you in illustration of this Truth of God to good men in all ages. There is Noah, for instance. He is commanded by God to build an ark of gopher wood&mdash;an ark large enough to hold himself and his family and some of all beasts, birds and creeping things that were upon the face of the earth! Was it not an absurd idea to build so huge an ark upon dry land? Yet Noah did not consult with any of the people who were then living&mdash;we read, "Thus did Noah: according to all that God commanded him, so did he."
 
@@ -76,7 +76,7 @@ And finally, this will be our judgment at the Last Great Day. We shall account t
 
 If you love not the Lord Jesus Christ, take heed that He should come against you with His rod of iron and utterly destroy you. May He, by His gracious Spirit, give to all of us faith in Him and loyalty to Him for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 14.
+Exposition by C. H. Spurgeon: John 14.
 
 Verse 1. Let not your heart be troubled: you believe in God, believe also in Me.\See Sermons #730, Volume 13&mdash;let not your
 

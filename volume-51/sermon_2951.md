@@ -76,7 +76,7 @@ If there is a poor sinner here who sees the lifeboat of faith come close up to h
 
 "Other refuge have I none&mdash; Hangs my helpless soul on You." O Sinner, you can hang where I can hang and where all God's people are hanging! "Ah," you say, "you do not know what a great sinner I am." No, and you do not know what a great Savior He is! "Ah, but I have such a hard heart!" But His heart was broken and He can break yours! "Yes, but it will be an amazing thing if He ever saves me." Ah, there you are right, and so it is when He saves anybody&mdash;and He delights to work wonders of Grace! I wonder which will be the biggest wonder in Heaven&mdash;you or I&mdash;or someone else here or elsewhere? Well, we shall see when we get there, but mind that you get there! God bless you, for His dear Son's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 9:18-28; 10:1-25.
+Exposition by C. H. Spurgeon: Hebrews 9:18-28; 10:1-25.
 
 Hebrews 9:18-22. Whereupon neither the first testament was dedicated without blood. For when Moses had spoken every precept to all the people according to the Law, he took the blood of calves and of goats, with water, and scarlet wool, and hyssop, and sprinkled both the book, and all the people, saying, This is the blood of the testament which God has enjoined unto you. Moreover he sprinkled with blood both the tabernacle and all the vessels of the ministry. And almost all things are by the Law purged with blood; and without shedding of blood is no remission. Under the Law of God, some things were purified by fire or by water, but, "almost all things" were "purged with blood" and there was, and still is, no remission of sin "without shedding of blood."
 

@@ -96,7 +96,7 @@ I might enlarge upon this fruitful theme, but I will not do so. And so I close b
 
 Let us, therefore, go to our houses remembering that thought of Jesus retiring in secret to pray for His people&mdash;and before we close our eyes, let us go again to the Mercy Seat where Christ has often met with us. And as we close this service, let us for a few moments go in spirit to the Mount of Olives in prayer.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 7:30-63; 8:1.
+Exposition by C. H. Spurgeon: John 7:30-63; 8:1.
 
 John 7:30, 31. Then they sought to take Him: but no man laid hands on Him, because His hour was not yet come. And many of the people believed on Him, and said, When Christ comes, will He do more miracles than these which this Man has done? Well might they ask that question, for Jesus had worked such marvelous miracles that they could not
 

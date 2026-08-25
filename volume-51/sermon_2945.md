@@ -2,7 +2,7 @@
 
 "And it was now dark, and Jesus had not come to them." John 6:17.
 
-CHRIST's disciples, when they joined Him, had some very happy times with Him&mdash;and they had just had a very grand day in feeding the multitude. I wish I had been there to help in the feeding of 5,000 men. Everyone who had a share in that service was highly honored and those who were not there might well regret their absence on such an eventful day! But notice fair days have foul eventides and the Christ manifested during the day may become a Christ hidden during the night. Close on the heels of the intense excitement of great success comes the relapse into darkness of spirit and absence of joy. The very same men who had been rejoicing with unspeakable joy in the Divine power of their Master, are now left to endure that which is a very sad experience for anyone to have&mdash;everything dark&mdash;and Jesus not there!
+Christ's disciples, when they joined Him, had some very happy times with Him&mdash;and they had just had a very grand day in feeding the multitude. I wish I had been there to help in the feeding of 5,000 men. Everyone who had a share in that service was highly honored and those who were not there might well regret their absence on such an eventful day! But notice fair days have foul eventides and the Christ manifested during the day may become a Christ hidden during the night. Close on the heels of the intense excitement of great success comes the relapse into darkness of spirit and absence of joy. The very same men who had been rejoicing with unspeakable joy in the Divine power of their Master, are now left to endure that which is a very sad experience for anyone to have&mdash;everything dark&mdash;and Jesus not there!
 
 I am going to talk about the condition of the men described in our text. "It was now dark, and Jesus had not come to them." And, first, I shall speak about the affliction of His absence. Secondly, about some considerations which may cheer us under it And then, thirdly, I shall take a very different and far more terrible view of this condition and apply it to quite another class ofpersons.
 
@@ -93,7 +93,7 @@ Look to Him and live! God help you to look now! And then, when it is dark, Jesus
 
 God bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN6:14-40.
+Exposition by C. H. Spurgeon: John6:14-40.
 
 Verses 14, 15. Then those men, when they had seen the miracle that Jesus did, said, This is of a truth that Prophet who should come into the world. When Jesus therefore perceived that they would come and take Him by force, to make Him a king, He departed again into a mountain, Himself alone. Our Lord Jesus had just worked the miracle of feeding the five thousand men with five loaves and two small fishes, so He was very popular at that time. The people even wanted to come and take Him by force and make Him a king, but He escaped from them, for He knew the value of that popularity! What was it but a puff of wind? Probably many of the very people who tried then to crown Him were among the crowds in Jerusalem who cried, "Crucify Him! Crucify Him!" And, nowadays there may be a great deal of anxiety to hear the Gospel, yet very little result may follow from it. A crowded House of Prayer is certainly a very hopeful sight, yet it may end in disappointment to those who are looking for souls to be won for the Savior.
 

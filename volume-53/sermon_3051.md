@@ -89,7 +89,7 @@ I have only to ask one more question and then I will close. Among these that are
 
 If that is your sincere utterance, you are a saved soul! Now be baptized, now join the Church! But first see to it that you believe in Jesus, for that is the first business. May God bring you to Christ and may the blessing of the Triune Jehovah be with you forevermore! Amen and amen!
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 10.
+Exposition by C. H. Spurgeon: Romans 10.
 
 This chapter is a Gospel in itself&mdash;it very clearly points out the plan of salvation by faith in the Lord Jesus Christ.
 
@@ -133,4 +133,4 @@ So then faith comes by hearing, and hearing by the Word of God. With what solemn
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

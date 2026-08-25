@@ -4,7 +4,7 @@
 
 The occasion on which these words were spoken was the last meal of which Jesus partook in company with His disciples before He went from them to His shameful trial and His ignominious death. It was His farewell supper before a bitter parting&mdash;and yet they must sing. He was on the brink of that great depth of misery into which He was about to plunge&mdash;and yet He would have them sing "a hymn." It is amazing that HE sang and, in a second degree, it is remarkable that THEY sang. We will consider both these singular facts.
 
-Let us dwell a while on THE FACT THAT JESUS SANG AT SUCH a TIME AS THIS. What does He teach us by this?
+Let us dwell a while on THE FACT THAT Jesus SANG AT SUCH a TIME AS THIS. What does He teach us by this?
 
 Does He not say to each of us, His followers, "My religion is one of happiness and joy. I, your Master, by My example, would instruct you to sing even when the last solemn hour is come and all the glooms of death are gathering around you. Here, at the table, I am your Singing-master and set you lessons in music, in which My dying voice shall lead you, notwithstanding all the griefs which overwhelm My heart! I will be to you the Chief Musician and the Sweet Singer of Israel." There was a time when it would have been natural and consistent with the solemnities of the occasion for the Savior to have bowed His head upon the table, bursting into a flood of tears. Or, if ever theirs was a season when He might have fittingly retired from all company and have bewailed His coming conflict in sighs and groans, it was just then. But no, that brave heart will sing "a hymn." Our glorious Jesus plays the man beyond all other men! Boldest of the sons of men, He quails not in the hour of battle, but tunes His voice to loftiest Psalmody. The genius of that Christianity of which Jesus is the Head and Founder, its object, spirit and design, are happiness and joy&mdash;and they who receive it are able to sing in the very jaws of death!
 
@@ -120,7 +120,7 @@ When you know this and feel it to be true, then come to the Lord's Table and joi
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;421, 439, 300.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 26:20-30; 1 CORINTHIANS 11:20-26.
+Exposition by C. H. Spurgeon: Matthew 26:20-30; 1 Corinthians 11:20-26.
 
 Matthew 26:20. Now when the evening was come, He sat down with the twelve. Why so many people celebrate the Lord's Supper in the morning, I cannot imagine, unless it is that they desire to do everything contrary to their Lord's command and example! "When the evening was come, He sat down with the twelve." I do not think there is any binding ordinance making the evening the only time for the observance of this ordinance&mdash;but to make the morning the only time is certainly not according to the Word of God!
 

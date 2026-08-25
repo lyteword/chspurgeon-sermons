@@ -88,7 +88,7 @@ If you are not happy, it will be disobedience to Christ, for He commands you to 
 
 "All that remains for me Is but to love and sing And wait until the angels come To bear me to the King!"
 
-EXPOSITION BY C. H. SPURGEON: MARK 2.
+Exposition by C. H. Spurgeon: Mark 2.
 
 Verse 10. And again He entered into Capernaum after some days; and it was heard that He was in the house. And straightaway many were gathered together, so that there was no room to receive them, no, not so much as about the door: and He preached the word unto them. It is a very singular fact that although man, in his natural state of heart, is opposed to the Gospel, yet he is drawn to hear it. Even though he abhors it, yet oftentimes he cannot help listening to it. Wherever Jesus Christ is, whether He is present in Person, or in the preaching of the Word, it will be certain to be heard
 

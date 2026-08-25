@@ -96,7 +96,7 @@ Are there none here this morning to whom this Gospel will be good news? Young ma
 > He will save you, He will save you,   
 > He will save you now!   
 
-EXPOSITION BY C. H. SPURGEON: JOHN31-21
+Exposition by C. H. Spurgeon: John31-21
 
 Verses 1, 2. There was a man of the Pharisees named Nicodemus, a ruler of the Jews: the same came to Jesus by night and said unto Him, Rabbi, we know that You are a Teacher come from God: for no man can do these miracles that You do, except God be with him. When enquirers come to see any of you who are Christians, do not begin talking to them, but let them begin by telling you what they have to say, for it will probably guide you as to what you shall say to them in return. Our Lord Jesus could read all hearts and He needed no one to tell Him what was there, yet, for our sakes He sets the example of letting Nicodemus speak first. This man was a Pharisee and, consequently, was apt to attach too much importance to the outward part of religion&mdash;so observe how the Savior deals with him by dwelling on the inner part of it&mdash;upon the necessity of the new birth. He has less to say to him about believing and more about experimental godliness and the work of the Holy Spirit in his heart. Our main business, in dealing with men's souls, is not to teach them what they want to know but what they really need to know, bringing forward ever that Truth of God which, if it is not the most palatable, shall be the most profitable to them.
 

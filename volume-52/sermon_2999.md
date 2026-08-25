@@ -14,7 +14,7 @@ But, if ordinary life is precious, much more is the life of the soul and, theref
 
 We shall now lead you to a few meditations which have, in our mind, gathered around the text.
 
-First, GOD HAS RAILINGS ON HIS OWN HOUSE. Let this serve as a great Truth with which to begin our contemplations. God takes care that all His children are safe. There are high places in His House and He does not deny His children the enjoyment of these high places, but He makes sure that they shall not be in danger there. He sets railings around them lest they should suffer harm when in a state of exaltation.
+First, God HAS RAILINGS ON HIS OWN HOUSE. Let this serve as a great Truth with which to begin our contemplations. God takes care that all His children are safe. There are high places in His House and He does not deny His children the enjoyment of these high places, but He makes sure that they shall not be in danger there. He sets railings around them lest they should suffer harm when in a state of exaltation.
 
 God, in His House, has given us many high and sublime doctrines. Timid minds are afraid of these, but the highest doctrine in Scripture is safe enough because God has railed it&mdash;and as no man in the East need be afraid to walk on the roof of his house when the railing is there, so no man need hesitate to believe the Doctrine of Election, the Doctrine of
 
@@ -84,7 +84,7 @@ Once more, remember the love of God in Christ Jesus. I heard, the other day, of 
 
 God bless you, and help you to trust in Jesus, and His shall be the praise! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 6:1-14; 30-45.
+Exposition by C. H. Spurgeon: John 6:1-14; 30-45.
 
 Verses 1-6. After these things Jesus went over the Sea of Galilee, which is the sea of Tiberias. And a great multitude followed Him, because they saw His miracles which He did on them that were diseased. And Jesus went up into a mountain, and there He sat with His disciples. And the Passover, a feast of the Jews, was near. When Jesus then lifted up
 

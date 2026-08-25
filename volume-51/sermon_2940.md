@@ -25,7 +25,7 @@ He reigns today and let His people proclaim it without fear, "The Lord is King."
 > Rejoice, the Lord is King! Your Lord and King adore. Mortals, give thanks and sing,   
 > And triumph evermore! Lift up the heart, lift up the voice, Rejoice aloud, you saints, rejoice!   
 
-But, to come still more closely to our text, we ring this bell again and call your attention to THE NECESSITY FOR CHRIST's REIGN. "He must reign." It is not merely that He shall, He can, or He may, but He must&mdash;"He must reign." Let us see why He must.
+But, to come still more closely to our text, we ring this bell again and call your attention to THE NECESSITY FOR Christ's REIGN. "He must reign." It is not merely that He shall, He can, or He may, but He must&mdash;"He must reign." Let us see why He must.
 
 Well, the first and weakest argument of all, yet one that has much force in it&mdash;all His servants say that He shall reign. Weak as the 12 Apostles and the immediate followers of Christ were, they said that, "He must reign," and they meant it and they lived to make it true&mdash;and almost all the nations on the earth heard of Jesus within a century after He had been taken up to Heaven! Then came the kings of the earth and set themselves against Him. And they said that He should not reign. But the martyrs came and yielded up their lives with joy, each one singing, "He must reign." While the amphitheatres ran with blood, other champions came into the ring, each one uttering the watchword, "He must reign." The kings of the earth mocked at the saints of God. "What are these feeble Jews doing?" they said, just as Pharaoh might have said, "The locusts, what can they do?" But the locusts might have answered, "We are, each one of us, weak, but there are myriads of us and we will come up and cover your land, and we will eat every green thing that is left in the land!" And they did. It was very much the same with the persecuted saints of God&mdash;each individual Believer was weak, but they came by tens, by hundreds, by thousands&mdash;they came in countless shoals till the kings threw away their swords and quenched their fires in sheer despair&mdash;and they agreed that, nominally at least, Christ should reign, for His disciples would have it so.
 
@@ -79,7 +79,7 @@ What then? Had we not better yield? I will not say because we must, but because 
 
 In the name of Him who will shut the gates of Mercy on all those who reject His Gospel, I do not merely ask you, or beseech you, but I command you, in His name, to repent and be converted! "He that believes and is baptized shall be saved; but He that believes not shall be damned." O God, acknowledge this message, for it is Your own Truth! Prove it to be so, for Jesus sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 CORINTHIANS 15.
+Exposition by C. H. Spurgeon: 1 Corinthians 15.
 
 Verses 1, 2. Moreover, brethren, I declare unto you the Gospel which I preached unto you, which also you have received, and wherein you stand; by which also you are saved, if you keep in memory what I preached unto you, unless you have believed in vain. What was this Gospel of which Paul thought so highly and which he says is the means of our salvation? Did it consist in sundry doctrinal statements? No, it contained doctrinal statements, but it did not consist entirely of them. Here is Paul's declaration concerning the Gospel.
 

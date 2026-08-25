@@ -44,9 +44,9 @@ To one more point I must call your attention. The excellency of the Person who s
 
 The hand that was stretched out to the nail is the very hand that wields the scepter of universal empire! The heart that was pierced is the very heart which will beat on throughout eternity in love to His people! Yet more, the very Being who thus became capable of suffering, was He who built the heavens and scattered the stars like dust along the sky! Who bespoke the light and said, "Light be," and sent forth the Spirit to brood over chaos, and brought order out of its confusion! "Without Him was not anything made that was made." He is the express image of His Father's Glory and Person&mdash;"in Him dwells all the fullness of the Godhead bodily." I merely talk&mdash;this theme demands an angel's tongue to sing! Sing of Him, spirits before the Throne of God, in your rapturous song&mdash;sing of Him in wonder that He should ever leave your happy choirs and forsake the Throne of His eternal Glory to become a man! Sing of Him when He stripped Himself of His azure mantle and did hang it on the sky&mdash;and took away His golden rings and hung them up like stars&mdash;and laid aside the vestments of His glorious reign and came to dwell in humble garments of clay! Oh, mysterious love! He came to suffer, bleed and die! Oh, mystery of Righteousness, that such an One as this should have to bleed, should have to smart, even to the uttermost, and be obedient unto death, even the death of the Cross! Never, then, did Righteousness receive such vindication as when God, the mighty Maker, having assumed flesh, in that flesh died for man, the creature's sin!
 
-THIS GREAT MANIFESTATION OF DIVINE RIGHTEOUSNESS IN THE PERSON OF CHRIST, as I
+THIS GREAT MANIFESTATION OF DIVINE RIGHTEOUSNESS IN THE PERSON OF Christ, as I
 
-understand the text, INTELLIGIBLY CLEARS GOD's MORAL GOVERNMENT OF TWO GREAT DIFFICULTIES.
+understand the text, INTELLIGIBLY CLEARS God's MORAL GOVERNMENT OF TWO GREAT DIFFICULTIES.
 
 When Christ became a Propitiation, He declared God's Righteousness for the remission of sin. We are pardoned through the forbearance of God. For thousands of years men lived and sinned, and yet were justified&mdash;rebelled, and yet were forgiven&mdash;wandered, yet were restored. I say, for thousands of years poor fallible men claimed complete righteousness and entered into the rewards which belong exclusively to those who are justified before God. There they go, streaming up to Heaven, a long bright line of patriarchs, Prophets, warriors for the holy cause, kings, priests and saintly men and women who believed in God&mdash;and this was imputed to them for righteousness. Now here we are in a difficulty. A just God is saving all these sinners and taking them to Heaven without any sort of vindication of His Justice! But Christ comes in and declares the Righteousness of God, "for the remission of sins that are past, through the forbearance of God," and all the difficulties of the antediluvian, Patriarchal, and Mosaic times are cleared up at once.
 
@@ -78,7 +78,7 @@ I am not in the habit of often using such strong words. I rather love to plead t
 
 if you believe in Him. God give you the Grace to believe, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 3:19-31; 4:1-21.
+Exposition by C. H. Spurgeon: Romans 3:19-31; 4:1-21.
 
 Romans 3:19, 20. Now we know that what things soever the Law says, it says to them who are under the Law: that every mouth may be stopped, and all the world may become guilty before God. Therefore by the deeds of the La w there shall no flesh be justified in His sight for by the Law is the knowledge of sin. The Law can convict and condemn, but it can never justify the guilty. Its special work is to prove that they are not justified in sinning and to stop their mouths from uttering any excuse for their sin.
 

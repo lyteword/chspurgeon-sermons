@@ -67,7 +67,7 @@ This is how you are to be presented by Christ in Glory. There is a great stir in
 
 That is the note with which I have to close my discourse. LET US, BECAUSE OF THESE TWO GREAT
 
-BLESSINGS OF FINAL PRESERVATION AND PRESENTATION BEFORE HIS GLORY, OFFER UNTO THE LORD OUR HIGHEST ASCRIPTIONS OF PRAISE.
+BLESSINGS OF FINAL PRESERVATION AND PRESENTATION BEFORE HIS GLORY, OFFER UNTO THE Lord OUR HIGHEST ASCRIPTIONS OF PRAISE.
 
 Jude says, "Both now and forever." Well, we will attend to the "forever" as eternity rolls on, but let us attend to the praise of God "now"&mdash;at this moment! "To the only wise God our Savior be glory and majesty, dominion and power" now! Come, Brothers and Sisters, think of what you owe to Him who has kept you to this day&mdash;and will not let you go! Think of where you might have been and think, I may say, of where you used to be in your unregenerate state. Yet you are not there now&mdash;but here you are, without self-righteousness, made to differ from your fellow men entirely through the Grace of God! You have been kept perhaps 20 years, 30 years, 40 years&mdash;possibly 50 years! Well, unto Him be the glory! Give Him the glory even now!
 
@@ -81,7 +81,7 @@ The first moment of thus trusting God is the beginning of a new life&mdash;a lif
 
 While I am away, listen with all earnestness to other heralds of the Cross, and pray the Lord to bless their messages to your salvation, if mine have not been so blest. I pray that by some instrumentality, you may all be saved in the Lord with an everlasting salvation. Amen.
 
-EXPOSITION BY C. H. SPURGEON: THE GENERAL EPISTLE OF JUDE.
+Exposition by C. H. Spurgeon: THE GENERAL EPISTLE OF Jude.
 
 Verse 1. Jude. That is to say Judas, not Iscariot.
 

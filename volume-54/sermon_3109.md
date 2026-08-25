@@ -6,7 +6,7 @@ I FIND, on reference to Luther's Commentary on the Epistle to the Galatians, and
 
 But I feel sure that the Apostle had a wider range than that and that these words express a general principle&mdash; "Whatever a man sows, that shall he also reap." So I begin my discourse by reminding you that our present lives are of the utmost possible importance, for on these winged hours hang eternal issues. Our present actions are not trifles, for they will decide our everlasting destiny. Everything we do is, to some extent, a sowing of which eternity will be the reaping.
 
-So I pray you to notice, first, that our text tells as that GOD IS NOT TO BE TRIFLED WITH. "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap."
+So I pray you to notice, first, that our text tells as that God IS NOT TO BE TRIFLED WITH. "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap."
 
 Some trifle with God by holding, practically, if not theoretically, that there will not be rewards for virtue, nor punishment for sin&mdash;that one end will come alike to all&mdash;that whatever the dignity or the degradation of character may be, we shall all go to the same place and sleep there in oblivion. Or that if there isany future life, it will be common to us all and that, in fact, the whole question concerning the hereafter is a matter so utterly unimportant that we can afford to regard it with complete indifference!
 
@@ -20,7 +20,7 @@ Others imagine that God can be imposed upon by a formal compliment when they are
 
 for you! 
 
-Now, secondly, I want to remind you that GOD's MORAL LAWS, AS WELL AS GOD, HIMSELF, ARE NOT TO BE TRIFLED WITH "Whatever a man sows, that shall he also reap."
+Now, secondly, I want to remind you that God's MORAL LAWS, AS WELL AS God, HIMSELF, ARE NOT TO BE TRIFLED WITH "Whatever a man sows, that shall he also reap."
 
 First, it is so in nature. If it were possible for God notto observe what man does, yet what man does is, of itself, full of a power which will be to him what the harvest is to the soil. And just what he sows, he will be sure to reap one of these days, or in eternity if not in time. If a man were to sow his field with garlic and expect to reap barley, he would be bitterly disappointed. If he were to sow tares, he might pray as long as he pleased for a crop of wheat, but he would not get it. God never so changes His Laws as to make tares come up wheat and He never will! The sowing always is, and always will be, the father of the reaping.
 
@@ -64,17 +64,17 @@ Now, if you thus sow to the Spirit, you will "reap life everlasting." The Apostl
 
 May the Lord graciously give to all of us His Holy Spirit and may we all meet in Heaven to part no more forever, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 80; MATTHEW 9:36-38; 10.
+Exposition by C. H. Spurgeon: Psalm 80; Matthew 9:36-38; 10.
 
 Psalm 80:1-3. Give ear, O Shepherd of Israel, You that lead Joseph like a flock; You that dwell between the cherubims, shine forth. Before Ephraim and Benjamin and Manasseh stir up Your strength and come and save us. Turn us again, O God, and cause Your face to shine; and we shall be saved. To whom could Israel go, in times of distress, but unto her God? It was well that her Psalmists should teach her thus to pray. Notice the form of this prayer&mdash;"Come and save us. Turn us again, O God." We cannot be saved except by being turned from the ways of sin into the path of holiness. But who shall turn us? What power can reverse the current of the human soul? As well might Niagara begin to ascend of its own accord as for man to turn to God except as God turns him!
 
-4-7. O LORD God ofHosts, how long will You be angry against the prayer of Your people? You feed them with the bread of tears, and give them tears to drink in great measure. You make us a strife unto our neighbors and our enemies laugh among themselves. Turn us again, O God ofHosts, and cause Your face to shine; and we shall be saved. Israel was evidently in very deep distress, yet still God's own. It is no evidence of our having ceased to be God's people that we are made to drink deep draughts of tears. We are not to imagine that God has cast us off because He chastens us. No, rather are we to argue the other way, "for whom the Lord loves, He chastens."
+4-7. O Lord God ofHosts, how long will You be angry against the prayer of Your people? You feed them with the bread of tears, and give them tears to drink in great measure. You make us a strife unto our neighbors and our enemies laugh among themselves. Turn us again, O God ofHosts, and cause Your face to shine; and we shall be saved. Israel was evidently in very deep distress, yet still God's own. It is no evidence of our having ceased to be God's people that we are made to drink deep draughts of tears. We are not to imagine that God has cast us off because He chastens us. No, rather are we to argue the other way, "for whom the Lord loves, He chastens."
 
 8-15. You have brought a vine out of Egypt: You have cast out the heathen, and planted it. You prepared room before it, and did cause it to take deep root, and it filled the land. The hills were covered with the shadow of it, and the boughs thereof were like the goodly cedars. She sent out her boughs unto the sea, and her branches unto the river. Why have You then broken down her hedges, so that all they which pass by the way do pluck her? The boar out of the wood does waste it, and the wild beast of the field does devour it. Return, we beseech You, O God ofHosts: look down from Heaven, and behold, and visit this vine; and the vineyard which Your right hand has planted, and the branch that You made strong for Yourself'Notice how a soul, in deep distress, usually gets to God. Under some aspect or other, by some way or another, the heart gropes its way till it finds Him out. If poor Israel is as a vineyard given up to the wild boar of the woods, there is still hope through that "righteous Branch" of whom the Lord said to Jeremiah, "In his days Judah shall be saved, and Israel shall dwell safely."
 
 16, 17. It is burned with fire, it is cut down: they perish at the rebuke of Your Countenance. Let Your hands be upon the Man of Your right hand, upon the Son of Man whom You made strong for Yourself "If You will not hear us, yet hear Him. If You will put no honor upon us, we will ask You to put the highest honors upon Him. Save us for His sake. Deliver Your vineyard from the wild boar and restore the hedges that have been broken down, for is not this the vineyard of red wine which all belongs to Him?"
 
-18, 19. So will not we go back from You: quicken us, and we will call upon Your name. Turn us again, O LORD God ofHosts, cause Your face to shine; and we shall be saved.
+18, 19. So will not we go back from You: quicken us, and we will call upon Your name. Turn us again, O Lord God ofHosts, cause Your face to shine; and we shall be saved.
 
 Matthew 9:36. But when He saw the multitudes, He was moved with compassion for them, because they fainted, and were scattered abroad, as sheep having no shepherd. The sight that Christ saw, deeply affected His heart&mdash;"He was moved with compassion for them." The expression is a very strong one indicating that His whole being was stirred with an emotion which put every faculty into forceful movement.
 
@@ -124,4 +124,4 @@ Think not that I am come to send peace on earth: I came not to send peace, but a
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

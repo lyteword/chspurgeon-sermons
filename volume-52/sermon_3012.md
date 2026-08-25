@@ -1,6 +1,6 @@
 # Sermon 3012 | God Comforting His People
 
-"The LORD has comforted His people." Isaiah 49:13.
+"The Lord has comforted His people." Isaiah 49:13.
 
 THE JOY of the Prophet was too great for him to give adequate expression to it with his own solitary tongue and, therefore, he would have even the angels of God and the redeemed from among men in Heaven to praise the Lord for His super-abounding mercy! He would also have the redeemed upon earth and all the works of God's hands take up the joyful strain of praise to the Most High! And he would have even the great mountainous masses of inanimate Nature find tongues with which to express the greatness of God's loving kindness and tender mercy in having comforted His people!
 
@@ -8,7 +8,7 @@ And, when we come to think of it rightly, we see at once that it is a theme for 
 
 Taking the text somewhat out of its immediate context and speaking simply upon these six words, "The Lord has comforted His people," we see that in the first place, the Lord has a people. Secondly, they are a people who need to be comforted. And thirdly, the Lord gives them the comfort that they need.
 
-First, then, it is clear, from the very wording of our text, that THE LORD HAS a PEOPLE. Isaiah does not say, in general terms that the Lord has comforted the children of men as a whole, but he says, "the Lord has comforted His people." Here is, as Dr. Watts says&mdash;
+First, then, it is clear, from the very wording of our text, that THE Lord HAS a PEOPLE. Isaiah does not say, in general terms that the Lord has comforted the children of men as a whole, but he says, "the Lord has comforted His people." Here is, as Dr. Watts says&mdash;
 
 "A garden walled around, Chosen and made peculiar ground! A little spot, enclosed by Grace Out of the world's wide wilderness"&mdash; and it is concerning this particular portion of the human race&mdash;selected and elected by God&mdash;that the Prophet was moved by the Holy Spirit to write, "the Lord has comforted His people."
 
@@ -51,7 +51,7 @@ I said that I would not enlarge upon this part of the subject. Neither will I. B
 
 God!
 
-Now I must pass on to the third point which is more comforting to us. It is this&mdash;as God has a people who need to be comforted, the Prophet Isaiah is Inspired to tell us that "THE LORD HAS COMFORTED HIS PEOPLE.
+Now I must pass on to the third point which is more comforting to us. It is this&mdash;as God has a people who need to be comforted, the Prophet Isaiah is Inspired to tell us that "THE Lord HAS COMFORTED HIS PEOPLE.
 
 It is profitable to us to note the various ways in which God has provided for our comfort in our ever-recurring sorrows. He knew that we should have many fountains of grief and, therefore, He appointed quite as many fountains of joy and even more. And besides opening the fountains for us, blessed be His name, He draws the water for us and puts it to our parched lips, as the Holy Spirit applies to us the precious promises which God has provided for us in His never-failing fountain of comfort.
 

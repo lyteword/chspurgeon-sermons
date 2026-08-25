@@ -76,7 +76,7 @@ Worse still, the gates of death-shade are the places of farewell An ungodly man 
 
 Thus I have, as best I could, talked of the end of the earthly life. O Souls, prepare to meet your God, for you may have to meet Him before another sun has risen! I beseech you, by the living God, whose servant I am, postpone not repentance and faith, but now, while mercy' s white flag is to the front and God waits to be gracious to you, bow before the Cross of Christ! Trust in Jesus and be saved! The Lord bless you, for Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM49.
+Exposition by C. H. Spurgeon: Psalm49.
 
 The chief musician here bids us not to fear the ungodly. However high they may be placed, they are but dying men and when they die their hope shall perish with them. He gives a very graphic description of the deathbed and of the perdition of ungodly men.
 

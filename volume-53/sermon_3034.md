@@ -42,7 +42,7 @@ Turn your eyes above you to the starry firmament and watch the Pleiades and Arct
 
 How is it that a man can go up and down in God's world and yet forget the God who made the whole? I do not suppose that a man could have walked through the Exhibition at Paris without thinking of the emperor whose influence gathered all those treasures together and who attracted the kings and princes of the earth to visit it. And yet men will go through this world, compared with which the Paris "Exposition" was a box of children's toys, and will not recognize God therein! Oh, strange blindness! Mad infatuation that with God everywhere present and such a God&mdash;the God whom to know is life eternal, whom to delight in is present happiness and future bliss&mdash;man is willingly ignorant, blind to His own best interests, senseless to the sweetest and the most ennobling emotions and an enemy to his best Friend!
 
-The surface of the text supplies us with motives for seeking GOD. Oh, that the Holy Spirit might supply us with Grace that we might feel the motivesand be obedient to them!
+The surface of the text supplies us with motives for seeking God. Oh, that the Holy Spirit might supply us with Grace that we might feel the motivesand be obedient to them!
 
 We will now regard the text with a more spiritual eye.
 
@@ -67,11 +67,11 @@ brought upon their race in the massacres within the city walls and in the bitter
 
 Thus much to the unconverted. The people of God can think over the text in relation to themselves. It is rich in priceless instruction to them, but time forbids me to direct their meditations. Farewell.
 
-EXPOSITION BY C. H. SPURGEON: Psalm 139.
+Exposition by C. H. Spurgeon: Psalm 139.
 
 In this Psalm David praises God by specially dwelling upon the one attribute of Omniscience. If we really wish to praise God, we must think of Him as He is&mdash;and it is the best praise that we can render to God to describe Him as He is. And any one of His many attributes is so full of His Glory that if we give due honor to it, we shall have much to say upon it.
 
-Verse 1. O LORD, You have searched me, and known me. It is true that God knows everything, but that is not what David says here. He makes a personal application of the universal Truth of God&mdash;"O Lord, You have searched me, and known me." He does not talk about God's knowledge of other men, but he speaks to God concerning himself&mdash;"O Lord, You have searched me, and known me." "You have searched me as if You were looking for contraband goods. You have ransacked me, You have gone down into my very heart and have spread out every secret part of my being&mdash;'You have searched me, and known me.'"&mdash;
+Verse 1. O Lord, You have searched me, and known me. It is true that God knows everything, but that is not what David says here. He makes a personal application of the universal Truth of God&mdash;"O Lord, You have searched me, and known me." He does not talk about God's knowledge of other men, but he speaks to God concerning himself&mdash;"O Lord, You have searched me, and known me." "You have searched me as if You were looking for contraband goods. You have ransacked me, You have gone down into my very heart and have spread out every secret part of my being&mdash;'You have searched me, and known me.'"&mdash;
 
 "Lord, You have searched and seen me through. Your eyes command with piercing view My rising and my resting hours, My heart and flesh, with all their powers."
 
@@ -92,7 +92,7 @@ You comprehend my path andmylyingdown, andareacquainted with allmy ways. "You ha
 > And may the Spirit firmly engrave,   
 > This Truth within my breast!   
 
-For there is not a word on my tongue, but, lo, O LORD, You know it altogether "You not only know what it is, but You know all about it&mdash;even the word which I have not yet spoken, the word that is on my tongue, as well as the
+For there is not a word on my tongue, but, lo, O Lord, You know it altogether "You not only know what it is, but You know all about it&mdash;even the word which I have not yet spoken, the word that is on my tongue, as well as the
 
 word that is not on my tongue&mdash;those seeds of speech that have as yet not grown into words, You know them altogether."
 
@@ -138,7 +138,7 @@ Depart from me, therefore, you bloody men. "You men of blood. You men stained wi
 
 For they speak against You wickedly, and Your enemies take Your name in vain. David could not bear even the thought that men should insult such a God&mdash;a lack of reverence to the All-Seeing One was altogether unbearable to him, so he bade those who were guilty of such wickedness to take themselves away from him.
 
-22. Do not I hate them, O LORD, that hate You? And am not I grieved with those that rise up against You? I hate them with perfect hatred: I count them my enemies. We are to love our own enemies, but we are not to love God's enemies, nor willingly to mix with them! How can Christians associate with the lewd and irreverent without becoming partakers of their evil deeds? Let us take note of what David says and realize that we cannot be the friends of God if we are the friends of God's enemies. Now the Psalmist comes back to his key-note. He began the Psalm with the declaration, "O Lord, You have searched me." Now he prays.
+22. Do not I hate them, O Lord, that hate You? And am not I grieved with those that rise up against You? I hate them with perfect hatred: I count them my enemies. We are to love our own enemies, but we are not to love God's enemies, nor willingly to mix with them! How can Christians associate with the lewd and irreverent without becoming partakers of their evil deeds? Let us take note of what David says and realize that we cannot be the friends of God if we are the friends of God's enemies. Now the Psalmist comes back to his key-note. He began the Psalm with the declaration, "O Lord, You have searched me." Now he prays.
 
 Search me, O God, and know my heart "You have searched me, O God, but I pray You to do it again, and to keep on doing it&mdash;never take Your great searchlight away from me."
 

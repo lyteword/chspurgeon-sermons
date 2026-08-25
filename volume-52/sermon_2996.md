@@ -8,7 +8,7 @@ Nor, mark you, was this an exception to David's usual habit. From his youth up, 
 
 I hold up David to you as a model for your imitation in this respect, although I am going to leave David and talk more generally of the duty of enquiring of God as to what we shall do when we are in any difficulty and, indeed, of enquiring of Him at all times, whether we are in difficulty or not!
 
-My first remark is that TO ENQUIRE OF THE LORD AND TO SEEK GUIDANCE AT HIS HANDS IS THE DUTY OF ALL CHRISTIANS.
+My first remark is that TO ENQUIRE OF THE Lord AND TO SEEK GUIDANCE AT HIS HANDS IS THE DUTY OF ALL ChristIANS.
 
 This may be inferred from God's relationship to them. God is their Father and they are His children&mdash;minors who have not yet come of age. When a son is of age, it is respectful and often very prudent for him to still consult his experienced sire, but the child in his minority should venture upon nothing of importance without first going to tell his father. And if that child is beset by many false friends&mdash;by those who would mislead and ruin him&mdash;it will be his privilege as well as his duty to be often running to his parent and saying, "Father, what shall I do in this matter? What is true and what is not? Show me what you would have me do." If God is our Father, we are His children. And if we do not consult Him, surely we are but sorry children. We lose a great blessing and incur no small guilt if, professing to be the sons and daughters of our Father who is in Heaven, we never ask Him to direct our way!
 
@@ -34,9 +34,9 @@ I shall give only one other argument, here, because I need not prove what all ad
 
 ought, that we are living for God. Is there a man living who could truly say, with Paul, "For to me to live is Christ?" I believe there are hundreds and thousands of such men, but I do not believe that anything like one-half of the professing Christians of today know what that test really means. "For to me to live is Christ." If they truthfully wrote their own commentaries upon it, many of them would say, "We cannot say that. We never could be so enthusiastic or so fanatical as to say that." And they would almost as soon give up their profession of Christianity as attempt to carry out that text as it ought to be carried out! Yet this is what we profess&mdash;and if we profess to live for God's Glory and for the extension of Christ's Kingdom, how can we do it except in God's strength? And how will God give us His strength without also giving us His wisdom with which to use it? A man clothed with Divine energy, unaccompanied by Divine wisdom, would be one of the most dangerous persons in the whole world! A man who can speak so as to move the multitude and to stir the souls of men, is a very dangerous person unless piety fills his heart and the Grace of God controls his tongue. Suppose that man to have Divine power given to Him, as Judas had in a certain sense, but without the wisdom of God to guide him? We might as well have a devil on earth as have such a man as that! No, if we could succeed in attaining our avowed objective in life&mdash;the glorifying of God&mdash;we must enquire of Him!
 
-Now I come to a second remark which is this. IF CHRISTIANS ASK GOD TO GUIDE THEM IN EVERYTHING THEY DO, THEY OUGHT TO SEE TO IT THAT THEY NEVER DO ANYTHING ABOUT WHICH
+Now I come to a second remark which is this. IF ChristIANS ASK God TO GUIDE THEM IN EVERYTHING THEY DO, THEY OUGHT TO SEE TO IT THAT THEY NEVER DO ANYTHING ABOUT WHICH
 
-THEY CANNOT ASK GOD's GUIDANCE.
+THEY CANNOT ASK God's GUIDANCE.
 
 This Truth of God comes close to home to some people. For instance, unlawful pleasures are manifestly forbidden to the Christian. Those which the worldling may indulge in without any very great injury to himself are forbidden to the true Christian because he cannot enquire of the Lord about them. I have heard of people who say that they can go to the theater and yet are Christians. Well now, I would like somebody to write a form of prayer to be used by Christians in theatres, something to this effect&mdash;"O Lord, lead me not into temptation, but be pleased to bless the play tonight to my soul's welfare. Grant that if it is Your will that I should die here, I may enter into eternal life having gone from the pleasures of this life to the pleasures that are to be hereafter!" If I were to write such a prayer as that, you would say, "Oh, that is shocking! It is shocking for anybody even to thinkof praying there!" Ah, it is shocking&mdash;not shocking to think of praying, but shocking to go where you dare not pray Should a Christian ever be anywhere where he would be ashamed to die? I heard a lady once say that religion ought to be confined to places of worship and that it ought not to be talked about anywhere else. So I suggested to her that we ought to have our places of worship made larger, for, of course, people would want religion when they came to die&mdash;so they had better die where religion would be in its proper place!
 
@@ -72,7 +72,7 @@ Occasionally, impressions do guide a man right. A Quaker, one night, could not s
 
 man came down and asked why he was there at that time of night. "Perhaps, Friend," answered the Quaker, "you can tell me, for I do not know, but I have been moved to come here." "I can tell you, indeed," said the man, with much emotion, and he took him upstairs and showed him a short halter with which he was about to hang himself when the Quaker came to his door! Such strong impressions are not to be despised and I have no doubt that highly spiritual minds do become like the photographer's sensitive plate and receive impressions. What another man may be a fool for talking of, such men may truly speak of, for God does sometimes reveals His will in that way.
 
-And now, to close, let me say that WHEN WE HAVE RECEIVED COUNSEL FROM GOD ABOUT
+And now, to close, let me say that WHEN WE HAVE RECEIVED COUNSEL FROM God ABOUT
 
 ANYTHING, LET US ACT ACCORDING TO IT.
 
@@ -90,7 +90,7 @@ After they had sung the hymn, he went on talking to them. And when some big fell
 
 Whenever any of you have anything to do which you know is right, do it! After you have enquired of God, do not stop to consult friends, but go and do it! Take your sling and your stone and, in God's name, sling the stone into the giant's forehead and, like David, come back victorious, for that shall be your last answer to those who would persuade you not to do it! Never ask God to guide you and then, when He says, "This is the way," stand still, and say, "That way is too hard, too stern, too difficult, I will not walk in it." Go forward, for, if Hell, itself, were before you, God would divide it even as he divided the Red Sea for His ancient people! Only have faith in God, for "all things are possible to him who believes." There is one short message that God gives for guidance to everyone of us and more especially to you who are not converted! It is this, "Seek you My face." This very moment, "Believe on the Lord Jesus Christ and you shall be saved," for, "now is the accepted time; behold, now is the day of salvation!" When you have taken God's advice concerning your poor soul's eternal welfare. When you have believed in Jesus to the salvation of your soul&mdash;then go to Him about your temporal concerns and about everything&mdash;and you will then be able to say, with the Psalmist, "You shall guide me with Your counsel, and afterward receive me to Glory."
 
-EXPOSITION BY C. H. SPURGEON: PSALM 63.
+Exposition by C. H. Spurgeon: Psalm 63.
 
 "A Psalm of David when he was in the wilderness of Judah."
 

@@ -60,7 +60,7 @@ To where will they be gathered? Gathered to their Savior, to the general assembl
 
 And they sing again and yet again, "Hallelujah, hallelujah, hallelujah, for the Lord God Omnipotent reigns." May you and I be partakers of the joy of harvest and not be yonder with those among whom there is weeping, wailing, and gnashing of teeth because they would not trust the Lamb, because they would not come to Him that they might have life&mdash;but chose their own delusion and followed out their own corruptions till they met with the due dessert of their evil deeds! God bless you, dear Friends, every one of you, and make you partakers of the present joy and the everlasting felicity of the saints, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW9:35-38; 10:1; 13:3-8; 18-23.
+Exposition by C. H. Spurgeon: Matthew9:35-38; 10:1; 13:3-8; 18-23.
 
 Matthew 9:35. And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the Gospel of the Kingdom, and healing every sickness and every disease among the people. This was His answer to the blasphemous slanders of the Pharisees. A glorious reply it was! Let us answer calumny by greater zeal in doing good! Small places were not despised by our Lord&mdash;He went about the villages as well as the cities. Village piety is of the utmost importance and has a close relation to city life. Jesus turned old institutions to good account&mdash;the "synagogues" became His seminaries. Three-fold was His ministry&mdash;expounding the old, proclaiming the new, healing the diseased.
 
@@ -98,4 +98,4 @@ But he that received seed into the good ground is he that hears the Word and und
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

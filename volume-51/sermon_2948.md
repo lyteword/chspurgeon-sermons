@@ -34,7 +34,7 @@ The contrast mentioned in our text is a very painful one and though we see it il
 
 There are many persons who are keepers of the clothes of open sinners. For instance, I believe that very often a merely moral man may exert a very detrimental influence upon sinners because they will say, "Look at So-and-So! He is not a Christian, yet he is a man of good repute," and so they are led to believe that they may stay where he stays&mdash;out of Christ! O dear Friends, may there be nothing about your walk and conversation which can be used to oppose the Gospel of Jesus Christ! But there will be unless you are wholly on His side, for He, Himself, said, "He that is not with Me is against Me; and he that gathers not with Me scatters abroad." If you are not on the side of Christ you are on the side of His enemies, for this is a fight which admits of no neutrality. And if you cannot feel that you would, like Stephen, defend the cause of Christ, then I fear you only lack the opportunity and the circumstances, if not to stone Stephen, yet, at least, to let those who do the dreadful deed lay their clothes at your feet! The contrast recorded in our text is a very vivid one. I wish I could depict the equally vivid one between unconverted persons and Christians, for there is a contrast between them, a contrast which will come to this one day&mdash;there will be a great gulf fixed between them, across which there will be no passage. At the Last Great Day, the righteous shall be upon the right hand of the Judge and the wicked on His left hand and Christ, Himself, shall stand between them, so that the division shall last as long as Christ Himself shall live!
 
-Now, secondly, our text affords us a REMARKABLE INTRODUCTION OF a PERSON TO TRUE
+Now, secondly, our text affords us a REMarkABLE INTRODUCTION OF a PERSON TO TRUE
 
 RELIGION.
 
@@ -80,7 +80,7 @@ And, perhaps, dear Brothers and Sisters, this sin of Paul is recorded that we mi
 
 life everlasting." Oh, yes! it is good for you to remember what you used to be, for you will have hope for other people when you remember that!
 
-Our text, in the fifth place, is AN INSTANCE OF THE OVERRULING OF GOD.
+Our text, in the fifth place, is AN INSTANCE OF THE OVERRULING OF God.
 
 If you look very carefully at it and look long enough, it will appear not altogether a bad thing that Saul should be there taking care of the clothes of the murderers of Stephen. Possibly you cannot, at first, see how any good can come out of it, but there was never a bad thing out of which God could not bring good. Even the death of Christ, which was the culmination of human sin, was the crowning point of Divine Love. If Saul had not been there, Stephen would not have prayed for him. Augustine says, in a sentence which is always quoted in every commentary on the Acts that I have seen, "If Stephen had not prayed, Paul had never preached." But Stephen's prayer, "Lord, lay not this sin to their charge," was such a comprehensive plea for his murderers that I can well conceive of his fixing his tearful gaze upon that young man named Saul and in his thoughts including him in that petition and beseeching the Lord not to lay it to his charge! And the Lord did not lay it to his charge "because," Paul said, "I did it ignorantly in unbelief."
 

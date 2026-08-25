@@ -80,7 +80,7 @@ He was wanting them badly, yet they did not know it! And Jesus Christ is wanting
 
 "I'll go to Jesus, though my sin Has like a mountain rose. I know His courts, I'll enter in, Whatever may oppose."
 
-What will happen if you do go to Christ again? This story of Joseph and his brothers gives us a FORECAST OF WHAT WILL HAPPEN IF YOU DO GO TO CHRIST AGAIN.
+What will happen if you do go to Christ again? This story of Joseph and his brothers gives us a FORECAST OF WHAT WILL HAPPEN IF YOU DO GO TO Christ AGAIN.
 
 Suppose that the Spirit of God should now work upon your soul and show you that all that is needed for your salvation is already done, that you have nothing to do because Christ has done it all? Suppose that the Holy Spirit should then enable you simply to put your trust in Jesus? You will be saved, saved now, and saved forever! Yet it is possible that your experience will be like that of Joseph's brothers. At first, when you know who Jesus is, you will tremble in His
 
@@ -100,7 +100,7 @@ Dear Hearers, if I should never be able to speak to you again, let this one Trut
 
 His ever-blessed Spirit! The sun alone can show you the sunlight, and Jesus must visit you in a supernatural way and reveal Himself to you by His own Spirit. You must be born-again by the power of the Holy Spirit! And if it is not so with you, and if you are not resting in Him alone&mdash; where He is, you can never go! But if you know Him. If you are in Him, go your way in peace, for "there is therefore now no condemnation to those who are in Christ Jesus." Knowing Him, you have saving knowledge and you shall, by-and-by, be with Him where He is, to behold His Glory and to dwell with Him forever! May God grant to all of you this privilege, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 7:1-8.
+Exposition by C. H. Spurgeon: Matthew 7:1-8.
 
 Verses 1, 2. Judge not, that you be not judged. For with what judgment you judge, you shall be judged: and with what measure you mete, it shall be measured to you again. Use your judgment, of course&mdash;the verse implies that you will judge in a right sense. But do not indulge the criticizing faculty upon others in a censorious manner, or as if you were set in authority and had a right to dispense judgment among your fellows. If you impute motives and pretend to read hearts, others will do the same towards you. A hard and censorious behavior is sure to provoke reprisals. Those around you will pick up the peck measure you have been using and measure your corn with it. You do not object to men forming a fair opinion of your character, neither are you forbidden to do the same towards them. But as you would object to their sitting in judgment upon you, do not sit in judgment upon them. This is not the day of judgment, neither are we his majesty's judges, and therefore we may not anticipate the time appointed for the final assize, nor usurp the prerogatives of the Judge of all the earth! Surely, if I know myself aright, I need not send my judgment upon circuit to try other men, for I can give it full occupation in my own Court of Conscience to try the traitors within my own bosom.
 

@@ -18,7 +18,7 @@ It was, doubtless, also necessary to complete the perfect example of our Lord an
 
 There is no need, with such a subject as this, for the use of grand periods and eloquent language, even if I ever indulged in that kind of thing. But I shall just give utterance to a few simple Truths of God which you already know, trying to stir up your pure minds by way of remembrance. And, first, let us contemplate the love of Christ resplendent in the act of death, l aying down His life for His friends. Secondly, let us see that love enhanced by a consideration of the friends for whom He laid down His life. And then, thirdly, let us see the love of Christ reflected and reproduced by His friends. This, however, will have to be done outside this place&mdash;I can only make the rough outline of the picture which is to be drawn by all of you who are the friends of Christ. My text reminds us of one of the strongest reasons why we should love one another even as Christ has loved us&mdash;"Greater love has no man than this, that a man lay down his life for his friends."
 
-Let us, then, first SEE CHRIST's LOVE RESPLENDENT IN THE LAYING DOWN OF HIS LIFE FOR HIS
+Let us, then, first SEE Christ's LOVE RESPLENDENT IN THE LAYING DOWN OF HIS LIFE FOR HIS
 
 PEOPLE.
 
@@ -58,7 +58,7 @@ Remember, too, dear Brothers and Sisters in Christ, as I have already reminded y
 
 Above all else, let us remember that our Savior died forsaken of His God. Even the martyrs were not obliged to do that. They stood at the stake and clapped their hands&mdash;they even sang songs of triumph amidst the fury of the flames! But Jesus had to cry, "My God, My God, why have You forsaken Me?" That is the pitiful wail of a broken heart and a sinking spirit. It does not surprise us that "the earth did quake and the rocks split"&mdash;it would have been a greater wonder if they had not been stirred at the sound of such grief as His! O Beloved, greater love has no man than this, that he will even dare to die forsaken of his God! I thank God that we are not asked to do this! But Jesus did it for us, His friends. Oh, what amazing love is His! There is much more that might be said upon this stupendous theme, but I must ask the Holy Spirit to lead you into the mystery of those unknown deeps of suffering by which Christ manifested His love to His friends.
 
-Now, secondly, I want to show you that THE LOVE OF CHRIST, IN LAYING DOWN HIS LIFE, WAS GREATLY ENHANCED BY THE CHARACTER OF THOSE FOR WHOM HE LAID DOWN HIS LIFE, namely,
+Now, secondly, I want to show you that THE LOVE OF Christ, IN LAYING DOWN HIS LIFE, WAS GREATLY ENHANCED by THE CHARACTER OF THOSE FOR WHOM HE LAID DOWN HIS LIFE, namely,
 
 "His friends."
 
@@ -70,9 +70,9 @@ There is, however, a Truth of God that is even more significant and instructive 
 
 Why should Christ ever have loved us? Why should He ever have loved us? When at His Table, we often have wandering thoughts. Even in our faith we often find a mixture of unbelief. Even when we love Him, we grieve that we do not love Him more. Even when we are closest to Him in communion, we have to smite our breast and mourn that we do not enjoy the nearness we might have, and ought to have, for, after being so greatly loved by Christ, we ought to be sinless! Under such obligations to Christ as we have, we ought to be wholly sanctified&mdash;spirit, soul, and body&mdash;and never have a wandering thought or an unholy desire. But that we are not what we ought to be is very clear. And the wonder is that Jesus Christ should ever have laid down His life for such miserable "friends" as we have proven ourselves to be! Beauty, you know, will often win affection against a man's better judgment, for there is something about it which is so attractive that it overcomes him. But Christ's love to us was not won by any beauty that He saw in us. When He says to us as the Bridegroom in the Song of Solomon says to His bride, "Turn away your eyes from Me, for they have overcome Me." And when He says, "You are all fair, My love; there is no spot in you," I think He must see Himself mirrored in us and that this is why He loves us, for certainly there is nothing lovable in us but what He has bestowed upon us by His Grace! I do not know what you, Beloved, say concerning this theme upon which I have been speaking, but I think you will agree with me when I say that, to me, the superlative point of the love of Christ is that He laid down His life for me, unworthy as I have been even since I have been His friend!
 
-I must speak very briefly upon the last point which is that THIS GREAT LOVE OF CHRIST IS TO BE
+I must speak very briefly upon the last point which is that THIS GREAT LOVE OF Christ IS TO BE
 
-REFLECTED AND REPRODUCED BY HIS FRIENDS.
+REFLECTED AND REPRODUCED by HIS FRIENDS.
 
 Christ is the sun in our heavens and His Church is the moon. Why does the sun shine upon the moon? For the moon's sake? Yes, in part, but also for the sake of the earth, which would be dark at night if the moon did not reflect the light it
 

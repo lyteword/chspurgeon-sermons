@@ -2,9 +2,9 @@
 
 "For the Son of Mann is come to seek and to save that which was lost." Luke 19:10.
 
-GOD came down from Heaven but once to be united with human flesh. On what errand did He come and who were the objectives of it? What messenger was sent on that errand? What method was pursued by Him? With what success was it attended? Our text gives us the information&mdash;"The Son of Man is come to seek and to save that which was lost." Let us speak briefly upon these four points.
+God came down from Heaven but once to be united with human flesh. On what errand did He come and who were the objectives of it? What messenger was sent on that errand? What method was pursued by Him? With what success was it attended? Our text gives us the information&mdash;"The Son of Man is come to seek and to save that which was lost." Let us speak briefly upon these four points.
 
-First, AS TO THE OBJECTIVE OF CHRIST's ERRAND&mdash;"The Son of Man is come to seek and to save that which was lost."
+First, AS TO THE OBJECTIVE OF Christ's ERRAND&mdash;"The Son of Man is come to seek and to save that which was lost."
 
 That word, "lost," is constantly applied by desponding and despairing persons to themselves. Such people say, "We are lost&mdash;we feel that we are lost, wholly lost. There is no hope for us." Herein they betray both their ignorance and their unbelief&mdash;their ignorance, for to be lost is nothing so peculiar that they should claim to be heritors of a strange doom since the whole human race is lost! And their unbelief since Christ came especially to seek and to save the lost. Therefore, their being lost is not a ground for despair, but may be construed into a ground of hope! Let us think over that word, "lost," and see in what sense those are lost whom Christ came to save.
 
@@ -58,7 +58,7 @@ Some say, "If the people want to hear the Gospel, let them go to church or chape
 
 We know that He seeks, but does He save them? If I must give an answer from my own observation, I can point to many members of this congregation and say, "Save them? Indeed He does! Has He not delivered them from the bonds of sin? Has He not made them new creatures in Christ Jesus?" But if you look anywhere, wherever a faithful Gospel is preached, you will see that salvation-work does go on! I hope it may go on with us for many and many a year until Christ shall come. Christ is not disappointed in the souls He came to save. All for whom He stood as Substitute shall sing His praise in Heaven. He has not redeemed souls that may afterwards be cast into Hell. He did not suffer for my sins that I might suffer for them, too! His Atonement is effectual! Every sinner He died to save He does save. He is not foiled at any point, nor disappointed in any single aim. The lost He came to seek and save, He finds and saves! And in eternity we shall find, when turning over the register of the chosen, that every one of them has been gathered around the Eternal Throne singing the praise of His Sovereign Grace!
 
-EXPOSITION BY C. H. SPURGEON: LUKE 19.
+Exposition by C. H. Spurgeon: Luke 19.
 
 Verses 1-5. And Jesus entered and passed through Jericho. And behold, there was a man named Zacchaeus, who was the chief among the publicans, and he was rich. And he sought to see Jesus who He was; and could not for the press, because he was little of stature. And he ran before, and climbed up into a sycamore tree to see Him: for He was to pass that way. And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must abide at your house. Remember that the Lord Jesus was on His way to Jerusalem to suffer and to die. And there He was, the patient, suffering Lamb of God&mdash;but here He speaks in that commanding tone which well became the Prince of the House of David&mdash;"Zacchaeus, make haste, and come down; for today I must abide at your house."
 
