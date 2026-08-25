@@ -14,7 +14,7 @@ Well now, that is precisely the idea that the text teaches. So, at least, I unde
 
 Carrying this picture in your mind's eye, may it often cheer and encourage you. Though I have nothing new, no bewitching novelty to introduce to you, I want to bring this old, old Truth of God vividly before your minds, to examine it in detail and press it home to your souls.
 
-Let our starting-point be a question&mdash;a question of paramount interest&mdash;WHEN MAY THIS TEXT BE RELIED UPON BY a BELIEVER? "He shall cover you with His feathers and under His wings shall you trust." Well, it may be relied upon in cases of extreme peril. I do not doubt that servants of God, in times of danger at sea, when the huge billows have roared and the tempest has raged and the vessel seemed likely to go to pieces, have often cheered their hearts
+Let our starting-point be a question&mdash;a question of paramount interest&mdash;WHEN MAY THIS TEXT BE RELIED UPON by a BELIEVER? "He shall cover you with His feathers and under His wings shall you trust." Well, it may be relied upon in cases of extreme peril. I do not doubt that servants of God, in times of danger at sea, when the huge billows have roared and the tempest has raged and the vessel seemed likely to go to pieces, have often cheered their hearts
 
 with such a thought as this. "Now, He that holds the waters in the hollow of His hand will take care of us, and cover us with His feathers and under His wings may we trust."
 

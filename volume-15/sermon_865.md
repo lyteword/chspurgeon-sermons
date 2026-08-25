@@ -26,7 +26,7 @@ While outside everything was comfortless, within him there was nothing to cheer 
 
 But now, no longer confining so grand a thought to the mere manner in which David employed it, namely, to the double trouble of many of God's saints when two seas meet and when internal and external sorrows combine, I purpose to use the general principle in other directions and to show that everywhere where there is one deep it calls to another and that especially in the moral and spiritual world every vast and sublime truth has its correspondent, which, like another deep, calls to it responsively.
 
-First, we shall consider this fact in connection with THE ETERNAL PURPOSES OF GOD AND THEIR FULFILMENT IN FACT. The eternal purpose&mdash;what a deep! He who pretends to understand predestination, misunderstands himself! We have no unit for measurement when we strive to fathom the decrees of God. We are like the astronomers in attempting to measure the distances of those stars which are as remote from the ordinary fixed stars as the fixed stars are from us&mdash;they fail from lack of a measuring-line which may serve as a unit&mdash;scarcely does the diameter of the earth's orbit suffice for a basis of numeration. They have no unit by which to estimate.
+First, we shall consider this fact in connection with THE ETERNAL PURPOSES OF God AND THEIR FULFILMENT IN FACT. The eternal purpose&mdash;what a deep! He who pretends to understand predestination, misunderstands himself! We have no unit for measurement when we strive to fathom the decrees of God. We are like the astronomers in attempting to measure the distances of those stars which are as remote from the ordinary fixed stars as the fixed stars are from us&mdash;they fail from lack of a measuring-line which may serve as a unit&mdash;scarcely does the diameter of the earth's orbit suffice for a basis of numeration. They have no unit by which to estimate.
 
 What do you and I know of infinity, Omnipresence, and self-existence? We are far beyond our depth when we come to the ocean of Divine purposes. We may gaze into the mystery with awe, but to profess to comprehend it is vanity itself. What a depth! What an inscrutable mystery, that the infinitely pure and holy God should have determined to allow the intrusion of sin into His universe! That He should allow evil to drag down an angel and debase him into a devil! That the adoring hosts of Heaven should be thinned by sinful desertion from a loyalty so well deserved! How came it that moral evil was suffered to come into this fair world, to spoil Eden, to pollute mankind, to fill the grave and populate Hell?
 
@@ -70,7 +70,7 @@ But don't forget that there is another deep, whose remembrance will remove from 
 
 We have not time to linger. We must pass on to a third point. "Deep calls unto deep." HUMAN
 
-WRETCHEDSESS IS PARALLELED BY DIVINE GRACE. Brothers and Sisters, into what an awful state our race
+WRETCHEDSESS IS PARALLELED by DIVINE GRACE. Brothers and Sisters, into what an awful state our race
 
 fell! We were tainted with high treason through the sin of our father, Adam. The dignity and honor of our race were forfeited. We were, each one of us, born in sin and shaped in iniquity&mdash;with a natural tendency towards evil we came into this world&mdash;and since we have been in this world, we have wickedly and willfully rebelled against God.
 

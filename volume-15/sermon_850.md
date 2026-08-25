@@ -74,7 +74,7 @@ They asked him how he did it. Ah, he said, he could not tell them that, but it w
 
 And now, Brothers and Sisters, you who are engaged in the Lord's work from week to week and who seek to win
 
-men's souls to Christ, I am, in the second place, to illustrate this BY TELLING YOU OF SOME OF THE WAYS BY
+men's souls to Christ, I am, in the second place, to illustrate this by TELLING YOU OF SOME OF THE WAYS BY
 
 WHICH SOULS ARE TO BE WON. The preacher himself wins souls, I believe, best, when he believes in the reality of his work&mdash;when he believes in instantaneous conversions! How can he expect God to do what he does not believe God will do? He succeeds best who expects conversion every time he preaches. According to his faith so shall it be done unto him.
 

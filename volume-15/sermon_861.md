@@ -66,7 +66,7 @@ broken." What? Did God break those bones? Then the breaking was not done by acci
 
 None but He can do it! If your sorrow is a hatred for sin, depend upon it, the devil did not give you that sorrow and your own nature did not breed it&mdash;it is a Heaven-given sorrow! Those bones of yours shall yet be healed! Yes, and they shall yet rejoice! The lesson for this first part of the subject, then, is, let as many as are now possessing any spiritual health and enjoyment be careful that they do not lose it. Let such as have lost their nearness to God be anxious to regain it before worse evils shall come. Let those who are almost in despair take heart, for they cannot be in a worse plight than David was and the God who rescued David can rescue them! Let them not sit down in despair, but, with the Psalmist, let them rise up with humble hope and address themselves, as we do now, in the second place, to the remedy.
 
-THE REMEDY WHICH THE PSALMIST RESORTED TO. Observe, negatively, he did not lie down sullenly or in despondency&mdash;he turned to his chastening God in prayer! He did not offer sacrifices, nor attempt good works of his own. He turned not to himself in any measure, but to God alone. He did not cast away his confidence in God. He believed, still, that there was power in Heaven to save him and therefore, by humble faith, he lifted up the voice of his cry to the Most High in these words&mdash;"Make me to hear joy and gladness."
+THE REMEDY WHICH THE PsalmIST RESORTED TO. Observe, negatively, he did not lie down sullenly or in despondency&mdash;he turned to his chastening God in prayer! He did not offer sacrifices, nor attempt good works of his own. He turned not to himself in any measure, but to God alone. He did not cast away his confidence in God. He believed, still, that there was power in Heaven to save him and therefore, by humble faith, he lifted up the voice of his cry to the Most High in these words&mdash;"Make me to hear joy and gladness."
 
 Now notice, Brothers and Sisters, in this, first of all, David believed that there was joy and gladness even for such as he was. Notice the verse which comes before this text, "Purge me with hyssop and I shall be clean: wash me and I shall be whiter than snow." Yes, there is the key to his meaning. He believed that there was pardon and that pardon would restore his joy and gladness to him! He was confident that God could pardon&mdash;that He could pardon completely&mdash;that He had already provided the means of pardon. David alludes to that in the hyssop&mdash;that God could thoroughly pardon even him, "Wash me and I shall be whiter than snow."
 
@@ -92,7 +92,7 @@ Do you catch the meaning of the Psalmist? He knows that the comfort must come by
 
 And now, as time fails us, though we might have enlarged here, we shall turn in the last place to THE HOPE
 
-WHICH THE PSALMIST ENTERTAINED. What was it? "That the bones which You have broken may rejoice."
+WHICH THE PsalmIST ENTERTAINED. What was it? "That the bones which You have broken may rejoice."
 
 Notice&mdash;not, "that the bones which You have broken may grow quiet and be calm and at rest"&mdash;that was not enough. Not, "that the bones which You have broken may become callous, indifferent, painless." No, no! That he would have vehemently disapproved&mdash;but, "that the bones which You have broken may rejoice." He dares to ask for great mercy! Yes, the greatest mercy!
 

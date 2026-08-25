@@ -7,7 +7,7 @@ THIS TEXT IS exceedingly full of matter, and might require many treatises, and e
 
 We have two great truths here, which would serve us for the subject of meditation for many a day: the believer's position&mdash;he is "in Christ;" and the believer's character&mdash;he is a "new creature." Upon both of these we shall speak but briefly this morning, but may God grant that we may find instruction therein.
 
-First, then, let us consider THE CHRISTIAN's POSITION&mdash;he is said to be "in Christ."
+First, then, let us consider THE ChristIAN's POSITION&mdash;he is said to be "in Christ."
 
 There are three stages of the human soul in connection with Christ: the first is without Christ, this is the state of nature; the next is in Christ, this is the state of grace; the third is with Christ, that is the state of glory.
 
