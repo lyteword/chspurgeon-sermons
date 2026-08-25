@@ -92,7 +92,7 @@ I cannot explain salvation to you, tonight, or how it takes place. But I remembe
 
 I am convinced that I am going to have ever so many, tonight, who will obey the Gospel command, "Believe and live. Believe in the Lord Jesus Christ and you shall be saved." Oh, do it! Do it now! And unto God be glory, and to yourself be peace and happiness forever! Amen and Amen!
 
-EXPOSITION BY C. H. SPURGEON JOHN 5:1-23.
+Exposition by C. H. Spurgeon John 5:1-23.
 
 Verse 1. After this there was a feast of the Jews; and Jesus went up to Jerusalem. For He had respect to the Law. As long as the Law lasted, Christ observed it. Oh, that we were as careful to obey the rules of the Gospel as our Lord was to observe the ritual of the Law! Moreover, He went to Jerusalem because He had an opportunity of addressing great numbers of people there. While I have been resting at Mentone, I have been very glad to be of service to a few friends who were either seeking the Savior, or needing some guidance in their spiritual life. But I cannot tell you how happy I am to be once more in the Tabernacle, preaching to the great congregation! Fisherman like to cast their nets where there are plenty of fish&mdash;and fishers of men delight to be where there are many men who may be enclosed in the Gospel net! "After this there was a feast of the Jews; and Jesus went up to Jerusalem."
 

@@ -86,7 +86,7 @@ The other word that I have to say is a message to the unsaved. If you are oppose
 
 Portion of Scripture Read before Sermon&mdash;Romans 3. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;166, 675, 674.
 
-EXPOSITION BY C. H. SPURGEON ROMANS3.
+Exposition by C. H. Spurgeon Romans3.
 
 Verse 1. What advantage then has the Jew? Or what profit is there of circumcision? If, after all, both Jew and Gentiles were under sin, what advantage had the Jew by the Covenant under which he lived? Or what was the benefit to him of the circumcision which was his distinctive mark?
 

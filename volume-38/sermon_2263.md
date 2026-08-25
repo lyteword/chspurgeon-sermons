@@ -46,7 +46,7 @@ O Friends, confess the innate evil of your hearts as well as the evil of your li
 
 Now, I am going a step further. We were, in a measure, ignorant, but we confess that that measurable ignorance was no excuse.
 
-Now, thirdly, WE BLESS OUR LORD FOR PLEADING FOR US.
+Now, thirdly, WE BLESS OUR Lord FOR PLEADING FOR US.
 
 Do you notice when it was that Jesus pleaded? It was while they were crucifying Him. They had not just driven in the nails, they had lifted up the Cross and dished it down into its socket&mdash;and dislocated all His bones so that He could say, "I am poured out like water, and all My bones are out of joint." Ah, dear Friends, it was then that, instead of a cry or groan, this dear Son of God said, "Father, forgive them; for they know not what they do." They did not ask for forgiveness for themselves&mdash;Jesus asks forgiveness for them! Their hands were stained with His blood and it was then, even then,
 
@@ -93,7 +93,7 @@ Brothers and Sisters, I see reason for hope in the very ignorance that surrounds
 
 If there are any unconverted people here, and I know that there are some, we will mention them in our private devotion, as well as in the public assembly. And we will pray for them in words like these, "Father, forgive them; for they know not what they do." May God bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON LUKE 2333-46; JOHN19:25-30.
+Exposition by C. H. Spurgeon Luke 2333-46; John19:25-30.
 
 We have often read the story of our Savior's sufferings, but we cannot read it too often. Let us, therefore, once again repair to "the place which is called Calvary." As we just now sang&mdash;
 

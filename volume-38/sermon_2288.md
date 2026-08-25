@@ -42,7 +42,7 @@ But Brothers and Sisters, I want to ask you, and myself, also&mdash;are we rende
 
 I thought it might be well to awaken these thoughts in the mind of those of you who are specially concerned in this part of my subject.
 
-During the past year, many of you now present have had a PLACE IN THE ASSEMBLY OF GOD's PEOPLE.
+During the past year, many of you now present have had a PLACE IN THE ASSEMBLY OF God's PEOPLE.
 
 I do not quite like to put the question about how often David's place in the congregation of the righteous has been empty. I have very little need to ever say anything to you, dear Friends, about any lack of regular attendance upon the means of Grace. I think no people I have ever heard of are more commonly found listening to the preaching of the Word, or joining in religious service. Yet there may be some of you who have absented yourselves when you should have been present. Or there may be members of other congregations who have fallen into lax and loose habits with regard to forsaking the assembling of themselves together, "as the manner of some is," even as it was in Paul's day. Let any such who may be with us check those habits as soon as they begin. They are very detrimental to all spiritual growth. I do not think you will find a man in good health if he takes his meals at all sorts of irregular hours. As a rule, the body needs its regular periods of receiving nourishment and sustenance&mdash;and it is the same with the soul. You will scarcely find a Christian to be in sound health if he neglects the appointed time for being fed with spiritual meat.
 
@@ -68,7 +68,7 @@ If we slacken prayer, we shall condemn ourselves! We have proved, not by hearsay
 
 There is another David's place that is sometimes empty and that ought not to be so. IT IS THE PLACE OF
 
-CHRISTIAN SERVICE.
+ChristIAN SERVICE.
 
 My dear Brothers and Sisters, our gifts are various. God has been pleased to place us in different positions and to give us different talents. But every saved man or woman has some work to do for Christ. Are we doing that work? There is our Sunday school. It troubles me if I ever know that teachers are needed there. There are many other schools where members of this Church are occupied as teachers. We are supplying, I might say without any exaggeration, half the Sunday school teachers of half the denominations in the district, for I have always said to you, "Go anywhere that you can find an opportunity of doing good&mdash;never mind where it is. If you have ability to teach, go and teach in anybody's school where your services are needed." Yet there are some among us who hide their talents in a napkin and do not use them&mdash;and, as a consequence&mdash;there is some David's place empty.
 
@@ -80,7 +80,7 @@ I have tasted of this sweetness and I have found it so refreshing to my spirit t
 
 I believe that many of you will be doing Christ's work best at home. You need not teach in the Sunday school&mdash;you can have one in your own house. Many a daughter is better occupied in seeing after the younger ones of her own family than anywhere else. Yet with such exceptions as these, I beg you to take the general run of what I have said&mdash;I speak unto wise men, judge you what I say&mdash;and believe me that there is something to be done by each one who loves the Lord. You are not accountable to me, or to the elders of the Church&mdash;you are accountable only to the Crown Prince, the Prince Imperial of Heaven, Christ Jesus, our Lord! He has bought you with His precious blood. You are His. Then serve Him and let not your place of service ever be vacant through your neglect or indolence.
 
-Again, "David's place was empty." I hope that OUR PLACE AT THE LORD's TABLE will not be empty at any time when it is possible for us to occupy it.
+Again, "David's place was empty." I hope that OUR PLACE AT THE Lord's TABLE will not be empty at any time when it is possible for us to occupy it.
 
 There are not any in this Church, known to me, who absent themselves from the Lord's Table very grossly. But still, there is room for improvement in this matter in the case of some of us. I like to go to that Table every week and my own solemn conviction is that that is none too often. If there is any rule about it in Scripture, there certainly is no rule for going once a month, much less for once a quarter! If there is any rule, it is that on the first day of the week, when we meet together, we should break bread in memory of our Savior's dying love! I commend it to our Brothers and Sisters to consider whether they keep the feast as often as they should, remembering our Master's wondrous passion and death. It may be that they lose much spiritual benefit because their place at the Lord's Table is empty&mdash;when it should be filled.
 
@@ -98,15 +98,15 @@ Beloved, if you are a believer in Christ, if you are the poorest saint and the l
 
 Press onward, my Brothers and Sisters, go on bravely! If the darkness thickens and the dangers multiply, Christ is your life, and you cannot die! The everlasting wings shall cover you and the everlasting arms shall be underneath you. You shall meet us in the place where all the family shall be present and the great Father and the elder Brother shall welcome them all, and no, "David's place" shall be empty! May I be there, may we all be there&mdash;and God shall have the praise! Amen and amen.
 
-EXPOSITION BY C. H. SPURGEON PSALM103.
+Exposition by C. H. Spurgeon Psalm103.
 
 Let us read, dear Friends, the one hundred and third Psalm, not because we do not know it, but because I trust that we know it by heart, and feel that it is a fit expression for our heart's thankfulness on this last Sabbath evening of another year.
 
-Verse 1. Bless the LORD, O my soul. He has been blessing you; now begin you to bless Him. If, during the week, you have been busy about the things of the world, now leave these unimportant matters and come to the grandest exercise in which an intelligent spirit can be engaged. "Bless the Lord, O my soul." Let there be no sleeping, now, no coldness, no indifference. Let it be real soul-work. His blessings have been real, let your praises be real, too.
+Verse 1. Bless the Lord, O my soul. He has been blessing you; now begin you to bless Him. If, during the week, you have been busy about the things of the world, now leave these unimportant matters and come to the grandest exercise in which an intelligent spirit can be engaged. "Bless the Lord, O my soul." Let there be no sleeping, now, no coldness, no indifference. Let it be real soul-work. His blessings have been real, let your praises be real, too.
 
 And all that is within me, bless His holy name. Bless the whole of His name, and especially the holiness of it. Be glad that you have a holy God. There was a time when this was a terror to you, for you were unholy and unable to delight in God's holiness, but He has cleansed and washed you, and now you can rejoice in the whole of His Character, in the wholeness, or the holiness, of His blessed name.
 
-Bless the LORD, O my soul. Do it again. If you have praised Him, now, in your heart, lift up your heart yet higher. Let the praise come up from a greater depth, from the very bottom of your heart, and let it rise to a loftier height, even to the highest Heaven. "Bless the Lord, O my soul."
+Bless the Lord, O my soul. Do it again. If you have praised Him, now, in your heart, lift up your heart yet higher. Let the praise come up from a greater depth, from the very bottom of your heart, and let it rise to a loftier height, even to the highest Heaven. "Bless the Lord, O my soul."
 
 And forget not all His benefits. You have a bad memory for good things, but now try to make your memory awake, forget not any of God's benefits. If you can not remember all, yet do not willfully forget any of them&mdash;"Forget not all His benefits." Here is a list to help your memory.
 
@@ -120,11 +120,11 @@ Who crowns you with loving kindness and tender mercies. The Lord has made a king
 
 Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. The mouth of man is very hard to fill. There are some men's mouths that never will be filled until the sexton gives them a shovelful of earth, for they are covetous and greedy, and always hungry after more. But God has filled your mouth, not with earth, nor with earth's treasure, but "with good things," the very best things! The best of the best He has given you! All that your heart desires, in giving you Himself, so that your youth, when you grow old and feeble in your spirit, returns to you once more. Bless the Lord, then, for all these mercies.
 
-The LORD executes righteousness and judgment for all that are oppressed. He lets the oppressor go on for a while, but, sooner or later, there comes a terrible retribution. There is nothing of oppression in this world that can live long, for God is abroad and oftentimes even the horrors of war make an end to the equal horrors of oppression. God interposes in dreadful judgments to execute vengeance on those that oppress the poor.
+The Lord executes righteousness and judgment for all that are oppressed. He lets the oppressor go on for a while, but, sooner or later, there comes a terrible retribution. There is nothing of oppression in this world that can live long, for God is abroad and oftentimes even the horrors of war make an end to the equal horrors of oppression. God interposes in dreadful judgments to execute vengeance on those that oppress the poor.
 
 He made known His ways unto Moses, His acts unto the children of Israel. Bless Him for this! Bless Him for the Old Testament Scriptures! Bless Him that He did not hide Himself of old, but did speak to His people, and reveal Himself by His Prophets, and by the types and symbols of the Law. Bless His name and study much the Revelation of His ways and acts, and get all the good out of it that you can.
 
-The LORD is merciful and gracious. Bless Him, O my soul! Bless Him for this, for where would you have been if He had not been merciful? Where would you be if He were not gracious, giving Grace to keep you what you are, and to make you better?
+The Lord is merciful and gracious. Bless Him, O my soul! Bless Him for this, for where would you have been if He had not been merciful? Where would you be if He were not gracious, giving Grace to keep you what you are, and to make you better?
 
 Slow to anger, and plenteous in mercy. Blessed words! Any who are under a sense of sin will suck honey out of these choice expressions. "Slow to anger." God does get angry, finally, when Grace has had her day, but He is "plenteous in mercy.
 
@@ -134,18 +134,18 @@ He will not always chide. He will chide sometimes. He would not be a kind Father
 
 11, 12. For as the Heaven is high above the earth, so great is His mercy toward them that fear Him. As far as the east is from the west, so far has He removed our transgressions from us. They are gone. There is a chasm between us and our sins which will never be bridged. To an infinite distance has the great Scapegoat carried away all the sins of His people&mdash;they shall never return to us.
 
-Like as a father pities his children, so the LORD pities them that fear Him. The best of them need pity. There is something to pity in them and, because the Lord pities them, He will not lay too heavy a burden upon them. He will not demand too much of them. He will not give them over to their enemies. He deals tenderly with them because they are so weak.
+Like as a father pities his children, so the Lord pities them that fear Him. The best of them need pity. There is something to pity in them and, because the Lord pities them, He will not lay too heavy a burden upon them. He will not demand too much of them. He will not give them over to their enemies. He deals tenderly with them because they are so weak.
 
 For He knows our frame; He remembers that we are dust. Sometimes we do not remember that, ourselves&mdash;we think that we are iron&mdash;and we fancy that we shall last forever. But the Lord "remembers that we are dust."
 
 16. As for man, his days are as grass: as a flower of the field, so he flourishes. For the wind passes over it, and it is gone; and the place thereof shall know it no more. Before even the mower's scythe comes, the hot eastern wind has dried up the grass and it is gone. How little a thing carries us away! It seems as if it did not need death to come with a sharp scythe to cut down such frail creatures as we are. He does but breathe upon the field and all the flowers are withered at once. Oh, that we might all be prepared for such a speedy end of our lives and not look upon this world as a place for a long stay, but only as the meadow in which we, in common with other feeble flowers, are blooming out our little hour!
 
-But the mercy of the LORD is from everlasting to everlasting upon them that fear Him. Blessed be His name that mercy had no beginning and shall never have an end! You and I are of yesterday and, therefore, we pass away tomorrow. But God is always the same, and of His years there is no end, because He is without beginning&mdash;and such is His love to His people&mdash;eternal and unchangeable. Bless His name for this, dear Friends. Do not forget what is to be the accompaniment to the reading of the Psalm, but constantly bless the Lord, praise Him, and magnify His holy name.
+But the mercy of the Lord is from everlasting to everlasting upon them that fear Him. Blessed be His name that mercy had no beginning and shall never have an end! You and I are of yesterday and, therefore, we pass away tomorrow. But God is always the same, and of His years there is no end, because He is without beginning&mdash;and such is His love to His people&mdash;eternal and unchangeable. Bless His name for this, dear Friends. Do not forget what is to be the accompaniment to the reading of the Psalm, but constantly bless the Lord, praise Him, and magnify His holy name.
 
 17, 18. And His righteousness unto children's children; to such as keep His Covenant, and to those that remember His Commandments to do them. Bless Him for His goodness to our children. Some of us have seen the Covenant of the Lord kept to our children as well as to ourselves. May we all have that blessing in the case of all that spring of us!
 
-The LORD has prepared His Throne in the heavens; and His Kingdom rules over all. Bless Him for His sovereignty! A God who did not reign would be no God to us! But "the Lord reigns, let the earth rejoice," and let His people be glad because He "has prepared His Throne in the heavens," beyond the reach of all man's attacks or assaults. Beyond all time and change, the Lord reigns on forever and ever, "and His Kingdom rules over all." It extends over all things that are on the earth, and above it, and beneath it&mdash;angels and men and devils are all subject to His sway.
+The Lord has prepared His Throne in the heavens; and His Kingdom rules over all. Bless Him for His sovereignty! A God who did not reign would be no God to us! But "the Lord reigns, let the earth rejoice," and let His people be glad because He "has prepared His Throne in the heavens," beyond the reach of all man's attacks or assaults. Beyond all time and change, the Lord reigns on forever and ever, "and His Kingdom rules over all." It extends over all things that are on the earth, and above it, and beneath it&mdash;angels and men and devils are all subject to His sway.
 
-20-22. Bless the LORD, you His angels, that excel in strength, that do His Commandments, hearkening unto the voice of His Word. Bless you the LORD, all you His hosts; you ministers of His, that do His pleasure. Bless the LORD, all His works in all places of His dominion: bless the LORD, O my soul. I think, before we pray, we must bless and magnify the Lord by singing Milton's version of Psalm 136&mdash;
+20-22. Bless the Lord, you His angels, that excel in strength, that do His Commandments, hearkening unto the voice of His Word. Bless you the Lord, all you His hosts; you ministers of His, that do His pleasure. Bless the Lord, all His works in all places of His dominion: bless the Lord, O my soul. I think, before we pray, we must bless and magnify the Lord by singing Milton's version of Psalm 136&mdash;
 
 "Let us with a gladsome mind, Praise the Lord, for He is kind: For His mercies shall endure, Ever faithful, ever sure."

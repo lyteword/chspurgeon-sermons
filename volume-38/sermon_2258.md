@@ -62,9 +62,9 @@ So when the Church, serving her God, begins to look far ahead through prophecy&m
 
 If any here have never trusted in God, never made Him their Friend, or been reconciled to Him by the death of His Son, I pray them to think of their present condition. Opposed to God? You are standing in the way of an express train! You are urged to get out of the way. You will not? You are going to throw that train off the rails, you say? Poor fool, I could put my arms about your neck and forcibly drag you from the iron way, for assuredly, if you remain there, nothing can come of it but your everlasting destruction! Therefore, flee, flee, I pray you, from the wrath to come! The train of Divine Judgment comes thundering along the iron road even now! It shakes the earth. Awake! Rise! Flee! God help you to do so! Behold, the Savior stands with open arms to be your shelter. Fly to Him and trust in Him, and live forever! Amen.
 
-EXPOSITION BY C. H. SPURGEON
+Exposition by C. H. Spurgeon
 
-ISAIAH63-64
+Isaiah63-64
 
 Isaiah 63:1-6. Who is this that comes from Edom, with dyed garments from Bozrah? This that is glorious in His apparel, traveling in the greatness of His strength? I that speak in righteousness, mighty to save. Why are You red in Your apparel, and Your garments like him that treads in the wine vat? I have trodden the winepress alone; and of the people there was none with Me; for I will tread them in My anger, and trample them in My fury; and their blood shall be sprinkled upon My garments, and I will stain all My raiment. For the day of vengeance is in My heart, and the year of My redeemed is come. And I looked, and there was none to help; and I wondered that there was none to uphold: therefore My own arm brought salvation unto Me; and My fury, it upheld me. And I will tread down the people in My anger, and make them drunk in My fury, and I will bring down their strength to the earth. It is a dark and terrible time&mdash;no one at God's side, His people discouraged, Edom triumphant. Then comes the one great Hero of the Gospel, the Christ of God, and by His own unaided strength He wins for His people a glorious victory. He is as terrible to His foes as He is precious to His friends. He stands before us as the one hope of His ancient Church. There is a picture Isaiah was inspired to paint. Now the Prophet goes on to say&mdash;
 

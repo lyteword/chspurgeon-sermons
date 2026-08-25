@@ -82,7 +82,7 @@ I think I heard a friend over there fetch a deep sigh as I quoted those last wor
 
 Oh, that all in this great assembly may meet in Heaven! You who have heard the Word these many years, may you, tonight, believe in Christ and live! You who have never listened to it before, may you also come to Christ and believe in Him, as the jailor did. And like he, you shall be saved! The Lord shall have all the praise and the glory, but oh, that He would work this miracle of mercy tonight! Let us pray for it. Amen.
 
-EXPOSITION BY C. H. SPURGEON ACTS16:9-34.
+Exposition by C. H. Spurgeon Acts16:9-34.
 
 Verse 9. And a vision appeared to Paul in the night; There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us. Our dreams often follow the leading thoughts of the day or, if not of the day, yet the chief thoughts that are upon the mind. Paul dreams about mission work, for his heart is in it. I should not wonder if some before me, who are deeply engaged in earnest Christian work, have often dreamt about their Sunday school, or their mission station. Where the mind goes when we are awake, it often goes when we are asleep. This vision that appeared to Paul was supernatural and was an indication of what God wanted him to do.
 

@@ -26,7 +26,7 @@ I have said all this as a preface to show you that you need not be afraid of kno
 
 Well, now, to help us think of Christ's great love to us, I am going to talk a little, first, about the case of Daniel, the man greatly beloved. Secondly, about the case of every Believer, for every Believer is a man greatly beloved. And thirdly, about the case of some special saints&mdash;Believers who are the elect out of the elect&mdash;the choicest of the choice ones of the Most High! Of these it may truly be said that they are men greatly beloved.
 
-First, then, let us consider THE CASE OF DANIEL who was "a man greatly beloved.
+First, then, let us consider THE CASE OF Daniel who was "a man greatly beloved.
 
 Because Daniel was greatly beloved of God, he was early tried and enabled to stand. While he was yet a youth, he was carried into Babylon and there he refused to eat the king's meat, or to drink the king's wine. He put it to the test whether, if he fed on common food, he would not be healthier and better than if he defiled himself with the king's meat. Now, religion does not stand in meat and drink, but let me say a good deal of irreligion does&mdash;and it may become a very important point with some as to what they eat and what they drink. Daniel was tested early and because he was a man greatly beloved of God, he stood the test. He would not yield even in a small point to that which was evil. Young man, if God greatly loves you, He will give you an early decision and, very likely He will put you to an early test. If you are greatly loved, you will stand firm, even about so small a thing as what you eat and drink, or something that looks less important than that. You will say, "I cannot sin against God. I must stand fast, even in the smallest matter, in keeping the Law of the Lord my God." If you are enabled to do that, you are a man greatly beloved!
 
@@ -109,7 +109,7 @@ A strong stream is running in opposition to the Truth of God. Many say that the 
 
 Portion of Scripture Read before Sermon&mdash;1 John 4:9-21. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;810, 808, 735.
 
-EXPOSITION BY CHARLES H. SPURGEON 1 JOHN4:9221
+Exposition by CHARLES H. Spurgeon 1 John4:9221
 
 Verse 9. In this was manifested the love of God toward us, because that God sent His only begotten Son into the world, that we might live through Him. There is love in our creation. There is love in Providence. But most of all there is love in the gift of Christ for our redemption! The Apostle, here, seems to say, "Now that I have found the great secret of God's love to us, here is the clearest evidence of Divine Love that ever was or ever can be manifested toward the sons of men."
 

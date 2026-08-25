@@ -60,7 +60,7 @@ Once more, do not say that the gift of God's Grace is too good to be true, for t
 
 Thus I have tried to set before you the difficulty that the disciples were in when they believed not for joy.
 
-Now, in the second place, I shall only be able to speak briefly upon THE MANNER IN WHICH OUR LORD
+Now, in the second place, I shall only be able to speak briefly upon THE MANNER IN WHICH OUR Lord
 
 HELPED THEM TO GET OVER THE DIFFICULTY.
 
@@ -108,7 +108,7 @@ You need place no reliance upon them. Hold on to this&mdash;"Christ died for the
 
 The Lord bring us all to that blessed condition, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON LUKE24:13-48.
+Exposition by C. H. Spurgeon Luke24:13-48.
 
 Verses 13-15. And, behold, two of them went that same day to a village called Emmaus, which was from Jerusalem about threescore furlongs. And they talked together of all these things which had happened. And it came to pass, that, while they communed together and reasoned, Jesus, Himself, drew near, and went with them. When two saints are talking together, Jesus is very likely to come and make the third one in the company! Talk of Him and you will soon talk with Him. I would that Believers more often spoke, the one to the other, about the things of God! It has been said that in the olden time, God's people spoke often, one to another, but now we have altered that, and God's people speak often one against another. It is an alteration, but it certainly is not an improvement. May we get together, again, and, like these two disciples, talk of all the things that happened in Jerusalem 18 centuries ago! If we have less of reasoning than they had, let us have more of communion.
 

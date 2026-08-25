@@ -6,7 +6,7 @@ I have frequently spoken to you concerning the faith of this Canaanite woman&mda
 
 This woman had come to her last word. I do not see what more she could have said. When Christ had likened her to a dog, she had consented to it and said, "Truth, Lord: yet the dogs eat of the crumbs which fall from their masters' table." She had come to her last word and now Christ gives her His best word. It is His way, sometimes, to make us wait till we are completely exhausted and can say and do no more&mdash;then He comes in with the fullness of His Divine Power and gives to us what we have importunately sought at His hands. Our extremity is His opportunity.
 
-The first remark which I shall make and enlarge upon is that FAITH ALONE CAN KEEP a SOUL UNDER DISCOURAGEMENT SEEKING AFTER CHRIST. Other causes may send us a certain distance along the road, but only faith will bring us to the goal of assured rest.
+The first remark which I shall make and enlarge upon is that FAITH ALONE CAN KEEP a SOUL UNDER DISCOURAGEMENT SEEKING AFTER Christ. Other causes may send us a certain distance along the road, but only faith will bring us to the goal of assured rest.
 
 That which made this woman seek the Savior was, first of all, parental love. She loved her daughter. She longed to have the devil cast out of her, that her daughter might not be so grievously vexed. That started her going and carried her some way towards the blessing&mdash;but she would have stopped short of the blessing she desired if she had relied only upon natural love.
 
@@ -34,7 +34,7 @@ power and love, and He will save you! Come to Him as the woman of Canaan came, w
 
 Thus much upon our first remark, that faith alone can keep a soul under discouragement seeking after Christ.
 
-Secondly, FAITH IS EXCEEDINGLY DELIGHTFUL TO CHRIST. What He said to this woman began with an
+Secondly, FAITH IS EXCEEDINGLY DELIGHTFUL TO Christ. What He said to this woman began with an
 
 exclamation, as if He were struck with something in her that delighted Him. He said, "O woman, great is your faith!" Notice that He spoke of her faith and of that, alone. He knew about her love. He knew about her earnestness. He knew about her humility. But He said nothing at all about them&mdash;His one word of commendation was for her faith. "O woman, great is your faith!" That is what my Lord is looking for now! He comes round and looks at you, who are sitting in these pews, to see whether you have faith in Him. There are several thoughts suggested by this, that should encourage you who are seeking Christ.
 
@@ -58,7 +58,7 @@ Oh, I would to God you would think of this and exercise faith in the Lord Jesus!
 
 Thus have we considered two points&mdash;first, that the only way to keep a soul under discouragement seeking Christ is by faith. And, secondly, that nothing pleases Christ like believing on His name.
 
-The third point is that FAITH WILL, BEFORE LONG, GET a KIND ANSWER FROM THE LORD JESUS.
+The third point is that FAITH WILL, BEFORE LONG, GET a KIND ANSWER FROM THE Lord Jesus.
 
 This poor woman, at the first, received no reply to her petition, "Have mercy on me, O Lord, You Son of David!" Then, when Christ did speak to her, He gave her what seemed to be a rough answer. But, after a while, these notes of heavenly music sounded in her ear, "O woman, great is your faith; be it unto you even as you will!"
 
@@ -80,7 +80,7 @@ It is contrary to His Word to refuse any seeker and Christ will keep His word. "
 
 Let me add that if Christ does not give a comfortable answer to you who believingly seek Him, it is contrary to His custom. Here are many of us who have known our Lord, now, for 40 years, and we can say that His custom is to hear our prayers and, according to our faith, so is it unto us. Come along, you blackest sinner out of Hell! Come and wash in the Fountain filled with blood and you shall be cleansed, as surely as ever Christ died! Come along, you lowest, meanest, most self-abhorred, most self-condemned of humankind! Come and look to Him, and trust in Him&mdash;and if you do not find peace at once, yet be sure that you shall have it before long! "The morning comes." It is not for long that Christ's mercy can be restrained. He must break forth, like Joseph, weeping over His Brothers and Sisters! He must manifest Himself to you in love, tenderness and kindness. I will be bound for Him, any day, that it shall be so.
 
-Lastly, we come to a very glorious thought. FAITH GETTING CHRIST's WORD HAS ALL THINGS. Listen to the text, again&mdash;"Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will. And her daughter was made whole from that very hour."
+Lastly, we come to a very glorious thought. FAITH GETTING Christ's WORD HAS ALL THINGS. Listen to the text, again&mdash;"Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will. And her daughter was made whole from that very hour."
 
 Christ's word was a comforting word. How the look on this woman's face must have been altered when Christ talked to her so! When He answered her never a word, she doubtless had a long and sorrowful face, and probably the big tears stood in her eyes. But now He began to talk in another strain, how happy she felt! The woman was sad no more. So it is even today! One word from Christ can comfort you, even if they talk about putting you into an asylum because you are so melancholy. One word from my Master shall be the balm of Gilead to your wounds! He will bind up your broken heart. He will comfort you and speak peace to you as He did to her. It was a comforting word.
 
@@ -100,7 +100,7 @@ Believe my Lord and Master. Oh, why do you not believe Him? Cease your artful do
 
 Portion of Scripture Read before Sermon&mdash;Matthew 15:21-39. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;560, 599, 550.
 
-EXPOSITION BY C. H. SPURGEON MATTHEW 15:21-39
+Exposition by C. H. Spurgeon Matthew 15:21-39
 
 
 

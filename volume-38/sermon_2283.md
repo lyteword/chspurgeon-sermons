@@ -129,7 +129,7 @@ never sinned. "He that is washed is clean every whit." "And you are washed." Oh,
 
 If this is your case, go home and be glad! Let nobody beat you in holy merriment. There is a passage at the end of the parable of the prodigal that I like very much&mdash;"and they began to be merry." The parable does not tell us when they left off being merry and, I suppose, they are still merry! I know that ever since my Father put the ring on my finger, and shoes on my feet, and gave me the kiss of love, and I knew that I was forgiven, I have been merry&mdash;and I mean to still be merry, till my merriment is lost in the merriment above&mdash;where they keep perpetual holiday and sing to the praise of the Redeemer, "You were slain, and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation." To Him be honor, and glory, and blessing, forever and ever! Amen.
 
-EXPOSITION BY C. H. SPURGEON HEBREWS 9:24-28 AND 10:1-18.
+Exposition by C. H. Spurgeon Hebrews 9:24-28 AND 10:1-18.
 
 Hebrews 9:24. For Christ is not entered into the holy places made with hands. Christ has not entered into any earthly temple or tabernacle.
 

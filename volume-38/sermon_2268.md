@@ -125,7 +125,7 @@ As my dear Brother said in prayer, you must have your Gethsemanes, your Golgotha
 
 Thus I have explained all about the Lord's Supper. Do you know anything about it? Some of you are going away. You are going away! Yes, and the day shall come when you will not have anywhere to go! When the great marriage supper is spread and the feast of the gracious shall be held, and the whole universe shall be gathered, oh, where will you go? You will not be allowed to linger at the door, neither will you go home to wait till others shall return from the festival. You must be driven from God's Presence if you come not by faith in Christ to that great feast! The fiery swords of the angel guards shall be unsheathed and they shall pursue you through the blackness of eternal darkness, down to infinite despair! The Lord have mercy upon you, tonight, that He may have mercy upon you in that day, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON MATTHEW26226-30and 1 CORINTHIANS11220-34.
+Exposition by C. H. Spurgeon Matthew26226-30and 1 Corinthians11220-34.
 
 We will read, first, Matthew's account of the institution of the Lord's Supper.
 

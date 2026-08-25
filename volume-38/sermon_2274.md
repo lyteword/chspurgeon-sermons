@@ -1,6 +1,6 @@
 # Sermon 2274 | God's People Melted and Tried
 
-"Therefore thus says the LORD of Hosts, Behold, I will melt them, and try them; for how shall I deal with the daughter of My people?" Jeremiah 9:7.
+"Therefore thus says the Lord of Hosts, Behold, I will melt them, and try them; for how shall I deal with the daughter of My people?" Jeremiah 9:7.
 
 OBSERVE, here, that God represents Himself as greatly concerned to know what to do with His people. Of course, He speaks after the manner of men, for, as the infinitely wise God, knowing all things from the beginning, Jehovah knew what He would do. But yet, in order that we may understand something of the workings of the Divine mind, He represents Himself as brought to a non-plus and saying, in the words of our text, "How shall I deal with the daughter of My people?" There are some men and women in the world who seem to greatly perplex those who love them and who desire their welfare. They are a great perplexity to those with whom they live and who labor for their good&mdash;and it seems as if God, Himself, regarded it as a matter of perplexity when He said, "How shall I deal with the daughter of My people?"
 
@@ -62,7 +62,7 @@ rifice of the Son of God! When they do perceive it, they get peace, and light, a
 
 I have dwelt so long upon the matter of conversion that my time is largely gone. I beg you who can pray to join me in asking God to bless the word I have spoken.
 
-But, in the second place, I want to say something to Christians, for, IN THE MATTER OF CHRISTIAN LIFE, God seems to say, " What shall I do for the daughter of my people? I will melt them, and try them."
+But, in the second place, I want to say something to Christians, for, IN THE MATTER OF ChristIAN LIFE, God seems to say, " What shall I do for the daughter of my people? I will melt them, and try them."
 
 Some Christians go from joy to joy. Their path, like that of the light, shines more and more unto the perfect day. Why should you and I not be like that? Why should we not simply believe and keep on believing, and go on rejoicing, serving God with all our heart, and resting in the precious blood of Jesus?
 
@@ -84,11 +84,11 @@ Now, Beloved, the result of melting is truth and humility. The result of melting
 
 If any of you who have been converted are undergoing a melting just now, do not be staggered by it. It is no strange thing that has happened to you and it is no evil thing. You have, no doubt, needed it. You were growing too gross, too careless&mdash;and it was necessary for you that you should be melted. Now God has given you the highest proof of His love in this melting, this scourging, this suffering, this breaking down, this annihilating of carnal confidence, this hanging up of Mr. Presumption by the neck that he may die&mdash;that self may fall&mdash;and that Jesus may be All in All. God grant that it may be so!
 
-I was going to speak about this principle in THE MATTER OF THE CHURCH OF GOD IN ITS CORPORATE CAPACITY, but I will speak of that at another time if the Lord permits. This you may take for granted, that, if God has chosen us, but we are not willing to go in His way and humbly trust in Jesus, and have Him to be our All in All, the Lord will not give us up, but He will melt us, and try us till we are fit to run in any mold that He likes to use.
+I was going to speak about this principle in THE MATTER OF THE CHURCH OF God IN ITS CORPORATE CAPACITY, but I will speak of that at another time if the Lord permits. This you may take for granted, that, if God has chosen us, but we are not willing to go in His way and humbly trust in Jesus, and have Him to be our All in All, the Lord will not give us up, but He will melt us, and try us till we are fit to run in any mold that He likes to use.
 
 God bless you, and save you, and comfort you, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON JEREMIAH9.
+Exposition by C. H. Spurgeon Jeremiah9.
 
 Verse 1. Oh that my head were waters, and my eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people! Jeremiah foresaw that the Chaldeans would come up and so many would be slain that the nation would be almost destroyed.
 
@@ -98,7 +98,7 @@ And they bend their tongues like their bow for lies. They made use of the tongue
 
 But they are not valiant for the truth upon the earth. Oh, no! No one stood up for the Truth of God in those days. No man was willing to suffer for it, to argue for it, or even to acknowledge it.
 
-For they proceed from evil to evil, and they know not Me, says the LORD. They grew worse and worse. It is the way of wicked men to ripen into greater sin. They proceeded from evil to evil&mdash;and Jeremiah had Jehovah's testimony for it that, though they knew a great many things, they did not know the LORD&mdash;"They know not Me, says the LORD."
+For they proceed from evil to evil, and they know not Me, says the Lord. They grew worse and worse. It is the way of wicked men to ripen into greater sin. They proceeded from evil to evil&mdash;and Jeremiah had Jehovah's testimony for it that, though they knew a great many things, they did not know the Lord&mdash;"They know not Me, says the Lord."
 
 Take you heed, everyone, of his neighbor, and trust you not in any brother: for every brother will utterly supplant, and every neighbor will walk with slander. It was an evil time, indeed, when, even in the domestic circle, there could be no
 
@@ -106,11 +106,11 @@ brotherly confidence. "Every brother will utterly supplant." Jacob's name, you r
 
 And they will deceive, everyone, his neighbor, and will not speak the truth: they have taught their tongue to speak lies, and weary themselves to commit iniquity. What a sad state they were in! Their tongues spoke lies without any teaching and they schooled them till they were masters of the art of lying. They each had a D.D.&mdash;Doctor of Dissembling&mdash;they understood the art thoroughly! They had taught their tongue to speak lies and they had committed so much evil that they even tired themselves in the doing of it!
 
-Their habitation is in the midst of deceit; through deceit they refuse to know Me, says the LORD. Putting forth all their critical ingenuity to get rid of God, His Word, Inspiration and the Divine Sacrifice, doing all they could that they might not know God!
+Their habitation is in the midst of deceit; through deceit they refuse to know Me, says the Lord. Putting forth all their critical ingenuity to get rid of God, His Word, Inspiration and the Divine Sacrifice, doing all they could that they might not know God!
 
-8. Therefore thus says the LORD of Hosts, Behold, I will melt them, and try them; for how shall I deal with the daughter of My people? Their tongue is as an arrow shot out; it speaks deceit: one speaks peaceably to his neighbor with his mouth, but in heart he lies in wait. Do you wonder that Jeremiah wept? With so true a spirit, so tender and sympathetic, he could not bear it when man had become man's worst enemy and no man could be relied upon&mdash;for all practiced and spoke deceit.
+8. Therefore thus says the Lord of Hosts, Behold, I will melt them, and try them; for how shall I deal with the daughter of My people? Their tongue is as an arrow shot out; it speaks deceit: one speaks peaceably to his neighbor with his mouth, but in heart he lies in wait. Do you wonder that Jeremiah wept? With so true a spirit, so tender and sympathetic, he could not bear it when man had become man's worst enemy and no man could be relied upon&mdash;for all practiced and spoke deceit.
 
-Shall I not visit them for these things? says the LORD: shall not My soul be avenged on such a nation as this? Divine Justice sets the fire of indignation burning. Nothing excites God's wrath more than continued lies and deceit, unkind-ness, unbrotherly conduct and unholiness of life. Put all these evils together and you have more than enough God-provoking sins calling for an avenging visitation!
+Shall I not visit them for these things? says the Lord: shall not My soul be avenged on such a nation as this? Divine Justice sets the fire of indignation burning. Nothing excites God's wrath more than continued lies and deceit, unkind-ness, unbrotherly conduct and unholiness of life. Put all these evils together and you have more than enough God-provoking sins calling for an avenging visitation!
 
 For the mountains will I take up a weeping and wailing, and for the habitations of the wilderness a lamentation, because they are burned up, so that none can pass through them; neither can men hear the voice of the cattle; both the fowl of the heavens and the beast are fled; they are gone. The Prophet pictures what the Chaldeans would do. They would not only destroy the cities, but they would even rob the hills of their cattle and sweep the fields till there would be nothing left that men could gather.
 
@@ -119,31 +119,31 @@ And I will make Jerusalem heaps, and a den of dragons; and I will make the citie
 > Letevery vein   
 > Suck up a river to supply my eyes, My weary, weeping eyes, too dry for me, Unless they get new conduits, new supplies, To bear them out, and with my state agree.   
 
-Who is the wise man that may understand this? And who is he to whom the mouth of the LORD has spoken, that he may declare it, for why does the land perish and is burned up like a wilderness, that none passes through? The land would never have been desolate if it had not been for the wickedness of the people. Sin&mdash;sin it is that does the mischief! There are some who cavil at the punishment that God puts upon sin&mdash;they would do better if they found fault with the sin which brings its own punishment with it. There is nothing arbitrary in God's justice&mdash;He allows sin, itself, to ripen, and when it is finished, it brings forth eternal death.
+Who is the wise man that may understand this? And who is he to whom the mouth of the Lord has spoken, that he may declare it, for why does the land perish and is burned up like a wilderness, that none passes through? The land would never have been desolate if it had not been for the wickedness of the people. Sin&mdash;sin it is that does the mischief! There are some who cavil at the punishment that God puts upon sin&mdash;they would do better if they found fault with the sin which brings its own punishment with it. There is nothing arbitrary in God's justice&mdash;He allows sin, itself, to ripen, and when it is finished, it brings forth eternal death.
 
-14. And the LORD says, Because they have forsaken My Law which I set before them, and have not obeyed My voice, neither walked therein; but have walked after the imagination of their own heart, and after Baalim. After many Baals, is the meaning&mdash;many are the gods that men make for themselves when they turn away from Jehovah.
+14. And the Lord says, Because they have forsaken My Law which I set before them, and have not obeyed My voice, neither walked therein; but have walked after the imagination of their own heart, and after Baalim. After many Baals, is the meaning&mdash;many are the gods that men make for themselves when they turn away from Jehovah.
 
-15. Which their fathers taught them: therefore thus says the LORD of Hosts, the God of Israel; Behold, I will feed them, even this people, with wormwood, and give them water of gall to drink. You cannot sin without suffering. If you will not drink of the waters of obedience, but will drink of the waters of rebellion, they shall be bitter.
+15. Which their fathers taught them: therefore thus says the Lord of Hosts, the God of Israel; Behold, I will feed them, even this people, with wormwood, and give them water of gall to drink. You cannot sin without suffering. If you will not drink of the waters of obedience, but will drink of the waters of rebellion, they shall be bitter.
 
 I will scatter them, also, among the heathen, whom neither they nor their fathers have known: and I will send a sword after them, till I have consumed them. A patriot for man, a Prophet for God, do you marvel that he wept?
 
-Thus says the LORD of Hosts, Consider you, and call for the mourning women, that they may come; and send for cunning women, that they may come. These were the hired mourners, the women who were paid to go to funerals and simulate grief. "Send for your weepers now," said the LORD of Hosts, "for if you ever needed mourners, you need them now."
+Thus says the Lord of Hosts, Consider you, and call for the mourning women, that they may come; and send for cunning women, that they may come. These were the hired mourners, the women who were paid to go to funerals and simulate grief. "Send for your weepers now," said the Lord of Hosts, "for if you ever needed mourners, you need them now."
 
 19. And let them make haste, and take up a wailing for us, that our eyes may run down with tears, and our eyelids gush out with waters. For a voice of wailing is heard out of Zion. These were no mock mourners&mdash;but real weepers who had cause to mourn.
 
 How are we plundered! We are greatly confounded. Why did they not say, "How we have sinned?" No, men will think of the punishment they suffer&mdash;but they will overlook the sin they commit!
 
-Because we have forsaken the land, because our dwellings have cast us out. Why did not they say, "Because we have forsaken the LORD, because we have cast off the worship of Jehovah?" You cannot bring men to that point. They quarrel with the rod rather than with the hand that holds it. They mourn over the result of sin&mdash;but to the sin, itself, they still cling.
+Because we have forsaken the land, because our dwellings have cast us out. Why did not they say, "Because we have forsaken the Lord, because we have cast off the worship of Jehovah?" You cannot bring men to that point. They quarrel with the rod rather than with the hand that holds it. They mourn over the result of sin&mdash;but to the sin, itself, they still cling.
 
-21. Yet hear the word of the LORD, O you women, and let your ears receive the word of His mouth, and teach your daughters wailing, and everyone, her neighbor, lamentation. For death is come up into our windows. It did not wait to come in by the door. In time of war or pestilence, death comes how it will through every casement, closed or open.
+21. Yet hear the word of the Lord, O you women, and let your ears receive the word of His mouth, and teach your daughters wailing, and everyone, her neighbor, lamentation. For death is come up into our windows. It did not wait to come in by the door. In time of war or pestilence, death comes how it will through every casement, closed or open.
 
 And is entered into our palaces, to cut off the children from without, and the young men from the streets. Generally, in war, they spare the children, and they carry the young men away as captives. The Chaldeans were cruel&mdash;they killed the little ones&mdash;and they slew the young men.
 
-Speak, Thus says the LORD, Even the carcasses of men shall fall as dung upon the open field, and as the handful after the harvestman, and none shall gather them. So dreadful was the devastation that was worked by these Chaldeans on account of the people's sin, that dead bodies lay like heaps of dung that the farmer strews upon the field!
+Speak, Thus says the Lord, Even the carcasses of men shall fall as dung upon the open field, and as the handful after the harvestman, and none shall gather them. So dreadful was the devastation that was worked by these Chaldeans on account of the people's sin, that dead bodies lay like heaps of dung that the farmer strews upon the field!
 
-24. Thus says the LORD, Let not the wise man glory in his wisdom, neither let the mighty man glory in his might, let not the rich man glory in his riches: but let him that glories glory in this, that he understands and knows Me, that I am the LORD which exercises loving kindness, judgment, and righteousness in the earth: for in these things I delight, says the LORD. This was the God who turned, again, to His rebellious people and who would have been glad if they had but known Him. He would have made them richer than the rich, and wiser than the wise, and mightier than the mighty&mdash;but they would not have the things in which Jehovah delighted.
+24. Thus says the Lord, Let not the wise man glory in his wisdom, neither let the mighty man glory in his might, let not the rich man glory in his riches: but let him that glories glory in this, that he understands and knows Me, that I am the Lord which exercises loving kindness, judgment, and righteousness in the earth: for in these things I delight, says the Lord. This was the God who turned, again, to His rebellious people and who would have been glad if they had but known Him. He would have made them richer than the rich, and wiser than the wise, and mightier than the mighty&mdash;but they would not have the things in which Jehovah delighted.
 
-Behold, the days come, says the LORD, that I will punish all them which are circumcised with the uncircumcised. If they sin like others, they shall die like others, circumcised or uncircumcised, baptized or unbaptized.
+Behold, the days come, says the Lord, that I will punish all them which are circumcised with the uncircumcised. If they sin like others, they shall die like others, circumcised or uncircumcised, baptized or unbaptized.
 
 Egypt, and Judah, and Edom. You see that Judah is sandwiched in between Egypt and Edom. Those who were the people of God are put in the same category with the accursed nation because they had forsaken Him and mixed up with them.
 

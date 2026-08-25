@@ -12,7 +12,7 @@ The Apostle, having mentioned what Jesus was, by another stroke of his pen, reve
 
 But our text does not speak so much of the humiliation of Christ in becoming Man, as of His humiliation after He took upon Himself our Nature. "Being found in fashion as a Man, He humbled Himself." He never seems to stop in His descent until He comes to the lowest point&mdash;obedience unto death and that death the most shameful of all&mdash;"even the death of the Cross." Said I not rightly, that as you cannot reach the height from which He came, you cannot fathom the depth to which He descended? Here, in the immeasurable distance between the Heaven of His Glory and the shame of His death, is room for your gratitude! You may rise on wings of joy, you may dive into depths of self-denial, but in neither case will you reach the experience of your Divine Lord, who thus, for you, came from Heaven to earth, that He might take you up from earth to Heaven!
 
-Now, if strength is given me for the exercise, I want to guide you, first, while we consider the facts of our Lord's humiliation. And, secondly, when we have considered them, I want you to learn, from them, some practical useful lessons. I. First of all, CONSIDER THE FACTS OF OUR LORD's HUMILIATION.
+Now, if strength is given me for the exercise, I want to guide you, first, while we consider the facts of our Lord's humiliation. And, secondly, when we have considered them, I want you to learn, from them, some practical useful lessons. I. First of all, CONSIDER THE FActs OF OUR Lord's HUMILIATION.
 
 Paul speaks first of the point from which He still descends&mdash;"Being found in fashion as a Man, He humbled Himself." My gracious Lord, You have come far enough, already, do You not stop where You are? In the form of God, You were&mdash;in the form of Man, You are. That is an unspeakable stoop! Will You still humble Yourself? Yes, says the text, "Being found in fashion as a Man, He humbled Himself." Yet, surely one would have thought that He was low enough! He was the Creator and we see Him here on earth as a creature&mdash;the Creator, who made Heaven and earth, without whom was not anything made that was made, and yet He lies in the virgin's womb! He is born and He is cradled where the horned oxen feed! The Creator is also a Creature! The Son of God is the Son of Man. Strange combination! Could condescension go farther than for the Infinite to be joined to the Infant, and the Omnipotent to the feebleness of a newborn Baby?
 
@@ -48,7 +48,7 @@ But, as if death were not sufficiently humbling, the Apostle adds, "even the dea
 
 I have not the mental, nor the physical, nor the spiritual strength to speak to you aright on such a wondrous topic as that of our Lord in the Valley of Humiliation. There have been times with me when I have only needed a child's finger to point me to the Christ and I have found enough in a sight of Him without any words of man. I hope that it is so with you tonight. I invite you to sit down and watch your Lord, obedient unto death, even the death of the Cross. All this He did that He might complete His own humiliation. He humbled Himself even to this lowest point of all, "unto death, even the death of the Cross."
 
-If you have this picture clearly before your eyes, I want you, in the second place, to LEARN SOME PRACTICAL LESSONS FROM OUR LORD's HUMILIATION.
+If you have this picture clearly before your eyes, I want you, in the second place, to LEARN SOME PRACTICAL LESSONS FROM OUR Lord's HUMILIATION.
 
 The first is, learn to have firmness of faith in the atoning Sacrifice. If my Lord could stoop to become Man and if, when He had come as low as that, He went still lower, and lower, and lower, until He became obedient unto death, even the death of the Cross, I feel that there must be a potency about that death which is all that I can require. Jesus, by dying,
 
@@ -86,7 +86,7 @@ And strength to strength oppose." Do you not grow indignant, sometimes, when you
 
 The Lord help you to honor Him who humbled Himself, who became obedient unto death, even the death of the Cross! May He accept these humble words of mine and bless them to His people, and make them to be the means of leading some poor sinner to come and trust in Him! Amen.
 
-EXPOSITION BY C. H. SPURGEON PHILIPPIANS 2:1-18.
+Exposition by C. H. Spurgeon Philippians 2:1-18.
 
 Verses 1, 2. If there is, therefore, any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any heart and mercies, fulfill you my joy, that you be like-minded, having the same love, being of one accord, of one mind. Paul did not mean to doubt that there is "any consolation in Christ, any comfort of love, any fellowship of the Spirit, any heart and mercies," for no one knew better than he did how those blessings abound to them that are in Christ Jesus. He put it by way of argument. If there is consolation in Christ, since there is consolation in Christ, since there is comfort of love, since there is fellowship of the Spirit, be one in Christ. Be not divided. Love one another&mdash;"be like-minded, having the same love, being of one accord, of one mind."
 
