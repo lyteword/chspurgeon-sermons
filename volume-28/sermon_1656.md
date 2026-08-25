@@ -10,7 +10,7 @@ Moreover, it is noteworthy that whatever his trial may have been, whether it was
 
 I like to hear how any godly man has been comforted, for it comforts me. I take a deep interest in the simple tale of any humble prisoner whose bonds the Lord has loosed. And I feel it a choice pleasure to chime in with songs of thanksgiving which come from the lips of grateful suppliants whose cries the Lord has heard. Observe that the Psalmist appeals to certain facts which he remembered. "Forever, O Lord, Your Word is settled in Heaven. Your faithfulness is unto all generations: You have established the earth, and it abides," etc. And then he refers to certain delights which he experienced in reviewing these facts -"Unless Your Law had been my delights, I should have perished in my affliction."
 
-Here, then, we have strong consolation IN CERTAIN FACTS WHICH HE REMEMBERED. Fly to the mountains when the enemy invades the land. Hide in the strongholds of your God!
+Here, then, we have strong consolation IN CERTAIN FActs WHICH HE REMEMBERED. Fly to the mountains when the enemy invades the land. Hide in the strongholds of your God!
 
 Our first comfort is the eternal existence of God which is implied in the continuance of His faithfulness and power. "The Lord lives" is the plea of souls harassed and haunted by foes without and fears within. Observe, I pray you, that there is nothing casual or accidental in the tone of the Psalmist's meditation, as if some stray thought had darted a ray of light into the mind of one who was dreary and downcast. His joy is not like a flower that blooms in the desert, or a bird that chirps merrily amidst the frost of winter&mdash;he has abundant and even overflowing causes for joy! His confidence runs
 
