@@ -2,11 +2,11 @@
 
 "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." Galatians 6:7.
 
-I FIND, on reference to Luther's Commentary on the Epistle to the Galatians, and to Calvin's Commentary on this passage, that both those learned expositors consider that this refers to the treatment of ministers by their people in the matter of their financial support. They very properly point out the connection between the sixth verse and the seventh&mdash;"Let him who is taught in the Word share with him who teaches in all good things. Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." I suppose that there was a need for such an injunction in Paul's day&mdash;and there is a need for it now. There were some hearers of the Gospel, then, who contributed generously towards the maintenance of the preacher and the Apostle says that what they gave would be like sowing good seed in return for which God would give to them an abundant harvest. But there were others who gave sparingly and who would, therefore, have a proportionately small return.
+I find, on reference to Luther's Commentary on the Epistle to the Galatians, and to Calvin's Commentary on this passage, that both those learned expositors consider that this refers to the treatment of ministers by their people in the matter of their financial support. They very properly point out the connection between the sixth verse and the seventh&mdash;"Let him who is taught in the Word share with him who teaches in all good things. Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." I suppose that there was a need for such an injunction in Paul's day&mdash;and there is a need for it now. There were some hearers of the Gospel, then, who contributed generously towards the maintenance of the preacher and the Apostle says that what they gave would be like sowing good seed in return for which God would give to them an abundant harvest. But there were others who gave sparingly and who would, therefore, have a proportionately small return.
 
 But I feel sure that the Apostle had a wider range than that and that these words express a general principle&mdash; "Whatever a man sows, that shall he also reap." So I begin my discourse by reminding you that our present lives are of the utmost possible importance, for on these winged hours hang eternal issues. Our present actions are not trifles, for they will decide our everlasting destiny. Everything we do is, to some extent, a sowing of which eternity will be the reaping.
 
-So I pray you to notice, first, that our text tells as that God IS NOT TO BE TRIFLED WITH. "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap."
+So I pray you to notice, first, that our text tells as that God is not to be trifled with. "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap."
 
 Some trifle with God by holding, practically, if not theoretically, that there will not be rewards for virtue, nor punishment for sin&mdash;that one end will come alike to all&mdash;that whatever the dignity or the degradation of character may be, we shall all go to the same place and sleep there in oblivion. Or that if there isany future life, it will be common to us all and that, in fact, the whole question concerning the hereafter is a matter so utterly unimportant that we can afford to regard it with complete indifference!
 
@@ -20,7 +20,7 @@ Others imagine that God can be imposed upon by a formal compliment when they are
 
 for you! 
 
-Now, secondly, I want to remind you that God's MORAL LAWS, AS WELL AS God, HIMSELF, ARE NOT TO BE TRIFLED WITH "Whatever a man sows, that shall he also reap."
+Now, secondly, I want to remind you that God's moral laws, as well as God, Himself, are not to be trifled with "Whatever a man sows, that shall he also reap."
 
 First, it is so in nature. If it were possible for God notto observe what man does, yet what man does is, of itself, full of a power which will be to him what the harvest is to the soil. And just what he sows, he will be sure to reap one of these days, or in eternity if not in time. If a man were to sow his field with garlic and expect to reap barley, he would be bitterly disappointed. If he were to sow tares, he might pray as long as he pleased for a crop of wheat, but he would not get it. God never so changes His Laws as to make tares come up wheat and He never will! The sowing always is, and always will be, the father of the reaping.
 
@@ -30,7 +30,7 @@ As it is in nature, and in Providence, so it is in the general moral government 
 
 declaration of the Spirit of God that, after death, comes the judgment! And that, at that Judgment Seat you shall all appear! And for the acts committed in your lives you shall all be tried! And as your lives have been, so shall your eternal destiny be fixed!
 
-This leads me to my third remark, which is that EVIL SOWING WILL BRING EVIL REAPING. "Whatever a man sows, that shall he also reap."
+This leads me to my third remark, which is that evil sowing will bring evil reaping. "Whatever a man sows, that shall he also reap."
 
 This is seen in the present result of certain sins. "He that sows to his flesh shall of the flesh reap corruption." By "the flesh" is meant our corrupt human nature in such sins as are mentioned in the nineteenth verse of the fifth Chapter of this Epistle, where we read, "Now the works of the flesh are manifest, which are these, Adultery, fornication, uncleanness, lasciviousness, idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies, envying, murders, drunkenness, revellings and such like: of the which I tell you before, as I have also told you in times past, that they which do such things shall not inherit the Kingdom of God." These are "the works of the flesh."
 
@@ -48,7 +48,7 @@ What a dreadful thing sin is when it comes to the full! If there were no fire th
 
 Ah, my Friend, if you go on living in sin, you will wake up, one day, surrounded by the fruition of your own guilt in all its awful enormity. On every hand the harvest of your sowing to the flesh will stare you in the face&mdash;and God will place in your hand a sharp sickle and will say to you, "Reap here! Reap there!" You will say, "I cannot do it." But you sowed it, so you must reap it! What terrible misery there will be for you there! Yet it will only be your own sin in its ripeness, your own transgression fully developed&mdash;and that awful harvesting will be infinitely more than you will be able to bear. "Whatever a man sows, that shall he also reap." The man who gripped the widow's throat, the other day, and took away her few sticks of furniture, will look upon her tearful face to all eternity! The man who led a fellow creature to sin will see her pale sorrow-stricken face before him forever and ever! He may try to escape from it, but he will not be able to do so. Does that description fit anyone here? And does he complain that I am very personal in my remarks? That is what I am and what I mean to be, in the hope that he may repent of his great transgressions and, looking to Jesus upon the Cross, may receive forgiveness of his sins before it is too late!
 
-But now, lastly, I have something better to say, and that is that GOOD SOWING WILL BRING GOOD REAPING.
+But now, lastly, I have something better to say, and that is that good sowing will bring good reaping.
 
 I hear someone object, "But is not that salvation by works? Do you not preach that salvation is all of Grace through faith in Jesus?" Yes, of course I do, but it is still true that good sowing will bring good reaping. But what sort of sowing do I mean? Why, the sowing that is mentioned in the verse following our text&mdash;"He that sows to his flesh shall of the flesh reap corruption; but he that sows to the Spirit shall of the Spirit reap life everlasting." When a man sows to the flesh, he deceives himself, for the flesh is his old fallen nature, and such sowing is nothing but evil! But to sow well is to sow under the influence of another Power and to sow in another manner! In fact it is, as the Apostle says, to "sow to the Spirit."
 
@@ -124,4 +124,4 @@ Think not that I am come to send peace on earth: I came not to send peace, but a
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
+Pray the Holy Spirit will use this sermon to bring many to a saving knowledge of Jesus Christ.
