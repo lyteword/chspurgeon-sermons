@@ -1,7 +1,7 @@
 # Sermon 619 | The Golden Key Of Prayer
 
-> Call unto Me and I will answer you and show you great and mighty things, which you know not.    
-> Jeremiah 33:3.    
+> Call unto Me and I will answer you and show you great and mighty things, which you know not. 
+> Jeremiah 33:3. 
 
 SOME of the most learned works in the world smell of midnight oil. But the most spiritual and most comforting books and sayings of men usually have a savor about them of prison dampness. I might quote many instances&mdash;John Bunyan's Pilgrim may suffice instead of a hundred others. And this good text of ours, all moldy and cold with the prison in which Jeremiah lay, has nevertheless a brightness and a beauty about it which it might never have had if it had not come as a cheering word to the prisoner of the Lord shut up in the court of the prison.
 
@@ -127,4 +127,4 @@ Now, this word to close with. Some of you are seekers for your own conversion. G
 
 Young man, I say, Try the Lord! Young woman, prove Him&mdash;see whether He is true or not! If God is true, you cannot seek mercy at His hands through Jesus Christ and get a negative reply. He must&mdash;for His own promise and Character bind him to it&mdash;open Mercy's gate to you who knock with all your heart! God help you, believing in Christ Jesus, to cry aloud unto God and His answer of peace is already on the way to meet you! You shall hear Him say, "Your sins, which are many, are all forgiven." The Lord bless you for His love's sake. Amen.
 
-[NOTE&mdash;In a former sermon, while denouncing the error of the "non-confession of sin by Believers," we wrongly imputed that gross heresy to the Plymouth Brethren. We have since learned that the persons to whom we alluded have been expelled from that body and we therefore desire to exonerate the community from a fault of which they are not guilty. We are sorry to have made this charge, as it is far from our wish to speak evil of any, but we were not aware of the expulsion of the guilty persons.]
+

@@ -133,7 +133,7 @@ And O, Beloved, when you come to think of it, to be married to Him, to be one wi
 
 If you see the Lord coming from Edom, with dyed garments from Bozrah, from the winepress wherein He has trampled on His foes&mdash;you are overawed and overcome by the terror of that dread display of justice. But when you see Him clad in a vesture dipped in no blood but His own, you will sing aloud evermore, "You were slain and have redeemed us to God by Your blood. To You be glory forever and ever." I could go on singing, "Worthy is the Lamb that was slain" throughout all eternity. The theme has an inexhaustible interest about it&mdash;there is everything in it&mdash;justice, mercy, power, patience, love, condescension, grace and glory.
 
-All over glorious is my Lord when I behold Him as a Lamb. And this shall make Heaven seven times Heaven to me to think that even then I shall be joined to Him in everlasting bonds as the Lamb. [Here a voice from the gallery cried, "Praise the Lord!"] Yes, my Friend, we will praise the Lord. "Praise you the Lord" is the command which was heard
+All over glorious is my Lord when I behold Him as a Lamb. And this shall make Heaven seven times Heaven to me to think that even then I shall be joined to Him in everlasting bonds as the Lamb.  Yes, my Friend, we will praise the Lord. "Praise you the Lord" is the command which was heard
 
 coming out of the throne&mdash;"Praise our God, all you His servants and you that fear Him, both small and great: for the marriage of the Lamb is come and His wife has made herself ready."
 

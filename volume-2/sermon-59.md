@@ -1,66 +1,66 @@
 # Sermon 59 | Watch-Night Service
 
-> If it be enquired why I held a Watch-night, let the answer be&mdash;because I hoped that the Lord would own the service, and thus souls might be saved. I have preached at all hours the gospel of Jesus, and I see no reason why I may not preach at midnight, if I can obtain hearers. I have not done it from imitation, but for the best of reasons&mdash;the hope of doing good, and the wish to be the means of gathering in the outcasts of Israel. God is my witness, I would preach every hour of the day, if body and mind were equal to the task. When I consider how souls are being damned and how few there are who mourn and cry over them, I am constrained to cry with Paul, "Woe is me if I preach not the gospel." Oh, that the new year may be far better than the last.    
-> I am almost sorry to see this service in print, and fear it will rob many of their week's food from the regular sermon; but as it is done, I pray the Lord to own it for Jesus' sake.    
->     
-> &mdash;C.H.S.    
+> If it be enquired why I held a Watch-night, let the answer be&mdash;because I hoped that the Lord would own the service, and thus souls might be saved. I have preached at all hours the gospel of Jesus, and I see no reason why I may not preach at midnight, if I can obtain hearers. I have not done it from imitation, but for the best of reasons&mdash;the hope of doing good, and the wish to be the means of gathering in the outcasts of Israel. God is my witness, I would preach every hour of the day, if body and mind were equal to the task. When I consider how souls are being damned and how few there are who mourn and cry over them, I am constrained to cry with Paul, "Woe is me if I preach not the gospel." Oh, that the new year may be far better than the last. 
+> I am almost sorry to see this service in print, and fear it will rob many of their week's food from the regular sermon; but as it is done, I pray the Lord to own it for Jesus' sake. 
+> 
+> &mdash;C.H.S. 
 
 The chapel being densely crowded in every part, the preacher entered the pulpit, and after prayer, solemnly read the verse&mdash;which the congregation then sang&mdash;
 
-> Ye virgin souls, arise!    
-> With all the dead awake;    
-> Unto salvation wise;    
-> Oil in your vessels take:    
-> Upstarting at the midnight cry,    
-> Behold Your heavenly bridegroom nigh.    
+> Ye virgin souls, arise! 
+> With all the dead awake; 
+> Unto salvation wise; 
+> Oil in your vessels take: 
+> Upstarting at the midnight cry, 
+> Behold Your heavenly bridegroom nigh. 
 
 Two brethren then offered prayer for the Church and the World, that the new year might be clothed with glory by the spread of the knowledge of Jesus.&mdash;Then followed the 
 
 ## Exposition
 
-> Psalm 90:1-22    
+> Psalm 90:1-22 
 
-> Lord, thou hast been our dwelling place in all generations.    
+> Lord, thou hast been our dwelling place in all generations. 
 
 Yea Jehovah, we, they children, can say that thou hast been our home, our safe dwelling-place. And oh, what joy, what peace have we found in his sacred bosom. No home like the breast of the Lord, to which, in all generations, true believers fly. Let me ask the unbelievers where their joy is. Where has your habitation been, ye sons of sin and daughters of folly?
 
-> Before the mountains were brought forth, or ever thou hadst formed the earth and the world, even from everlasting to everlasting, thou art God.    
+> Before the mountains were brought forth, or ever thou hadst formed the earth and the world, even from everlasting to everlasting, thou art God. 
 
 And the same God too, loving His people, passing by their sins and remembering not their iniquities. Oh, beloved, let this thought cheer you, he was, he is, he will be God. Here change cannot climb, here mutation must not approach. For ever and ever he is God.
 
-> Thou turnest man to destruction; and sayest, Return, ye children of men.    
+> Thou turnest man to destruction; and sayest, Return, ye children of men. 
 
 How many this year have departed. Oh, where had we been had this been our case? Many of us can say, we should have been in bliss, and we should have returned unto God, but alas, many here would have entered the fires of hell and commenced their never-ending torture.
 
-> For a thousand years in thy sight are but as yesterday when it is past, and as a watch in the night."    
-> "Thou carriest them away as with a flood.    
+> For a thousand years in thy sight are but as yesterday when it is past, and as a watch in the night." 
+> "Thou carriest them away as with a flood. 
 
 Who are they who are carried away as with a flood? Yourselves, my hearers, and myself. Though we know it not, we are always in motion. The impetuous torrent of time is carrying us along like a mighty rolling river. We cannot stand against the force which drives us onwards. As powerless as the straw we are; we can by no means resist it. Whither are we going? Where is the river carrying us to? We cannot stem its torrens; we cannot escape its floods. Oh! where, oh! where, are we going!
 
-> Thou carriest them away as with a flood; they are as a sleep: in the morning they are like grass which groweth up.    
-> "In the morning it flourisheth, and groweth up; in the evening it is cut down, and withereth.    
-> "For we are consumed by thine anger, and by thy wrath are we troubled.    
+> Thou carriest them away as with a flood; they are as a sleep: in the morning they are like grass which groweth up. 
+> "In the morning it flourisheth, and groweth up; in the evening it is cut down, and withereth. 
+> "For we are consumed by thine anger, and by thy wrath are we troubled. 
 
 No man better understands this than the convinced sinner, when smarting under the rod of God. Truly our strength is then utterly consumed, and the troubles of our heart are enlarged.
 
-> Thou hast set our iniquities before thee, our secret sins in the light of thy countenance.    
+> Thou hast set our iniquities before thee, our secret sins in the light of thy countenance. 
 
 Hear that! "our secret sins." Some of you bear hell's mark on your forehead. Some of you, like Cain, have the mark of justice on your very brow. Your sins are beforehand with you in judgment. Ah! they are there to-night, blabbing out the tale of your sad, sad history. But there are persons here who have "secret sins." Ye have not been found out yet. The night was too dark for human eye to se you; the deed was to secret for mortal to behold; but it is set somewhere. Just as we set a stone in a golden ring, so has God set your "secret sins in the light of his countenance." Your sins are this night before the eyes of the infinite Jehovah.
 
-> For all our days are passed away in thy wrath: we spend our years as a tale that is told.    
+> For all our days are passed away in thy wrath: we spend our years as a tale that is told. 
 
 The Vulgate translation has: "Our years pass away like those of a spider." It implies that our life is as frail as the thread of a spider's web. Constituted most curiously the spider's web is; but what more fragile? In what is there more wisdom than in the complicated frame of a human body; and what more easily destroyed? Glass is granite compared with flesh; and vapours are rocks compared with life.
 
-> The days of our years are threescore years and ten;    
+> The days of our years are threescore years and ten; 
 
 Mark, the Psalmist says, "the days of our years." How seldom we think of that! Our years we think of, but not "the days of our years."
 
-"And if [it is a great "if" indeed, for how many die before they attain to it!] by reason of strength they be fourscore years, yet is their strength labour and sorrow; for it is soon cut off, and we fly away."
+"And if by reason of strength they be fourscore years, yet is their strength labour and sorrow; for it is soon cut off, and we fly away."
 
 Where do we fly to? Is it upwards that we wing our way, on more than eagles' wings, to realms of joy unknown? Or is it downward that we sink with all our sins round our necks like millstones? Oh! shall we go down, down, till in hell we lift up our eyes, being in torments?
 
-> Who knoweth the power of thine anger? even according to thy fear, so is thy wrath."    
-> "So teach us to number our days, that we may apply our hearts unto wisdom.    
+> Who knoweth the power of thine anger? even according to thy fear, so is thy wrath." 
+> "So teach us to number our days, that we may apply our hearts unto wisdom. 
 
 Here is heavenly arithmetic; an application of numeration seldom thought of even by the wise. May we, during the next year, so measure out our time, that we may apply our hearts to Jesus, who is the true wisdom.
 
@@ -68,18 +68,18 @@ Amen! Lord, may that be granted!
 
 Now we will sing a verse of that solemn hymn&mdash;
 
-> When thou my righteous judge shall come,    
+> When thou my righteous judge shall come, 
 
 and then the Pastor will make an evening's prayer for you before he comes to speak with your souls on God's behalf.
 
 ## Hymn
 
-> Let me among thy saints be found    
-> Whene'er the archangel's trump shall sound,    
-> To see thy smiling face:    
-> Then loudest of the crowd I'll sing,    
-> While heav'n's resounding mansions ring    
-> With shouts of sovereign grace.    
+> Let me among thy saints be found 
+> Whene'er the archangel's trump shall sound, 
+> To see thy smiling face: 
+> Then loudest of the crowd I'll sing, 
+> While heav'n's resounding mansions ring 
+> With shouts of sovereign grace. 
 
 ## Prayer
 
@@ -89,8 +89,8 @@ It is not for him to plead his cause with thee&mdash;that is in another's hands,
 
 ## Sermon
 
-> Arise, cry out in the night; in the beginning of the watches pour out thine heart like water before the face of the Lord"    
-> Lamentations 2:19.    
+> Arise, cry out in the night; in the beginning of the watches pour out thine heart like water before the face of the Lord" 
+> Lamentations 2:19. 
 
 This was originally spoken to Zion, when in her sad and desolate condition, Jeremiah, the weeping prophet, had wept his eyes dry for the slain of the daughter of his people; and when he had done all he could himself to pour out tears for poor Jerusalem, he then begged Jerusalem to weep for herself. Methinks I might become a Jeremy to-night, and weep as he, for surely the church at large is in almost as evil a condition. O Zion, how hast thou been veiled in a cloud, and how is thy honor trodden in the dust! Arise, ye sons of Zion, and weep for your mother, yea weep bitterly, for she hath given herself to other lovers, and forsaken the Lord that bought her. I bear witness this night, in the midst of this solemn assembly, that the church at large is wickedly departing from the living God; she is leaving the truth which was once her glory, and she is mixing herself among the nations. Ah! beloved, it were well if Zion now could sometimes weep; it were well if there were more who would lay to heart the wound of the daughter of his people. How hath the city become a harlot! how hath the much fine gold become dim! and how hath the glory departed! Zion is under a cloud. Her ministers preach not with the energy and fire that anciently dwelt in the lips of God's servants, neither is pure and undefiled doctrine proclaimed in her streets. Where are her evangelists who with earnest hearts traversed the land with the gospel on their lips. Where are her apostolic preachers who everywhere declared the good tidings of salvation. Alas for the idle shepherds! Alas for the slumbering ministers! Weep sore, O Zion! weep thee sore, until another reformation comes to sweep thy floor. Weep thee, Zion: weep until he shall come whose fan is in his hand, who shall thoroughly purge his floor; for the time is coming when judgment must begin at the house of God. Oh, that now the princes of Israel had wisdom, that they might seek the Lord; but alas, our leaders have given themselves to false doctrine; neither do they love the thing which is right. Therefore I charge thee, "Arise," O Zion, "cry out in the night, in the beginning of the watches pour out thine heart like water before the face of the Lord."
 
@@ -102,8 +102,8 @@ If God in his mercy calls you to him, I beseech you think not for a moment that 
 
 Again; it is not too late to cry to the Lord; for if the sun be set, and the watches of the night have commenced their round, the mercy seat is open. No shop is open so late as the House of Mercy. The devil has two tricks with men. Sometimes he puts their clock a little backward, and he says, "Stop, there is time enough yet;" and when that does not answer, he turns the hands on, and he cries out, "Too late! too late" Old man, has the devil said "It is too late?" Convinced sinner, has Satan said "It is too late?" Troubled, distressed one, has the thought risen in thy soul&mdash;a bitter and a dark one&mdash;"It is too late?" It is not. Within another fifteen minutes another year shall have come; but if the Spirit of God calls you this year, he will not call you too late in the year. If to the last second you should live, if God the Holy Ghost calls you then, he will not have called you too late. Ah! ye desponding ones, who think it is all too late&mdash;it is not.
 
-> While the lamp holds out to burn,    
-> The vilest sinner that returns    
+> While the lamp holds out to burn, 
+> The vilest sinner that returns 
 
 shall find mercy and peace. There have been some older than you can be; some as sinful and vile, and heinously wicked, who have provoked God as much, who have sinned against him as frequently, and yet they have found pardon. If he call thee, sinner, if he call thee to-night, 12 o'clock is not too late, as 1 o'clock is not too early. If he call thee, whether it be at midnight, or cock-crowing, or noon-day, we would say to thee, as they did to the blind man, "Arise; he calleth thee." And as sure as ever he calls you, he will not send you away without a blessing. It is not too late to call on God. The darkness of night is gathering; it is coming on, and you are near to death. Arise, sleeper, arise! thou who art now taking the last nap of death. "Arise, cry out in the night: in the beginning of the watches pour out thine heart like water before the face of the Lord."
 
@@ -115,11 +115,11 @@ And now our last remark is&mdash;we cannot pray too simply. Just hear how the Ps
 
 Thus do I speak to all who will acknowledge themselves to be sinners in the sight of God, but even these must have the assistance of the Holy Spirit to enable them to cry out, O my Lord, grant it.
 
-And now, dear friends, may grace be given unto you, that ye may be able to pour out your hearts this night! Remember, my hearers, it may seem a light thing for us to assemble to-night at such an hour, but listen for one moment to the ticking of that clock! [Here the preacher paused, and amid solemn silence every one heard the clock with its tick, tick, tick.] It is the beating of the pulse of eternity. You hear the ticking of that clock!&mdash;it is the footstep of death pursuing you. Each time the clock ticks, death's footsteps are falling on the ground close behind you. You will soon enter another year. This year will have gone in a few seconds. 1855 is almost gone; where will the next year be spent, my friends? One has been spent on earth; where will you spend the next? "In heaven!" says one, "I trust." Another murmurs, "Perhaps I shall spend mine in hell!" Ah! solemn is the thought, but before that clock strikes 12, some here may be in hell; and blessed be the name of God! some of us may be in heaven! But O, do you know how to estimate your time, my hearers? do you know how to measure your days? Oh! I have not words to speak to-night. Do you know that every hour you are nearing the tomb? that every hour you are nearing judgment? that the archangel is flapping his wings every second of your life, and, trumpet at his mouth, is approaching you? that you do not live stationary lives, but always going on, on, on, towards the grave? Do you know where the stream of life is hastening some of you? To the rapids&mdash;to the rapids of woe and destruction! What shall the end of those be who obey not the gospel of God? Ye will not have so many years to live as ye had last year! See the man who has but a few shillings in his pocket, how he takes them out and spends them one by one! 
+And now, dear friends, may grace be given unto you, that ye may be able to pour out your hearts this night! Remember, my hearers, it may seem a light thing for us to assemble to-night at such an hour, but listen for one moment to the ticking of that clock! It is the beating of the pulse of eternity. You hear the ticking of that clock!&mdash;it is the footstep of death pursuing you. Each time the clock ticks, death's footsteps are falling on the ground close behind you. You will soon enter another year. This year will have gone in a few seconds. 1855 is almost gone; where will the next year be spent, my friends? One has been spent on earth; where will you spend the next? "In heaven!" says one, "I trust." Another murmurs, "Perhaps I shall spend mine in hell!" Ah! solemn is the thought, but before that clock strikes 12, some here may be in hell; and blessed be the name of God! some of us may be in heaven! But O, do you know how to estimate your time, my hearers? do you know how to measure your days? Oh! I have not words to speak to-night. Do you know that every hour you are nearing the tomb? that every hour you are nearing judgment? that the archangel is flapping his wings every second of your life, and, trumpet at his mouth, is approaching you? that you do not live stationary lives, but always going on, on, on, towards the grave? Do you know where the stream of life is hastening some of you? To the rapids&mdash;to the rapids of woe and destruction! What shall the end of those be who obey not the gospel of God? Ye will not have so many years to live as ye had last year! See the man who has but a few shillings in his pocket, how he takes them out and spends them one by one! 
 
 Now he has but a few coppers, and there is so much for that tiny candle, so much for that piece of bread. He counts the articles out one by one; and so the money goes! You think there is no bottom to your pockets; you think you have a boundless store of time&mdash;but you have not! As the Lord liveth, there is a young man here that has not more than one year to live; and yet he is spending all that he is worth of time, in sin, in folly, and vice. Some of you have not that to live; and yet how are you spending your time! O take care! take care! time is precious! and whenever we have little of it, it is more precious; yea, it is most precious. May God help you to escape from hell and fly to heaven! I feel like the angel, to-night, who put his hand upon Lot, and cried&mdash;"Escape! look not behind thee! stay not in all the plain; flee to the mountain, lest thou be consumed!"
 
-And now, I appreciate the power of silence. You will please to observe strict and solemn silence until the striking of that clock; and let each one spend the time as he pleases. [It was now two minutes to twelve, and profound silence reigned, save where sobs and groans could be distinctly heard from penitent lips seeking the Saviour. The clock having struck, Mr Spurgeon continued:] You are now where you never were before; and you never will be again where you have been to-night.
+And now, I appreciate the power of silence. You will please to observe strict and solemn silence until the striking of that clock; and let each one spend the time as he pleases. You are now where you never were before; and you never will be again where you have been to-night.
 
 Now we have had a solemn meeting, and let us have a cheerful ending of it. As we go away let us sing a sweet hymn to encourage our hearts.
 

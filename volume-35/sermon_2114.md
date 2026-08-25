@@ -199,7 +199,7 @@ eight times over&mdash;&mdash;-the people were all on fire.
 
 The sound seemed to make the shingles dance on the top of the Chapel. When I had done, we asked those who were impressed to stop. They all stopped and so I had to preach again. And a second time they all stopped and I had to preach again. It got on to past eleven o'clock before they went away. Eighty-one came forward and joined the Churches afterwards.
 
-It was but a few months before the terrible accident at Risca, [see Sermon #349, Volume 7] and many of those converted that night perished in the pit. God had sent His Spirit on that glorious night to save them, that they might be ready when He should call them Home.
+It was but a few months before the terrible accident at Risca,  and many of those converted that night perished in the pit. God had sent His Spirit on that glorious night to save them, that they might be ready when He should call them Home.
 
 It was grand work to preach, for they sucked in the word as babes take in milk. They took it into their hearts&mdash;&mdash;-it
 

@@ -1,7 +1,7 @@
 # Sermon 519 | Believing With The Heart
 
-> "For with the heart man believes unto righteousness. And with the mouth confession is made unto salvation."  
-> Romans 10:10.  
+> "For with the heart man believes unto righteousness. And with the mouth confession is made unto salvation." 
+> Romans 10:10. 
 
 EVERY star in Heaven yields its ray of light to cheer the mariner upon the watery waste. But there are leaders among that sparkling host&mdash;stars of the first magnitude&mdash;whose golden lamps are so dexterously hung, and trimmed with such excessive care that they offer way-marks to the wanderer by which he may be able to steer his vessel to the desired haven. So all the promises of Scripture are full of comfort. In their sphere, they glow and glisten with the warmth and light of love. But there are "bright particular stars," even among these&mdash;promises, conspicuous as Orion, brilliant as the Pleiades, fixed as Arcturus with his sons.
 
@@ -115,4 +115,4 @@ All this is by believing&mdash;nothing but believing. After believing will come 
 
 Come to Him as He is! Take Him as your complete righteousness, and you will have believed with your heart unto righteousness. God add His own blessing, for Jesus' sake. Amen.
 
-[Next Sunday, Mr. SPURGEON hopes to take up the second sentence of the text.]
+

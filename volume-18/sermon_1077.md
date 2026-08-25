@@ -1,6 +1,6 @@
 # Sermon 1077 | The Lord Blessing His Saints
 
-"You are blessed of the Lord [or of JEHOVAH] which made Heaven and earth." Psalm 115:15.
+"You are blessed of the Lord which made Heaven and earth." Psalm 115:15.
 
 WITHOUT any preface, (for where there is such a feast before us anything which detains us from the table will be out of place), let us come at once to the delightful words of our text and may the Holy Spirit lead us into their inner sense! Here is a blessing spoken of. The Lord that made Heaven and earth has been pleased to bless His people. And this blessing has several peculiarities about it of which we shall speak particularly. It will help us to reach the marrow and fatness of the text if we consider in detail the orthodox number of five points.
 
@@ -108,14 +108,14 @@ utter perhapses, and ifs, and buts. "You are blessed of the Lord which made Heav
 
 The Lord blesses not in word only, but in deed. His blessings are not futile wishes but Omnipotent acts. We may fail to obtain the benedictions which our friends invoke upon us, but God's blessings are sure to all the seed. Failure and miscarriage never occur to the Lord our God. Many are the slips between cups and lips at this world's banquet, but the chalice of Divine blessing shall surely reach the lip of the elect soul&mdash;
 
-> This is Your will, that in Your love   
-> We ever should abide   
-> And lo, we earth and Hell defy   
-> To make Your counsel void.   
-> Not one of all the chosen race   
-> But shall to Heaven attain;   
-> Partake on earth the purposed Grace,   
-> And then with Jesus reign.   
+> This is Your will, that in Your love 
+> We ever should abide 
+> And lo, we earth and Hell defy 
+> To make Your counsel void. 
+> Not one of all the chosen race 
+> But shall to Heaven attain; 
+> Partake on earth the purposed Grace, 
+> And then with Jesus reign. 
 
 Now, Beloved, let us make sure of this blessing which is so sure. And how can we do so but by faith? We believe that God has blessed all those to whom He has given His dear Son&mdash;and He has given His dear Son to me if I believe in Jesus! As surely as I believe in Him, the blessing is mine. Grip it, Brothers and Sisters! Make sure of it. Let no man deceive you with vain words. In these times it is hard to find anybody who believes anything. Even the common history we learned at school is now suspected to be a myth. I do not think that you could, according to the modes of reasoning adopted in these skeptical days, be able to prove that you had either a father or a mother.
 

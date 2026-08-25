@@ -132,4 +132,4 @@ Let this mind be in you, which is also in Christ Jesus who washed His disciples'
 
 Little children, love one another. Amen.
 
-[This sermon was originally titled, "The Teaching of the Foot-Washing.]
+

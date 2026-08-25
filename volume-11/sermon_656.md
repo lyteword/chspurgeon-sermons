@@ -1,7 +1,7 @@
 # Sermon 656 | Prevenient Grace
 
-> When it pleased God, who separated me from my mother's womb and called me by His Grace, to reveal His Son in me.    
-> Galatians 1:15.    
+> When it pleased God, who separated me from my mother's womb and called me by His Grace, to reveal His Son in me. 
+> Galatians 1:15. 
 
 You all know the story of the Apostle Paul. He had been a persecutor and went armed with letters to Damascus to hail men and women and drag them to prison. On the road there he saw a light exceedingly bright&mdash;above the brightness of the sun&mdash;and a voice spoke out of Heaven to him saying, "Saul, Saul, why do you persecute Me?" By this miraculous interposition he was converted&mdash;three days he spent in darkness. But when Ananias came to tell him of the Gospel of Jesus Christ, there fell from his eyes, as it were, scales. He was baptized, became the most mighty of all Christian teachers, and could truly say that he was not a whit behind the very chief of the Apostles.
 
@@ -131,4 +131,4 @@ I must give one word of warning to those who are afflicting themselves with a no
 
 Remember that God is not the God of uniformity&mdash;though He is of union and peace. He may lead you at once into joy and peace, as Nathanael, who said as soon as he saw Christ, "Rabbi, you are the Son of God. You are the King of Israel." God may, and doubtless has been, blessing you through His Grace from your birth. But He needs not to plunge you many days in the cold dark waters of conviction to wash away your sin&mdash;the blood of Christ at oncecan cleanse from all sin if you confide your soul to Him. Believe, therefore, and you are at once justified and at peace with God. May the Lord bless you all, for Jesus' sake.
 
-[This sermon was originally titled "Prevenient Grace."]
+

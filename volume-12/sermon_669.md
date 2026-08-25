@@ -1,9 +1,9 @@
 # Sermon 669 | Open Heart For The Great Savior
 
-> "But as many as received Him, to them ga ve He power to become the sons of God, even to them thatbelieve on His name: who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God."  
-> John 1:12.  
+> "But as many as received Him, to them ga ve He power to become the sons of God, even to them thatbelieve on His name: who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God." 
+> John 1:12. 
 
-DIVINE Truth is one, but it is many-sided. When you have looked at it from one point of view you may reverse your position, and, though the Truth at which you look will be the same, you will marvel at its freshness as seen from another aspect. This morning we sought to show you how Jesus Christ received sinners [Volume 11, Sermon #665&mdash;Open House for All Comers.] Tonight it shall be our endeavor, as the Holy Spirit may enable us, to set forth how sinners receive Christ.
+DIVINE Truth is one, but it is many-sided. When you have looked at it from one point of view you may reverse your position, and, though the Truth at which you look will be the same, you will marvel at its freshness as seen from another aspect. This morning we sought to show you how Jesus Christ received sinners Tonight it shall be our endeavor, as the Holy Spirit may enable us, to set forth how sinners receive Christ.
 
 It is perfectly true that the work of salvation lies first and mainly in Jesus receiving sinners to Himself to pardon, to cleanse, to sanctify, to preserve, to make perfect. But, at the same time the sinner also receives Christ. There is an act on the sinner's part by which, being constrained by Divine Grace, he opens his heart to the admission of Jesus Christ and Jesus enters in and dwells in the heart, and reigns and rules there. To a gracious readiness of heart to entertain the Friend who knocks at the door, we are brought by God the Holy Spirit, and then He sups with us and we with Him.
 

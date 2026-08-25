@@ -126,4 +126,4 @@ By faith I commit myself and I trust, also, my beloved Church and Friends, to fa
 
 PORTIONS OFSCRIPTURE READ BEFORE SERMON&mdash;John 1:35&mdash;51; Genesis28:10&mdash;22. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;H2, 335, 317.
 
-[Mr. Spurgeon alludes to the Girls' Orphanage. The fund has just commenced and land has been purchased. A large amount will be needed, but there is a great God to look to!]
+

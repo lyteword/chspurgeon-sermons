@@ -2,7 +2,7 @@
 
 "By faith Moses, when came of age, refused to be called the son of Pharaoh's daughter, choosing rather to suffer affliction with the people of God than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompense of the reward." Hebrews 11:24,25,26.
 
-LAST Sunday we spoke upon the faith of Rahab [RAHAB, #1061]. We had then to mention her former unsavory character and to show that, notwithstanding, her faith triumphed and both saved her and produced good works. Now it has occurred to me that some persons would say, "This faith is, no doubt, a very suitable thing for Rahab and persons of that class. A people destitute of sweetness and light may follow after the Gospel and it may be a very proper and useful thing for them, but the better sort of people will never take to it."
+LAST Sunday we spoke upon the faith of Rahab. We had then to mention her former unsavory character and to show that, notwithstanding, her faith triumphed and both saved her and produced good works. Now it has occurred to me that some persons would say, "This faith is, no doubt, a very suitable thing for Rahab and persons of that class. A people destitute of sweetness and light may follow after the Gospel and it may be a very proper and useful thing for them, but the better sort of people will never take to it."
 
 I thought it possible that, with a sneer of contempt, some might reject all faith in God as being unworthy of persons of a higher condition of life and another manner of education. We have, therefore, taken the case of Moses, which stands as a direct contrast to that of Rahab, and we trust it may help to remove the sneer, though, indeed, that may be of small consequence&mdash;for if a man is given to sneering it is hardly worth while to waste five minutes in reasoning with him. The scorner is usually a person so inconsiderate that his scoffing deserves to be unconsidered. He who is great at sneering is good for nothing else, and he may as well be left to fulfill his vocation.
 
@@ -122,13 +122,13 @@ Lastly, we must all of us look to our faith. Faith is the main thing. You cannot
 
 You will have to be tried and if you have, by sneaking through life as a coward, avoided all opposition and all ridicule, ask yourself whether you really are a disciple of that master of the house whom they called Beelzebub! Ask yourself whether you are truly a follower of that crucified Savior who said, "except a man take up his cross daily and follow Me, he cannot be My disciple." Suspect the smooth places! Be afraid of that perpetual peace which Christ declares He came to break. He says, "I came not to send peace on the earth, but a sword." He came to bring fire upon the earth and, "how I wish," He said, "it were already kindled."&mdash;
 
-> Must I be carried to the skies   
-> On flowery beds of ease,   
-> While others fought to win the prize,   
-> And sailed through bloody seas?   
-> Surely I must fight if I would reign.   
-> Increase my courage, Lord,   
-> I'd bear the toil, endure the pain,   
-> Supported by Your Word.   
+> Must I be carried to the skies 
+> On flowery beds of ease, 
+> While others fought to win the prize, 
+> And sailed through bloody seas? 
+> Surely I must fight if I would reign. 
+> Increase my courage, Lord, 
+> I'd bear the toil, endure the pain, 
+> Supported by Your Word. 
 
 Amen.

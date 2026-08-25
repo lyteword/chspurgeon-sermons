@@ -148,7 +148,7 @@ The Lord is adored by the Church in all forms of worship. They worship Him in pr
 
 No, it is not merely the Church and angels, but all creation, east, west, north, south, highest, lowest&mdash;all adore Him. All life, all space, all time, immensity, eternity&mdash;all these become one mouth for song and all the song is, "Worthy is the Lamb."
 
-Now, then, dear Friends, if this is so, shall we ever allow anybody in our presence to lower the dignity of Christ, our Sacrifice? ["No."] a friend says, emphatically, No. And we must say, No. As with a voice of thunder, we say&mdash;No&mdash;to all attempts to lower the supreme glories of the Lamb. We cannot have it&mdash;our loyalty to Him will not permit it. Besides, no man will willingly lose his all. Take the Lamb away and you take all away. "Who steals my purse, steals trash"&mdash;who steals my Christ, steals myself and more than myself&mdash;my hopes that are to be my future joys.
+Now, then, dear Friends, if this is so, shall we ever allow anybody in our presence to lower the dignity of Christ, our Sacrifice?  a friend says, emphatically, No. And we must say, No. As with a voice of thunder, we say&mdash;No&mdash;to all attempts to lower the supreme glories of the Lamb. We cannot have it&mdash;our loyalty to Him will not permit it. Besides, no man will willingly lose his all. Take the Lamb away and you take all away. "Who steals my purse, steals trash"&mdash;who steals my Christ, steals myself and more than myself&mdash;my hopes that are to be my future joys.
 
 Life is gone when His death is rejected, His blood despised. Our souls burn with indignation when this vital Truth of God is assailed&mdash;
 

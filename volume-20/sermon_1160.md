@@ -136,6 +136,6 @@ At His altar may you be found safe in the day of His appearing! God bless you. I
 
 PORTIONS OF SCRIPTURE READ BEFORE SERMON: Numbers13:26-33,14:1-23; Psalm 95. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;98 (VERSION II), 497, 546.
 
-A MESSAGE FROM BROTHER SPURGEON, IN 1874, TO HIS READERS [IN THE twenty-first CENTURY?]:
+A MESSAGE FROM BROTHER SPURGEON, IN 1874, TO HIS READERS:
 
 Those readers who think this sermon likely to be useful are earnestly requested to give it away, that it may be useful to others. The preacher is most anxious that his message should be scattered broadcast over the land.

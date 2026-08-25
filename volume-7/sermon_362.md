@@ -1,9 +1,9 @@
 # Sermon 362 | None But Jesus&mdash;Second Part
 
-> "He that believeth on him is not condemned"  
-> John 3:18  
+> "He that believeth on him is not condemned" 
+> John 3:18 
 
-IN the morning sermon, our time was mainly taken up with the description of Faith&mdash;what it is. We had only a few minutes left at its close to describe what it leads to&mdash;the privilege of justification, which is a gift to the soul as the result of Faith. Let this high privilege, then, occupy our attention to-night. The text says, "He that believeth on him&mdash;[that is on Christ Jesus]&mdash;is not condemned."
+IN the morning sermon, our time was mainly taken up with the description of Faith&mdash;what it is. We had only a few minutes left at its close to describe what it leads to&mdash;the privilege of justification, which is a gift to the soul as the result of Faith. Let this high privilege, then, occupy our attention to-night. The text says, "He that believeth on him&mdash;&mdash;is not condemned."
 
 To take up the subject in order, we shall notice first, the satisfactory declaration here made; then, secondly, we shall endeavour to correct certain misapprehensions respecting it, by reason of which the Christian is often cast down; and we shall close with some reflections, positive and negative, as to what this text includes, and what it excludes.
 
@@ -43,10 +43,10 @@ What next does the text exclude? Methinks it ought to exclude&mdash;now I am abo
 
 Once more. "He that believeth on him is not condemned." This excludes sinning any more. My Lord, have I sinned against thee so many times, and yet hast thou freely forgiven me all? What stronger motive could I have for keeping me from sinning again? Ah, there are some who are saying this is licentious doctrine. A thousand devils rolled into one, must the man be who can find any licentiousness here. What! go and sin because I am forgiven? Go and live in iniquity because Jesus Christ took my guilt and suffered in my room and stead? Human nature is bad enough, but methinks this is the very worst state of human nature, when it tries to draw an argument for sin from the free grace of God. It is far harder to sin against the blood of Christ, and against a sense of pardon, than it is against the terrors of the law and the fear of hell itself. I know that when my soul is most alarmed by a dread of the wrath of God, I can sin with comfort compared with what I could when I have a sense of his love shed abroad in my heart. What more monstrous! to read your title clear, and sin? Oh, vile reprobate! you are on the borders of the deepest hell. But I am sure if you are a child of God, you will say when you have read your title clear, and feel yourself justified in Christ Jesus,
 
-> Now, for the love I bear his name,   
-> What was my gain, I count my loss;   
-> My former pride I call my shame,   
-> And nail my glory to his cross.   
+> Now, for the love I bear his name, 
+> What was my gain, I count my loss; 
+> My former pride I call my shame, 
+> And nail my glory to his cross. 
 
 Yes, and I must, and will esteem all things but loss for Jesus' sake. O may my soul be found in him, perfect in his righteousness! This will make you live near to him: this will make you like unto him. Do not think that this doctrine by dwelling on it will make you think lightly of sin. It will make you think of it as a hard and stern executioner to put Christ to death; as an awful load that could never be lifted from you except by the eternal arm of God; and then you will come to hate it with all your soul, because it is rebellion against a loving and gracious God, and you shall by this means, far better than by any Arminian doubts or any legal quibbles, be led to walk in the footsteps of your Lord Jesus, and to follow the Lamb whithersoever he goeth.
 

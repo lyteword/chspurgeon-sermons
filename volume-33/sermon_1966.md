@@ -136,7 +136,7 @@ The Rabbis say that our text means that Moses died at the mouth of God and that 
 
 Glory!
 
-Soon our turn shall come. [Brother Spurgeon was with His Master in less than five years.] Do we dread it? As we are favored to serve our Lord, we shall be favored to be called Home in due season. Let us always be ready. Yes, joyfully ready! When we are dying, we shall not see the land of Naphtali and Ephraim, but the Covenant&mdash;and the infinite provisions of its promises will be spread out before our soul, as Canaan at the feet of Moses! Wrapt in happy enjoyment of precious promises, we shall, with surprise, find ourselves ushered into the place where the promises are all fulfilled&mdash;
+Soon our turn shall come.  Do we dread it? As we are favored to serve our Lord, we shall be favored to be called Home in due season. Let us always be ready. Yes, joyfully ready! When we are dying, we shall not see the land of Naphtali and Ephraim, but the Covenant&mdash;and the infinite provisions of its promises will be spread out before our soul, as Canaan at the feet of Moses! Wrapt in happy enjoyment of precious promises, we shall, with surprise, find ourselves ushered into the place where the promises are all fulfilled&mdash;
 
 > There shall we see His face,   
 > And never, never sin!   
