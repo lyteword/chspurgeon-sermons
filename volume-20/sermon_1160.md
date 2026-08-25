@@ -8,7 +8,7 @@ The farmer tells us that he must make hay while the sun shines and we, also, mus
 
 "'Hear God while He speaks,' then hear Him today. And pray while you hear, unceasingly pray! Believe in Hispromise, rely on His Word, And while He commands you, obey your great Lord." I have taken this text with the earnest hope that God may bless it and I look to the Lord's people to baptize the text in floods of anxious tears for the unsaved.
 
-The first point which it presents for serious consideration is this&mdash;THE SPECIAL VOICE OF THE HOLY SPIRIT. "As the Holy Spirit says, Today if you will hear His voice." The Apostle is continually quoting from the Old Testament, but he does not often present his quotations in this peculiar fashion. In the very next chapter, when he is speaking of the same passage, he uses the expression, "Saying in David"&mdash;mentioning the human author of the Psalm. But in this case, to give full emphasis to the Truth of God, he quotes the Divine Author alone&mdash;"As the Holy Spirit says."
+The first point which it presents for serious consideration is this&mdash;THE SPECIAL VOICE OF THE Holy Spirit. "As the Holy Spirit says, Today if you will hear His voice." The Apostle is continually quoting from the Old Testament, but he does not often present his quotations in this peculiar fashion. In the very next chapter, when he is speaking of the same passage, he uses the expression, "Saying in David"&mdash;mentioning the human author of the Psalm. But in this case, to give full emphasis to the Truth of God, he quotes the Divine Author alone&mdash;"As the Holy Spirit says."
 
 These words, it is true, are applicable to every passage of sacred Scripture, for we may say of all the Inspired Books&mdash;"As the Holy Spirit says." But it is designedly used here that the passage may have the greater weight with us. The Holy Spirit, in fact, not only speaks thus in the ninety-fifth Psalm, but it is His unvarying utterance. The Holy Spirit says, or continues, still, to say, "Hear you His voice today." He has a certain doctrine upon one occasion and a still deeper Truth of God at another period, according as there was need, or as His people were prepared for it. But this particular utterance is for all time and for every day of Divine Grace. The Holy Spirit, by Paul, as before by David, says, "Today."
 
@@ -136,6 +136,6 @@ At His altar may you be found safe in the day of His appearing! God bless you. I
 
 PORTIONS OF SCRIPTURE READ BEFORE SERMON: Numbers13:26-33,14:1-23; Psalm 95. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;98 (VERSION II), 497, 546.
 
-A MESSAGE FROM BROTHER SPURGEON, IN 1874, TO HIS READERS:
+A MESSAGE FROM BROTHER Spurgeon, IN 1874, TO HIS READERS:
 
 Those readers who think this sermon likely to be useful are earnestly requested to give it away, that it may be useful to others. The preacher is most anxious that his message should be scattered broadcast over the land.

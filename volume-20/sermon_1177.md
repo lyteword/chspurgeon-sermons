@@ -102,7 +102,7 @@ Many, also, of those who profess to belong to Christ give Him of their substance
 
 Here, then, are arguments for holy anxiety. Brothers and Sisters, it may be that even now I am addressing some who are anxious to avoid the offense of the Cross, who cut and trim in order to please their neighbors, who reckon the reputation of the world to be greater riches than all the treasures of Jesus, who make provision for the flesh and think fashion, credit and respectability to be everything. These are the men whose god is the world and who mind earthly things. May God have mercy upon such and have mercy upon us by never allowing us to fall into such evil ways.
 
-Thirdly, WHAT SOLEMN TRUTHS DEMAND THE FEAR SUGGESTED IN THE TEXT? If we should really come short of Heaven we shall have lost all its bliss and glory forever&mdash;for us no vision of the Crucified! No sight of the King in His beauty! And we shall have lost Heaven with this aggravation, that we did begin to build, but were not able
+Thirdly, WHAT SOLEMN TRuthS DEMAND THE FEAR SUGGESTED IN THE TEXT? If we should really come short of Heaven we shall have lost all its bliss and glory forever&mdash;for us no vision of the Crucified! No sight of the King in His beauty! And we shall have lost Heaven with this aggravation, that we did begin to build, but were not able
 
 to finish. We shall be eternally covered with shame. The damned in Hell will laugh at us because we professed to be different from them and came short, after all. If I must be lost, let me not be lost as a pretender to religion, for the inner dungeon of the infernal prison is for those who played the Judas, who sold their Lord for pieces of silver, or came short by some other means.
 

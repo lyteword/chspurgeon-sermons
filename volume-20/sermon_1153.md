@@ -185,4 +185,4 @@ A MESSAGE:
 
 I have revised this sermon at Cannes, to which place I have come for health. I am happy to inform all friends that I am already much better. The influences of a warm, sunny climate and rest from great labor are being blessed by Infinite Mercy to my restoration. I commend the work I am obliged to leave to the prayers of God's people and I desire, also, to thank numerous friends for their substantial help to the College and Orphanage, so that I am not tempted to be anxious about funds for these at a time when ease of mind is especially desirable. With this I send most loving salutations to all my readers. May the Lord send to our beloved land a great revival of true religion.
 
-H. SPURGEON.
+H. Spurgeon.

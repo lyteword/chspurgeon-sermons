@@ -4,7 +4,7 @@
 
 "THE thief comes not but for to steal, and to kill, and to destroy." False teachers, whatever their professions, seriously injure and endanger the souls of men and in the end cause their destruction. Their selfish ends can only be answered by the ruin of their dupes. The Lord Jesus, the true Teacher of men, causes injury to none, and brings death to no man's door. His teaching is full of goodness, kindness and love. It works most effectually for human happiness and benefit. Error is deadly. The Truth of God is life-giving. The coming of the old serpent worked our death. The Advent of the woman's Seed has brought us life. We shall omit all preface and ask you to note that, according to the text, Jesus Christ is come, first, that His people may have life. And, secondly, that where life is already given it may be enjoyed more abundantly.
 
-The first Truth is that JESUS CHRIST HAS COME THAT MEN MAY HAVE LIFE. I will not dwell upon the thought that even the prolonged natural life of the sinner is due, in a large measure, to the coming of Christ. That barren tree would not stand so long in the garden of life if it were not that the dresser of the vineyard intercedes and cries, "Spare it yet another year, until I dig about it and fertilize it." The interposition of the Mediator accounts for the lengthened lives of gross offenders whose crimes tax the long-suffering of Heaven. If the prayers of our great Intercessor should cease for a single hour, the ungodly among mankind would, perhaps, sink down quickly into Hell, as Korah, Dathan and Abiram did when the Lord's anger broke forth upon them.
+The first Truth is that Jesus Christ HAS COME THAT MEN MAY HAVE LIFE. I will not dwell upon the thought that even the prolonged natural life of the sinner is due, in a large measure, to the coming of Christ. That barren tree would not stand so long in the garden of life if it were not that the dresser of the vineyard intercedes and cries, "Spare it yet another year, until I dig about it and fertilize it." The interposition of the Mediator accounts for the lengthened lives of gross offenders whose crimes tax the long-suffering of Heaven. If the prayers of our great Intercessor should cease for a single hour, the ungodly among mankind would, perhaps, sink down quickly into Hell, as Korah, Dathan and Abiram did when the Lord's anger broke forth upon them.
 
 That, however, is not the drift of the text. Life, in the sense of pardon and deliverance from the death penalty, is a great result of Christ's coming. All men in their natural condition are under sentence of death, for they have sinned, and they must be shortly taken to the place of execution, there to suffer the full penalty of the second death. If any of us are delivered at this time from the sentence of death and have now the promise of the crown of life, we owe the change to the coming of the Redeemer to be a Sacrifice for our sins. Every man among us must go down to the endless death unless, through Him who came to earth and hung upon the tree as the sinner's Substitute, we obtain full remission for all offenses&mdash;and the verdict of life instead of death. There is life in a look at Jesus, but apart from Him, the sons of Adam are under sentence of death.
 
@@ -22,7 +22,7 @@ Jesus can give it to you freely at this moment, but you cannot work it in yourse
 
 Yet, further, why did the Spirit of God descend at Pentecost, and why does He still abide among men if they can be quickened without Him? If life is to be obtained apart from the Holy Spirit, to what end does He work in the human heart? The bleeding Savior and the indwelling Spirit are convincing proofs that our life it not from ourselves, but from above. Away, then, from yourself, O Trembler! Seek not the living among the dead! Search not in the sepulcher of self for the Divine Life. The life of men is in yonder Savior and whoever believes in Him shall never die!
 
-But we intend to spend the most of our time at this time upon the second Truth of God, namely, that JESUS HAS
+But we intend to spend the most of our time at this time upon the second Truth of God, namely, that Jesus HAS
 
 COME THAT THOSE TO WHOM HE HAS GIVEN LIFE MAY HAVE IT MORE ABUNDANTLY. Life is a matter of
 
@@ -128,4 +128,4 @@ My time has gone, the subject is too large for me. Only this I conclude with&mda
 
 God grant that all the members of this Church may have this great blessing for Christ's sake. Amen.
 
-PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;JOHN 10. HYMN FROM "OUR OWN HYMN BOOK"&mdash;46 (VERSION II) 798, 818.
+PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;John 10. HYMN FROM "OUR OWN HYMN BOOK"&mdash;46 (VERSION II) 798, 818.

@@ -78,7 +78,7 @@ And, once more, though they did not know that their Master was with them, they w
 
 Now, it is a strong temptation of Satan with children of God, when they are full of sorrow, to tempt them to stay away from the means of Grace. Because they are in the dark, the temptation is to keep them away from the light&mdash;but oh, children of God, do not "forsake the assembling of yourselves together, as the manner of some is." Do not be tempted to stay away from the place where God has met you and made the place of His feet glorious! Join, still, with the Lord's people&mdash;and if your faith trembles, yet, nevertheless, come humbly to the Table. Christ has not a Table for those without doubts, else you might not come&mdash;He has not made it a table for those without sin, else you might not come&mdash;but He bids all His disciples come, you among them!
 
-Lastly, let us try to set forth THE ACTIONS OF BELIEVERS WHEN THEY DISCOVER THEIR LORD.
+Lastly, let us try to set forth THE ACTIONS OF BELIEVERS WHEN THEY DISCOVER THEIR Lord.
 
 "Their eyes were opened, and they knew Him." What then? Well, first, they discovered that there had been, all along in their hearts, evidences of His Presence. "Did not our hearts burn within us while He spoke with us by the way?" This heavenly heartburn never comes to any but through the Presence of the Lord Jesus. They began to look at one another, and say, "Ought we not to have known that it was none other than our great Teacher by the very fact that when we did not see Him our hearts were burning for Him?"
 

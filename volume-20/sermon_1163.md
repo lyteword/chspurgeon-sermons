@@ -38,7 +38,7 @@ Our head shall soon wear the immortal crown and our hands shall bear the harp fr
 
 I have thus assured you all that redemption is our best blessing. I trust you will not rest without it. Now, I want
 
-to dwell upon the next point, namely, that therefore REDEMPTION IS THE LORD's PARAMOUNT CLAIM UPON
+to dwell upon the next point, namely, that therefore REDEMPTION IS THE Lord's PARAMOUNT CLAIM UPON
 
 US. Paul does not say, "You are not your own, for God made you." That is true of all things that are&mdash;cattle, the trees, the dust of the earth as well as regenerated man. He does not say, "You are not your own for God created you." That would be true of the devil and his angels, and of the whole race of rebellious men.
 

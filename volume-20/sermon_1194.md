@@ -14,7 +14,7 @@ To the true disciples of Jesus there may come times of darkness. It has been so 
 
 Having thus noted the context, we will come closely to the text. On this earth a people exist who have accepted the Messiah and have become His disciples&mdash;and look for all from their Lord. Of these people the text says, "Behold, I and the children whom the Lord has given Me." Here we shall notice, first, a remarkable relationship ascribed to Christ. Secondly, a spontaneous avowal of it&mdash;"Behold, I and the children whom You have given Me." And thirdly, a common function&mdash;common to the Lord and to His disciples&mdash;they are appointed to be "signs" and "wonders" in Israel from the Lord of Hosts which dwells in Mount Zion.
 
-First, here is a REMARKABLE RELATIONSHIP. Jesus is called a Father. Now, this is not according to precise theology, or according to the more formal doctrinal statements of Scripture, so we must, therefore, take care that we do not confuse ourselves. Jesus is not, "the Father," and we must always carefully maintain the distinction of Persons in the
+First, here is a REMarkABLE RELATIONSHIP. Jesus is called a Father. Now, this is not according to precise theology, or according to the more formal doctrinal statements of Scripture, so we must, therefore, take care that we do not confuse ourselves. Jesus is not, "the Father," and we must always carefully maintain the distinction of Persons in the
 
 Godhead. The Son of God is one with the Father, but He is not the Father. And we must take care we do not ascribe to the Son acts which are peculiar to the Father. According to correct speech, it is the first Person of the Divine Trinity whom we call the Father, who has begotten us again unto a lively hope by the resurrection of Jesus from the dead. And when we say, "Abba, Father," "Our Father which are in Heaven," and, "Thanks be unto the Father," we do not refer to the Lord Jesus, but to "the God and Father of our Lord Jesus Christ."
 
@@ -120,4 +120,4 @@ Hold on, my Brothers and Sisters! And hold out to the end! Be humble and quietly
 
 Then, again, there will be persecution, but it will only blow away the chaff and leave the pure wheat! The world likes us better because we like the world better&mdash;it calls us friends because we hide our colors and sheathe our swords and play the coward. But if we preach and live the Gospel in the old Apostolic way, we shall soon have the devil roaring round the camp and the seed of the serpent hissing on all sides! But we fear not, for "the Lord of Hosts is with us; the God of Jacob is our refuge."
 
-PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Isaiah 8:11-22; 9:1-7. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;PSALM 116 (SONG II) 255, 342.
+PORTION OF SCRIPTURE READ BEFORE SERMON&mdash;Isaiah 8:11-22; 9:1-7. HYMNS FROM "OUR OWN HYMN BOOK"&mdash;Psalm 116 (SONG II) 255, 342.

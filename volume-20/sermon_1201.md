@@ -22,7 +22,7 @@ He asked that they might all be destroyed&mdash;and he would pay into the king's
 
 Only one thing stands in the way. The Lord has said, "No weapon that is formed against you shall prosper, and every tongue that rises against you in judgment you shall condemn." We shall see what happens, and learn from it.
 
-First, we shall learn from the narrative that GOD PLACES HIS AGENTS IN FIT PLACES FOR DOING HIS WORK. The Lord was not taken by surprise by this plot of Haman. He had foreseen it and forestalled it. It was necessary, in order to match this cunning, malicious design of Haman, that someone of the Jewish race should possess great influence with the king. How was this to be effected?
+First, we shall learn from the narrative that God PLACES HIS AGENTS IN FIT PLACES FOR DOING HIS WORK. The Lord was not taken by surprise by this plot of Haman. He had foreseen it and forestalled it. It was necessary, in order to match this cunning, malicious design of Haman, that someone of the Jewish race should possess great influence with the king. How was this to be effected?
 
 Should a Jewess become Queen of Persia, the power she would possess would be useful in counteracting the enemy's design. This had been all arranged years before Haman had concocted in his wicked heart the scheme of murdering the Jews. Esther, whose sweet name signifies myrtle, had been elevated to the position of Queen of Persia by a singular course of events. It happened that Ahasuerus, at a certain drinking bout, was so far gone with wine as to forget all the proprieties of eastern life. He sent for his queen, Vashti, to exhibit herself to the people and the princes. No one dreamed, in those days, of disobeying the tyrant's word and, therefore, all stood aghast when Vashti, evidently a woman of right royal spirit, refused to degrade herself by being made a spectacle before that ribald rout of drinking princes. She refused to come.
 
@@ -68,7 +68,7 @@ Do not think, my prosperous Friend, that the Lord has given you a high place tha
 
 The Lord tries the righteous because He has made them of metal which will endure the test&mdash;and He knows that by the sustaining power of His Holy Spirit they will be held up and made more than conquerors! Therefore is it a part of the operation of Providence to try the saints. Let that comfort those of you who are in trouble at this time.
 
-But we must pass on to note, fourthly, that THE LORD's WISDOM IS SEEN IN ARRANGING THE
+But we must pass on to note, fourthly, that THE Lord's WISDOM IS SEEN IN ARRANGING THE
 
 SMALLEST EVENTS SO AS TO PRODUCE GREAT RESULTS. We frequently hear persons say of a pleasant or a great event, "What a Providence!" while they are silent as to anything which appears less important, or has an unpleasant savor. But, my Brothers and Sisters, the place of the shrub upon the heath is as fixed as the station of a king! And the dust which is raised by a chariot wheel is as surely steered by Providence as the planet in its orbit! There is as much Providence in the creeping of an aphid upon a rose leaf as in the marching of an army to ravage a continent. Everything&mdash;the most minute as well as the most magnificent&mdash;is ordered by the Lord who has prepared His Throne in the heavens, whose kingdom rules over all!
 
@@ -92,7 +92,7 @@ It seems a very small matter whether you or I shall sleep tonight or toss restle
 
 All was well. The plotter was unmasked, the gallows ready and he who ordered it was made to try his own arrangements!
 
-Our next remark is THE LORD, IN HIS PROVIDENCE, CALLS HIS OWN SERVANTS TO BE ACTIVE. This
+Our next remark is THE Lord, IN HIS PROVIDENCE, CALLS HIS OWN SERVANTS TO BE ACTIVE. This
 
 business was done, and well done, by Divine Providence. But those concerned had to pray about it. Mordecai and all the Jews outside and in Shushan fasted and cried unto the Lord. Unbelievers inquire, "What difference could prayer make?" My Brethren, prayer is an essential part of the Providence of God. It so essential that you will always find that when God delivers His people, His people have been praying for that deliverance!
 
@@ -100,7 +100,7 @@ They tell us that prayer does not affect the Most High and cannot altar His purp
 
 So, my Brothers and Sisters, we rest confidently in Providence, but we are not idle! We believe that God has an elect people and therefore we preach in the hope that we may be the means, in the hands of His Spirit, of bringing this elect people to Christ. We believe that God has appointed for His people both holiness here and Heaven hereafter. Therefore we strive against sin and press forward to the rest which remains for the people of God. Faith in God's Providence, instead of repressing our energies, excites us to diligence! We labor as if all depended upon us and then fall back upon the Lord with the calm faith which knows that all depends upon Him.
 
-Now we must close our historical review with the remark that in the end THE LORD ACHIEVES THE TOTAL
+Now we must close our historical review with the remark that in the end THE Lord ACHIEVES THE TOTAL
 
 DEFEAT OF HIS FOES AND THE SAFETY OF HIS PEOPLE. Never was a man so utterly defeated as Haman! Never
 
