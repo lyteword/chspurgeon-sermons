@@ -95,7 +95,7 @@ I know that sinners try to find reasons why they should not be saved. If there i
 
 Say to yourself and say to your God, "I believe it! I accept it! I will go my way made free by Sovereign Grace and I will act as a free man should, to the praise of my great Master and to the glory of His Grace." The Lord bless you, dear Friends, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Luke 4:14-32.
+Exposition by C. H. Spurgeon: Luke 4:14-32.
 
 Verse 14. And Jesus returned, in the power of the Spirit, into Galilee. Ah, dear Brothers and Sisters, if our Lord Jesus needed "the power of the Spirit," how much more do you and I need it! We have no power of our own, but He was the Son of God. He was a Divine Teacher and yet, when He went to His work, it was, "in the power of the Spirit." Tarry, Brothers and Sisters, till you have that power&mdash;it is of no use for you to go without it.
 

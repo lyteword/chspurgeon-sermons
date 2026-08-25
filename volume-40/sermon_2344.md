@@ -118,11 +118,11 @@ The oldest friend here has a little something to do for the Master. Someone said
 
 Now may the Lord give us the joy of His Presence at His Table! May the bread and wine speak to you much better than I can! May every heir of Heaven see Christ, tonight, and rejoice in His finished work, for His dear name's sake! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: PSALM 121. AND 122.
+ExpositionS by C. H. Spurgeon: Psalm 121. AND 122.
 
 Psalm 121:1. I will lift up my eyes unto the hills, from where comes my help. No help comes from anywhere else but from the eternal hills. Let us lift up our eyes, therefore, hopefully expecting help from the hills&mdash;it is on the road&mdash;it "comes." The Psalmist, with the eye of faith, could see it coming, so he watched its approach.
 
-My help comes from the LORD, who made Heaven and earth. He would sooner unmake them than desert His people. He that made Heaven and earth could certainly find shelter for us either in Heaven or in earth. He cannot, He will not leave us, He will make room for us in Heaven when there is no room for us here. What a blessed thing it is to look right away from the creature to the Creator! The creature may fail you, but the Creator is an ever-springing well of all-sufficient Grace.
+My help comes from the Lord, who made Heaven and earth. He would sooner unmake them than desert His people. He that made Heaven and earth could certainly find shelter for us either in Heaven or in earth. He cannot, He will not leave us, He will make room for us in Heaven when there is no room for us here. What a blessed thing it is to look right away from the creature to the Creator! The creature may fail you, but the Creator is an ever-springing well of all-sufficient Grace.
 
 He will not suffer your foot to be moved. He will not endure it, He will not suffer it. Many would like to trip you up, but He will not allow it&mdash;He loves you too well.
 
@@ -130,23 +130,23 @@ He that keeps you will not slumber. You may slumber, for you are frail, but He i
 
 Behold, He that keeps Israel shall neither slumber nor sleep. Behold it, that is, mark it&mdash;put a nota bene at the side of it, take cognizance of this as a great and sure Truth of God! Jacob went to sleep with a stone for his pillow, but He that kept him did not sleep. He came to him in the night watches and revealed to him His Covenant.
 
-The Lord is your keeper: the LORD is your shade upon your right hand. Oh, what a Keeper we have! Can you not trust Him? Will you not be at peace in your mind if it is, indeed, true that Jehovah keeps you and is your Guard in the hour of danger?
+The Lord is your keeper: the Lord is your shade upon your right hand. Oh, what a Keeper we have! Can you not trust Him? Will you not be at peace in your mind if it is, indeed, true that Jehovah keeps you and is your Guard in the hour of danger?
 
 The sun shall not smite you by day, nor the moon by night. Then, when can you get hurt? If you are protected both day and night, these make up all the time! God does not make a new sun for His people, the sun would smite us as well as others, but He takes the sting out of the sun's excessive brightness. And we have the same sickly moon as others have, with the same influences over us, but God takes care that the moonbeams do not harm His people. Neither the sun of prosperity nor the night of adversity&mdash;neither the light of Truth of God nor even the dimness of mystery shall injure one of the chosen seed.
 
-The LORD shall preserve you from all evil: He shall preserve your soul. That is the soul of our preservation&mdash;if the life, the soul, is kept, then are we altogether kept.
+The Lord shall preserve you from all evil: He shall preserve your soul. That is the soul of our preservation&mdash;if the life, the soul, is kept, then are we altogether kept.
 
-The LORD shall preserve your going out and your coming in&mdash;Your early days of youth, when you are going out into life&mdash;and your coming in when the older days creep over you and you are coming into God and Heaven. Your going out into business and your coming in to private devotion.
+The Lord shall preserve your going out and your coming in&mdash;Your early days of youth, when you are going out into life&mdash;and your coming in when the older days creep over you and you are coming into God and Heaven. Your going out into business and your coming in to private devotion.
 
 From this time forth, and even forevermore. Let us, therefore, feel restful at this time, and even forevermore, having the Lord for our Keeper and Preserver.
 
-Psalm 122:1. I was glad when they said unto me, Let us go into the house of the LORD. I was glad for their sake, glad to think they were so willing to go. I was glad, also, for my own sake, for I was glad to go, too.
+Psalm 122:1. I was glad when they said unto me, Let us go into the house of the Lord. I was glad for their sake, glad to think they were so willing to go. I was glad, also, for my own sake, for I was glad to go, too.
 
 Our feet shall stand within your gates, O Jerusalem. Happy men who were citizens of such a city! Happy worshippers coming together to the place whose very name signifies the vision of peace, the metropolis of God, type of the New Jerusalem which is from above!
 
 Jerusalem is built as a city that is compact together. Not a conglomeration of huts, but built as a city with substantial structures. And not a straggling city, like some we read of, that have been called, "cities of magnificent distances"&mdash;but it was "compact together." Happy is the Church that is at peace&mdash;blessed are the people who are joined together by a gracious brotherly love.
 
-Where the tribes go up, the tribes of the LORD, unto the testimony of Israel, to give thanks unto the name of the LORD. The Church is the point of meeting&mdash;"Where the tribes go up." The Church is the place of "testimony"&mdash;and saints go to hear testimony and to bear it. I wish there was more of this bearing testimony among Christian people and that they looked upon it as a sacred duty to tell others what God has told them. "To give thanks unto the name of the Lord"&mdash;that is another part of true worship&mdash;praise, joyful thanksgiving should be one of the saints' continual avocations. Let us not forget it at this time. Some are here who have been sick&mdash;let them give thanks unto the name of the Lord. Some are here who are still weak, yet able to come up with God's people&mdash;let us give thanks unto the name of the Lord. We have all some special mercy, some choice favor for which to praise His name. Then let us all give thanks unto the name of the Lord!
+Where the tribes go up, the tribes of the Lord, unto the testimony of Israel, to give thanks unto the name of the Lord. The Church is the point of meeting&mdash;"Where the tribes go up." The Church is the place of "testimony"&mdash;and saints go to hear testimony and to bear it. I wish there was more of this bearing testimony among Christian people and that they looked upon it as a sacred duty to tell others what God has told them. "To give thanks unto the name of the Lord"&mdash;that is another part of true worship&mdash;praise, joyful thanksgiving should be one of the saints' continual avocations. Let us not forget it at this time. Some are here who have been sick&mdash;let them give thanks unto the name of the Lord. Some are here who are still weak, yet able to come up with God's people&mdash;let us give thanks unto the name of the Lord. We have all some special mercy, some choice favor for which to praise His name. Then let us all give thanks unto the name of the Lord!
 
 For there are set thrones of judgment, the thrones of the house of David. If any of the people had been wronged by the petty magistrates, they went up to Jerusalem and made their appeal to the king. Here may we bring our suit before God and order our case before Him, for He is true and just, and nothing shall go amiss that is left with Him.
 
@@ -158,4 +158,4 @@ Peace be within your walls, and prosperity within your palace. The Psalmist bade
 
 For my brethren and companions' sakes, I will now pray, Peace be within you. Let us say it, for the sake of beloved ones in Heaven, and dear ones on earth who are on the way there, "Peace be within you."
 
-Because of the house of the LORD our God I will seek your good. Not only pray for it, but work for it, give for it, live for it! "I will seek your good!" God bless to us these two Psalms and put us all in a right state of heart tonight! Amen.
+Because of the house of the Lord our God I will seek your good. Not only pray for it, but work for it, give for it, live for it! "I will seek your good!" God bless to us these two Psalms and put us all in a right state of heart tonight! Amen.

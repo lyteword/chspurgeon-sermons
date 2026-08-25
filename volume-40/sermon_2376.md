@@ -59,7 +59,7 @@ Further, that power of Christ will land every Believer in Heaven. Notice how Chr
 
 I shall have finished with this first point when I have said this&mdash;that power which Christ had, may, in a measure, be gained by all His people. I dare not say and I would not say that any of us will ever be able to utter our Savior's words, "Father, I will." But I do say this&mdash;if you abide in Christ and His words abide in you&mdash;you may attain to such power in prayer that you shall ask what you will and it shall be done unto you. This is not a promise to all of you&mdash;no, not even to all of you who are God's people&mdash;but only to those of you who live wholly unto God and serve Him with all your heart. You can, by habitual communion with God, attain to such power with the Most High that men shall say of you what they used to say of Luther, "There goes a man who can ask what he likes of God and have it." You may attain to that glorious altitude! Oh, I would that every one of us would seek to reach this height of power and blessing! It is not the feeble Christian. It is not the worldly Christian who has just enough Grace to make him miserable&mdash;the man who has only about enough Grace to keep him from being absolutely immoral! That is not the man or woman who will prevail with God. You paddlers in Christianity who scarcely wet your toes&mdash;you who never go in beyond your ankles, or your knees&mdash;God will never give you this privilege unless you go in for it! Get where the waters are deep enough to swim and plunge in! Be perfectly consecrated to God! Yield your whole lives to His Glory without reserve! Then may you obtain something of your Master's power in prayer when He said, "Father, I will."
 
-Now I ask you kindly to accompany me, in the second place, to notice JESUS IN THE POWER OF HIS SUBMISSION. Our second text is all submission&mdash;"Not as I will."
+Now I ask you kindly to accompany me, in the second place, to notice Jesus IN THE POWER OF HIS SUBMISSION. Our second text is all submission&mdash;"Not as I will."
 
 This utterance, "Not as I will," proved that the shrinking of Christ's Nature from that dreadful cup were all overcome. I do not believe that Christ was afraid to die. Do you believe that? Oh, no&mdash;many of His servants have laughed at death! I am sure that He was not afraid to die. What was it, then, that made that cup so awfully terrible? Jesus was to be made sin for us. He was to come under the curse for us! He was to feel the Father's wrath on account of human guilt and His whole Nature, not only His flesh, but His whole Being shrank from that fearful ordeal! It was not actual defilement that was to come upon Him, but it looked like it and, as Man, He could not tell what that cup of wrath must contain&mdash;
 
@@ -113,7 +113,7 @@ But oh, what shall I say to those of you who are not the Lord's people? If you d
 
 and if you will but breathe the penitent's prayer, "God be merciful to me, a sinner," and turn your eye Christ-ward, and Cross-ward, there is salvation for you even now! God grant that you may have it, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: John 17:15-26; Matthew26:36-46.
+Exposition by C. H. Spurgeon: John 17:15-26; Matthew26:36-46.
 
 We will read, this evening, a portion of two prayers offered by our Divine Lord and Master on that night in which He was betrayed. The first is that memorable intercessory prayer of His recorded in the seventeenth Chapter of the Gospel according to John.
 

@@ -106,7 +106,7 @@ Lastly, you cannot expect that you shall have continual enjoyments of the light 
 
 Now, dear Friends, I have done. I hope there has been a word for everybody. And if there has been a word from me to you, let there be a word from you to God&mdash;and let this be the prayer that you utter before leaving this house, "Look You upon me and be merciful unto me, as You used to do unto those that love Your name."
 
-EXPOSITION BY C. H. SPURGEON: PSALM 119:129-144
+Exposition by C. H. Spurgeon: Psalm 119:129-144
 
 Verse 129. Your testimonies are wonderful: therefore does my soul keep them. Every true Believer admires God's Word and, more than that, it amazes him&mdash;"Your testimonies are wonderful." View them from any point you may select, they are wonderful&mdash;wonderful in themselves, wonderful in their operation, wonderful in the way in which they endure all kinds of testing and yet remain the same&mdash;"Your testimonies are wonderful." This wonder, however, in the true Believer, leads to godly practice, to holy living&mdash;"Therefore does my soul keep them." Our soul must be like a golden case in which we store the priceless jewels of the Word of the Lord. You cannot rightly keep God's Word anywhere but in your soul. To keep it merely in the memory, or in the intellect, is of no avail.
 
@@ -132,7 +132,7 @@ Rivers of waters run down my eyes because they keep not Your Law. Some think tha
 
 are some who can look upon the error and false doctrine which abound everywhere and say, "Oh, let it alone! Do not trouble yourself about that." But he who walks with God is not of their mind&mdash;it is a constant grief and agony of spirit to him that men keep not God's Law.
 
-Righteous are You, O LORD, and upright are Your judgements. It is always well to set God in contrast with wicked men. If others are unjust, He is not. If they forsake the Truth of God, He does not.
+Righteous are You, O Lord, and upright are Your judgements. It is always well to set God in contrast with wicked men. If others are unjust, He is not. If they forsake the Truth of God, He does not.
 
 Your testimonies that You have commanded are righteous and very faithful. True to the letter, true always, true to the core.
 

@@ -66,9 +66,9 @@ You see, it is not God's Word that you trust&mdash;it is that rotten, "if," to w
 
 So, you see, dear Friends, my text plainly teaches us that men are greatly disinclined to come to Jesus.
 
-Therefore, THE OPERATIONS OF GOD ON THE SOUL ALL RUN IN THE WAY OF LEADING MEN TO
+Therefore, THE OPERATIONS OF God ON THE SOUL ALL RUN IN THE WAY OF LEADING MEN TO
 
-COME TO JESUS. That is clear if you read the text, "No man can come to Me, except the Father who sent Me draws
+COME TO Jesus. That is clear if you read the text, "No man can come to Me, except the Father who sent Me draws
 
 him."
 
@@ -86,7 +86,7 @@ Further, He makes us to hear and to learn that we may come to Christ. Come, then
 
 Yes, he is, and only so can he be cleansed, for his leprosy makes him as foul as any swine could be and he must, therefore, wash if he would be clean! You, though you are the queen of morality, must trust in Christ just as a harlot must trust in Christ! And you, young man, though you are, in all things, noble and excellent, you must come and believe in Christ just as a thief must do, or else you can never come where that dying thief, is, who passed with Christ into Paradise! There is but one door&mdash;will you bow your head and enter? There is only one way of salvation&mdash;will you run along it? If not, if you will put your goodness before Christ, it shall become as bad as a crime or infamy, itself! God grant that the operations of the Holy Spirit may lead you up to simple faith in Jesus!
 
-So, then, I finish with this fourth point. IF WE HAVE COME TO JESUS, WE NEED NOT QUESTION OUR
+So, then, I finish with this fourth point. IF WE HAVE COME TO Jesus, WE NEED NOT QUESTION OUR
 
 SAFETY. Christ says, "He that believes on Me has everlasting life." He who has come to Jesus is saved! You need not question your safety, for you could not have come to Christ without having been drawn to Him. "No man can come to Me, except the Father who sent Me draws him." You could not have come if you had not been drawn! Well, then, if you have come, you have been drawn, and if the Father has drawn you, you have come the right way! It all lies in a nutshell. If I have come to Jesus and have put my trust in Him&mdash;my nature is, in itself, so averse to this way of salvation that, if I have really and from my heart accepted it&mdash;there must have been upon my heart an operation from God to bring me into this condition! That operation could not have been badly performed, for God never works amiss or ineffectually. I am, therefore, in the very fact of being brought to Christ, assured that God has been at work with me!
 
@@ -100,7 +100,7 @@ It is as good as saying, "I will go through with the business for the whole of t
 
 The Lord bring every one of you to trust in this mighty Savior, for His great name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: John 6:41-71.
+Exposition by C. H. Spurgeon: John 6:41-71.
 
 We shall read, tonight, part of that blessed sixth chapter of John's Gospel, beginning at the forty-first verse.
 

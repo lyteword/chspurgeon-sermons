@@ -2,7 +2,7 @@
 
 "Him that comes to Me I will in no wise cast out." John 6:37.
 
-EOD CHRIST will not die in vain. His Father gave Him a certain number to be the reward of His soul travail and He will have every one of them, as He said, "All that the Father gives Me shall come to Me." Almighty Grace shall sweetly constrain them all to come. My father recently gave me some letters which I wrote to him when I began to preach. They are almost boyish epistles, but, in reading through them, again, I noticed in one of them this expression, "How I long to see thousands of men saved, but my great comfort is that some will be saved, must be saved, shall be saved, for it is written, 'All that the Father gives Me shall come to Me.'"
+EOD Christ will not die in vain. His Father gave Him a certain number to be the reward of His soul travail and He will have every one of them, as He said, "All that the Father gives Me shall come to Me." Almighty Grace shall sweetly constrain them all to come. My father recently gave me some letters which I wrote to him when I began to preach. They are almost boyish epistles, but, in reading through them, again, I noticed in one of them this expression, "How I long to see thousands of men saved, but my great comfort is that some will be saved, must be saved, shall be saved, for it is written, 'All that the Father gives Me shall come to Me.'"
 
 The question for each of you to ask is, "Do I belong in that number?" I am going to preach with the view of helping you to find out whether you belong to that, "all," whom the Father gave to Christ&mdash;the "all" who shall come to Him. We can use the second part of the verse to help us to understand the first. "Him that comes to Me I will in no wise cast out," will explain our Savior's previous Words, "All that the Father gives Me shall come to Me."
 
@@ -91,11 +91,11 @@ the devil and all his companions! And they would say, "The Christ is not true to
 
 Come, each one of you, and prove the text to be true in your own experience, for the Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Psalm 89:1-37; John 6:22-40.
+Exposition by C. H. Spurgeon: Psalm 89:1-37; John 6:22-40.
 
 Psalm 89. Maschil of Ethan the Ezrahite. That is to say, an instructive Psalm, written by or for one Ethan, one of the great singers of David's day. He sings of the Covenant, the Covenant with David, ordered in all things and sure. There is no higher theme for song than the Covenant of God's Grace. One marvels that it has not more often been sung by those who are the gifted children of poesy.
 
-Verse 1. I will sing of the mercies of the LORD forever. Another subject might wear out, but this glorious topic will never be exhausted! Here is a theme which we can sing of in eternity as well as in time. Let others choose what subject they may, "I will sing of the mercies of Jehovah forever."
+Verse 1. I will sing of the mercies of the Lord forever. Another subject might wear out, but this glorious topic will never be exhausted! Here is a theme which we can sing of in eternity as well as in time. Let others choose what subject they may, "I will sing of the mercies of Jehovah forever."
 
 With my mouth will I make known Your faithfulness to all generations. God's faithfulness is the mercy of His mercy! It is the center point of His goodness that His goodness endures forever. We are not only to sing, we are to teach. The Psalmist says, "With my mouth will I make known Your faithfulness to all generations." In telling his own experience, narrating what he had observed, as well as what he had proved of God's faithfulness to His promise and His Covenant, he would do this so that following generations should know about it. We are the schoolmasters of the ages to come&mdash;I mean, saints who have experienced the mercy and the faithfulness of God. We ought to make known Jehovah's faithfulness to all generations that are yet to come.
 
@@ -107,15 +107,15 @@ I have made a Covenant with My chosen, I have sworn unto David My servant. Well 
 
 Your seed will I establish forever, and build up your throne to all generations. Selah. Whatever may happen in the world, David's Seed is always reigning. Whatever kings may lose their crowns, King Jesus will never lose the many crowns that are on His head! God has sworn it&mdash;"Your seed will I establish forever, and build up your throne to all generations." Then comes the word, "Selah." Rest. Meditate. And truly, here is enough to rest and meditate upon for many a day, if we went no farther into the Psalm!
 
-And the heavens shall praise Your wonder, O LORD: Your faithfulness, also, in the congregation of the saints. The Psalmist meant to praise God at such a rate that the sun, moon and stars should hear his song, while angels and the host re-
+And the heavens shall praise Your wonder, O Lord: Your faithfulness, also, in the congregation of the saints. The Psalmist meant to praise God at such a rate that the sun, moon and stars should hear his song, while angels and the host re-
 
 deemed by blood should learn to praise God better than ever. "Your faithfulness also in the congregation of the saints"&mdash; one saint begins to sing of God's faithfulness and the others take it up&mdash;for God is not faithful to one, only, but to all His people. This is a subject which, when once started, will produce an echo in every Believer's heart.
 
-7. For who in the Heaven can be compared unto the LORD? Who among the lions of the mighty can be likened unto the LORD? God is greatly to be feared in the assembly of the saints. The holiest are always the most reverent. There is no fear of God in the assembly of the sinners, but, "He is greatly to be feared in the assembly of the saints."
+7. For who in the Heaven can be compared unto the Lord? Who among the lions of the mighty can be likened unto the Lord? God is greatly to be feared in the assembly of the saints. The holiest are always the most reverent. There is no fear of God in the assembly of the sinners, but, "He is greatly to be feared in the assembly of the saints."
 
 And to be had in reverence of all them that are about Him. The nearer they came to Him, the more is their awe of Him! The greater their love, the deeper is their humility. God will not have those about Him who are flippant and irreverent! He is "to be had in reverence of all them that are about Him."
 
-O LORD God of Hosts, who is a strong LORD like unto You? Or to Your faithfulness round about You? Note how the Psalmist harps upon that one string&mdash;"faithfulness." Ah, dear Friends, there are times when this is the sweetest note in the whole scale! "Your faithfulness"&mdash;we have a God who never forgets His promises, but keeps them to the moment&mdash;a God who never changes! We have a God who never turns away from His Word. "Your faithfulness." Oh, what a blessed virtue is this in God! Let us praise Him for it forever. "Your faithfulness round about You"&mdash;as if the Lord never went outside the ring of faithfulness, never did anything that broke His promises, or that made any of His children to doubt. And it is even so!
+O Lord God of Hosts, who is a strong Lord like unto You? Or to Your faithfulness round about You? Note how the Psalmist harps upon that one string&mdash;"faithfulness." Ah, dear Friends, there are times when this is the sweetest note in the whole scale! "Your faithfulness"&mdash;we have a God who never forgets His promises, but keeps them to the moment&mdash;a God who never changes! We have a God who never turns away from His Word. "Your faithfulness." Oh, what a blessed virtue is this in God! Let us praise Him for it forever. "Your faithfulness round about You"&mdash;as if the Lord never went outside the ring of faithfulness, never did anything that broke His promises, or that made any of His children to doubt. And it is even so!
 
 You rule the raging of the sea: when the waves thereof rise, You still them. Are you now in a storm, my Brother? My Sister, are you now tempest-tossed? Listen to this Word of God and remember the Lord High Admiral of the fleet on the Lake of Galilee and how, after He had been asleep for awhile, He arose and rebuked the winds and the waves! "You rule the raging of the sea: when the waves thereof rise, You still them."
 
@@ -129,11 +129,11 @@ compassed by God. You cannot go where the Lord's love reigns not, nor where Prov
 
 13-15. You have a mighty arm: strong is Your hand, and high is Your right hand. Justice and judgment are the habitation of Your Throne: mercy and truth shall go before Your face. Blessed is the people that know the joyful sound. There are some who hear it and yet are not blessed. Blessed are they who "know" it, know its peculiar accent, know its inward power, know its Omnipotence, know its unchangeableness, know it by having tried it and proved it and rested in it! "Blessed is the people that know the joyful sound."
 
-They shall walk, O LORD, in the light of Your Countenance. It is all the light they need. Let God but smile, it makes their day! If every candle were blown out, yet the favor of God would make life bright enough for them.
+They shall walk, O Lord, in the light of Your Countenance. It is all the light they need. Let God but smile, it makes their day! If every candle were blown out, yet the favor of God would make life bright enough for them.
 
 In Your name shall they rejoice all the day: and in Your righteousness shall they be exalted. Even in God's righteousness! Until we know the Lord, we are afraid of His righteousness, but when we come to know Him, His righteousness, which once frowned upon us, becomes our Heaven! "God is not unrighteous to forget your work and labor of love." God is not unrighteous to cast away a soul that puts its trust in Christ. God is one with His people. When we rejoice all the day in His name, we are exalted in His righteousness.
 
-17-19. For You are the glory of their strength: and in Your favor our horn shall be exalted. For the LORD is our defense; and the Holy One of Israel is our King. Then You spoke in Vision to Your holy one, and said, I have laid help upon one that is mighty; I have exalted one chosen out of the people. This is David first, but it is Christ high above David. One of ourselves,
+17-19. For You are the glory of their strength: and in Your favor our horn shall be exalted. For the Lord is our defense; and the Holy One of Israel is our King. Then You spoke in Vision to Your holy one, and said, I have laid help upon one that is mighty; I have exalted one chosen out of the people. This is David first, but it is Christ high above David. One of ourselves,
 
 the carpenter's Son, yet has God made Him to be the Head over all things for His Church&mdash;"I have exalted one chosen out of the people."
 

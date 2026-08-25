@@ -1,12 +1,12 @@
 # Sermon 2374 | Blessed Discipline
 
-"Blessed is the man whom You chasten, O LORD, and teach out of Your Law; that You may give him rest from the days of adversity, until the pit is dug for the wicked. For the LORD will not cast off His people, neither will He forsake His inheritance. But judgment shall return unto righteousness: and all the upright in heart shall follow it." Psalm 94:12-15.
+"Blessed is the man whom You chasten, O Lord, and teach out of Your Law; that You may give him rest from the days of adversity, until the pit is dug for the wicked. For the Lord will not cast off His people, neither will He forsake His inheritance. But judgment shall return unto righteousness: and all the upright in heart shall follow it." Psalm 94:12-15.
 
 THERE are times when the wicked seem to have things all their own way. This earth is not the realm of final justice&mdash;we are not yet standing before the Lord's great Judgement Seat. God permits many things to be, for a while, in confusion. They who are highest with Him are often lowest with men and, those for whom He has no regard seem to heap up the treasures of the world till their eyes stand out with fatness, and they have more than heart can wish! Let no child of God be astonished at this arrangement. It has often been so in the past and it has been the great enigma that has puzzled the world. The children of God have also sat down and looked into it, but it has been, even to them, a great deep which they could not fathom. They have sighed over it, but their sighs have not altered the facts. It is still true that often the wicked triumph and the servants of iniquity delight themselves in the high places of the earth. The righteous need not wonder that they suffer, now, for that has been the lot of God's people all along, and there have been certain times in human history when God has seemed to be altogether deaf to the cries of His suffering people. Remember the martyr age and the days of the Covenanters, who were hunted upon the mountains like the partridge. You must not wonder if the easy places of the earth are not yours and if the sentinel's stern duties should fall to your lot. It is so, and so it must be, for God has so ordained it.
 
 To comfort any of the Lord's children who have begun to worry themselves because things do not go with them as they desire, I have selected this text, and I pray the Lord to bless it to them.
 
-First, I shall ask you to notice that GOD's CHILDREN ARE UNDER INSTRUCTION.
+First, I shall ask you to notice that God's CHILDREN ARE UNDER INSTRUCTION.
 
 Other children may run about and take holiday. They may wander into the woods, gather the flowers and do very much what they like, but God's own children have to go to school. This is a great privilege for them, although they do not always think so. Children are not often good judges of what is best for themselves. No doubt we should like to play the truant&mdash;we should be very glad to put away our schoolbags, quit the schoolhouse, go out by ourselves and wander at our own sweet will&mdash;but our heavenly Father loves us too well to let it be so with us. Because we are His children, therefore He will have us trained and prepared for that high destiny which awaits us, by-and-by.
 
@@ -42,7 +42,7 @@ At such times, too, we have proved, dear Friends, the power of the Word of God. 
 
 That leads me to say that, according to our text, God Himself is our Teacher. He is not satisfied with giving us a Book and smiting us when we are inattentive to its teachings, but He, Himself, teaches us. Was there ever a Teacher so full of wisdom, a Teacher who understood His pupils so well, a Teacher so altogether master of the whole art of teaching? Was there ever a Teacher so patient, so able to apply His lessons to the heart, itself, so full of power to give understanding as well as to make the thing clear to the understanding when it is given? Happy people, who have God to be their Tutor! Happy pupils, even though, when the school bell rings, you have half a mind to stay away and play with yonder children who do not belong to your school! Yet happy are you if you are truly God's scholars. Even if, every now and then, your days are spent in weeping, and your lessons are so badly done that they bring the rod upon you, yet are you happy children. "Blessed is the man whom You chasten, O Lord, and teach Him out of Your Law." So much, then, for our first head.
 
-Now upon our second point I will say a little, and only a little. We have had God's children under instruction. Now let us think of GOD's CHILDREN EDUCATED. The Lord has chastened and taught His child for this purpose&mdash; "That You may give him rest from the days of adversity, until the pit is dug for the wicked." "What?" you ask, "chas-
+Now upon our second point I will say a little, and only a little. We have had God's children under instruction. Now let us think of God's CHILDREN EDUCATED. The Lord has chastened and taught His child for this purpose&mdash; "That You may give him rest from the days of adversity, until the pit is dug for the wicked." "What?" you ask, "chas-
 
 tened to give us rest? It is usual for chastening to break our rest." Yes, I know that it is so with other chastening, but in very deed this is the way in which God gives rest to His people.
 
@@ -62,7 +62,7 @@ He spoke of me as though I were a great man and I assured him that he was quite 
 
 Much more might be said upon this part of my subject, especially about learning to look beyond this present life, but I have not the time or the strength to say it.
 
-I must now go on to the third point which is that GOD's CHILDREN ARE STILL DEAR TO HIM. We have
+I must now go on to the third point which is that God's CHILDREN ARE STILL DEAR TO HIM. We have
 
 thought of them at school, chastened and instructed, and we have seen them learning a few lessons. Now let us notice how dear they are to their Lord at all times, for the text says, "The Lord will not cast off His people, neither will He forsake His inheritance."
 
@@ -76,7 +76,7 @@ Then, further, the Lord will not forsake His people, for it is added, "Neither w
 
 I do not feel as if I need say much more upon this theme, but it is enough for me, I think, just to remind you of those precious Words of our great and gracious Father which are many times repeated in His Word, "I will never leave you, nor forsake you," and leave them with you, His children. Take them and feed upon them! God give you to know the full comfort of them!
 
-So I shall close with this fourth point&mdash;GOD's PEOPLE WILL BE RIGHTED IN THE END. "Judgment shall return unto righteousness: and all the upright in heart shall follow it."
+So I shall close with this fourth point&mdash;God's PEOPLE WILL BE RIGHTED IN THE END. "Judgment shall return unto righteousness: and all the upright in heart shall follow it."
 
 Just now, judgement has gone away. It has gone up to its own land. Judgment is within the veil, but there are reasons for its absence from us. Judgment has gone away, perhaps, that it may try the faith of God's people. The Lord does not, today, strike down the profane, nor slay the hypocrite, as He might if He dealt with them in strict justice. Judgment has gone out of the world for a while, though it watches and records all things. It is gone, partly, for our trial and testing, that we may learn to trust an absent God and Savior. Judgment is also gone away in order that mercy may be extended to the ungodly, that they may live and that they may turn to God, for He wills not the death of any, but that they may turn to Him and live. Judgment has gone up to the Throne for a while until the wicked shall have completed the full measure of their sin, "until the pit is dug for the wicked." Not yet is the iniquity of the Amorites full&mdash;and judgment has gone away and will stay away until it is.
 
@@ -88,21 +88,21 @@ show themselves, again, and God shall be glorified in them! Now you who love the
 
 I have done when I have reminded you that He is accursed who has never felt the chastening hand of God, or sat at His feet to learn of Him. But he is blessed, indeed, who yields himself entirely up to the discipline of the Lord. May it be so with everyone of you, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON:
+Exposition by C. H. Spurgeon:
 
 Let us read, this evening, the ninety-fourth Psalm, and may the Spirit of God instruct us while we read it!
 
-Verse 1. O LORD God, to whom vengeance belongs; O God, to whom vengeance belongs, show Yourself. God is the God of Justice and when iniquity and oppression prevail, it is natural that His people should call upon Him to come forth out of His hiding places. Sometimes, when oppression and iniquity and error prevail, it seems as if God had hidden Himself away. Hence the prayer of the Psalmist, "O Jehovah, the God of recompenses (or revenges, as the margin has it), show Yourself."
+Verse 1. O Lord God, to whom vengeance belongs; O God, to whom vengeance belongs, show Yourself. God is the God of Justice and when iniquity and oppression prevail, it is natural that His people should call upon Him to come forth out of His hiding places. Sometimes, when oppression and iniquity and error prevail, it seems as if God had hidden Himself away. Hence the prayer of the Psalmist, "O Jehovah, the God of recompenses (or revenges, as the margin has it), show Yourself."
 
 Lift up Yourself, You judge of the earth: render a reward to the proud. As one who is about to strike a heavy blow lifts himself up to increase the force of the stroke, so the Psalmist prays to the Lord, "Lift up Yourself, You Judge of the earth. The proud are lifted up; lift up Yourself. They boast, they glory, Lord, show them how great a God You are in the defense of righteousness; lift up Yourself, You Judge of the earth."
 
-LORD, how long shall the wicked, how long shall the wicked triumph? That question, "how long?" uttered twice over, sounds a little like howling, and, sometimes, God's saints get so dispirited that they cry to God and weep and wail before Him until their wailing becomes almost like howling&mdash;"Lord, how long shall the wicked, how long shall the wicked triumph?"
+Lord, how long shall the wicked, how long shall the wicked triumph? That question, "how long?" uttered twice over, sounds a little like howling, and, sometimes, God's saints get so dispirited that they cry to God and weep and wail before Him until their wailing becomes almost like howling&mdash;"Lord, how long shall the wicked, how long shall the wicked triumph?"
 
-5. How long shall they utter and speak hard things? And all the workers of iniquity boast themselves? They break in pieces Your people, O LORD, and afflict Your heritage. Their words are heavier than stones and when they hurl them at the Lord's people with cruel intent, they do great mischief. "They utter and speak hard things. All the workers of iniquity boast themselves." It seems to be the mark of the righteous that they are humble and lowly&mdash;and the mark of the wicked that they are boastful and proud. They have nothing of which they ought to boast, yet they boast very loudly. Pride is ingrained in our evil nature and the more there is of sin in us, the more there is of boasting by us.
+5. How long shall they utter and speak hard things? And all the workers of iniquity boast themselves? They break in pieces Your people, O Lord, and afflict Your heritage. Their words are heavier than stones and when they hurl them at the Lord's people with cruel intent, they do great mischief. "They utter and speak hard things. All the workers of iniquity boast themselves." It seems to be the mark of the righteous that they are humble and lowly&mdash;and the mark of the wicked that they are boastful and proud. They have nothing of which they ought to boast, yet they boast very loudly. Pride is ingrained in our evil nature and the more there is of sin in us, the more there is of boasting by us.
 
 They slay the widow and the stranger, and murder the fatherless. Do you wonder that the Psalmist prayed, "O God of Vengeance, show Yourself?" Can you see the fatherless robbed and the widow and the stranger oppressed, without feeling your indignation burn? He who is never indignant has no virtue in him! He who cannot burn like coals of juniper against evil does not truly love righteousness. The Psalmist was not a man of that sort&mdash;he was righteously angry with the wicked who slew the widow and the stranger&mdash;and murdered the fatherless.
 
-Yet they say, The LORD shall not see, neither shall the God of Jacob regard it. They were practically atheists, for, if they had a god, nominally, they regarded him as a god who did not observe sins, a blind deity, a god who took no note of evil! Do you not think that this is the prevailing religion of today? Are there not many who say, "Jehovah shall not see, neither shall the God of Jacob regard it?" God is not in all their thoughts. He is, to them, a nonentity, not the Omniscient Jehovah and hardly even a person, but a kind of secondary power or a feeble force&mdash;an unknown something or other of not much account&mdash;"Jehovah shall not see, neither shall the God of Jacob regard it."
+Yet they say, The Lord shall not see, neither shall the God of Jacob regard it. They were practically atheists, for, if they had a god, nominally, they regarded him as a god who did not observe sins, a blind deity, a god who took no note of evil! Do you not think that this is the prevailing religion of today? Are there not many who say, "Jehovah shall not see, neither shall the God of Jacob regard it?" God is not in all their thoughts. He is, to them, a nonentity, not the Omniscient Jehovah and hardly even a person, but a kind of secondary power or a feeble force&mdash;an unknown something or other of not much account&mdash;"Jehovah shall not see, neither shall the God of Jacob regard it."
 
 Understand, you brutish among the people. When a man turns away from God, he casts off his manhood. He ceases to be a man and becomes like a brute, a boar, for so this expression might be read, "You boars among the people."
 
@@ -117,11 +117,11 @@ He that chastises the heathen, shall not He correct? Whole nations were driven o
 
 He that teaches man knowledge, shall not He know? Our translators finish the question by putting, "Shall not He know?" But those words are not in the original and they are not at all necessary to the argument. It is as if the Psalmist abruptly broke off his utterances, as much as to say, "It is of no use arguing with you fellows," or else as if he said, "Finish my sentence, yourselves&mdash;I put the truth so clearly before you that there is no escaping from it." "He that teaches man knowledge." If God has taught men all that they know, does not He, Himself, know all that is to be known? The Psalmist does not say so much as that in words, but he leaves us to draw that as the only inference from what he says.
 
-The LORD knows the thoughts of man. God knows not only men's words and acts, but also their thoughts. God knows thoughtful men, the best sort of men, when they are at their best, when they are thinking. And what does God think of the thoughts of man?
+The Lord knows the thoughts of man. God knows not only men's words and acts, but also their thoughts. God knows thoughtful men, the best sort of men, when they are at their best, when they are thinking. And what does God think of the thoughts of man?
 
 That they are vanity. Yet people talk about the thoughtful men of the age and want us to bow down and worship their thoughts! This boasting about man's thoughts is only like the cracking of rotten sticks! "The Lord knows the thoughts of man, that they are vanity."
 
-Blessed is the man whom You chasten, O LORD, and teach him out of Your Law. Here is the truly blessed man&mdash; not the boaster, not the infidel, not the proud thinker&mdash;but the Divinely chastened man! He is sore through the chastening of the Lord, his bones are full of pain, his heart is heavy and his home, perhaps, is a place of torture to him, but still it is true that he is a blessed man&mdash;"Blessed is the man whom You chasten, O Lord, and teach him out of Your Law."
+Blessed is the man whom You chasten, O Lord, and teach him out of Your Law. Here is the truly blessed man&mdash; not the boaster, not the infidel, not the proud thinker&mdash;but the Divinely chastened man! He is sore through the chastening of the Lord, his bones are full of pain, his heart is heavy and his home, perhaps, is a place of torture to him, but still it is true that he is a blessed man&mdash;"Blessed is the man whom You chasten, O Lord, and teach him out of Your Law."
 
 That You may give him rest, from the days of adversity, until the pit is dug for the wicked. Christ has gone to prepare Heaven for His people. It is a prepared place for a prepared people. So is it with the ungodly and their eternal inheritance&mdash;it is a prepared place, "prepared for the devil and his angels." And when men make themselves like demons and so, are ripe for Hell, then is the pit ready to receive them!
 
@@ -129,11 +129,11 @@ For the Lord will not cast out His people, neither will He forsake His inheritan
 
 16. But judgment shall return unto righteousness: and all the upright in heart shall follow it. Who will rise up for me against the evildoers? Who will rise up for me against the workers of iniquity? Well, David, you may ask the question, but we cannot tell you who among your fellow men will stand up for you! It sometimes happens that God's people are left without an earthly friend. Their case is so hard, their cause involves so much question, so much shame, perhaps, that nobody will stand up for them. If this is your trying condition just now, listen to the Psalmist's testimony&mdash;
 
-Unless the LORD had been my help, my soul had almost dwelt in silence. If it had not been for God, he would not only have had no hand to help him, but not even a voice to speak for him! He might not have suffered quite in silence, because he would have, himself, spoken, but what he would have said would only have made the matter worse. What would he have said if he had broken the silence?
+Unless the Lord had been my help, my soul had almost dwelt in silence. If it had not been for God, he would not only have had no hand to help him, but not even a voice to speak for him! He might not have suffered quite in silence, because he would have, himself, spoken, but what he would have said would only have made the matter worse. What would he have said if he had broken the silence?
 
 When I said, My foot slips. "It is going, it is gone! My foot is now slipping"&mdash;what then?
 
-Your mercy, O LORD, held me up. God is grand at holding up His people in slippery places&mdash;and not only in slippery places&mdash;but when their feet actually slip. When they think that they are gone, they are not really gone. "Underneath are the everlasting arms." "Your mercy, O Lord, held me up."
+Your mercy, O Lord, held me up. God is grand at holding up His people in slippery places&mdash;and not only in slippery places&mdash;but when their feet actually slip. When they think that they are gone, they are not really gone. "Underneath are the everlasting arms." "Your mercy, O Lord, held me up."
 
 In the multitude of my thoughts within me&mdash;"I cannot collect my thoughts&mdash;they will not be gathered into orderly array. They rush to and fro, there is a multitude, a mob of them." It is good to have thoughts, but sometimes you
 
@@ -145,11 +145,11 @@ Shall the throne of iniquity have fellowship with You, which frames mischief by 
 
 They gather themselves together against the soul of the righteous and condemn innocent blood. Agreed about nothing else, they all agree against Christ and against the holy seed&mdash;"the soul of the righteous." They would blot out the righteous from under Heaven if they could.
 
-But the LORD is my defense; and my God is the rock of my refuge. I commend these expressions to all Believers, let them treasure them up. "My God." Ah, you must personally appropriate God to yourself if He is to bless you! Another man's god is nothing to you unless you can also say, "My God." When you have said, "My God," you have uttered the grandest words that human lips can frame! If God is yours, all things are yours&mdash;earth and Heaven, time and eternity! "My God is the rock of my refuge." You are on the Rock. You are in the Rock. You are behind the Rock. You must be safe now.
+But the Lord is my defense; and my God is the rock of my refuge. I commend these expressions to all Believers, let them treasure them up. "My God." Ah, you must personally appropriate God to yourself if He is to bless you! Another man's god is nothing to you unless you can also say, "My God." When you have said, "My God," you have uttered the grandest words that human lips can frame! If God is yours, all things are yours&mdash;earth and Heaven, time and eternity! "My God is the rock of my refuge." You are on the Rock. You are in the Rock. You are behind the Rock. You must be safe now.
 
 And He shall bring upon them their own iniquity. That is the punishment of sin. It seems strange that it is so, but sin is the punishment of sin. When a man has once sinned, it is part of his punishment that he is inclined to sin, again, and so on, ad infinitum. "He shall bring upon them their own iniquity."
 
-And shall cut them off in their own wickedness. It needs no fire nor worm to torment the ungodly&mdash;their own wickedness, itself, is fire, worm and pit without a bottom&mdash;and the Hell that ends not. 23. Yes, the LORD our God shall cut them off&mdash;
+And shall cut them off in their own wickedness. It needs no fire nor worm to torment the ungodly&mdash;their own wickedness, itself, is fire, worm and pit without a bottom&mdash;and the Hell that ends not. 23. Yes, the Lord our God shall cut them off&mdash;
 
 "Surrounded by His saints, the Lord
 

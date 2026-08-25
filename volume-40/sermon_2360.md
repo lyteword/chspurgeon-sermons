@@ -6,7 +6,7 @@ THE Song of Songs describes the love of Jesus Christ to His people and it ends w
 
 Are your hearts, dear Friends, in tune with that desire? They ought to be, yet have not some of you almost forgotten that Jesus is to come a second time? Refresh your memories. Others of you, who know that He will come&mdash;have you not thought of it as a doctrine that might be laid on the shelf? Have you not been without any desire for His glorious appearing? Is this right? That Song of Solomon is the central Book of the Bible. It is the innermost shrine of Divine Revelation, the Holy of Holies of Scripture. And if you are living in communion with God, you will love that Book, you will catch its spirit and you will be inclined to cry with the spouse, "Make haste, my Beloved." If you have no longings for Christ's appearance, no desires for His speedy return, surely your heart is sick and your love is faint! I fear that you are getting into a lukewarm state. I believe that our relationship to the Second Advent of Christ may be used as a thermometer with which to tell the degree of our spiritual heat. If we have strong desires, longing desires, burning desires for the coming of the Lord, we may hope that it is well with us! But if we have no such desires, I think, at best, we must be somewhat careless, perhaps, to take the worst view of our case&mdash;we are sadly declining in Divine Grace.
 
-Well now, to come to our text, I want you to notice, first, WHAT THE CHURCH, HERE, CALLS HER LORD&mdash;"Make haste, my Beloved."
+Well now, to come to our text, I want you to notice, first, WHAT THE CHURCH, HERE, CALLS HER Lord&mdash;"Make haste, my Beloved."
 
 I will have only a few words upon this point. I am hardly going to preach, tonight, but just to talk familiarly to you, and I want you to let your hearts talk. Observe, the spouse first calls her Lord, "Beloved," and secondly, "my Beloved."
 
@@ -98,7 +98,7 @@ But you who have trusted Christ, you whom He has saved&mdash;you will draw near 
 
 Oh, that you who have never trusted Him, would trust Him, now! And if you trust Him, you shall live with Him forever and ever. God grant it! Amen.
 
-EXPOSITION BY C. H. SPURGEON: REVELATION 22.
+Exposition by C. H. Spurgeon: Revelation 22.
 
 Verse 1. And he showed me a pure river of water of life, clear as crystal, proceeding out of the Throne of God and of the Lamb. There is no other "water of life" except that which springs from a Sovereign God and a substitutionary Sacrifice&mdash;"a pure river of water of life, clear as crystal, proceeding out of the Throne of God and of the Lamb." This sets forth the blessings of salvation that come to us through the Sovereign Grace of God by the precious blood of Jesus.
 

@@ -82,7 +82,7 @@ What I am saying is the result of what I have seen and of what many here have se
 
 I pray you, receive our message, for to what end do we bear our testimony? I should like John to say a final word to you and then I will have done. This is why we bear our testimony, we do it with the same design that led John to write concerning the life of Christ, "and many other signs truly did Jesus in the presence of His disciples, which are not written in this Book: but these are written that you might believe that Jesus is the Christ, the Son of God; and that believing you might have life through His name." There is salvation! There is Christ ready to save! Look to Him, blind eyes! Look to Him, dead souls! Look to Him! Say not that you cannot&mdash;He in whose power I speak will work a miracle while yet you hear the command and blind eyes shall look, and dead hearts shall spring into eternal life by His Spirit's effectual working! God grant that it may be so, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 1 John 4.
+Exposition by C. H. Spurgeon: 1 John 4.
 
 Verse 1. Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world. It was so in John's day. It is so in these days. If there were only one false prophet, we should have need to be on our guard, but, "many false prophets are gone out into the world." If false prophets were all shut up in a cage, and we had to go to seek them, there might be some danger to be apprehended from them, but there is so much more danger, now that we can truly read, "Many false prophets are gone out into the world."
 

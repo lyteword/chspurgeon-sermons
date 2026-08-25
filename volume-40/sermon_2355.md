@@ -91,7 +91,7 @@ But, Brothers and Sisters, do not let us be anxious to get to Heaven just yet. L
 
 God bless you, dear Friends, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN17.
+Exposition by C. H. Spurgeon: John17.
 
 Verse 1. These words spoke Jesus, lifted up His eyes to Heaven, and said, Father, the hour is come. The hour to which He had so long looked forward to. The hour which He had anticipated with ardent desire&mdash;"The hour is come." On the very night that Jesus prayed this prayer, Luke's record tells us, "When the hour was come, He sat down, and the twelve Apostles with Him. And He said unto them, With desire I have desired to eat this Passover with you before I suffer." So He began His great intercessory prayer, "Father, the hour is come"&mdash;
 

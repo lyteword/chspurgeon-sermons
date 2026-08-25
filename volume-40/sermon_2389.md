@@ -10,7 +10,7 @@ The Psalmist had been, to some extent, finding fault with the Providence of God.
 
 First, dear Friends, I will speak concerning the conviction which led the Psalmist to take a guide. Secondly, I will say a little upon the confidence which led him to take God for his Guide. Thirdly, I will talk to you about the delightful commerce between the Psalmist and his God which began when God had become his Guide, and continued throughout his life. And then, the fourth point, which shall be our finis, shall be, the sure result of this guidance. "You shall afterward receive me to Glory."
 
-First, then, concerning THE CONVICTION WHICH LED THE PSALMIST TO TAKE a GUIDE. Happily for him, that conviction came very early. If I am to have a guide on my journey, I should like to have one at the beginning, for it is the starting that has so much to do with all the rest of the way. If I start due south when I ought to have gone north, I shall have to retrace many a weary step! Dear young Friends, if you can have God to be your Guide, now, in the morning of life, how happy you will be! It will influence for good the whole of your future existence, depend upon it! As
+First, then, concerning THE CONVICTION WHICH LED THE PsalmIST TO TAKE a GUIDE. Happily for him, that conviction came very early. If I am to have a guide on my journey, I should like to have one at the beginning, for it is the starting that has so much to do with all the rest of the way. If I start due south when I ought to have gone north, I shall have to retrace many a weary step! Dear young Friends, if you can have God to be your Guide, now, in the morning of life, how happy you will be! It will influence for good the whole of your future existence, depend upon it! As
 
 the river is colored by the glacier from which it flows and never, even when larger and deeper, quite loses the whiteness of its mountain source, so, if you begin with God at the fountainhead and spring of life, there will be a peculiar charm around your pathway as long as you live! Permit me to say that I have found it so myself. I can say to my Lord and do often say it, "O God, You have taught me from my youth, and until now have I declared Your wondrous works! Now, when I am old and gray-headed, O God, forsake me not." There is a sweet plea when years multiply upon you, if you can say to the Lord&mdash;
 
@@ -32,7 +32,7 @@ desire of everyone of us, we would be driven at once to this conclusion&mdash;"I
 
 I am merely giving you the outline of a sermon. I have not time to fill it up, so now I leave this first point, the conviction which led the Psalmist to take a guide.
 
-Secondly, let us think of THE CONFIDENCE WHICH LED HIM TO TAKE GOD AS HIS GUIDE. If we were but in our right senses, we would all do so!
+Secondly, let us think of THE CONFIDENCE WHICH LED HIM TO TAKE God AS HIS GUIDE. If we were but in our right senses, we would all do so!
 
 A man, looking about wisely for a guide, will prefer to have the very best&mdash;and is not God, who is infinitely wise, the best Guide that we can have? Who questions it? Is not the Lord, also, the most loving, the most tender, the most considerate, the most fatherly of all beings who can be chosen as a guide? Wisdom, when attended with discourtesy and unfeeling roughness, may be shunned by us, but Divine Wisdom, dressed in robes of love and tenderness, invites us to run into her arms! Choose God, I pray you, because He so well knows the way and because He has such a tender love for poor trembling humanity.
 
@@ -88,7 +88,7 @@ Oh, how I wish that every person here who has not yet yielded himself or herself
 
 Lord, You shall guide me with Your counsel, and afterward receive me to Glory! For Jesus' sake, accept this resolve! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Psalm 39.
+Exposition by C. H. Spurgeon: Psalm 39.
 
 To the chief Musician, even to Jeduthun, a Psalm of David.
 
@@ -114,7 +114,7 @@ My heart was hot within me, while I was musing, the fire burned. There was an in
 
 Then spoke I with my tongue. Whether rightly or wrongly, he must say something! He could not hold himself in any longer&mdash;"Then spoke I with my tongue."
 
-LORD. If you must speak, address your words to the Lord! So David does. He does not speak to the wicked, but he prays to God most holy.
+Lord. If you must speak, address your words to the Lord! So David does. He does not speak to the wicked, but he prays to God most holy.
 
 Make me to know my end. Did he wish to die? Perhaps so. You remember that one of the two men who never died once prayed that he might die. Elijah did so. And David does so, here, I think, if I put a hard construction on his speech&mdash;"Lord, make me to know my end." But if I read it more tenderly, I may make it to mean, "Lord, help me to recollect that my sorrows will not last forever!" That thought will tone them down and keep them in check&mdash;"Make me to know my end."
 
@@ -148,7 +148,7 @@ When You with rebukes correct man for iniquity, You make his beauty to consume a
 
 Surely every man is vanity. Selah. In the fifth verse, you see that when the Psalmist reached that point, he stopped, and said, "Selah," and he does so, again, here. Striking his music with a heavy hand&mdash;he has put it out of tune, again, so he pauses and begins to tighten the strings up once more. You and I often need to be tightened up like the strings of a harp, to put us in right order before we go on to praise or to pray.
 
-Hear my prayer, O LORD, and give ear unto my cry. See how David's "prayer" grows into a "cry?" It deepens in intensity&mdash;there is more power in a cry than in an ordinary prayer&mdash;it shows more earnestness and implies greater urgency! "Hear my prayer, O Lord, and give ear unto my cry."
+Hear my prayer, O Lord, and give ear unto my cry. See how David's "prayer" grows into a "cry?" It deepens in intensity&mdash;there is more power in a cry than in an ordinary prayer&mdash;it shows more earnestness and implies greater urgency! "Hear my prayer, O Lord, and give ear unto my cry."
 
 Hold not Your peace at my tears. That is a still more powerful mode of pleading. Tears are the irresistible weapons of weakness. Women, children, beggars and sinners can all conquer by tears&mdash;when they can win by nothing else! If they will take to these pearly drops and especially if they can look through them to the crimson drops of a Savior's blood, they can win what they will of God&mdash;"Hold not Your peace at my tears."
 

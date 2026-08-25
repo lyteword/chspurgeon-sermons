@@ -1,6 +1,6 @@
 # Sermon 2347 | The Lord's Famous Titles
 
-"The LORD looses the prisoners: the LORD opens the eyes of the blind: the LORD raises them that are bowed down: the LORD lo ves the righteous: the LORD preserves the strangers, He relie ves the fatherless and widow: but the way of the wicked He turns upside down." Psalm 146:7-9.
+"The Lord looses the prisoners: the Lord opens the eyes of the blind: the Lord raises them that are bowed down: the Lord lo ves the righteous: the Lord preserves the strangers, He relie ves the fatherless and widow: but the way of the wicked He turns upside down." Psalm 146:7-9.
 
 This morning as well as I could, looking to God for help, I tried, in Christ's place, to persuade men to be reconciled to God. I showed that there was a great spiritual drought and neither dew nor rain to be had except as God should send it. And I tried to press my hearers to go to God, to wait upon Him, to look to Him and, through the mediation of the Lord Jesus Christ, to seek and find in God all that would be necessary for their eternal blessedness.  I
 
@@ -84,13 +84,13 @@ rangement upside down and makes a prince of him! Think of Mordecai. Haman will h
 
 Be you just and fear not! Rest in Christ's atoning Sacrifice! Trust Him only! Come to your God and be His servant from this day and forever, and you shall see how He will break your bonds, open your eyes, cheer your spirit, indulge you with His love and preserve you even to the end! "There shall no evil befall you, neither shall any plague come near your dwelling." God bless you, dear Friends, and may you all come to God, tonight, through Jesus Christ our Lord! Amen.
 
-EXPOSITIONS BY C. H. SPURGEON: PSALM146; LUKE 17:11-19
+ExpositionS by C. H. Spurgeon: Psalm146; Luke 17:11-19
 
-Psalm 146:1. Praise you the LORD. Or, "Hallelujah." I am sorry to see that great word, Hallelujah, Hallelu-Jah, praise to Jah, Jehovah, become so hackneyed as it is, by talk about "Hallelujah lasses," and Hallelujah&mdash;I know not what. The Jews will not even pronounce the word Jah, or write it. It seems a great pity that it should be thus dragged in the dirt by Gentiles. "Praise you the Lord." Whenever you make use of the word Hallelujah, let it be with the due reverence which should be given to that blessed name, for remember, "the Lord will not hold him guiltless that uses His name in vain."
+Psalm 146:1. Praise you the Lord. Or, "Hallelujah." I am sorry to see that great word, Hallelujah, Hallelu-Jah, praise to Jah, Jehovah, become so hackneyed as it is, by talk about "Hallelujah lasses," and Hallelujah&mdash;I know not what. The Jews will not even pronounce the word Jah, or write it. It seems a great pity that it should be thus dragged in the dirt by Gentiles. "Praise you the Lord." Whenever you make use of the word Hallelujah, let it be with the due reverence which should be given to that blessed name, for remember, "the Lord will not hold him guiltless that uses His name in vain."
 
-Praise the LORD, O my Soul. Whatever we exhort others to do, we should be ready to do ourselves. Yes, our own soul should praise the Lord most of all, since, if we rightly know our obligations, no one in the world is so much indebted to God as each one of us should feel himself to be. "Praise the Lord, O my Soul." Not my lips, only, but my innermost spirit, for soul-music is the soul of music&mdash;"Praise the Lord, O my Soul."
+Praise the Lord, O my Soul. Whatever we exhort others to do, we should be ready to do ourselves. Yes, our own soul should praise the Lord most of all, since, if we rightly know our obligations, no one in the world is so much indebted to God as each one of us should feel himself to be. "Praise the Lord, O my Soul." Not my lips, only, but my innermost spirit, for soul-music is the soul of music&mdash;"Praise the Lord, O my Soul."
 
-While I live will I praise the LORD: I will sing praises unto my God while I have any being. I will lisp His praises when I can do no more. When my being seems to be dried up, in the weakness of the death-throe, still, "I will sing praises unto my God while I have any being."
+While I live will I praise the Lord: I will sing praises unto my God while I have any being. I will lisp His praises when I can do no more. When my being seems to be dried up, in the weakness of the death-throe, still, "I will sing praises unto my God while I have any being."
 
 Put not your trust in princes, nor in the son of man, in whom there is no help. What is the connection, here, between praising God and not trusting man? Why, this connection, that we never praise God better than by exercising faith in Him! Quiet trust is among the sweetest music that reaches the heart of God and when we put our trust in man, we rob God of His Glory&mdash;we are giving to others the confidence which belongs, alone, to Him.
 
@@ -98,17 +98,17 @@ His breath goes forth, he returns to his earth; in that very day his thoughts pe
 
 him?
 
-Happy is he that has the God of Jacob for his help, whose hope is in the LORD his God. He is the happy man who has learned to trust in the invisible God.
+Happy is he that has the God of Jacob for his help, whose hope is in the Lord his God. He is the happy man who has learned to trust in the invisible God.
 
 Which made Heaven, and earth, the sea, and all that therein is: which keeps the Truth of God forever. Never did His promise fail. Perhaps, dear Brothers and Sisters, you have not pleaded the promises enough of late. Then the Mercy Seat is the place where promises must be pleaded, with the certainty that then they shall be fulfilled.
 
-Which executes judgment for the oppressed: which gives food to the hungry. The LORD looses the prisoners. Souls that are in bondage will never get freedom till the Lord looses them! Oh, that prisoners of hope, who are here, this evening, might have Grace to look to God! You cannot pick the lock of your prison, yourself, nor forge your way through the iron bars of despair, but, "the Lord looses the prisoners." Yes, but when they get loose, they are blind, for man, by nature, is blinded by sin! Therefore the Psalmist adds&mdash;
+Which executes judgment for the oppressed: which gives food to the hungry. The Lord looses the prisoners. Souls that are in bondage will never get freedom till the Lord looses them! Oh, that prisoners of hope, who are here, this evening, might have Grace to look to God! You cannot pick the lock of your prison, yourself, nor forge your way through the iron bars of despair, but, "the Lord looses the prisoners." Yes, but when they get loose, they are blind, for man, by nature, is blinded by sin! Therefore the Psalmist adds&mdash;
 
-The LORD opens the eyes of the blind. He will not only give you liberty, but understanding, insight into His Word, a knowledge of Himself! Yes, but when men get their eyes opened, they see much to make them sorry and He that increases knowledge often increases sorrow! Yes, but look at the next words&mdash;
+The Lord opens the eyes of the blind. He will not only give you liberty, but understanding, insight into His Word, a knowledge of Himself! Yes, but when men get their eyes opened, they see much to make them sorry and He that increases knowledge often increases sorrow! Yes, but look at the next words&mdash;
 
-The LORD raises them that are bowed down. He can take away depression of spirit and relieve the heart of its burdens and, as the woman who was bowed down for many years, was made straight by the word of Christ, so can those that suffer from mental infirmity be restored. And best of all&mdash;
+The Lord raises them that are bowed down. He can take away depression of spirit and relieve the heart of its burdens and, as the woman who was bowed down for many years, was made straight by the word of Christ, so can those that suffer from mental infirmity be restored. And best of all&mdash;
 
-The LORD loves the righteous. He loves them and His love is wealth and health. The love of God is all a creature needs.
+The Lord loves the righteous. He loves them and His love is wealth and health. The love of God is all a creature needs.
 
 The Lord preserves the strangers. When our eyes are opened and we are no more bowed down, but feel we have a sense of God's love, yet we still know that we are exiles, banished ones, strangers and foreigners, as all our fathers were. It is comforting, therefore, to be assured that, "the Lord preserves the strangers."
 
@@ -116,7 +116,7 @@ He relieves the fatherless and widow. He does so literally&mdash;"A Father of th
 
 But the way of the wicked He turns upside down. Where they looked for joy, they experienced disappointment. Where they expected success, they met with defeat, and whereas they thought to heap to themselves pleasures according to their lusts, they find that they have only increased their misery.
 
-The LORD shall reign forever, even your God, O Zion, unto all generations. Praise you the LORD. The Sovereignty of God should be the delight of His people. God anywhere is blessed, but God on His Throne should make His people shout their Hallelujahs with all their heart. Now let us read in the New Testament about one who glorified God and gave thanks to Jesus.
+The Lord shall reign forever, even your God, O Zion, unto all generations. Praise you the Lord. The Sovereignty of God should be the delight of His people. God anywhere is blessed, but God on His Throne should make His people shout their Hallelujahs with all their heart. Now let us read in the New Testament about one who glorified God and gave thanks to Jesus.
 
 Luke 17: 11, 12. And it came to pass, as He went to Jerusalem, that He passed through the midst of Samaria and Galilee. And as He entered into a certain village, there met Him ten men that were lepers, which stood afar off: Lepers were allowed to enter villages, but not to go into the large walled towns. They were, however, commanded to stand at a certain distance from other people&mdash;and these men did so. This must have been a terrible sight! Ten men afflicted with such a horrible disease, all in one group! It shows how prevalent, at that time, was this disease, now happily so rare, at least among us&mdash;"Ten men that were lepers." It seemed as if the effect of sin in men became more conspicuous in the day when the Great Healer of men was here in Person. Then Satan's chain was lengthened that he might have greater power over the bodies of men, that his Master might subdue him and that Christ Jesus the Lord might have the greater victory over the Prince of Darkness.
 

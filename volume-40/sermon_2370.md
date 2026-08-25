@@ -82,7 +82,7 @@ O my dear Hearers, I stand here and try to talk to you in my feeble way about th
 
 HYMNS FROM "OUR OWN HYMN BOOK"-116 (SONG II), 248, 731.
 
-EXPOSITION BY C. H. SPURGEON: Galatians 2:16-21; 3.
+Exposition by C. H. Spurgeon: Galatians 2:16-21; 3.
 
 Galatians 2:16. Knowing that a man is not justified by the work of the Law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the Law: for by the works of the Law shall no flesh be justified. This is the primary Truth of God to be proclaimed by the Christian ministry. It is the foundation stone of all Gospel preaching and yet, somehow or other, such is the hardness of the human heart, that it is the most difficult thing to induce our hearers to build on this foundation. Many of them are always trying to lean upon their own works and so struggling to get back under the old legal dispensation, instead of rejoicing in the lib-
 

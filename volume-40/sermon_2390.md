@@ -106,7 +106,7 @@ It was all right and I drew much comfort and joy out of this fact when I was thi
 
 I have talked thus to you about Christ's dead body. Oh, that I had an opportunity of speaking to you about Him as the living Lord! But as I cannot, for our time is gone, I would ask you to just stoop down and, in faith and love, kiss those wounds, admire that pierced hand, that other hand, that nailed foot, that other foot, that side with the spear gash, that dear face with closed eyes and then say, "He bore all this for me&mdash;what have I done for Him? "God bless you! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Mark15:34-47; John19:38-42; 1 Corinthians 15:1-9.
+Exposition by C. H. Spurgeon: Mark15:34-47; John19:38-42; 1 Corinthians 15:1-9.
 
 Concerning the death of our Lord Jesus Christ, we shall read in three portions of the New Testament. First, in the Gospel according to Mark, the fifteenth chapter, beginning at the thirty-fourth verse.
 
