@@ -76,7 +76,7 @@ O Beloved Friends, go in thought to Calvary, and with joyful hearts trust in the
 
 HYMNS FROM "OUR OWN HYMN BOOK&mdash;307, 430, 406.
 
-EXPOSITION BY C. H. SPURGEON: COLOSSIANS 2:6-23; 3:1-3.
+Exposition by C. H. Spurgeon: Colossians 2:6-23; 3:1-3.
 
 Colossians 2:6. As you have therefore received Christ Jesus the Lord, so walk you in Him. That is, keep on as you began. Christ was enough for you when, as poor, guilty sinners, you came and trusted Him, so keep on trusting Him in the same way as you did at the first. Do not try to live by feeling, after having lived by faith. Do not begin to live upon outward forms and ceremonies after having found salvation by Grace through faith. "As you have therefore received Christ Jesus the Lord, so walk you in Him."
 

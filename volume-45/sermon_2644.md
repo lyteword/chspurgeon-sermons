@@ -2,7 +2,7 @@
 
 "And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost" Luke 23:46.
 
-"Into Your hands I commit my spirit: You have redeemed me, O LORD God of Truth."
+"Into Your hands I commit my spirit: You have redeemed me, O Lord God of Truth."
 
 Psalm 31:5.
 
@@ -96,7 +96,7 @@ Sobriety itself would make us choose to die! Well, then, do not let us run back 
 
 But, what if you are not Believers? Ah, that is another matter altogether! If you have not believed in Christ, you may well be afraid even to rest on the seat where you are sitting! I wonder that the earth itself does not say, "O God, I will not hold this wretched sinner up any longer! Let me open my mouth and swallow him!" All nature must hate the man who hates God! Surely, all things must loathe to minister to the life of a man who does not live unto God. Oh that you would seek the Lord and trust Christ and find eternal life! If you have done so, do not be afraid to go forth to live, or to die, just as God pleases.
 
-EXPOSITION BY C. H. SPURGEON: JOHN151-8.
+Exposition by C. H. Spurgeon: John151-8.
 
 Verse 1. I am the true vine. Now we know where to find the true Church. It is to be found only in Christ and in those who are joined to Him in mystical but real union. "I am the true vine."
 

@@ -96,7 +96,7 @@ I finish up by saying that those who do this shall find rest unto their souls. S
 
 "I am afraid to come," says one. Well come all trembling and fearing&mdash;only come. "But I am afraid I shall be cast out if I come." Oh, but you must not indulge that fear, for He has said, "He that comes to Me I will in no wise cast out." "But suppose I should not happen to be one of the right sort?" Come all the same, whether you are or not, for Christ will not cast you out if you do but come to Him! When a man is very hungry, if he takes bread that is not his own and eats it, no one will ever take it away from him, for he has it too securely. So, if you come and take the Lord Jesus Christ into your very soul, there is no one who can take Him away from you! "Oh, taste and see that the Lord is good!" And he that really feeds upon Him has so received Him that he shall never lose Him. Oh, that all who are strangers to Him might do so even now. The Lord bless you all, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 7:53; 8:1-11.
+Exposition by C. H. Spurgeon: John 7:53; 8:1-11.
 
 John 7:53; John 8:1: And every man went unto his own house. Jesus went unto the Mount of Olives. That is, as every man went to his own house to rest, so Jesus found rest in secret prayer on the Mount of Olives. There is a very striking contrast here. It is a pity to have brought the dividing saw right through the middle of such charming consecutive sentences.
 

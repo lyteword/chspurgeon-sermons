@@ -58,7 +58,7 @@ And why is this? Because we are always being taught of the Father! I trusted Chr
 
 Everyone who is taught of the Father, in proportion as he is so taught, comes nearer and nearer to Christ until he comes perfectly to Christ in the Glory yet to be revealed. O blessed Master, we are still coming to You. We are, everyday, coming nearer to You. Your Spirit is making us more like You and making us long more for You! Your Father is creating in us more and more of a hungering and thirsting after You. Though we are very lame and do sadly limp, yet still we are coming to You. We can only feebly fly, yet still we are flying towards You and we expect that when You shall appear, and sit upon the Great White Throne, You will recognize that we are coming to You and You, Yourself will say to us, "Come, you blessed of My Father, inherit the kingdom prepared for you from the foundation of the world." We are coming, Lord, to You! Come to us! Yes, come quickly, even so, come, Lord Jesus! Amen and Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN6:25-51.
+Exposition by C. H. Spurgeon: John6:25-51.
 
 These people had crossed the Sea of Galilee and gone to Capernaum, "seeking for Jesus." It seemed a very hopeful sign that they should be willing to make such efforts to find Christ, but see how the Lord Jesus, Himself, regarded it.
 

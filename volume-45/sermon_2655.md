@@ -30,7 +30,7 @@ I will only mention one more class of those who "have refused to return." It is 
 
 So, you see, dear Friends, that there are many, many persons who "have refused to return" to God. And in telling you about them, I have answered my first question.
 
-' II. Here is a second one. WHAT DOES THIS REFUSAL TO RETURN TO GOD UNVEIL?
+' II. Here is a second one. WHAT DOES THIS REFUSAL TO RETURN TO God UNVEIL?
 
 Well, I think that it shows, first, that there is, in the heart of such a person, an intense love of sin. The man not only sins, but he loves to sin and, therefore, he will not return to the Lord. The paths of sin are pleasant to him so, if you cry to him, "Return, return, return," he heeds you not because he loves both the way and the wages of iniquity.
 
@@ -76,7 +76,7 @@ Others cry, "Let us eat and drink, for tomorrow we die." What? Are you no better
 
 God bless you, dear Friend! Believe in Jesus and you live at once! Believe in Him this moment and this moment you are saved! Trust Christ now, as soon as this word reaches your ears, and your sin is forgiven, you are justified and accepted and you may go your way, a sinner saved&mdash;saved to all eternity! God give you that blessed privilege, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS2.
+Exposition by C. H. Spurgeon: Hebrews2.
 
 Verse 1. Therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let them slip. I t is well to give heed to what you are now hearing, but it is also important to give heed to what you have heard. Oh, how much have we heard, but have forgotten! How much have we heard which we still remember, but do not practice! Let us, therefore, listen to the words of the Apostle here&mdash;"We ought to give the more earnest heed to the things which we have heard, lest at any time we should let them slip"&mdash;as it were, slipping through our fingers and flowing down the stream of time to be carried away into the ocean of oblivion!
 
@@ -116,4 +116,4 @@ That through death He might destroy him that had the power of death, that is, th
 
 15-18. And deliver them who through fear of death were all their lifetime subject to bondage. For verily He took not on Him the nature of angels; but He took on Him the seed of Abraham. Therefore in all things it behooved Him to be made like unto His brethren, that He might be a merciful and faithful High Priest in things pertaining to God, to make reconciliation for the sins of the people. For in that He Himself has suffered, being tempted, He is able to succor them that are tempted. Glory be to His holy name forever and ever! Amen.
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.

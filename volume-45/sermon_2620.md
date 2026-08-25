@@ -66,7 +66,7 @@ And to you who, alas, have fallen into sin after having made a profession of rel
 
 May the blessed Trinity save and keep us all, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE22:7-34; 54-62.
+Exposition by C. H. Spurgeon: Luke22:7-34; 54-62.
 
 Verses 7-20. Then came the Day of Unleavened Bread, when the Passover must be killed. And He sent Peter and John, saying, Go and prepare us the Passover, that we may eat And they said unto Him, Where will You that we prepare? And He said unto them, Behold, when you are entered into the city, there shall a man meet you, bearing a pitcher of water; follow him into the house where he enters. And you shall say unto the good man of the house, The Master says unto you, Where is the guest chamber, where I shall eat the Passover with My disciples? And he shall show you a large upper room furnished: there make ready. And they went and found as He had said unto them: and they made ready the Passover And when the hour was come, He sat down, and the twelve Apostles with Him. And He said unto them. With desire I have desired to eat this Passover with you before I suffer: for I say unto you, I will not any more eat thereof until it is fulfilled in the Kingdom of God. And He took the cup, and gave thanks, and said, Take this, and divide it among yourselves: for I say unto you, I will not drink of the fruit of the wine, until the Kingdom of God shall come. And He took bread, and gave thanks, and broke it, and gave unto them, saying, This is My body which is given for you: this do in remembrance of Me. Likewise also the cup after supper, saying, This cup is the new testament&mdash;(Or, Covenant).
 

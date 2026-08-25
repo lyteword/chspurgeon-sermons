@@ -14,7 +14,7 @@ Now, there, or somewhere about there&mdash;I do not quite know where&mdash;there
 
 Now coming to the text, let us consider, first, what Jesus would do. Secondly, how He would do it And thirdly, when He would do it
 
-First, WHAT JESUS WOULD DO. "How often would I have gathered your children together, even as a hen gathers her chickens under her wings!"
+First, WHAT Jesus WOULD DO. "How often would I have gathered your children together, even as a hen gathers her chickens under her wings!"
 
 What does this mean? It is a very simple, homely, beautiful, touching simile&mdash;the hen gathering her chickens under her wings. And it means, first, that Jesus would make you feel quite safe. Look, there is the shadow of a hawk! The bird of prey is poised up yonder and the shadow is seen upon the ground. Or the mother hen, looking up, notices the destroyer and, in a moment, she gives a cluck of alarm and so calls together her little family. And in a few seconds they are all safe beneath her sheltering feathers&mdash;her wings become their efficient shield. Now, our Lord Jesus Christ would do just that with us. He would make us quite safe&mdash;take us out of the broad road of danger and then compass us about with the wings of His power so that we might not only be safe, but also feel quite safe.
 
@@ -96,7 +96,7 @@ O poor, guilty Sinner, do not doubt your welcome to Jesus! The gate of salvation
 
 "Ring the bells of Heaven!" There is joy tonight, for a sinner has found his Savior and God has found His child! God bless you, dear Friends, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 13:18-34.
+Exposition by C. H. Spurgeon: Luke 13:18-34.
 
 Verse 18. Then said He, Unto what is the kingdom of God like? And unto what shall I resemble it? For men learn much by resemblances and the things which are seen are frequently helpful to us in seeking to set forth the things which are not seen. Knowing that God is One in all that He has done, we are often able to learn from one part of His works to understand another. What, then, is God's Kingdom like? Is it like a mighty army marching with banners and trumpets? No. Is it like the raging sea, rolling onwards and sweeping everything before it? Not so&mdash;at least it is not so visibly.
 

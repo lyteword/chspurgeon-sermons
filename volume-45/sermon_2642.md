@@ -52,7 +52,7 @@ Did you ever follow a poor simple convert as soon as he knows the Lord? He runs 
 
 Oh, that moment! Surely, Heaven itself is not happier! All the difference between that moment and Heaven is that Heaven is a great piece of tapestry and this is one of the threads. "The sun was risen upon the earth when Lot entered into Zoar," so the Light of God's Countenance rises upon poor sinners when they come to Jesus!
 
-Now, thirdly, we have to consider a sadder fact. GOD CAN DO TWO THINGS AT a TIME.
+Now, thirdly, we have to consider a sadder fact. God CAN DO TWO THINGS AT a TIME.
 
 With His right hand, He wheeled the sun up the steeps of Heaven and bade it shine upon Lot. And with the other He opened the batteries of Heaven that they might rain their fire and brimstone upon Sodom. Let us remember that God's two hands are always at work in that way&mdash;from the very beginning, that is always what He has done. With one hand, He shut Noah in the ark and with the other He sent forth the floods of the everlasting cisterns and let the fountains of the great deep burst upon the earth. With one hand he smote the Red Sea and bade Israel walk through it dry-shod and with the other He cast the waters down into their place and drowned Pharaoh and all his hosts. And now look at Him&mdash;with one hand He lights the sun&mdash;and with the other hand He darkens Sodom with the smoke of the devouring flames! Ah, Friends, remember that this is what shall be done all the story through!
 
@@ -74,7 +74,7 @@ And what is He doing with His left hand? No, pardon me, excuse me from the task 
 
 The sun had risen upon Zoar and the fire was falling upon Sodom. Ah, Sinner, will it not be an awful thing to see the contrast between you and the righteous? If you perish in your ungodly state, it will make your Hell more awful when you behold, afar off, the righteous exalted in Heaven! Nothing makes the famished man more hungry than to see others feasting when he has nothing! O young man, what will it be to see your mother there in Heaven and you cast out? O young woman, will you see your companion glorified with Jesus and you cast away with devils? O husband, will you find yourself crying, with Dives, for a drop of water, while your wife is in the Presence of Jesus? Ah, son, will you see your parents glorified and you, yourself, cast out? Set the two in contrast&mdash;look on this picture and on that! God give you Grace to bow the knee and "kiss the Son." And if He has taught you your need of a Savior, may He give you Grace to accept the hearty invitation I would tender you in His name, "Come, and welcome, Sinner, come!"
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW24:42-51; MATTHEW 25:1-13.
+Exposition by C. H. Spurgeon: Matthew24:42-51; Matthew 25:1-13.
 
 Matthew 24:42. Watch therefore: for you know not what hour your Lord does come. That He will come is certain. That His coming may be at any moment is equally sure and, therefore, we ought to always be ready for His appearing. The Lord make us to be so!
 

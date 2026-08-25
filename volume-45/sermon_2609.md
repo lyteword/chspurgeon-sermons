@@ -10,7 +10,7 @@ Oh, dear Friends, could we ever go to any place where God is not to be found, th
 
 I am going to try to speak, as God shall help me, first, upon God's thoughts of us. "How precious also are Your thoughts unto me, O God! How great is the sum of them!" Then, secondly, I want to say a little upon our thoughts about God's thoughts. His thoughts become precious to us as we think about them. Then, thirdly, I wish to speak at somewhat greater length concerning our thoughts upon God Himself. "When I awake, I am still with You."
 
-First, then, let us meditate for a little while upon GOD's THOUGHTS OF US.
+First, then, let us meditate for a little while upon God's THOUGHTS OF US.
 
 That the infinite Jehovah thinks of us is absolutely certain. He thinks about all the inhabitants of the whole world. There is a general Providence which has a superintendence over all that happens in all parts of the earth. I know that the notion of some men is that the world is like a watch and that God has done with it as we do with our watches&mdash;that is, wound it up, put it under His pillow and gone to sleep. But it is not so, for in this great world-watch&mdash;to keep up the figure&mdash;God is present with every wheel and every cog of every wheel&mdash;there is no action in it apart from His present putting forth of power to make it move. There is nothing that happens merely as the result of, "law," as some people seem to dream, for a law is nothing without a forceat the back of it! When we speak of certain things as being governed by law, we simply mean that as far as we have discerned, that is the general way in which this particular thing moves, or is acted upon, or acts upon some other thing. But, then, where is the force that enables it to act so, or that makes it to be so acted upon? "That is gravitation," says one. Yes, that is your name for that force, but it is really God who is everywhere at work! Though the law of gravitation may be said to be abiding, yet the force of gravity is but the force which proceeds from God. It is God still putting forth His power and operating after His own manner upon material substances.
 
@@ -34,7 +34,7 @@ And God's thoughts, too, are very practical. He does not think of us and let it 
 
 He has thought of us since we have come to manhood. Yes, and in the case of many of us, He has thought of our children and of our children's children, too. And He is still thinking of us and He will continue to do so when our last thoughts die out in insensibility. Remember His ancient promise to His people&mdash;"Even to hoar hairs will I carry you: I have made, and I will bear; even I will carry and will deliver you." And we shall find it to be so! And each Believer may say, with David, "Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord forever." These, then, are God's thoughts concerning us&mdash;constant, kind, wise, tender, gracious, perfect, Divine&mdash;like He in whose infinite mind they are found!
 
-Now let us meditate for just a few minutes upon OUR THOUGHTS ABOUT GOD's THOUGHTS.
+Now let us meditate for just a few minutes upon OUR THOUGHTS ABOUT God's THOUGHTS.
 
 What do you say, my Heart, to this wondrous Truth of God&mdash;that the Lord thinks upon you? I have been ready to say what would be a very fair translation of the Hebrew&mdash;"how rare are Your thoughts!" You know that the word, "rare," was used in a different sense in olden times from what it is now. In Westminster Abbey there is s stone with these words upon it, "O rare Ben Jonson!"&mdash;meaning strange, special, peculiar, marked. So the thoughts of God are rare thoughts, the like of which cannot be found anywhere else! The thoughts of angels, or the thoughts of perfect spirits above must be something very wonderful, but, oh, the thoughts of God! If I were told that some bright angel was sent to think of me all day and all night long, that he was my Master's servant to watch over me, I would feel pleasure in the thought, yet that would be a poor, poor thing compared with the fact that God thinks upon us and watches over us! The Lord told Moses that His angel would go before the people through the wilderness, but you may have noticed how Moses pleaded against such a decision&mdash;"If Your Presence go not with me, carry us not up hence." We do not need angelic presence one hundredth as much as we need the Divine Presence! Here, then, in God's thoughts concerning us, is something rare and wonderful, indeed! And this is our thought about it, that there is no other thought that can, for a moment, be compared with it!
 
@@ -56,7 +56,7 @@ Sweet pleasures mingle with the pains,
 
 While His left hand my head sustains." His Presence is all that our heart requires. Indeed, Beloved, when we really drink in the thoughts of God towards us, our spirit is filled with all that it needs and is borne onward as with a mighty rush&mdash;a full tide of Grace&mdash;up to the Throne of Heaven!
 
-Now I come to the last part of my discourse, OUR THOUGHTS UPON GOD HIMSELF. David says, here, "When I awake, I am still with You."
+Now I come to the last part of my discourse, OUR THOUGHTS UPON God HIMSELF. David says, here, "When I awake, I am still with You."
 
 I want you to notice, first, that he seems to imply that our thoughts bring us near to God. Thinking of Him, we realize that we are in His immediate Presence. I cannot describe the feeling of a spirit consciously present with God, but, though I cannot describe it, I am sure that many of you know what it is, and I am equally sure that I, also, know what it is. There have been times with us when we did not actually walk by sight but, still, we had a very joyful experience of God's Presence with us. We not only believed in God's existence, but our spirits seemed enveloped in and encompassed with His Spirit and appeared to be, as it were, set on fire, as when the bush in the desert was all aglow with the indwelling God. It is not always so with us, but we have had times of extremely conscious nearness to God. After prayer, as we rose from our knees and looked at the clock, we perceived that a full half-hour had gone, whereas we thought that it was only a minute or two that we had been at our devotions. In our chamber, alone, as we have read the Word, the sacred page has seemed to glow with unusual brilliance. We do not remember noticing such glory in those words, before, but God has spoken to us through the Word and that has made the difference.
 
@@ -84,9 +84,9 @@ Then, when my body wastes from its long sleep in the tomb, every rising bone of 
 
 I wish that all of you knew this blessed experience of which I have been speaking. Some of you do not. You are afraid of God. You are afraid of His seeing you. You are afraid to go to Him. See, then, here is Jesus Christ who took upon Him our nature though He is God! Go to Him, trust Him, believe in Him&mdash;then He will make you to be a child of God and you will not be afraid of your Father. God bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM139.
+Exposition by C. H. Spurgeon: Psalm139.
 
-May the all-seeing God, of whom this Psalm speaks, look down upon us and bless us richly while we read it! Verse 1. O LORD You have searched me, and known me.' 'Known me perfectly, far better than I know myself. You have made an inquisition and investigated every secret thing concerning me. 'You have searched me, and known me.'"
+May the all-seeing God, of whom this Psalm speaks, look down upon us and bless us richly while we read it! Verse 1. O Lord You have searched me, and known me.' 'Known me perfectly, far better than I know myself. You have made an inquisition and investigated every secret thing concerning me. 'You have searched me, and known me.'"
 
 You know my sitting down and my rising up, You understand my thoughts afar off' 'Before I think it, while as yet it is not actually my thought, while it is still unformed and far away, You understand it. You not only know what it is, but You understand it&mdash;the motive from which it springs, the state of mind out of which it arises, and whereunto it tends&mdash;'You understand my thought afar off"
 
@@ -96,7 +96,7 @@ You compass my path. "You are all round me&mdash;behind, before, above, beneath"
 
 And are acquainted with all my ways.' 'I cannot tell you anything which You do not know; nor can I hide anything from You. Whatever I have done, or am doing, or shall do, 'You are acquainted with all my ways.'"
 
-For there is not a wordin my tongue, but, lo, O LORD, You know it altogether&mdash;
+For there is not a wordin my tongue, but, lo, O Lord, You know it altogether&mdash;
 
 > He knows the words I mean to speak,   
 > Ere from my opening lips they break.   
@@ -152,6 +152,6 @@ Which in continuance were fashioned, when as yet there was none of them. God map
 
 Depart from me, therefore, you bloody men.''Get away, lest, when He comes to kill you, I should have to see you die."
 
-20-22. For they speak against You wickedly, and Your enemies take Your name in vain. Do not I hate them, O LORD, that hate You? And am not I grieved with those that rise up against You? I hate them with perfect hatred: I count them my enemies. We are to love our own enemies, but we are not to love God's enemies! We are to forgive our personal enemies, but we cannot forgive God's enemies! That man loves not the Truth of God who does not hate a lie and he loves not the right who has no anger against wrong. We are living in an age in which we are practically told that truth and error are the same, that the devil's lie and the Divine Revelation may lie down together! If we will not endorse this lie, men call us bigoted or dogmatic. Bless the Lord, we mean to be a great deal more dogmatic than we have been, and to stick even closer to the Truth of God than we have up to now done, if that is possible!
+20-22. For they speak against You wickedly, and Your enemies take Your name in vain. Do not I hate them, O Lord, that hate You? And am not I grieved with those that rise up against You? I hate them with perfect hatred: I count them my enemies. We are to love our own enemies, but we are not to love God's enemies! We are to forgive our personal enemies, but we cannot forgive God's enemies! That man loves not the Truth of God who does not hate a lie and he loves not the right who has no anger against wrong. We are living in an age in which we are practically told that truth and error are the same, that the devil's lie and the Divine Revelation may lie down together! If we will not endorse this lie, men call us bigoted or dogmatic. Bless the Lord, we mean to be a great deal more dogmatic than we have been, and to stick even closer to the Truth of God than we have up to now done, if that is possible!
 
 23, 24. Search me, O God, and know my heart: try me, and know my thoughts: and see if there is any wicked way in me, and lead me in Your way everlasting. That is a blessed prayer! May God hear it in the case of each one of us, for His dear Son's sake! Amen.

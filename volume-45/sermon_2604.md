@@ -40,7 +40,7 @@ I always wished that he had been a Baptist&mdash;that would have been just the f
 
 That, then, was the first part of David's action&mdash;singing unto Jehovah with whole-hearted praise.
 
-The second thing that David did was to WORSHIP BY THE DESPISED RULE. Even in the presence of those who set up their idol gods, and their false systems, he declared to Jehovah, "I will worship toward Your holy Temple."
+The second thing that David did was to WORSHIP by THE DESPISED RULE. Even in the presence of those who set up their idol gods, and their false systems, he declared to Jehovah, "I will worship toward Your holy Temple."
 
 Some said, "Worship this way." Others said, "Worship that way." In the present day some say that the Old Testament is not Inspired, that there is much that is very doubtful in the five Books of Moses. Some are going to worship in one way, some in another way of their own inventing. But if we are of David's mind, we shall say to the Lord, "I will worship toward Your holy Temple." Let every other man have his own way of worshipping if he will, but, Brothers and Sisters, as for me, I say to the Lord, with David, "I will worship toward Your holy Temple."
 
@@ -72,7 +72,7 @@ We believe in plenary verbal Inspiration, with all its difficulties, for there a
 
 This is what David said he would do, and I recommend all tried saints to do the same.
 
-Now, fourthly, there was another thing which David meant to do and that was to REVERENCE GOD's
+Now, fourthly, there was another thing which David meant to do and that was to REVERENCE God's
 
 WORD TO THE HIGHEST DEGREE. He puts it thus. "You have magnified Your Word above all Your name." My text is such a great one that I need half-a-dozen nights to discuss it, so I can only give you hints of what I would say if I had the time.
 
@@ -84,13 +84,13 @@ Think again&mdash;God's Word is more lasting than His other works. The Revelatio
 
 Does not God magnify His Word in your hearts, dear Friends? You have sometimes been in the fields on the Sabbath and a sweet sense of rest has stolen over you. In the time of harvest, or on a bright morning when the sun has risen, you have been overwhelmed with a sense of the Glory of God. But, still, that sweet feeling never comes to the heart so as to affect its secret springs like a passage out of Scripture! A promise from God will cast more light into your soul than all the beauties of sea and land! I do not for a moment depreciate the wondrous Glory of God in all His works, but, still, I do say God is seen better in His Word than in all His works besides&mdash;and He has magnified His Word above all His name! They say that we ought to alter Scripture because scientists have found out something or other. Yes, I know all about that kind of talk! Scientists found out many things years ago and within 10 years somebody else rose up and found out that they were all wrong! The history of so-called philosophy is the history of fools! And the philosophers of this day are no more right than those of 50 years ago. The men are coming to the front who will confute the positive assertions of the present and, when they have made their own assertions, and made their bow, another set of wise men will be coming after them to confound them! They are all as the grass that withers, but, "the Word of the Lord endures forever." It has been tried in the furnace of earth, purified seven times and here it remains&mdash; still the pure refined metal&mdash;and in this will we glory and not be ashamed!
 
-Lastly, David was going to PROVE ALL BY HIS OWN EXPERIENCE. A bit of experience is the best thing with which to close up my discourse. "In the day when I cried, You answered me, and strengthened me with strength in my soul."
+Lastly, David was going to PROVE ALL by HIS OWN EXPERIENCE. A bit of experience is the best thing with which to close up my discourse. "In the day when I cried, You answered me, and strengthened me with strength in my soul."
 
 Ah, Brothers and Sisters, men say that facts are stubborn things, and so they are. And when a man once gets a fact with regard to the religion of Jesus Christ, he becomes a stubborn man. The man who is in the habit of praying to God and who is in the habit of having answers to his prayers&mdash;the man who lives a life of prayer and consequently who is enriched by innumerable mercies, says to those who deny the efficacy of prayer&mdash;"You may say what you like, but you cannot trouble us about this matter, because I am daily testing and daily proving in my own experience what prayer can accomplish." "Well," they say, "you did not get out of the trouble. You prayed, but you did not escape from it." That is quite true, I did not. But God strengthened me with strength in my soul and it is a grand thing when the mind becomes calm, when the soul grows strong, when courage increases, when confidence comes, when deep peace and quiet restfulness flow into the soul! All that is a blessed answer to prayer and as long as God gives us that, we cannot desert His standard, or deny His faithfulness and His Truth! Let those who will, go and leave the snows of Lebanon, and the pure flowing river of God for the broken cisterns that can hold no water, or for the muddy waters of Egypt&mdash;but we cannot, we dare not, we will not! God helping us, we will stand fast in our belief in the power of prayer! We have tried it, we have proved it and we are not to be shaken from our confidence in its efficacy!
 
 The Lord give to everyone of you who do not, at present know it, to prove it yourselves, to try it to your heart's joy and satisfaction&mdash;and you, also, shall stand fast in your confidence in Him even to the end! The Lord bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM138.
+Exposition by C. H. Spurgeon: Psalm138.
 
 Verse 1. I will praise You with my whole heart before the gods wiil I sing praise unto You. ' 'Gods or no gods, whatever they may be, 'I will praise You with my whole heart.' I will not be ashamed to declare my confidence in Jehovah, whoever may listen to me."
 
@@ -106,6 +106,6 @@ Yes, they shall sing in the ways of the Lord: for great is the Glory of the Lord
 
 You shall stretch forth Your hand against the wrath of my enemies, and Your right hand shall save me. He expected, first, to be revived, and afterwards to be protected. He believed that God would stretch out His hand, as men do when they make a supreme effort, and put forth all their force&mdash;"You shall stretch forth Your hand against the wrath of my enemies." David also expected ultimate preservation&mdash;"'Your right hand shall save me.' You will do it dexterously, readily, gladly, will You do it. 'Your right hand shall save me.'"
 
-The LORD will perfect that which concerns me. "All that has to do with me&mdash;my business, my family, my work, my temporal and my eternal interests&mdash;'that which concerns me,' and that which troubles me, moves my heart with the deepest concern, Jehovah will perfect."
+The Lord will perfect that which concerns me. "All that has to do with me&mdash;my business, my family, my work, my temporal and my eternal interests&mdash;'that which concerns me,' and that which troubles me, moves my heart with the deepest concern, Jehovah will perfect."
 
-Your mercy, O LORD, endures forever: forsake not the works of Your own hands. And He will not do it! He will carry on unto completion the work which He has begun, blessed be His holy name!
+Your mercy, O Lord, endures forever: forsake not the works of Your own hands. And He will not do it! He will carry on unto completion the work which He has begun, blessed be His holy name!

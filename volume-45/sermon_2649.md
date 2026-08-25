@@ -92,7 +92,7 @@ I know that I have spoken all of this for nothing, so far as some of you are con
 
 HYMNS FROM "OUR OWN HYMN BOOK"&mdash;660, 632, 659.
 
-EXPOSITION BY C. H. SPURGEON: 1 PETER 1:13-20.
+Exposition by C. H. Spurgeon: 1 Peter 1:13-20.
 
 Verse 13. Therefore gird up the loins of your mind, be sober, and hope to the end for the Grace that is to be brought unto you at the revelation of Jesus Christ This is Peter's practical application of the great Truths of which he had been writing. "Look ahead and expect great things. Live in the future. Project your thoughts beyond the centuries that are passing away into the ages which will never die."
 

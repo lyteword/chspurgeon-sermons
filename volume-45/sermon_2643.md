@@ -8,7 +8,7 @@ There were some men, in Solomon's day, who, for divers reasons, became servants 
 
 I am sorry that they are not always true in that sense, now, but I am going to leave that literalmeaning of the words and apply the text to those who wait upon the Lord Jesus, having made Him to be their Master, for, most certainly, as surely as he who keeps the fig tree shall eat the fruit thereof, even much more certainly shall those who wait upon our great Master in Heaven find a sweet return from their service, for they shall be honored by Him. Very simple will my talk be and you, Beloved, who are His servants, do not need anything else, I am sure.
 
-The first observation is that OUR LORD JESUS CHRIST IS OUR MASTER.
+The first observation is that OUR Lord Jesus Christ IS OUR MASTER.
 
 He said to His disciples, after He had washed their feet, "You call Me Master and Lord: and you say well; for so I am." Is it so with you, dear Friends? Let conscience answer the question. Is Jesus Christ really Master and Lord to each one of us? It is a wonderful way in which He masters us if we are, indeed, His servants. I can never forget how, in my own case, it came to pass that I, who had been bought with His precious blood and, therefore, belonged to Him, had yet lived forgetful of His claims. He passed by and looked on me&mdash;and that very look made me go out to weep bitterly! But He did more. He laid His hand on me&mdash;it was a pierced hand and from that day I had a twist in my understanding and my judgment! Those who knew me saw that something extraordinary had happened to me which had altogether changed me. From that time I thought very little of men, and very much of One whom, until then, I had despised! Many of my former pursuits ceased to have the slightest charm for me and I had, for my one pursuit, the desire to do everything to His honor and glory! From that twist I have never been able to escape and I have never wanted to do so&mdash;from that mystic influence which He cast over me, I have never come forth and, what is more, I trust I never shall!
 
@@ -85,7 +85,7 @@ But our highest honor is yet to come. It is in that day when Christ shall call H
 
 Oh, that you and I, dear Friends, may have that honor at the last! And what will we do when we get it? Why, we will cast our crowns at our Savior's feet and say to Him, "Not unto us, not unto us, but unto Your name be all the praise and glory forever!" And in that very deed we shall find the highest honor of all! And we shall then, perhaps, remember this Thursday evening and this text, "He that waits on his master shall be honored." The Lord bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW25:14-30.
+Exposition by C. H. Spurgeon: Matthew25:14-30.
 
 Verse 14. For the kingdom of Heaven is as a man traveling into a far country, who called his servants and delivered unto them his goods. This parable has to do with you who are professors of Christianity. He, "called his servants," those who, by their own consent, were numbered among his household servitors. "He called his servants and delivered unto them his goods." Not theirs, but his! And therefore to be used forhim. If you are Christ's servant, your abilities are His, He has lent them to you to be employed for your Lord. "He called his servants and delivered unto them his goods."
 
