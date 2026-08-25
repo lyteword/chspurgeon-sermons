@@ -4,9 +4,9 @@
 
 
 
-My first observation upon this passage is that THE GREATEST BELIEVERS ARE SOMETIMES SUBJECT TO FAINTING FITS.
+My first observation upon this passage is that the greatest believers are sometimes subject to fainting fits.
 
-The Apostle James tells us that "Elijah was a man subject to like passions as we are." And this fact was very clearly manifest on the occasion to which our text refers. Otherwise he seemed, in most things, to be superior to the ordinary run of men, a sort of iron Prophet&mdash;what if I call him THE PROPHET OF FIRE&mdash;the man whose whole life seemed to be a flash of flame&mdash;a mighty, burning, ecstatic love and zeal towards the cause of God? But Elijah had his flaws, even as the sun has its spots. Strong man though he was, he was sometimes obliged to faint, even as the sun sometimes suffers an eclipse. His fainting, too, took a form which is very common among the saints of God. He cried, "O Lord, take away my
+The Apostle James tells us that "Elijah was a man subject to like passions as we are." And this fact was very clearly manifest on the occasion to which our text refers. Otherwise he seemed, in most things, to be superior to the ordinary run of men, a sort of iron Prophet&mdash;what if I call him the prophet of fire&mdash;the man whose whole life seemed to be a flash of flame&mdash;a mighty, burning, ecstatic love and zeal towards the cause of God? But Elijah had his flaws, even as the sun has its spots. Strong man though he was, he was sometimes obliged to faint, even as the sun sometimes suffers an eclipse. His fainting, too, took a form which is very common among the saints of God. He cried, "O Lord, take away my
 
 life; for I am not better than my fathers."  a desire to depart, when it arises from wisdom and knowledge, and from a general survey of things below, is very proper. But when a wish to die is merely the result of passion, a sort of quarreling with God as a child sometimes quarrels with its parents, it has more of folly in it than of wisdom and much more of petulance than of piety! It was a remarkable thing that the man who was never to die, for whom God had ordained an infinitely better lot, the man who was to be carried to Heaven by a whirlwind in a chariot of fire drawn by horses of fire&mdash;the man who, like Enoch, was "translated that he should not see death"&mdash;should thus pray to die!
 
@@ -34,7 +34,7 @@ Moreover, these fainting fits to which God's servants are subject, are not only 
 
 I think these are good and sufficient reasons why the strongest Believers often experience the most oppressive weakness.
 
-Now let us turn to a second thought, which is this&mdash;WHEN BELIEVERS DO HAVE FAINTING FITS, THEY WILL RECEIVE EXTRAORDINARY REFRESHMENTS.
+Now let us turn to a second thought, which is this&mdash;when believers do have fainting fits, they will receive extraordinary refreshments.
 
 Elijah had often been fed in a remarkable manner. Ravens had ministered to his necessities at one time and at another time an impoverished widow had boarded him. But on this occasion he is to be fed by an angel. The best refreshments are to be provided for him at the worst season! He might well have said, "You have kept the best wine until now, when I needed it the most." The food that he ate at Cherith had to be brought to him every morning and every evening, but the food which was now given to him lasted him for 40 days and 40 nights&mdash;and though the widow's cruse did not fail, yet he needed to apply to it constantly. But in this case, one meal, or rather a double meal, was sufficient to last him during six weeks of journeying! He was supernaturally awakened. He found food convenient for him&mdash;a cake and a cruse of water all ready at his hand&mdash;he had only to rise and take it!
 
@@ -65,9 +65,9 @@ the less apt shall we be to die of despair! We shall feed upon this food as Elij
 
 Sometimes, too, we have known the blessedness of feeding upon the assurance that the cause of God will be ultimately triumphant. I remember when, like a broken, bruised and worthless thing, I seemed set aside from Christian service and from my work for God which I loved. It seemed to me as though I should never return again to preach the Word. I marveled how the work of my hands under God would fare and my spirit was overwhelmed within me. I made diligent search after comfort, but found none. My soul took counsel within herself and so increased her woes, but no light came. I shall never forget the moment when, all of a sudden, these words came to me, "Therefore God also has highly exalted Him and given Him a name which is above every name; that at the name of Jesus every knee should bow, of things in Heaven, and things in earth, and things under the earth; and that every tongue should confess that Jesus Christ
 
-is Lord, to the Glory of God the Father."  This was Mr. Spurgeon's first Sermon after the Surrey Gardens catastrophe. The full story of that memorable period is told in C. H.
+is Lord, to the Glory of God the Father."  This was Mr. Spurgeon's first Sermon after the Surrey Gardens catastrophe.
 
-Spurgeon's Autobiography, Vol. II, Chapter 1, "The Great Catastrophe at the Surrey Gardens Music Hall." At once I thought, "What matters it if I, the
+At once I thought, "What matters it if I, the
 
 soldier, fall upon the battlefield, if my great Captain is safe? Jehovah reigns! Christ is exalted!" Then I seemed to look upon my own being set aside&mdash;my shame, my reproach, my death, or anything else that might befall me&mdash;as not being worth a moment's thought because the King stood yonder and the blood-red flag waved in triumph! O God, Your Truth must conquer in the end! Your foes must flee! What if they gain some petty advantage here and there along the line? What if they do make a breach here and there in the bulwarks of our Zion? They shall fly like chaff before the wind in the day when You appear! The battle is Yours, O Lord, and You will deliver them into our hands before long! Let the ultimate triumph of the Truth of God solace you when you are discouraged because you have seemed to labor in vain and spend your strength for naught. Be of good cheer&mdash;the Conqueror who comes with dyed garments from Bozrah, is still in the midst of His Church! This cake baked on the coals has often given food to poor fainting Elijahs.
 
@@ -85,11 +85,11 @@ And how often has God given much comfort to His people when they were ready to g
 
 "Our threescore years and ten"&mdash; if the Lord pleases to spare us so long, because the crown at the end is so glorious! And that we can journey through the wilderness because the Canaan is so worthy of all that we can do or suffer that we may enter it. Beloved, a vision of Jesus Christ and a vision of Heaven will be enough to solace the most downcast among you! And where you gladly would hang your harp upon the willows, if Jesus Christ shall appear to you and His Father shall smile upon you, and His Spirit shall actively work upon your hearts, and Heaven's gate shall be opened to you&mdash;then will you snatch up your harp and wake it to the sweetest melodies in praise of Sovereign Grace! You Elijahs who are now saying, "Let me die," change your note, for there is a cake baked on the coals provided for you&mdash;so arise and eat it!
 
-Let us observe, in the third place, that WHENEVER God THUS GIVES TO HIS CHILDREN VERY
+Let us observe, in the third place, that whenever God thus gives to His children very
 
-REMarkABLE ENJOYMENTS, IT IS IN ORDER THAT THEY MAY GO ON IN THE STRENGTH OF THOSE
+remarkable enjoyments, it is in order that they may go on in the strength of those
 
-ENJOYMENTS FOR a LONG TIME.
+enjoyments for a long time.
 
 Elijah was not fed that he might get strong and then waste his strength. There are no sinecures in God's service! All His true servants are real workmen and when they have strength given to them by Him, it is not that they may show what fine fellows they are, but that they may toil on in their Master's cause. The soldier is a smart-looking fellow on parade in days of peace&mdash;and long may it be before he shall have cause to do anything more than show himself at such times&mdash;but God's soldiers are always on active service and as sure as ever the Master gives them a double round of ammunition, He means them to fire it all! If ever He gives them a new sword, it is because they will soon need it! And whenever He is pleased to furnish them with fresh armor, it is because He knows that they will require the sacred panoply. There are no superfluities in the provisions of God's Grace!
 
@@ -127,7 +127,7 @@ I stretch forth my hands unto You: my soul thirsts after You, as a thirsty land.
 
 in the gutter. By God's help, we must lift it up and the nearer the soul is lifted up to God, the more it comes into the light&mdash;and the more sure it is yet to obtain its liberty.
 
-Volume 26&mdash;AT SCHOOL] for You are my God: Your spirit is good.
+Volume 26&mdash;at school] for You are my God: Your spirit is good.
 
 "Make my spirit good!"
 
