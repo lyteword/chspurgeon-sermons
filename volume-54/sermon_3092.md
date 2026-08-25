@@ -4,9 +4,9 @@
 
 
 
-WE may, for once, dispense with a preface, and go straight to our subject. The text speaks, first, of something that we know. When we have, for a while, meditated upon that, we will speak of some things that are due because of this something that we know.
+We may, for once, dispense with a preface, and go straight to our subject. The text speaks, first, of something that we know. When we have, for a while, meditated upon that, we will speak of some things that are due because of this something that we know.
 
-First, then, I am going to talk to you about SOMETHING THAT YOU KNOW.
+First, then, I am going to talk to you about something that you know.
 
 I have heard that people like to be told, over and over again, what they already know. If you tell them what they do not know they may or may not listen to you, but if you tell them what they do know, they will be sure to be interested. If I were to speak about the town from which one of our friends from the country has come. If I were to mention something that occurred not long ago in the High Street of that town, I would be sure to have his eyes fixed upon me and his ears opened to my words. "Ah," he would say, "I know that town well. I was there Saturday afternoon." Well now, I am going to speak of something with which all Christians are so familiar that I may refer to it as something that they certainly know. Whatever else they know or do not know, I may address all of them who are here and say, "You know the Grace of our Lord Jesus Christ." Beloved Believers, you could not have been Believers in Christ it you had not known this! You could not have had faith if you had not had this knowledge&mdash;it would have been impossible for you to have been converted unless you had known Jesus Christ who has now your soul's entire confidence! It is an essential part of your very profession that you should know this and, therefore, we assume that you do. Whatever else you do not know&mdash; and I suppose there are some Doctrines that are yet too high or too deep for you to comprehend, and some experiences to which you have not yet attained, and some Graces that are as yet not consciously enjoyed by you&mdash;you do "know the Grace of our Lord Jesus Christ, that, though He was rich, yet for your sakes He became poor, that you, through His poverty, might be rich."
 
@@ -34,7 +34,7 @@ This is the finishing stroke. The Apostle says "You know the Grace of our Lord J
 
 You know His Grace, says the Apostle&mdash;His graciousness to us, His willingness to bless us, how He came, not by constraint, but entirely because of His own graciousness that He might save us. I am not going to enlarge further upon
 
-that topic, but to speak of SOME THINGS THAT ARE DUE BECAUSE OF WHAT WE KNOW. I want to use this
+that topic, but to speak of some things that are due because of what we know. I want to use this
 
 knowledge as a hammer to strike home some nails.
 
@@ -118,4 +118,4 @@ behalf.
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
+Pray the Holy Spirit will use this sermon to bring many to a saving knowledge of Jesus Christ.
