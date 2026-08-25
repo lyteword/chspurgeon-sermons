@@ -10,7 +10,7 @@ Peter, being exhorted to launch out into the deep and to let down his nets for a
 
 Those four words, "Nevertheless at Your word," seem to furnish me with a topic upon which I shall try to speak thus&mdash;First, the word of Christ is our supreme rule. "At Your word." Secondly, the word of Christ is our sufficient warrant. If we have that at our back, we may well say, "Nevertheless at Your word I will let down the net." And, thirdly, to keep that word will always ensure a reward.
 
-First, then, THE WORD OF CHRIST IS THE SUPREME RULE OF THE CHRISTIAN. Time out of mind have we spoken to you about the precious blood of Christ that cleanses all sin and about the blessings that Jesus brings to you when He becomes your Savior. But we are also bound to remind all of you who profess to have believed on Him, and to have become His disciples, that you must not only acknowledge Him as your Master and Lord, but that you must do whatever He bids you&mdash;
+First, then, THE WORD OF Christ IS THE SUPREME RULE OF THE ChristIAN. Time out of mind have we spoken to you about the precious blood of Christ that cleanses all sin and about the blessings that Jesus brings to you when He becomes your Savior. But we are also bound to remind all of you who profess to have believed on Him, and to have become His disciples, that you must not only acknowledge Him as your Master and Lord, but that you must do whatever He bids you&mdash;
 
 > Faith must obey the Savior's will,   
 > As well as trust His Grace.   
@@ -39,7 +39,7 @@ the time&mdash;when heart and flesh fail&mdash;for us to take God to be the stre
 
 So you see, whatever obstacle there may be in the way of our obedience to the command of Christ, still let each one of us say to Him, "Nevertheless at Your word, I will do whatever You command. That shall be the supreme rule and guide for all my actions."
 
-Now, secondly, I want to show you that THE WORD OF CHRIST IS OUR SUFFICIENT WARRANT, as well
+Now, secondly, I want to show you that THE WORD OF Christ IS OUR SUFFICIENT WARRANT, as well
 
 as our supreme rule.
 
@@ -65,7 +65,7 @@ But, more than this, no man fully does his Master's will without getting a disti
 
 May God add His blessing, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 10:19-39.
+Exposition by C. H. Spurgeon: Hebrews 10:19-39.
 
 Verses 19-22. Having therefore, brethren, boldness to enter the Holiest by the blood of Jesus, by a new andliving way, which He has consecrated for us, through the veil, that is to say, His flesh; andhaving an High Priest over the house of God; let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water The place of the Christian is that of the nearest conceivable access to God, for "the Holiest" is "the Holy of Holies"&mdash;that innermost part of the tabernacle to reach which the high priest had to pass through the outer court, through the court of the priests and then through the beautiful veil which concealed the Mercy Seat. At the death of Christ that veil was torn from top to bottom, so now there is nothing to keep us back from the Mercy Seat! We, therefore, have boldness and liberty in that way, "to enter the Holiest by the blood of Jesus"&mdash;where the high priest, himself, could only go once in the year&mdash;we may go at all times! The veil has not been merely lifted up, for a while, and then dropped again. It is not rolled up ready for future use&mdash;it is torn in two&mdash;destroyed! Since Jesus has died, there is now no separation between the Believer and his God except by means of such a veil as our base unbelief may please to hang up. The crimson way of Christ's shed blood lies open to all Believers! Therefore, "let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water,"
 

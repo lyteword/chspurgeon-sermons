@@ -2,7 +2,7 @@
 
 "Jesus our Lord." Romans 4:24.
 
-"JESUS our Lord" is a somewhat unusual form of expression to be used in the Scriptures. We have many references to, "Jesus Christ," and to, "our Lord Jesus Christ," but there is only one other passage in which this occurs. Yet, to me, it seems to be inexpressibly sweet. I shall be devoutly grateful to God if, in my sermon, I am able to convey to you even a tithe of the sweetness which I have drawn from this expression for my own enjoyment.
+"Jesus our Lord" is a somewhat unusual form of expression to be used in the Scriptures. We have many references to, "Jesus Christ," and to, "our Lord Jesus Christ," but there is only one other passage in which this occurs. Yet, to me, it seems to be inexpressibly sweet. I shall be devoutly grateful to God if, in my sermon, I am able to convey to you even a tithe of the sweetness which I have drawn from this expression for my own enjoyment.
 
 It is part of faith to accept very great contrasts and if we look, for a moment, at the words of our text, "Jesus our Lord," and especially if we look at the connection in which they are found, we shall see a great contrast. Jesus, the "Man of Sorrows," and yet, "our Lord" Jesus! Thoughts of sorrow, rejection and shame cluster around that blessed and ever-musical name, yet He is "our Lord" in the highest and Divine sense&mdash;our Lord and our God! Faith has learned to think of Him, even before His birth, as the Christ of God, and to give heed to the angel's message to Joseph, "You shall call His name, Jesus, for He shall save His people from their sins." Faith also bows at the manger with the worshipping shepherds and with the wise men from the East presenting gifts, realizing that the Infant is the Infinite and that the Babe of Bethlehem is the King of kings and Lord of lords.
 
@@ -20,7 +20,7 @@ Lord."
 
 First, I shall try to show you that Christ's tender condescensions endear this title to us. Secondly, that our loving hearts read that title with peculiar emphasis. And, thirdly, that we find special sweetness in that word "our'&mdash;"Jesus our Lord."
 
-First, then, I want to show you that CHRIST's TENDER CONDESCENSIONS ENDEAR THIS TITLE TO
+First, then, I want to show you that Christ's TENDER CONDESCENSIONS ENDEAR THIS TITLE TO
 
 US&mdash;"Jesus our Lord."
 
@@ -111,31 +111,31 @@ whose heart has leaped at the very sound of those three words, and say, "I have 
 
 But to you who love Him not and who have not accepted Him as your Lord, I can only say, in God's own words, "Kiss the Son, lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him." And this other verse which is, to my mind, the most awful in the whole Book of God, yet it was uttered by one who loved the souls of men beyond all conception, "If any man love not the Lord Jesus Christ, let him be Anathema Maranatha," that is, "let him be accursed at Christ's coming." God save you from that terrible doom, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 2; 110.
+Exposition by C. H. Spurgeon: PsalmS 2; 110.
 
-Psalm 2:1-3. Why do the heathen rage, and the people imagine a vain thing? The kings of the earth set themselves, and the rulers take counsel together against the LORD, and against His Anointed, saying, Let us break their bands asunder, and cast away their cords from us. This was what they did when they took the Lord of Life and Glory, dragged Him to the judgment seat and then nailed Him to the accursed tree. "This is the heir," they said, "let us kill Him and the inheritance shall be ours." They thought that they had destroyed the power of Christ, the appointed and Anointed King, and that He would never reign among the sons of men.
+Psalm 2:1-3. Why do the heathen rage, and the people imagine a vain thing? The kings of the earth set themselves, and the rulers take counsel together against the Lord, and against His Anointed, saying, Let us break their bands asunder, and cast away their cords from us. This was what they did when they took the Lord of Life and Glory, dragged Him to the judgment seat and then nailed Him to the accursed tree. "This is the heir," they said, "let us kill Him and the inheritance shall be ours." They thought that they had destroyed the power of Christ, the appointed and Anointed King, and that He would never reign among the sons of men.
 
 He that sits in the heavens shall laugh: the Lord shall have them in derision. God might well laugh at their folly, for they were really executing His will all the while they were rebelling against Him! They were really laying the foundation stones of His mediatorial throne in fair colors and cementing them with His own most precious blood, for it was by His Cross that He climbed to His crown! Well did Peter say to the Jews, on the day of Pentecost, "Him, being delivered by the determinate counsel and foreknowledge of God, you have taken, and by wicked hands have crucified and slain."
 
 5, 6. Then shall He speak unto them in His wrath, and vex them in His sore displeasure. Yet have I set My king upon My holy hill of Zion. In the Resurrection, God lifted up the head of Christ above all the sons of men and made them see that all their craft and cruelty had been displayed in vain.
 
-7, 8. I will declare the decree: the LORD has said unto Me, You are My Son; this day have I begotten You. Ask of Me, and I shall give You the heathen for Your inheritance, and the uttermost parts of the earth for Your possession. The risen Christ is pleading, and pleading successfully, before the Throne of God on high. And His plea is that the heathen may be given to Him for His inheritance&mdash;and the uttermost parts of the earth for His possession.
+7, 8. I will declare the decree: the Lord has said unto Me, You are My Son; this day have I begotten You. Ask of Me, and I shall give You the heathen for Your inheritance, and the uttermost parts of the earth for Your possession. The risen Christ is pleading, and pleading successfully, before the Throne of God on high. And His plea is that the heathen may be given to Him for His inheritance&mdash;and the uttermost parts of the earth for His possession.
 
 You shall break them with a rod of iron; You shall dash them inpieces like apotter's vessel. He does this even now in the working of His Providence, but He will do it still more manifestly at the Second Advent, when Christ will not allow the kings of the earth to any longer set themselves against Him, but He will finally destroy their power and prove Himself to be the King of Kings and Lord of Lords even here below.
 
-10-12. Be wise now therefore, O you kings: be instructed, you judges of the earth. Serve the LORD with fear, and rejoice with trembling. Kiss the Son. That is the Lord Jesus Christ&mdash;"Kiss the Son."
+10-12. Be wise now therefore, O you kings: be instructed, you judges of the earth. Serve the Lord with fear, and rejoice with trembling. Kiss the Son. That is the Lord Jesus Christ&mdash;"Kiss the Son."
 
 Lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him.
 
-Psalm 110:1. The LORD said unto my Lord, Sit at My right hand, until I make Your enemies Your footstool. Here we see the Christ&mdash;whom we just now saw as risen from the dead and acknowledged as the Son of God&mdash;seated upon the Throne of God. "Jehovah said unto my Adonai, Sit You at My right hand, until I make Your enemies Your footstool."
+Psalm 110:1. The Lord said unto my Lord, Sit at My right hand, until I make Your enemies Your footstool. Here we see the Christ&mdash;whom we just now saw as risen from the dead and acknowledged as the Son of God&mdash;seated upon the Throne of God. "Jehovah said unto my Adonai, Sit You at My right hand, until I make Your enemies Your footstool."
 
-The LORD shall send the rod of Your strength out of Zion: rule You in the midst of Your enemies. No sooner was Christ ascended into Heaven than, out of the midst of His Church&mdash;the earthly Zion&mdash;the scepter of His power was stretched forth and its might was displayed among the sons of men! Witness what happened on the day of Pentecost,
+The Lord shall send the rod of Your strength out of Zion: rule You in the midst of Your enemies. No sooner was Christ ascended into Heaven than, out of the midst of His Church&mdash;the earthly Zion&mdash;the scepter of His power was stretched forth and its might was displayed among the sons of men! Witness what happened on the day of Pentecost,
 
 which was but the beginning of Christ's ruling in the very midst of His enemies, who then became His friends and yielded their hearts and lives to Him so that Jerusalem, where He had been crucified, became the very center of His Kingdom on earth, from which His servants went forth to evangelize the world! 3. Your people shall be willing. They shall be willingness itself.
 
 In the day of Your power, in the beauties of holiness from the womb of the morning: You have the dew of Your youth. That is, as soon as the ascended Christ began His reign in Heaven, and the power of His Church begin to be felt on earth, there was a willing people coming forward in the beauty of holiness, like priests clad in their sacred robes. Such the early Christians truly were&mdash;and they were as numerous, as refreshing and as bright to the world as the sparkling dew of the morning. Then, indeed, had Christ the dew of His youth most clearly manifested! Multitudes of young hearts yielded to Him and His Church on earth seemed to have had a new birthday when He ascended up on high and led captivity captive!
 
-The LORD has sworn, and will not relent, You are a Priest forever after the order of Melchizedek. That is, a Priest without predecessor or successor&mdash;a Priest who was at the same time a king&mdash;a Priest of the Most High God who was greater, even, than Abraham, the friend of God. Jesus our Lord is not a priest after the order of Aaron, for He came not of that line, but He was "a Priest forever after the order of Melchizedek."
+The Lord has sworn, and will not relent, You are a Priest forever after the order of Melchizedek. That is, a Priest without predecessor or successor&mdash;a Priest who was at the same time a king&mdash;a Priest of the Most High God who was greater, even, than Abraham, the friend of God. Jesus our Lord is not a priest after the order of Aaron, for He came not of that line, but He was "a Priest forever after the order of Melchizedek."
 
 The Lord at Your right hand shall strike through kings in the day of His wrath. When that Last Great Day shall come, Christ shall no longer patiently wait for the overthrow of His enemies&mdash;He shall win a complete victory over them!
 

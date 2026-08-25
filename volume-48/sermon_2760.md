@@ -1,6 +1,6 @@
 # Sermon 2760 | A King Sent in Love
 
-"Then Hiram the king of Tyre answered in writing, which he sent to Solomon, Because the LORD has loved His people, He has made you king over them." 2 Chronicles 2:11.
+"Then Hiram the king of Tyre answered in writing, which he sent to Solomon, Because the Lord has loved His people, He has made you king over them." 2 Chronicles 2:11.
 
 I THINK that you must have been struck with the deeply religious tone of the communications which passed between Solomon and Hiram. I am inclined to think that Hiram must have been a proselyte to the faith of Israel. At any rate, the dispatches between these two neighboring kings contain very gracious references to Jehovah and His dealings with His ancient people. Not that I recommend that the dispatches which are sent now between kings should be of a similar character, for that would be a piece of beggarly hypocrisy! What has God to do with the most of them? And what has He to do with the transactions of modern times, in which the invasion of countries by the more powerful is perpetually being justified by the laws of politics which seem to be the very reverse of the Laws of God? Oh, that better times might come, when kings would rule in righteousness! One almost despairs of them, but, at any rate, there is a King coming who will rule in righteousness! Make no delays, O our God!
 
@@ -10,7 +10,7 @@ I want you to notice, also, that Hiram here distinctly recognizes that every ble
 
 I purpose, however, to take our text right away from Solomon for, true as it was in his case, it is more emphatically true in reference to our King. It is still true, as was said in Thessalonica in Paul's day, "There is another King, one Jesus," and many here present, I am thankful to know, are His loyal subjects. King of kings is He to us and our soul loves to worship and adore Him. Well, now, God has been pleased to make Christ our King, so my text shall run thus&mdash; "Because the Lord has loved His people, He has made Jesus to be King over them."
 
-That shall be our first division, THE LOVE OF GOD HAS MADE JESUS TO BE OUR KING.
+That shall be our first division, THE LOVE OF God HAS MADE Jesus TO BE OUR KING.
 
 If we believe that, does it not prove that we do not regard the dominion of Jesus Christ as any burden whatever It is a proof that in our esteem His yoke is easy and His burden is light. Those who look on from the outside say, "We would rather be perfectly free&mdash;free thinkers and free livers." And when they hear any of us say, with the Psalmist, "O Lord, truly I am Your servant; I am Your servant and the son of Your handmaid: You have loosed my bonds," they feel that they do not want to share any such servitude with us. But we are living and truthful witnesses to the fact that we do not look upon the rule of Christ over us as any hardship. On the contrary, we take delight in it! We trace it to the love of God, not to His anger&mdash;not even to His justice, or to any necessity that may constrain Him, but to His infinite love and to His gracious thought that He could not do any better thing for us than to give us Jesus Christ to be our King&mdash;and we devoutly thank and bless the Lord, this day, that He has set Him over us, to rule us and to have dominion over our spirit, soul and body henceforth and forever.
 
@@ -59,7 +59,7 @@ Truly, none who really know our Lord Jesus Christ can refuse to rejoice that the
 
 I think I have said enough upon that point, so I will now turn to another side of the subject. Just to refresh your memories, I remind you that the first division was that the love of God has made Jesus our King.
 
-Now we will shake the kaleidoscope and then we shall see the same Truth of God presented to us under another aspect&mdash;IT IS THE LOVE OF GOD WHICH HAS MADE US TO BE THE SUBJECTS OF KING JESUS.
+Now we will shake the kaleidoscope and then we shall see the same Truth of God presented to us under another aspect&mdash;IT IS THE LOVE OF God WHICH HAS MADE US TO BE THE SUBJECTS OF KING Jesus.
 
 There is love in the selection of the King who has been chosen for us, and there is also love in the choice of His subjects. It was certainly Divine Love which made a choice of Israel to be the subjects of Solomon because, if God meant to make a great king, and a wise king with wide dominions and vast influence, it was a very singular thing that He should choose the land of Israel to be the country over which Solomon should rule in such glory. Palestine was a poor, miserable little country, a very small district to be the center of so much splendor. And the people were not very numerous and they were very poor. Only a little while before they had been downtrodden by the Philistines. David, Solomon's father, had only just rescued them by the skin of their teeth from being slaves to the Philistines and, before that, they had been perpetually harried by all the neighboring nations, so that they never had any settled peace. Yet it was this little paltry nation that God chose to be ruled over by Solomon, to give it a name and make it the leading nation on the face of the earth!
 
@@ -77,7 +77,7 @@ And, Beloved, Christ has made us to be so rich, so happy, so contented, so bless
 
 I conclude my discourse with the third point, which is simply another view of the same Truth&mdash;OUR LOVE TO
 
-GOD NOW MAKES THE REIGN OF CHRIST OVER US TO BE VERY BLESSED, INDEED. Since we have been
+God NOW MAKES THE REIGN OF Christ OVER US TO BE VERY BLESSED, INDEED. Since we have been
 
 taught to love the Lord Jesus Christ, it has become a great delight to us to be under His dominion.
 
@@ -120,7 +120,7 @@ must praise Him! And I wish that everyone else would enter the service of my ble
 
 Well, then, if we can all speak so well of our King, we think that common reason, if it were really reasonable, would lead men to say, "Can we not enter into this service, too?" I pray that God's Grace may enable many of you to say this. Will you not seek to become His servant this very hour? The way into His service is by your becoming nothing and letting Him be your All-in-All. Any soldier can tell you how he gets into his sovereign's service. What does he give in order that he may become a soldier? Give? Why, he gives nothing at all! He takes a shilling from the recruiting officer and that seals the act! That is the way to become a Christian&mdash;take the Lord Jesus Christ as your own! He gives you Himself, so trust Him and take Him, for thus you become His soldier, enlisted forever! He will teach you your drills. He will show you how to behave yourself in His service and He will give you a rich reward at the end of it. So may He bless each one of you, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 72:1-4.
+Exposition by C. H. Spurgeon: Psalm 72:1-4.
 
 Verse 1. Give the king Your judgments, O God, and Your righteousness unto the king's son. ' 'Give the king Your judgments, O God." The right to reign was transmitted by descent from David to Solomon, but not by that means alone. Israel was a theocracy and the kings were but the viceroys of the greater King. Therefore the prayer that the new king might be enthroned by Divine right and then endowed with Divine Wisdom. Our glorious King in Zion has all judgment committed to Him. He rules in the name of God over all lands. He is King "Dei Gratia" as well as by right of inheritance. "And Your righteousness unto the king's son." Solomon was both king and king's son&mdash;so, also, is our Lord. He has power and authority in Himself and also royal dignity given Him of His Father. He is the righteous King. In a word, He is "the Lord our righteousness." We are waiting till He shall be manifested among men as the ever-righteous Judge. May the Lord hasten in His own time the long-looked-for day! Now wars and fights are even in Israel, itself, but soon the dispensation will change and David, the type of Jesus warring with our enemies, shall be displaced by Solomon, the prince of peace.
 

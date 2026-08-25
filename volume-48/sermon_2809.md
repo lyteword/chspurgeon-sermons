@@ -42,7 +42,7 @@ This then, is the first sense of the expression, "The just shall live by faith,"
 
 ward, all my salvation and all my desire!" O blessed Spirit, work this faith in every heart here present, for Jesus' sake! Amen.
 
-Now comes the second part of the subject, namely, that THE WHOLE LIFE OF THE CHRISTIAN, AFTER HE IS MADE TO LIVE, IS STILL BY FAITH.
+Now comes the second part of the subject, namely, that THE WHOLE LIFE OF THE ChristIAN, AFTER HE IS MADE TO LIVE, IS STILL by FAITH.
 
 Note, first, that the Believer, after his conversion, lives in no other way but by faith. No Christian remains a Christian except by still believing. Where we began, there we continue&mdash;we looked unto Jesus at the first and we are still looking unto Jesus. We came to Him at the first, and we are still coming unto Him "as unto a living stone, disallowed indeed of men, but chosen of God and precious." We know of no future ground of hope that can be any stronger or better than this, no, we know of no other than believing in Jesus Christ! I beg you, Beloved Christian people, try to avoid all attempts to live in any other way.
 
@@ -78,7 +78,7 @@ That is how it is with the faith of these people, and very good faith it is, too
 
 so developed, strengthened and full-grown that, from this time forth, we may live by faith even to the end! The Lord bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW22:1-14.
+Exposition by C. H. Spurgeon: Matthew22:1-14.
 
 Verses 1-3. And Jesus answered and spoke unto them again by parables, and said, The Kingdom of Heaven is like unto a certain king, which made a marriage for his son, and sent forth his servants to call them that were bid to the wedding: and they would not come. Observe that it was a king who made this wedding feast. Therefore, to refuse to come to it when the command implied great honor to those who were bid, was as distinct an insult as could very well be perpetrated against both the king and his son! "They would not come." Had the one who invited them been only an ordinary person, it might not have been their duty to come and they might even have been justified in their refusal. But this was a king who sent his servants to summon the guests to the marriage of his son. And I bid you to take notice that the Gospel marriage feast, to which you are invited, is the feast, not only of a king, but of the King of Kings, your Creator and your God! And in refusing to come in obedience to His command, you commit an overt act of rebellion against His Divine Majesty. The king "sent forth his servants to call them that were bid to the wedding: and they would not come." They were bid, yet they would not come&mdash;from which I gather that those who think the invitations of the Gospel are to be restricted to certain characters, because they say it is useless to invite others, "do err, not knowing the Scriptures." What have we to do with the apparent uselessness of what we are commanded to do? It is our duty to give the invitation according as our King directs us! It is not our business to decide whether that invitation will be accepted or rejected. In this case, we know what happened&mdash;"They would not come."
 

@@ -90,7 +90,7 @@ Go in for that, Beloved, for surely you have a right to it if you are a believer
 
 God bless you, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS2.
+Exposition by C. H. Spurgeon: Ephesians2.
 
 Verse 1. And you has He quickened. You, who were dead by nature, are now made alive unto God by the Holy Spirit. If you had nothing else to think of, all day long, but just these five words, they might suffice to lift you up to the very heights of grateful adoration of your quickening Lord&mdash;"And you has He quickened."
 

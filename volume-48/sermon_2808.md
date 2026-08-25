@@ -88,7 +88,7 @@ Judge, dear Friends, whether you know Christ or not, and whether Christ knows yo
 
 Him this very moment! Then if you have made a mistake up to now, and have not really known Him, you will begin to know Him, now. And if you have known Him, you will blessedly renew your acquaintance with Him and the question that has troubled you will disappear! And you will say, "Yes, Lord, blessed be Your name, I do know You, by Your Grace, and You know me, and You will know me forever and ever." May the Lord give each one of us this blessing, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: MATTHEW 7.
+Exposition by C. H. Spurgeon: Matthew 7.
 
 Verses 1. 2. Judge not, that you be not judged. For with what judgment you judge, you shall be judged: and with the measure you use, it will be measured back to you. Some people are of a censorious disposition. They see nothing in others to praise, but everything to blame&mdash;and such people generally find that they are condemned according to their own wicked rule. Other people begin to judge those who are so fond ofjudging. If they are so wise and so discriminating, others expect more from them and, not finding it, they are not slow to condemn them. It is an old proverb that chickens come home to roost, and so they do. If you judge ill of others, that judgment will, sooner or later, come home to yourself.
 

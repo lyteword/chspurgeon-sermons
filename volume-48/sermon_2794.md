@@ -62,7 +62,7 @@ Jesus, the life of all our joy
 
 Sounds sweet from every string." Do you not see, then, why this comparison is made in our text? We remember Christ's love more than the best earthly comforts because they make but a feeble impression, a mingled impression, a marred impression and their impression, at best, is but transient. But the love of Christ is remembered as something that is better than wine. I have to hurry over these different points, but if you enjoy hearing about this subject as much as I delight in preaching upon it, you would not mind listening to me all night long! And I should not mind preaching right through the night. Surely, this is a theme that sets one's tongue at a happy liberty. "My tongue is the pen of a ready writer" if I can but feel the love of Christ shed abroad in my heart!
 
-Now, thirdly, I am to speak of THE PRACTICAL EFFECTS OF REMEMBERING CHRIST's LOVE. If we remember the love of Christ to us, the first practical effect will be that we shall love Him. Can I remember Your love to me, O my sweet Lord, and not love You in return? Surely, Dr. Watts was right when he wrote&mdash;
+Now, thirdly, I am to speak of THE PRACTICAL EFFECTS OF REMEMBERING Christ's LOVE. If we remember the love of Christ to us, the first practical effect will be that we shall love Him. Can I remember Your love to me, O my sweet Lord, and not love You in return? Surely, Dr. Watts was right when he wrote&mdash;
 
 > Come, Holy Spirit, heavenly Dove,   
 > With all Your quickening powers!   
@@ -87,7 +87,7 @@ You!
 
 Lastly, I would put before you a FEW PRACTICAL SUGGESTIONS AS TO PRESERVING a DEEPER
 
-AND MORE SINCERE REMEMBRANCE OF CHRIST's LOVE.
+AND MORE SINCERE REMEMBRANCE OF Christ's LOVE.
 
 The old Puritan divines frequently compared their hearers to the Egyptian dog that ran to the Nile and drank and then ran away. They came up to the meeting house and heard the minister, took a little sip of the Gospel, which sufficed them, and then they were off! One preacher said that he wished they were like the fishes&mdash;not come and lap at the stream, as the dog did, but swim in it and live in it! There are too many, in this age, who are content with hearing a little of Christ's love&mdash;a sip by the way is all that they seem to need. But it would be far better if you could come up to Rutherford's ideal&mdash;"I would have my soul sunk over its masthead in a sea of love to Christ. I would be sunk 50 fathoms deep in the mighty shoreless ocean of His love so that there might be nothing left of me, and that I might be swallowed up in love to Christ&mdash;and in Christ's love to me."
 
