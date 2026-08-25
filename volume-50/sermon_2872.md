@@ -25,7 +25,7 @@ It is well for us to always be "looking for that blessed hope and the glorious a
 > May purge our souls from sense and sin   
 > As Christ the Lord is pure.   
 
-First, I have to try to show you WHAT THE LORD's SUPPER SETS FORTH. It sets forth "the Lord's death."
+First, I have to try to show you WHAT THE Lord's SUPPER SETS FORTH. It sets forth "the Lord's death."
 
 There is no ordinance to set forth His birth. The Roman Catholic Church invented a feast day and called it Christ-Mass and other churches have imitated the custom&mdash;but there is no ordinance, delivered unto us by the Lord Jesus, or His Apostles, to commemorate His Nativity! Nor do I find, in the Scriptures, any record of an ordinance to commemorate His circumcision, or His first preaching, or His riding in triumph into Jerusalem, or even any ordinance to commemorate His Ascension into Glory. We generally regard the keeping of the first day of the week as a commemoration of Christ's Resurrection and of His appearance to His disciples when He showed them His pierced hands, feet and side. But even that can scarcely be called an ordinance. So, of all that Christ did or suffered, there is no ordinance enjoined upon us but that which relates to His death. Now, why is this?
 
@@ -41,7 +41,7 @@ You have said with the spouse, "Let Him kiss me with the kisses of His mouth," a
 
 Now I go on, in the second place, to show you HOW THE BREAD AND WINE IN THIS ORDINANCE SET
 
-FORTH THE DEATH OF CHRIST.
+FORTH THE DEATH OF Christ.
 
 You can hardly fail to notice how the ordinance is adapted universally to keep in memory the fact it commemorates. You recollect what happened to the woman who looked back after she came out of Sodom. The Lord would have us "Remember Lot's wife," so He turned her into a pillar of salt. But that memorial is only to be seen by those who pass that particular spot. Now, suppose that the Master had said to His disciples, "Erect for Me a bronze column. Let it be in the form of a cross and write upon it that Jesus was born of the Virgin Mary, suffered under Pontius Pilate, was crucified, dead and buried?" It would not have appealed to our observation anything like so forcibly as this ordinance, which is not restricted to any time or place. This memorial has been seen in the darkness of the catacombs of Rome, where only a tiny taper afforded light to the worshipping assembly. This memorial has been seen among the heather on the Scottish hillside where the lightning flash lent its kindly beam to the minister as he read the Sacred Word. This memorial is seen, today, in the far-off isles of the sea. From North to South, from East to West, this is the standing memorial of Him who died! Better than storied urn, or animated bust, or rare marble, or precious metals, or jewels unrivalled for their worth is this blessed memorial because it can be seen everywhere, in every land!
 
@@ -87,7 +87,7 @@ O my Brothers and Sisters in Christ, I pray you to see to it that you now show H
 
 Sinner, believe on the Lord Jesus Christ and remember that He said, "He that believes and is baptized shall be saved." Saint, come to the Table of your Lord and feast upon the emblems of His dying love, remembering that blessed are they who believe on Him, for there shall be a performance of those things which were told them by the Lord.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 8:18-39.
+Exposition by C. H. Spurgeon: Romans 8:18-39.
 
 Verse 18. For I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us. Paul made "the sufferings of this present time" into a matter of simple arithmetic and careful reckoning. He added them all up and saw what the total was. He seemed to be about to state a proportion sum, but he gave it up and said that the sufferings were "not worthy to be compared with the glory which shall be revealed." Did they stand as one to a thousand? No, otherwise they had been worthy to be compared! Did they stand as one to ten thou-
 

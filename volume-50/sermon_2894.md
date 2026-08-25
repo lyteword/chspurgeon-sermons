@@ -115,13 +115,13 @@ To you, unpardoned Soul, I have spoken at length, and God knows how truly from m
 
 Are there none who will do so? Great God, are all hearts hard? O Spirit of God, come now, in this solemn moment, and break the hearts of stone with the mighty hammer of the Word of God! Cut and wound with Your two-edged sword and then heal with Your wondrous ointment even now! I say no more, but leave it with Him. May it be so, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM84.
+Exposition by C. H. Spurgeon: Psalm84.
 
 May the Spirit of God bless to us every syllable of this familiar Psalm as we read it!
 
-Verses 1, 2. How amiable are Your tabernacles, O LORD ofHosts! My soullongs, yes, even faints for the courts of the LORD: my heart and my flesh cries out for the living God. Perhaps the Psalmist would never have said, "How amiable are Your tabernacles, O Lord of Hosts!" if he had not been detained from them so long that he could truly say, "My soul longs, yes, even faints for the courts of the Lord." It is very sad, yet it is all too true, that we often need to be deprived of a mercy in order to be made to value it aright. Would it not be wiser on our part if we prized our privileges while they were yet spared to us? Still it is a good thing to have our love to the assemblies of God's House increased by temporary absence from them. See how fervent was the Psalmist's desire. His longing turned even to fainting at the very thought that, perhaps, he would never go there again&mdash;"My soul longs, yes, even faints for the courts of the Lord." And his very "flesh" also joined in the intense longing of his soul. You cannot often get your flesh to do anything that is good, or to desire anything that is right, yet, sometimes, even our very body seems to be so swayed by the Holy Spirit that it is compelled to go in the right way!
+Verses 1, 2. How amiable are Your tabernacles, O Lord ofHosts! My soullongs, yes, even faints for the courts of the Lord: my heart and my flesh cries out for the living God. Perhaps the Psalmist would never have said, "How amiable are Your tabernacles, O Lord of Hosts!" if he had not been detained from them so long that he could truly say, "My soul longs, yes, even faints for the courts of the Lord." It is very sad, yet it is all too true, that we often need to be deprived of a mercy in order to be made to value it aright. Would it not be wiser on our part if we prized our privileges while they were yet spared to us? Still it is a good thing to have our love to the assemblies of God's House increased by temporary absence from them. See how fervent was the Psalmist's desire. His longing turned even to fainting at the very thought that, perhaps, he would never go there again&mdash;"My soul longs, yes, even faints for the courts of the Lord." And his very "flesh" also joined in the intense longing of his soul. You cannot often get your flesh to do anything that is good, or to desire anything that is right, yet, sometimes, even our very body seems to be so swayed by the Holy Spirit that it is compelled to go in the right way!
 
-Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young, even Your altars, O LORD ofHosts, my King, and my God. The Psalmist envies even the birds that twitter around the sanctuary and wishes that he, too, had wings that he might fly to God's altar with them&mdash;and there take up his permanent abode.
+Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young, even Your altars, O Lord ofHosts, my King, and my God. The Psalmist envies even the birds that twitter around the sanctuary and wishes that he, too, had wings that he might fly to God's altar with them&mdash;and there take up his permanent abode.
 
 Blessed are they that dwell in Your house. The Psalmist meant those priests who lived in the Temple and, in a spiritual sense, his words apply to those who dwell in God wherever they are and who can truly sing&mdash;
 
@@ -140,7 +140,7 @@ Blessed is the man whose strength is in You. Who throws his whole soul into the 
 
 "Till each appears in Heaven at length."
 
-O LORD God of Hosts, hear my prayer: give ear, O God of Jacob. Selah. "You are a prayer-hearing God. Did You not hear Jacob at the brook Jabbok? Then, O God of Jacob, also give ear to me! If I have not yet come to be like prevailing Israel, I am like wrestling Jacob, so, give ear to me as You did to Jacob."
+O Lord God of Hosts, hear my prayer: give ear, O God of Jacob. Selah. "You are a prayer-hearing God. Did You not hear Jacob at the brook Jabbok? Then, O God of Jacob, also give ear to me! If I have not yet come to be like prevailing Israel, I am like wrestling Jacob, so, give ear to me as You did to Jacob."
 
 Behold, O God our shield, and look upon the face of Your anointed. We hold up Christ before His Father and say to Him&mdash;
 
@@ -152,4 +152,4 @@ else!
 
 I had rather be a doorkeeper in the house of my God, than to dwell in the tents of wickedness. ' 'I had rather dust the mats in Your house than sit on Satan's throne. I had rather wash the feet of Your saints, or perform any menial duties for them, than rule over all the hosts in the realms of darkness."
 
-11, 12. For the LORD Godis a sun andshield: the LORD willgive Grace andglory: no good thing willHe withhold from them that walk uprightly. O LORD of Hosts, blessed is the man that trusts in You. He will never walk uprightly unless he trusts in the Lord, neither will he receive the fullness of the blessing except as he learns to trust to the fullest, for the Master still says, "According to your faith, be it unto you."
+11, 12. For the Lord Godis a sun andshield: the Lord willgive Grace andglory: no good thing willHe withhold from them that walk uprightly. O Lord of Hosts, blessed is the man that trusts in You. He will never walk uprightly unless he trusts in the Lord, neither will he receive the fullness of the blessing except as he learns to trust to the fullest, for the Master still says, "According to your faith, be it unto you."

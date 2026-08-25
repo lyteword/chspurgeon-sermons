@@ -44,7 +44,7 @@ He pauses to worship, then speaks again, "In what a small, weak, slender Taberna
 
 So spoke the young Believer and I liked his speech very much, for I saw in him how faith could work by love and how the end of controversy and argument is reached at Bethlehem, for "without controversy great is the mystery of godliness: God was manifest in the flesh."
 
-Now I will go to Bethlehem with AN ADVANCED CHRISTIAN, such an one as Paul the Aged, or John the Divine&mdash;no, rather with such an one as I might find among the circle of my own Church members!
+Now I will go to Bethlehem with AN ADVANCED ChristIAN, such an one as Paul the Aged, or John the Divine&mdash;no, rather with such an one as I might find among the circle of my own Church members!
 
 Calm, peaceful, kind and gracious, he seems as if his training in the school of Christ and the sacred anointing of the Holy Spirit have made him like a child, himself&mdash;his character is ripening and his fitness for the Kingdom of Heaven is
 
@@ -143,7 +143,7 @@ Mary, His mother watching lovingly over Him. And I'll tell you what I thought. T
 
 So closed the series of observations by the various members of a Christian family around the Christmas fire. The father said it was time to retire. And he bade them all, 'good night.'" And as the father said, so say I, "Good night and God bless you all!" Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE2:1-19.
+Exposition by C. H. Spurgeon: Luke2:1-19.
 
 
 
@@ -165,6 +165,6 @@ And suddenly there was with the angel a multitude of the heavenly host They had 
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
 
 END OF VOLUME 50

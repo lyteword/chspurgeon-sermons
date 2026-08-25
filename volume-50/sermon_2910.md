@@ -77,7 +77,7 @@ But if you reject Him, do not think it wrong that you should be cast with the gr
 
 God save all of you from ever suffering that doom, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: REVELATION 14.
+Exposition by C. H. Spurgeon: Revelation 14.
 
 Verse 1. And I looked, and, lo, a Lamb stood on the Mount Zion, and with Him an hundred forty and four thousand, having His Father's name written on their foreheads. The great question for us is&mdash;shall we be among the number? If we have the Father's name engraved upon our hearts, we may conclude that we shall, one day, have it written on our foreheads, and that we shall be among that chosen company.
 

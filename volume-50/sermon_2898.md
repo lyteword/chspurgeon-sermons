@@ -70,7 +70,7 @@ Oh, what peace it gives to know that you are now forgiven, now blessed, now save
 
 known by those who are saved and who know that they are saved. May that be your case and mine, Beloved! Christ's own words are, "He that believes and is baptized shall be saved; but he that believes not shall be damned." May God bless us all with the true belief which is eternal life to all who possess it, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: LUKE 12:1-32.
+Exposition by C. H. Spurgeon: Luke 12:1-32.
 
 The teaching of our Lord in this chapter has very much to do with Christianity in connection with this present life, its cares and troubles. God has nowhere promised us exemption from affliction and trial. Indeed, it has been said, with much truth, that the Old Testament promise was one of prosperity, but that the New Testament promise is one of tribulation. You may rest assured that if it had been best for us to be taken directly to Heaven when we were converted, the Lord would have done it! But as He has not done so, there are wise reasons why He keeps His people here for a while. The gold must go through the fire before it has its place in the king's crown&mdash;and the wheat must be exposed to the winnowing fan before it can be taken into the heavenly garner.
 

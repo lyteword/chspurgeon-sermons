@@ -10,7 +10,7 @@ But note also, that while God was awake, Jonah was asleep. While storms were blo
 
 I am going to speak upon the case of Jonah, first, as we may regard it as a useful lesson to the people of God. And, secondly, as it may be considered as an equally valuable warning to the unconverted.
 
-First, then, I shall use the case of Jonah as a USEFUL LESSON TO THE PEOPLE OF GOD&mdash;and I may very fairly do so when we remember who Jonah was.
+First, then, I shall use the case of Jonah as a USEFUL LESSON TO THE PEOPLE OF God&mdash;and I may very fairly do so when we remember who Jonah was.
 
 First, Jonah was a believer in God. He worshipped no false god&mdash;he worshipped only the living and true God. He was a professed and avowed believer in Jehovah. He was not ashamed to say&mdash;even when his conduct had laid him open to blame and when there was nobody to support him&mdash;"I am a Hebrew and I fear the Lord, the God of Heaven, which has made the sea and the dry land." Yet, though he was a believer in God, he was in the lowest part of the ship fast asleep!
 
@@ -84,7 +84,7 @@ But, having begun this list, I might continue it almost indefinitely, but I will
 
 May God's Holy Spirit bestir you to make your calling and election sure! Lay hold on Jesus Christ with the grip of an earnest, humble faith and henceforth surrender yourself to the service of Him who has bought you with His precious blood! God grant to all of us the Grace to awake and arise that Christ may give us life and light for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM51.
+Exposition by C. H. Spurgeon: Psalm51.
 
 Verses 1-5. Have mercy upon me, O God, according to Your loving-kindness: according unto the multitude of Your tender mercies blot out my transgressions. Wash me thoroughly from my iniquity, and cleanse me from my sin. For I acknowledge my transgressions: and my sin is ever before me. Against You, You only, have I sinned, and done this evil in Your sight: that You might be justified when You speak, and be clear when You judge. Behold I was shapen in iniquity; and in sin did my mother conceive me. ' 'It is not merely that I have sinned in practice, but I am a sinner by nature. Sin would not have come out of me if it had not first been in me. I am a mass of sin and must, therefore, be loathsome in Your sight."
 

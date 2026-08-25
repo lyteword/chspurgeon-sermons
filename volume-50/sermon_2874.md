@@ -79,7 +79,7 @@ Some of you cannot do this&mdash;you who are not renewed in heart and life. I mi
 
 May God raise up many who will feel the power of these words! If we only get a few of such men who will follow the Lord fully, happy will be the churches to which they belong, blessed will be the age in which they live, highly privileged will be the land in which they dwell&mdash;for such men are God's heroes! These are the soldiers who will stand firm in the day of battle and who will help to save our country from ever becoming Roman Catholic again! May we have many such men and many such women in every age till Jesus comes, and glory dawns! May this be your happy lot, my dear Brothers and Sisters, for Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 12:20-41.
+Exposition by C. H. Spurgeon: John 12:20-41.
 
 Our Lord had raised Lazarus from the dead and this miracle had excited great attention in Jerusalem. In consequence of this, the people had led Him in triumph through the streets, and everywhere there was great excitement. Everybody was speaking of the wonderful miracle which He had worked.
 
