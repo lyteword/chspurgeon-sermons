@@ -2,7 +2,7 @@
 
 "Hide not Your ear at my breathing." Lamentations 3:56.
 
-YOUNG beginners in Grace are very apt to compare themselves with advanced disciples and so to become discouraged. And tried saints fall into the same habit. They see those of God's people who are upon the mountain, enjoying the light of their Redeemer's Countenance and, comparing their own condition with the joy of the saints, they write bitter things against themselves and conclude that surely, they are not the people of God! This course is as foolish as though the lambs should suspect themselves not to be of the flock because they are not sheep, or as though a sick man should doubt his existence because he is not able to walk or run as a man in good health. But since this evil habit is very common, it is our duty to seek after the dispirited and cast-down ones and comfort them. That is our errand in this short discourse. We hear the Master's words, "Comfort you, comfort you My people," and we will endeavor to obey them with His Spirit's help.
+Young beginners in Grace are very apt to compare themselves with advanced disciples and so to become discouraged. And tried saints fall into the same habit. They see those of God's people who are upon the mountain, enjoying the light of their Redeemer's Countenance and, comparing their own condition with the joy of the saints, they write bitter things against themselves and conclude that surely, they are not the people of God! This course is as foolish as though the lambs should suspect themselves not to be of the flock because they are not sheep, or as though a sick man should doubt his existence because he is not able to walk or run as a man in good health. But since this evil habit is very common, it is our duty to seek after the dispirited and cast-down ones and comfort them. That is our errand in this short discourse. We hear the Master's words, "Comfort you, comfort you My people," and we will endeavor to obey them with His Spirit's help.
 
 Upon the matter of prayer, many are dispirited because they cannot yet pray as advanced Believers do, or because, during some peculiar crisis of their spiritual history, their prayers do not appear to them to be so fervent and acceptable as is the case with other Christians. Perhaps God may have a message to some troubled ones in the present address and may the Holy Spirit apply it with power to them!
 
@@ -10,7 +10,7 @@ Upon the matter of prayer, many are dispirited because they cannot yet pray as a
 
 We shall teach three or four lessons from the present use of the expression, "breathing."
 
-WHEN WE CANNOT PRAY AS WE WOULD, IT IS GOOD TO PRAY AS WE CAN.
+When we cannot pray as we would, it is good to pray as we can.
 
 Bodily weakness should never be urged by us as a reason for ceasing to pray. In fact, no living child of God will ever think of such a thing. If I cannot bend the knees of my body because I am so weak, my prayers from my bed shall be on their knees&mdash;my heart shall be on its knees and pray as acceptably as before. Instead of relaxing prayer because the body suffers, true hearts, at such times, usually double their petitions. Like Hezekiah, they turn their face to the wall that they may see no earthly object and then they look at the invisible things and talk with the Most High. Yes, and often in a sweeter and more familiar manner than they did in the days of their health and strength. If we are so faint that we can only lie still and breathe, let every breath be a prayer!
 
@@ -32,7 +32,7 @@ The weakest saint upon his knees!" Whatever your position, if you cannot speak, 
 
 But now, a second word of instruction. It is clear from the text, from many other passages of Scripture and from
 
-general observation that THE BEST OF MEN HAVE USUALLY FOUND THE GREATEST FAULT WITH THEIR OWN PRAYERS.
+general observation that the best of men have usually found the greatest fault with their own prayers.
 
 This arises from the fact that they present living prayers in real earnest and feel far more than they can express. A mere formalist can always pray so as to please himself. What has he to do but to open his book and read the prescribed words, or bow his knee and repeat such phrases as suggest themselves to his memory or his fancy? Like the Tartarian Praying Machine, give but the wind and the wheel, and the business is fully arranged! So much knee-bending and talking and the prayer is done! The formalist's prayers are always good, or, rather, always bad, alike. But the living child of God never offers a prayer which pleases himself&mdash;his standard is above his attainments. He wonders that God listens to him and though he knows he will be heard for Christ's sake, yet he accounts it a wonderful instance of condescending mercy that such poor prayers as his should ever reach the ears of the Lord God of Sabaoth!
 
@@ -46,7 +46,7 @@ How much, alas, is there of impurity of motive to mar our prayers! We ask for re
 
 Another fault good men see in their supplications is that they stand at such a distance from God in praying, they do not draw near enough to Him. Are not some of you oppressed with a sense of the distance there is between you and God? You know there is a God and you believe He will answer you, but it is not always that you come right up to Him, even to His feet and, as it were, lay hold upon Him and say, "O my Father, listen to the voice of Your chosen and let the cry of the blood of Your Son come up before You!" Oh, for prayers which enter within the veil and approach the Mercy Seat! Oh, for petitioners who are familiar with the cherubim and the brightness which shines between their wings! May God help us to pray better! But this I feel sure of&mdash;you who plead most prevalently are just those who will think the least of your own prayers and be most grateful to God that He deigns to listen to you&mdash;and most anxious that He would help you to pray after a nobler sort.
 
-" III. A third lesson is this&mdash;THE POWER OF PRAYER IS NOT TO BE MEASURED by ITS OUTWARD EXPRESSION.
+" A third lesson is this&mdash;the power of prayer is not to be measured by its outward expression.
 
 A breathing is a prayer from which God does not hide His ear. It is undoubtedly a great Truth of God, and full of much comfort, too, that our prayers are not powerful in proportion to their expression, for, if so, the Pharisee would have succeeded since he evidently had greater gifts than the Publican had. I have no doubt, if there had been a regular Prayer Meeting, and the Pharisee and the Publican had attended, we would have called on the Pharisee to pray. I do not think the people of God would have enjoyed his prayer, nor have felt any kinship of spirit with him and yet, very naturally, on account of his gifts, he would have taken upon himself to engage in public devotion or, if that Pharisee would not have done so, I have heard of other Pharisees who would. No doubt the man's spirit was bad, but then his expression was good&mdash;he could put his oration so neatly and pour it out so accurately. Let all men know that God does not care for that! The sigh of the Publican reached His ear and won the blessing but the boastful phrases of the Pharisee were an abomination to Him!
 
@@ -60,7 +60,7 @@ I desire that this Truth may come home to any one of you who says, "I cannot pra
 
 And oh, let me say, do not sleep this night until you have tried and proved the power of prayer! If you feel a burden on your heart, tell the Lord! Cover your face and speak with Him. Even that you need not do, for I suppose that Hannah did not cover her face when Eli saw her lips move and supposed that she was drunk. No, your lips need not even move! Your soul can now say, "Save me, my God! Convict me of sin, lead me to the Cross! Save me tonight! Let me not end another day as Your enemy! Let me not go into the cares of another week unforgiven, with Your wrath hanging over me like a thunder-cloud! Save me, save me, O my God!" Such prayers, though utterly wordless, shall not be powerless, but shall be heard in Heaven!
 
-We will close with a fourth practical lemon&mdash;FEEBLE PRAYERS ARE HEARD IN HEAVEN.
+We will close with a fourth practical lemon&mdash;feeble prayers are heard in Heaven.
 
 Why is it that feeble prayers are understood of God and heard in Heaven? There are three reasons.
 
@@ -124,4 +124,4 @@ the Lord, or to murmur at Him, nor yet opening your mouth in boastfulness, but p
 
 free of charge, at http://www.spurgeongems.org.]
 
-SHOULDERS] He sits alone and keeps silence
+shoulders] He sits alone and keeps silence
