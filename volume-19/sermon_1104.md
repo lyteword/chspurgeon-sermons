@@ -8,7 +8,7 @@ Now, Nature is not at work to amuse and please us merely&mdash;its mission is in
 
 As surely as in due season the earth brings forth her buds and the garden causes the things that are sown in it to spring forth, so shall God's great purposes be accomplished and righteousness and praise shall spring forth before all the nations. The teaching of this morning is that there is a spiritual springtime appointed of God and it will surely come! As certainly as spring comes to the earth physically, so surely will it come to the Church spiritually! As certainly as God keeps His Covenant with the elements, so will He keep His Covenant with His Church and with His Son.
 
-I shall need you, this morning, first to CONTEMPLATE THIS TRUTH IN REFERENCE TO THE BROAD FIELD OF THE WORLD. Let our meditations go abroad and let them range through history and into prophecy. God will surely, in the great world at large, cause the principles of righteousness which bring praise to His name to spring forth before all mankind. This leads us, first of all, to expect that there may be, in God's work, and in our work for God, a period of unrequited labor. The analogy between the processes of Nature and God's work in the Church holds good not only as to the revivals of spring, but as to the depressing incidents of winter.
+I shall need you, this morning, first to CONTEMPLATE THIS TRuth IN REFERENCE TO THE BROAD FIELD OF THE WORLD. Let our meditations go abroad and let them range through history and into prophecy. God will surely, in the great world at large, cause the principles of righteousness which bring praise to His name to spring forth before all mankind. This leads us, first of all, to expect that there may be, in God's work, and in our work for God, a period of unrequited labor. The analogy between the processes of Nature and God's work in the Church holds good not only as to the revivals of spring, but as to the depressing incidents of winter.
 
 There is a time when the farmer is occupied with the plow and with the scattering of the seed, while from day to day he sees no result from his labor. He trusts to the earth his golden grain and buries it in hopes of a future springing up, but month after month he has no return. He watches patiently, he sees the dreary months go round but not a single ear is brought loose to give him promise, much less do ample sheaves reward his toil. "Dread winter reigns tremendous over the conquered year." The vegetable world lies dead. As it is in the natural world we must expect it to be in the spiritual world&mdash;there will ordinarily be a time of unrequited sowing for the Lord's laborers. To a great extent this was so with the Church of God in her early history. Then she was fitly imaged in these words&mdash;"a sower went forth to sow."
 
@@ -75,7 +75,7 @@ My soul loathes the theory of some that this world will get worse, and worse, an
 
 Now, I shall spend just a minute or two upon the same topic, setting it in another light. Dear Brothers and
 
-Sisters, I want you to CONTEMPLATE THIS TRUTH IN REFERENCE TO THE GARDEN COMMITTED TO
+Sisters, I want you to CONTEMPLATE THIS TRuth IN REFERENCE TO THE GARDEN COMMITTED TO
 
 YOUR OWN PERSONAL CULTIVATION. As God's people you have all something to do for Him. I want you to do it and to do it in the best possible manner. But I am sure you will not do so unless you are of good heart and full of comfort. Be not impatient with regard to the result of what you are doing. A little child puts his seed into the ground and he goes in an hour or two and stirs the ground to see whether the seed is growing. That is because he is a little child&mdash;if he were a man he would know better.
 
@@ -85,7 +85,7 @@ Remember that if a farmer were to sigh every morning, it would not make his whea
 
 If God's work were as weak as God's workers are, it would be weak, indeed, and if the kingdom of Jesus depended upon the strength of His disciples it would soon come to nothing! The garden causes the seeds that are sown in it to spring forth though a consumptive hand may have dropped them into their places! My dear fainting Brethren, work on, wait on, pray on, watch on! You shall have your reward before long&mdash;"He that goes forth and weeps, bearing precious seed, shall doubtless come again rejoicing, bringing his sheaves with him." I may not linger longer upon this point.
 
-I beg you, in the third place, to CONTEMPLATE THIS SAME TRUTH IN REFERENCE TO THE
+I beg you, in the third place, to CONTEMPLATE THIS SAME TRuth IN REFERENCE TO THE
 
 BELIEVER's SPIRITUAL STATE. Do you not sometimes fall into a wintry condition? I mean you who love the Lord. I think I need hardly ask you, for one of us may generally serve as specimen of the rest. There are times when we feel as if we had no life at all. We hope we love God and our faith is fixed in Christ, but we cannot see much evidence of it. We read the Bible and it is dull. We try to pray and we get through a sort of exercise which we hope is prayer, but it does not refresh us. And even the prospect of going up to the House of God on Sunday makes us groan out, "Lord send us a blessing," but we hardly think He will. We feel so dull and dead and cold.
 
