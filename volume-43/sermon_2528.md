@@ -76,7 +76,7 @@ But you must get away from your stranger husband, for if you cleave to him, you 
 
 The other day, one who had been attending a religious service and mocking and jesting at everything sacred, said, when he was talked to about it, "Oh, but I am a Christian! Jesus died for me." It was a lie! He had neither part nor lot in the matter, or else he could not have acted profanely as he did! And there are others who talk as he did, but I tell you, Sirs, whatever you say, this is what God says, "A stranger shall not eat thereof." If you have not been born again, you cannot feed upon Christ! But, oh, if you will look to Him who died for the sinner, then you shall feed upon Him who lives for the saint! God Bless you in both these respects, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN6:41-71.
+Exposition by C. H. Spurgeon: John6:41-71.
 
 Verse 41. The Jews then murmured at Him&mdash;That is, at our blessed Lord. "The Jews then murmured at Him."
 

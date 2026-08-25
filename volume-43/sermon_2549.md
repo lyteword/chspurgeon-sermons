@@ -66,7 +66,7 @@ And, sometimes, it is a good thing to put it to yourself, "Why, I have stood up 
 
 I would like you all to take up these three threads&mdash;"No longer," "The rest of His time," "The time past of our life." Wind them round your finger and keep them in your memory, and may God grant that we may all start afresh from this time, to the praise of the glory of His Grace! Amen and amen.
 
-EXPOSTION OF C. H. SPURGEON: 1 PETER 4
+EXPOSTION OF C. H. Spurgeon: 1 Peter 4
 
 Verse 1. Therefore since Christ has suffered for us in the flesh, arm yourselves, likewise, with the same mind. Accepting this great Truth of God, that it is well that the flesh should die that the spirit may triumph, even as it was with Christ.
 

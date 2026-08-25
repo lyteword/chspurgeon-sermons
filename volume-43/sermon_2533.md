@@ -70,7 +70,7 @@ This is the typical of the talk that we hear from many in this evil age, "Of cou
 
 "Oh," says one, "what do you mean by thatexpression?" I mean that I wish I could realize the truth of Paul's words, "I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me." I would gladly have no liberty to do anythingthat is even questionable! I would find my liberty in being perfectly holy. Oh, that God would help each one of us to reach that point! Amen.
 
-EXPOSITION BY C. H. SPURGEON: 2 PETER 3.
+Exposition by C. H. Spurgeon: 2 Peter 3.
 
 Verse 1. This second epistle, Beloved, I now write unto you; in both which I stir up your pure minds by way of remembrance. The purest minds need stirring up at times. It would be a great pity to stir up impure minds. That would only be to do mischief. But pure minds may be stirred as much as you please and the more the better! There are hallowed memories in the minds of all Christians, but those memories are apt to lie asleep&mdash;it is well to ring the alarm bell and wake up all the memories within the Believer's heart, even as Peter did when he wrote&mdash;"I stir up your pure minds by way of remembrance."
 

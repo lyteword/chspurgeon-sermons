@@ -6,7 +6,7 @@ I THOUGHT I would hardly preach a set discourse from this familiar text, but jus
 
 My one thought at this time is not concerning my subject, but my objective. I have not any particular subject, but my objective is that some poor prodigal may return to God, that some lost child may come back to the Father's heart, that, in fact, some sinner may repent of sin and believe in Jesus and so enter into rest this very hour! I would rather be the means of saving a soul from death than be the greatest orator on earth! I would rather bring the poorest woman in the world to the feet of Jesus than I would be made Archbishop of Canterbury! There is no honor and no dignity under Heaven that can content us unless souls are won for Christ! And if souls are won, we shall care little how the great work was done instrumentally, for God will have the whole of the glory of it.
 
-From my text I am going, first, to make this observation, that THE COMING SINNER's FORECASTS DIFFER VERY MUCH FROM THE FACTS.
+From my text I am going, first, to make this observation, that THE COMING SINNER's FORECASTS DIFFER VERY MUCH FROM THE FActs.
 
 When a sinner comes back to God, he generally has a notion of how he is coming back and what he is going to feel&mdash; and what he is going to say, and what he is going to receive. He fashions in his mind a kind of program of what he fancies is about to happen. But, so far as my observation has gone, his programs are generally good for nothing and his forecasts of what will happen are usually quite mistaken! This forlorn son said, "I will arise and go to my father, and I will ask him to make me as one of his hired servants."
 
@@ -26,9 +26,9 @@ So, you see, this prodigal's program was erroneous, both as to his own prayers a
 
 So much for the first observation, that the coming sinner's forecasts differ very much from the facts.
 
-My second remark is that THAT WHICH PREVAILS WITH GOD IS NOT THE COMING SINNER's
+My second remark is that THAT WHICH PREVAILS WITH God IS NOT THE COMING SINNER's
 
-PRAYER TO GOD, BUT GOD's SIGHT OF HIM.
+PRAYER TO God, BUT God's SIGHT OF HIM.
 
 Notice, when the prodigal resolved to return, he promised to himself what he would say to his father. But his father fell on his neck and kissed him before he could utter his petition&mdash;"When he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. And the son said unto him, Father, I have sinned." The utterance of the prayer of the son followed the display of love on the part of the father! The reason why the father acted with such wondrous favor to his son was not because the prodigal had prayed, for he had not done so. He had resolved to pray, but he had not actually prayed. His prayer followed the deed of mercy done by his father&mdash;and the cause of that mercy was that his father saw him! Do notice that his father saw him and, therefore, had compassion on him. His father saw him and, therefore, ran to him. His father saw him and, therefore, fell on his neck. His father saw him and, therefore, kissed him!
 
@@ -74,7 +74,7 @@ Now, after all this, I think that I may add that there is nobody here who dares 
 
 May He turn you, and bless you, and save you, for His great mercy's sake! Amen.
 
-EXPOSITION BY CHARLES H. SPURGEON: LUKE 15.
+Exposition by CHARLES H. Spurgeon: Luke 15.
 
 Verse 1. Then drew near unto Him all the publicans and sinners for to hear Him. It was a motley group&mdash;"all the publicans and sinners"&mdash;the riff-raff, the scum, as people sometimes call them. "All the publicans and sinners" drew near unto Jesus "for to hear Him."
 

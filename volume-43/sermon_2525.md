@@ -20,7 +20,7 @@ Thus you see, dear Friends, that Believers have matter for joy, motive for joy, 
 
 Now, coming to the text, which is intended to promote our joy, I gather two observations&mdash;first, that the Lord Jesus enters into our s orrows. He does not overlook them, but He says, "You now, therefore, have sorrow." Secondly, the Lord Jesus creates our joy. "But I will see you again, and your heart shall rejoice, and your joy no man takes from you."
 
-First, then, dear Friends, you who are sorrowful, listen to this former part of the discourse. THE LORD JESUS CHRIST ENTERS INTO OUR SORROWS.
+First, then, dear Friends, you who are sorrowful, listen to this former part of the discourse. THE Lord Jesus Christ ENTERS INTO OUR SORROWS.
 
 One point in which He enters into them is this&mdash;He sees our quickness in sorrowing. Perhaps you did not notice that in the text, but it is there. You observe, in the twentieth verse, that Jesus said to His disciples, "You shall be sorrowful," and He compared them to a woman in travail. But then He did not say what we might have thought He would have said, "You will, therefore, have sorrow," but He said, "You now, therefore, have sorrow." He saw their faces begin to pale before the sorrow had really come. He had not gone away from them, for there He stood in their midst&mdash;but in the expectation that He would go, their eyes began to grow dim and the tears commenced to roll down their cheeks, so He said as He looked at them, "You now, therefore, have sorrow." And, Beloved, you and I also are very quick at this work of sorrowing. I wish that we anticipated our joys with half the readiness that we anticipate our sorrows! We would be much happier if we did, but there is many a child of God who cries long before he is hurt and sorrows long before his troubles actually come to him.
 
@@ -68,7 +68,7 @@ I wish that all of you shared in this joy, but those who do not believe in Jesus
 
 Oh, did you know that happy day when Jesus puts our sins away&mdash;if there were a time fixed and you knew it&mdash;I think you would grow almost impatient to have it even earlier! Do not postpone this heavenly marriage, I pray you, who have been at enmity against God! Do not put off being reconciled to Him, for he who fights with God had better quickly end the battle! So be silent and end all your discussions with God without a word unless it is such a word as this, "Lord, I believe! Help You my unbelief!" God grant that you may be led to believe in Jesus now, for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 16:16-33.
+Exposition by C. H. Spurgeon: John 16:16-33.
 
 Our Lord is speaking to His disciples before His departure from them to be crucified, and He says.
 

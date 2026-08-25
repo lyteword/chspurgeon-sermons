@@ -76,7 +76,7 @@ I wish that we were all agreed, by the power of the good Spirit, that we would t
 
 "O Lord, turn us! Turn us and we shall be turned! And, if You have turned us, help us to persevere in righteousness, and let us not turn again to folly. But oh, turn men and women tonight, for Your love's sake&mdash;for Your mercy's sake&mdash; for Christ's sake! Turn the whole congregation of unsaved ones with their face to the Cross! And may they look on Him whom they have pierced, and mourn for their sin! And then may they look again unto Him and be lightened, as they see their sin effectually and eternally put away by the substitutionary Sacrifice of their redeeming God! Answer, O Christ, the cries of our soul, for Your own name's sake! Amen."
 
-EXPOSITION BY C. H. SPURGEON: LUKE 13:1-22.
+Exposition by C. H. Spurgeon: Luke 13:1-22.
 
 Verse 1. There were present at that season some that told Him of the Galileans, whose blood Pilate had mingled with their sacrifices. It was a cruel and wicked act on the part of Pilate to wreak his vengeance upon the Galileans when they were occupied in offering the sacrifices of their religion.
 

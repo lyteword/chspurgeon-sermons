@@ -1,6 +1,6 @@
 # Sermon 2530 | "A Peculiar People"
 
-"But know that the LORD has set apart him that is godly for Himself: the Lord will hear when I call to Him." Psalm 4:3.
+"But know that the Lord has set apart him that is godly for Himself: the Lord will hear when I call to Him." Psalm 4:3.
 
 If you read this Psalm through, you will notice that when David wrote it, he had been pestered and troubled by certain ungodly men who had made a mockery of that which was his greatest delight. They had turned his glory into shame and had proved that they loved folly and falsehood. So he said to them, "O you sons of men, how long will you turn my glory into shame? How long will you love vanity and seek after leasing"&mdash;or, "lying?" In order that he might stop them from angering him, he reminded them of two great facts. "But know"&mdash;he said&mdash;understand, do not doubt it, rest assured of it, "know that Jehovah has set apart him that is godly for Himself: Jehovah will hear when I call to Him." Why did David want these men to know those two facts?
 
@@ -115,7 +115,7 @@ He will either stop those wicked men's mouths, or else He will open yours. He wi
 
 "The Lord will hear when I call to Him." Call unto Him now and He will hear and answer you! And so let us come to His Table, happy and joyful, through Jesus Christ our Lord. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM119:25-32.
+Exposition by C. H. Spurgeon: Psalm119:25-32.
 
 Verse 25. My soul cleaves unto the dust quicken me according to Your Word. "I feel heavy, unhappy, dull. 'My soul cleaves unto the dust.' Or I feel worldly, lethargic, lifeless. 'My soul cleaves unto the dust.' There is nothing but the power of new life that can separate me from that dust! 'Quicken me according to Your Word.'" Divine life is the great cure for most spiritual evils. When a man has vigorous life in his constitution, he throws off many diseases. And when the soul is full of spiritual life, it masters a great number of evils. "My soul cleaves unto the dust: quicken me according to Your Word." That is good pleading&mdash;"according to Your promise, for You have promised to quicken me. It is the nature of Your Word to be quick and quickening; therefore, Lord, 'quicken me according to Your Word.'"
 
@@ -133,6 +133,6 @@ Your judgments have I laid before me. "Like a map, so that I might follow the wa
 
 I have stuck to Your testimonies. I like that word, "stuck." "I have stuck to Your testimonies." "I could not be drawn or dragged away from them. Some have told me of some fine new ideas and modern grand discoveries, but 'I have stuck unto Your testimonies.' They came before me with something very artistic and scientific, but 'I have stuck unto Your testimonies'"
 
-O LORD, put me not to shame. You may rest assured that He never will! If a man clings to God, God will cleave to him. If we are not ashamed of God, He will never put us to shame, but we shall go from strength to strength glorying in His Truth and Grace.
+O Lord, put me not to shame. You may rest assured that He never will! If a man clings to God, God will cleave to him. If we are not ashamed of God, He will never put us to shame, but we shall go from strength to strength glorying in His Truth and Grace.
 
 I will run the way of Your commandments, when You shall enlarge my heart There is an enlargement of the heart that is very dangerous, but this kind of enlargement of the heart is the most healthy thing that can happen to a man! A great heart, you see, is a running heart. A little heart goes slowly, but an enlarged heart runs in the way of God's Commandments. Oh, for a heart full of love to God! And then to have that heart made larger, so as to hold more of God's love! Lord. enlarge my heart in that sense! Let me feel at home and at liberty with You! Let the last link of my bondage be snapped. Amen.

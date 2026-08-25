@@ -8,7 +8,7 @@ Let no man, therefore, attach great importance to himself, as though God's cause
 
 He is infinitely greater than we are, so that what I shall have to say to you at this time about our going to work for God in His vineyard is not to be understood as though we could do anything meritorious in the eyes of our Maker, or as if He had any need of us. He is great and glorious, whatever we may be, and it is for our joy, our safety, our everlasting happiness that we should become His servants. It is necessary for the right ordering of our lives, that our hearts may be in tune to yield the music of joy, that we should be tuned by obedience to His will and that we should learn to serve Him. My prayer is that, this very hour, some who have never known our Savior may find Him making Himself known to them and engaging them in His service.
 
-I shall begin by asking, first, HOW MAY THE LORD BE SAID TO GO OUT?
+I shall begin by asking, first, HOW MAY THE Lord BE SAID TO GO OUT?
 
 Please notice what it says in the first verse of this chapter, "The Kingdom of Heaven is like unto a man that is an householder, which went out early in the morning." Then it says in our text, "He went out about the third hour." In the fifth verse, "Again he went out about the sixth and ninth hours." And in the sixth verse, "And about the eleventh hour he went out and found others standing idle." How may God be said to go out?
 
@@ -52,7 +52,7 @@ There are also others who are laboriously idle, wearied with toils which accompl
 
 There are some who are idling because of their constant indecision. They are not altogether bad, but they are not good. They do not serve the devil unless it is by neglecting to serve God. Though they are idle, they are full of good intentions&mdash;but so they have long been. If they were now what they resolved to be 10 years ago, there would be a great change in them. But no. And, apparently, in 10 years' time they will be as they are now. That is to say, if God spares them. They will get no farther, for they are of the sort that "resolve and re-resolve," and yet remain the same. I almost wish that they would say that they would be lost, sooner than say that they will be saved and yet not mean it, for, if they said that they would be lost, they would recoil from it with horror after having said it! But now they play with God, with eternity, Heaven and Hell, and say, "I will, I will, I will." And always it is, "I will," yet they never will to make that, "I will," a thing of the present moment. Sirs, if a house were on fire and you were in the upper story, it would be a pity to say, "I will escape, by-and-by, when the flames have reached another story, but I must wait a little while." No, you would be eager to escape at once, I am sure that you would! And wisdom dictates that a man should not always parley and say, "I will," and yet never come up to the mark. Wisdom dictates that, by the Grace of God, we should say, "I have reached the end of my indecision. I will begin to live for God, if He will give me spiritual life. I will cast off the works of darkness if God will give me spiritual light. I will lay myself at Jesus' feet and cry, 'save me, O Lord, for I long to escape from my sin and to be an idler no longer!'"
 
-I will not say more upon that point, but go on to the next question&mdash;WHAT WORK WOULD THE LORD
+I will not say more upon that point, but go on to the next question&mdash;WHAT WORK WOULD THE Lord
 
 HAVE THESE IDLERS DO&mdash;
 
@@ -84,7 +84,7 @@ If I remember rightly, there was a man who was converted at the age of 103. He w
 
 He was a very old man. Did I think that he was too old? No, I did not. Bless him! I was glad to see him. He was baptized at 86 and that day he was so happy! Those who knew him never saw him so joyful. He was trusting in the precious blood and he had obeyed his Master's command. He had about three months of the days of Heaven upon earth in which, if you saw the old man, you must have noticed how bright he was. He walked with God and then he went Home. We had not our old member long, had we? No, but there sits in this place, if she has been able to get here, tonight, a Sister who joined this Church when she was about sixteen, and she has been a member 76 years and is still among us! Think of the difference between these two&mdash;one makes a confession of faith for 76 years, and another for only two or three months! Yet they shall both receive their penny! I am sure we do not grudge the penny to the Brother who came in at eighty-six. We are glad that he should have the full tale of blessing here and hereafter. Still, dear Friends, do not wait as long as he did. And if you have waited until now, make haste and get to Christ at once! May His Holy Spirit lead you and guide you, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON. MATTHEW 19:13-30; 20:1-16.
+Exposition by C. H. Spurgeon. Matthew 19:13-30; 20:1-16.
 
 All sorts of persons are invited to come to Christ, whatever their age may be. We begin here with the children.
 

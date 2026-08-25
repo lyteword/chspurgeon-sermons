@@ -44,7 +44,7 @@ Further, if you do come just as you are, empty-handed and foul, and receive what
 
 If any of you desire to know how you are to be saved, I tell you again that there is nothing for you to do in order to merit salvation&mdash;you have rather to leave off your own doing and to rest in what Christ has done! Have I put the matter plainly enough? No, I have not, for who can make it so plain that a blind man can see it? God must open the blind man's eyes and then he will see it! Yet there it stands, clear and plain&mdash;salvation is the free gift of God! It is all of Grace from first to last!
 
-now, in the third place, I must speak upon THE LARGENESS OF GOD's PARDON&mdash;"The free gift is of many offenses."
+now, in the third place, I must speak upon THE LARGENESS OF God's PARDON&mdash;"The free gift is of many offenses."
 
 I would like to stand here and preach, not merely for seven days, or seven weeks, but for seven years, upon those words which I have just repeated&mdash;"The free gift is of many offenses." You would be worn out, I daresay, with listening, but I would let you go home and invite another congregation to fill the house to hear this wondrous story, which can never be fully told!
 
@@ -54,7 +54,7 @@ Think, next, of the many offenses which all of these saved sinners must have com
 
 Think, dear Friends, of the number of times that you have committed any of these sins. I will not ask you to count them, for they are greater in number than the hairs of your head, or the sands on the seashore. You have sinned once, twice, three times&mdash;begin with millions&mdash;and you will be nearer the mark! There are men who seem to make every breath a sin. They breathe out iniquity and every pulse beats in rebellion against the Most High. They are always sinning and yet they are never satisfied&mdash;their appetite grows with that it feeds upon. Yet in this text there is hope, even, for such sinners as they are! "The free gift is of many offenses." Poor blackamoor sinner, where are you? This message is meant for you&mdash;for you who drip with filth as you go along&mdash;you whose speech would make the cheek of modesty to blush! The free gift is for you whose hearts must be a very morgue&mdash;a reeking sepulcher of iniquity! Yet even to such as you is my text sent to declare that "the free gift is of many offenses unto justification."
 
-there is sufficient sea room there for us to sail on as long as we please, but I must come to my last point which is&mdash;THE PERFECTION OF GOD's GRACE&mdash;"The free gift is of many offenses unto justification." I have time only to say a very little upon that wonderful theme. May the Holy Spirit, Himself, teach you what it means!
+there is sufficient sea room there for us to sail on as long as we please, but I must come to my last point which is&mdash;THE PERFECTION OF God's GRACE&mdash;"The free gift is of many offenses unto justification." I have time only to say a very little upon that wonderful theme. May the Holy Spirit, Himself, teach you what it means!
 
 What is justification? You have, perhaps, heard of, "justification by faith," till you scarcely attach any meaning to that familiar phrase. Well, first, justification is the reverse of condemnation. Do you know what condemnation is? I suppose that you never were condemned in a court of law, but were you ever condemned in the court of conscience? Did all your thoughts sit, like a jury, to try your whole life? And did they, with one consent, by the mouth of the foreman, say, "Guilty?" I tell you, Sirs, you do not know how to spell, "justification," till every letter of the word, "condemnation," has burnt itself into your soul. These two things must go together&mdash;the condemnation, like a harrow, tearing up the earth, or, like a great sub-soil plow, cutting up everything as it runs along. And then comes justification, like a sweet, gentle shower, softening the clods and preparing for the precious grain that shall produce a harvest of glory. Condemnation on account of sin is a very real thing&mdash;those who have felt it know that it is. Many a man has been ready to lay violent hands upon himself when he has been under sentence of condemnation! And justification is quite as real.
 
@@ -64,7 +64,7 @@ Justification further means actual acquittal. I want you to get that Truth of Go
 
 "The free gift is of many offenses unto justification." If you were as guilty as the greatest sinner out of Hell, believing in the Lord Jesus Christ, that guilt is all gone! The righteousness of Christ is yours, you are justified before God and, therefore, you are in perfect security and safety now and forever! And you shall forever adore the Divine Grace that has saved such a sinner as you feel yourself to be! God bless you all, for Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: Jonah 3,4:1,2; Romans 5.
+Exposition by C. H. Spurgeon: Jonah 3,4:1,2; Romans 5.
 
 Jonah 3:1, 2. And the Word of the Lord came unto Jonah the second time, saying, Arise, go unto Nineveh, that great city, and preach unto it the preaching that I bid you. There is no preaching like that which Gods bids us. The preaching that comes out of our own heads will never go into other men's hearts. If we will keep to the preaching that the Lord bids us, we shall not fail in our ministry.
 

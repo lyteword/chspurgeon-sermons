@@ -4,7 +4,7 @@
 
 THIS was one of David's sayings&mdash;"I said." It was a saying that was worth saying and it is worth re-saying&mdash;"I said, Lord, be merciful unto me." How often he said it, we do not know. The more often, the better. There is no day too bright for saying it and there is no night too dark for saying it. "I said, Lord, be merciful unto me." Every one of David's sayings was not worth repeating, for he said some things that he had to retract. "I said in my haste," he said, on one occasion and, possibly, what he said in his haste he repented of at his leisure. But this saying in our text needs no retracting! It only needs repeating and, until we enter Heaven, we may keep on saying it&mdash;"I said, Lord, be merciful unto me." I have never heard of Christ rebuking anybody for speaking thus. He who said, "God, I thank You that I am not as other men are," received no commendation from the Lord Jesus Christ. But he who said, "God, be merciful to me, a sinner," went down to his house justified rather than the other! This is a good saying, a true saying, a humble saying and a gracious saying. And I say again, the more often it is repeated, the better. "I said, Lord, be merciful unto me."
 
-Observe that this is a saying to the Lord&mdash;"I said, LORD, be merciful unto me." You hear people say, when they are talking and gossiping, "I said to her and she said to me," or, "He said to me and I said to him"&mdash;so-and-so and so-and-so. Well, what does it matter what you said or what they said? Very likely it is not worth repeating, nor the answer that was made to it! Much of what is said may be summed up in the Dunottar Castle motto&mdash;
+Observe that this is a saying to the Lord&mdash;"I said, Lord, be merciful unto me." You hear people say, when they are talking and gossiping, "I said to her and she said to me," or, "He said to me and I said to him"&mdash;so-and-so and so-and-so. Well, what does it matter what you said or what they said? Very likely it is not worth repeating, nor the answer that was made to it! Much of what is said may be summed up in the Dunottar Castle motto&mdash;
 
 "THEY SAY. WHAT DO THEY SAY? LET THEM SAY."
 
@@ -74,7 +74,7 @@ There can be no more mingling of the two together as the ground of hope than oil
 
 Just before I came in to this service, I saw a young Brother whom I mean to propose to the Church and who. last Sunday came to me, after the morning sermon, and said, "Sir, I am saved, and I know I am." And as I spoke to him, I thought that I knew it, too. Why should there not be many others in the same blessed condition? What is the use of preaching&mdash;what is the use of this vast crowd coming together and going away again&mdash;unless men and women believe in Christ? Look unto Jesus and be saved! If you look, you shall be saved now! The Lord lead you to look at this very moment, and unto Him be praise forever and ever! Amen.
 
-EXPOSITION C. H. SPURGEON: PSALMS 41, 42.
+Exposition C. H. Spurgeon: PsalmS 41, 42.
 
 You will see, dear Friends, from these holy songs, that the saints of God in those olden days were not screened from trials and troubles, but were tempted in all points like as we are. If we happen to be in similar trying circumstances, let us take comfort from their experiences. The footsteps of the flock that has gone before should make the sheep feel that it is not lost.
 
@@ -92,9 +92,9 @@ And if he comes to see me, he speaks vanity: his heart gathers iniquity to itsel
 
 7-9. All who hate me whisper together against me: against me do they devise my hurt An evil disease, say they, cleaves fast unto him: and now that he lies, he shall rise up no more. Yes, my own familiar friend, in whom I trusted, which did eat of my bread, has lifted up his heel against me. Many a child of God has had his character whispered down by slanderers. Many a man has had a hard time of it through the evil speaking of men of the world. Yes, even the Lord of saints and the King of pilgrims knew what it was to find a traitor in His most familiar friend and to receive the basest ingratitude from one who had eaten of His bread. Do not be carried away with too much sorrow if you are slandered or betrayed&mdash;better men than you have suffered through this fearful evil! Take the trouble to your Lord and bear it with such patience as He will give you.
 
-10, 11. But You, O LORD, be merciful unto me, and raise me up, that Imay requite them. By this Iknow that You favor me, because my enemy does not triumph over me. "He may think that he shall triumph over me. He may even begin, in his mind, to divide the spoil. But he shall never really get it&mdash;'My enemy does not triumph over me.'"
+10, 11. But You, O Lord, be merciful unto me, and raise me up, that Imay requite them. By this Iknow that You favor me, because my enemy does not triumph over me. "He may think that he shall triumph over me. He may even begin, in his mind, to divide the spoil. But he shall never really get it&mdash;'My enemy does not triumph over me.'"
 
-12, 13. And as for me, You uphold me in my integrity, and set me before Your face forever Blessed be the LORD God of Israel from everlasting, and to everlasting. Amen, and Amen.
+12, 13. And as for me, You uphold me in my integrity, and set me before Your face forever Blessed be the Lord God of Israel from everlasting, and to everlasting. Amen, and Amen.
 
 That is the sick man's praise&mdash;it is full of fervor and full of life. Let us never rob God of the revenue of His praises! Let us not have such a cupboard love for Him that we only praise Him when He gives us good things. Let us bless His name just as much when He takes away, when He afflicts, when He chastises! That is true praise which comes from the bed of affliction and from a heart that is sorely broken with sorrow.
 

@@ -64,7 +64,7 @@ I have come to deal with God's people in the close of my subject, but I almost w
 
 HYMNS FROM "OUR OWN HYMN BOOK" &mdash;145 (PART 1), 978, 977.
 
-EXPOSITION BY C. H. SPURGEON: PSALM145.
+Exposition by C. H. Spurgeon: Psalm145.
 
 I am going to preach about prayer,   so we will read "David's Psalm of Praise." Thus we shall have two parts of true worship.
 
@@ -80,11 +80,11 @@ I will speak of the glorious honor of Your majesty. This is a beautiful expressi
 
 They shall abundantly utter the memory of Your great goodness. Mark every word in this choice expression&mdash; "They shall abundantly utter the memory of Your great goodness." They shall see this goodness and they shall appreciate it as greatgoodness! They shall remember it and so have the memory of God's great goodness and then they shall speak of it. "They shall utter the memory of Your great goodness" and when they have done so, they shall do it again and again! "They shall abundantly utter the memory of Your great goodness."
 
-8. And shall sing of Your righteousness. The LORD is gracious, and full of compassion. He has no passion, but He is full of compassion! What a mercy that is for us! Sometimes we hear persons say that God cannot do this or that&mdash; that He cannot feel and cannot suffer. That is not true, for He can do anything that He likes. A god who has no feeling is a poor god&mdash;of no service whatever to us&mdash;but "theLord's gracious and full of compassion."
+8. And shall sing of Your righteousness. The Lord is gracious, and full of compassion. He has no passion, but He is full of compassion! What a mercy that is for us! Sometimes we hear persons say that God cannot do this or that&mdash; that He cannot feel and cannot suffer. That is not true, for He can do anything that He likes. A god who has no feeling is a poor god&mdash;of no service whatever to us&mdash;but "theLord's gracious and full of compassion."
 
 Slow to anger, and of great mercy. Oh, what a blessing it is for you and for me that He is slow to anger!
 
-The LORD is good to all: and His tender mercies are over all His works. Whether you search for the far-distant with a telescope, or peer into the minute with the microscope, the Lord's tender mercies are found everywhere! Like the light, without which you see nothing, so is the mercy of God&mdash;it enlightens everything! "His tender mercies are over all His works."
+The Lord is good to all: and His tender mercies are over all His works. Whether you search for the far-distant with a telescope, or peer into the minute with the microscope, the Lord's tender mercies are found everywhere! Like the light, without which you see nothing, so is the mercy of God&mdash;it enlightens everything! "His tender mercies are over all His works."
 
 All Your works shall praise You, O Lord; and Your saints shall bless You. "Standing in the inner circle, 'Your saints' shall mingle their love with their praise and so 'shall bless You.' Theirs shall be a choicer, more tender worship than that of all 'Your works' besides." The works of God are like a great organ, but it is man who puts his fingers upon the keys and brings forth all the music. Man is the interpreter of the universe&mdash;he praises God as the inanimate creation can never do.
 
@@ -96,7 +96,7 @@ Your Kingdom is an everlasting Kingdom. Other kingdoms come and go. They last du
 
 And Your dominion endures throughout all generations. What kind of a King is this whose Kingdom is everlasting and what are the acts that make Him famous? Notice the first thing He is said to do.
 
-The LORD upholds all that fall, and raises up all those that are bowed down. This is His glory! This is the majesty of the King of kings, that He takes notice of the poor and weak! The compassion of God is, to a great extent, the glory of God. That He has such tender mercies toward the unworthy is the subject of the loudest of our songs! "Jehovah upholds all that fall," that is, such as wouldfall were it not for His upholding! Jehovah lifts up all those who have fallen and raises up those who are bowed down. Blessed be His holy name!
+The Lord upholds all that fall, and raises up all those that are bowed down. This is His glory! This is the majesty of the King of kings, that He takes notice of the poor and weak! The compassion of God is, to a great extent, the glory of God. That He has such tender mercies toward the unworthy is the subject of the loudest of our songs! "Jehovah upholds all that fall," that is, such as wouldfall were it not for His upholding! Jehovah lifts up all those who have fallen and raises up those who are bowed down. Blessed be His holy name!
 
 The eyes of all wait upon You. What a King is this who must feed all His subjects and who must have all His subjects depend upon Him alone! "The eyes of all wait upon You."
 
@@ -104,11 +104,11 @@ And You give them their meat in due season. It is an act of Grace, not of debt&m
 
 You open Your hand and satisfy the desire of every living thing. As men feed doves in their courtyard, carrying down to them their little handful of food and opening the hand to pour it out, so does God feed all living creatures readily and easily enough by the simple opening of His hand. But He does it. He satisfies the desire of every living thing and He will satisfy your desire, dear Soul, if you take it to Him. You say, perhaps, that you are very poor. Well, then, cry to Him! He has never failed His creatures, yet, and He will not fail you! He hears the young ravens when they cry and He will hear you, a man created in the image of God, when you cry to Him.
 
-18. The LORD is righteous in allHis ways, and holy in allHis work The LORD is near unto all them that call upon Him, to all that call upon Him in truth. As the Omnipresent Deity, the Lord is not far from any of us, but there is a peculiar nearness of God to His people&mdash;a nearness of knowledge, a nearness of affection, a nearness of heart by which He looks upon them as His own special portion, His own peculiar heritage. "Jehovah is near unto all them that call upon Him." That is the name of His people&mdash;they are a calling people, they are a praying people&mdash;and they pray to Him "in truth." There are some who offer the mockery of pretended prayer, but God is not near to them in the special sense in which He "is near unto all them that call upon Him in truth."
+18. The Lord is righteous in allHis ways, and holy in allHis work The Lord is near unto all them that call upon Him, to all that call upon Him in truth. As the Omnipresent Deity, the Lord is not far from any of us, but there is a peculiar nearness of God to His people&mdash;a nearness of knowledge, a nearness of affection, a nearness of heart by which He looks upon them as His own special portion, His own peculiar heritage. "Jehovah is near unto all them that call upon Him." That is the name of His people&mdash;they are a calling people, they are a praying people&mdash;and they pray to Him "in truth." There are some who offer the mockery of pretended prayer, but God is not near to them in the special sense in which He "is near unto all them that call upon Him in truth."
 
 He will fulfill the desire of them that fear Him'' 'He will fulfill"&mdash;He will fill full&mdash;"the desire of them that fear Him." If You fear Him, you need not fear any need! You have nothing at all that you need to fear.
 
-19, 20. He also will hear their cry, and will save them. The LORD preserves all them that love Him: but all the wicked will He destroy. These two things always go together&mdash;as surely as the Lord does the one, He will do the other. While He preserves His saints, He will certainly destroy the wicked.
+19, 20. He also will hear their cry, and will save them. The Lord preserves all them that love Him: but all the wicked will He destroy. These two things always go together&mdash;as surely as the Lord does the one, He will do the other. While He preserves His saints, He will certainly destroy the wicked.
 
 My mouth shall speak the praise of the Lord. God move us, each one, to do this! Then with the Psalmist we may fitly say&mdash;
 

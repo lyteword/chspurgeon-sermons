@@ -67,7 +67,7 @@ To my mind, and with this thought I will finish, there is the ring of heavenly m
 
 Now, dear Hearts, if God has found a Ransom and speaks thus joyously about it, I do pray you to accept it. "If you are willing and obedient, you shall eat the good of the land." Receive Christ and you have the proof that God has received you. Only take Him&mdash;you have nothing else to do! Put out that empty hand of yours, black though it is, and receive in it the Pearl of Great Price, even the Christ of God, Himself! Receive Him, accept Him, believe Him, trust Him! That is all you have to do. Oh, will you not trust Him? Can you doubt Him? If God takes upon Himself our nature and in that nature, dies, I cannot only trust Him with my soul, but if I had all your souls within my body, and all the souls of the millions of London all gathered beneath this breast&mdash;and if I had besides that the souls of all the sinners who have ever lived, all compressed within this one frame&mdash;I could believe that the dying Christ could blot out all that mass of sin! I believe it and so confide in Him&mdash;will not you? Verily, if you will not believe, neither shall you be established! But he that believes shall not be ashamed nor confounded, world without end! May God add His own blessing, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOB 33.
+Exposition by C. H. Spurgeon: Job 33.
 
 This is a speech of young Elihu who had sat quietly listening to the taunting words of the three "candid Friends" of Job&mdash;and to the somewhat exasperated replies of the Patriarch. At last, the young man breaks the silence and, with some dignity, and quite sufficient self-content, he thus addresses himself to Job.
 

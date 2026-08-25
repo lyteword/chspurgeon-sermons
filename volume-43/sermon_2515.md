@@ -72,7 +72,7 @@ Dr. Johnson said to one who showed him his beautiful garden and park, "These are
 
 So I leave with you both the precept and the promise of the text&mdash;"Seek you first the Kingdom of God, and His righteousness; and all these things shall be added unto you." May this be true of all of you, dear Friends, for our Lord Jesus Christ's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN 14.
+Exposition by C. H. Spurgeon: John 14.
 
 I suppose that many of you know this chapter by heart. I notice that in all old Christians' Bibles, this leaf is well worn&mdash;sometimes worn out. We have here our Lord's homely talk to His disciples. It is full of sublimity, yet it is blessedly simple. There is a sort of unveiling of Himself in this chapter. It is not so much like a public discourse as a private conversation and this tends to make the Savior's speech appear the more condescending, and yet, also, the more sublime.
 

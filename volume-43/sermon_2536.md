@@ -56,7 +56,7 @@ Have you anything to trust to beside Christ? Then you are lost, for you have a m
 
 I noticed, yesterday, when I was talking to some 40 persons who had recently found Christ, that they were, all of them, either hard at work for the Lord, or they were asking what they could do for Him. Could I tell them something they could do for their dear Lord who had saved them? There is far more done out of love than there is out of law. We will not, cannot do anything to be saved, but, when saved, what is there that we cannot do? Live, and then do! Not, do and live. Live in Christ and then serve Him, but do not put the cart before the horse! Come, dear Friends, and trust in Christ. The Lord bless you by His Divine Spirit leading you to do so, for Jesus' sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM78:9-72.
+Exposition by C. H. Spurgeon: Psalm78:9-72.
 
 This story of the children of Israel, after they came out of Egypt, is like a mirror in which we may, with great sadness, see ourselves reflected.
 
