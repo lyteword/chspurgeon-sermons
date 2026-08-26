@@ -1,6 +1,7 @@
 # Sermon 1830 | All Or None&mdash;or, Compromises Refused&mdash; a Sermon With Five Texts
 
-"There shall not an hoof be left behind." Exodus 10:26.
+> There shall not an hoof be left behind.
+> Exodus 10:26
 
 I SHALL have five texts&mdash;one of them a good one, the other four bad. The first text is good. It is God's text.
 

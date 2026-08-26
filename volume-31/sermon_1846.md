@@ -1,7 +1,7 @@
 # Sermon 1846 | The Purging of the Conscience
 
-"For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?" Hebrews 9:13,14.
-
+> For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?
+> Hebrews 9:13,14
 
 "To serve the living God" is necessary to the happiness of a living man&mdash;for this end were we made&mdash;and we miss the design of our making if we do not honor our Maker. "Man's chief end is to glorify God and enjoy Him forever." If we miss that end, we are terrible losers. The service of God is the element in which, alone, we can fully live. If you had a fish here upon dry land, supposing it possible that it could exist, yet it would lead a very unhappy life&mdash;it would scarcely be a fish at all! You could not tell of what it was capable. It would be deprived of the opportunity of developing its true self. It is not until you put it into the stream that the fish becomes really a fish and enjoys its existence.
 
