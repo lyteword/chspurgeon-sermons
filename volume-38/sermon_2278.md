@@ -1,6 +1,7 @@
 # Sermon 2278 | Feeding on the Word
 
-"Listen diligently to Me, and eat what is good, and let your soul delight itself in fatness." Isaiah 55:2.
+> Listen diligently to Me, and eat what is good, and let your soul delight itself in fatness.
+> Isaiah 55:2
 
 How important it is that we should hear God, that we should have an attentive ear to His Word and that it should, through our ears, reach our souls and become to us, consciously, the Living Word of the Living God! The great gate of commerce between Heaven and the town of Mansoul is Ear-Gate. We can see but little of the things of the Kingdom of God, but we can hear much concerning them.
 

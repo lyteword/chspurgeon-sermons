@@ -1,6 +1,7 @@
 # Sermon 2265 | Harvest Joy
 
-"You have magnified the nation, and increased the joy: they joy before You according to the joy in harvest, and as men rejoice when they divide the spoil." Isaiah 9:3.
+> You have magnified the nation, and increased the joy: they joy before You according to the joy in harvest, and as men rejoice when they divide the spoil.
+> Isaiah 9:3
 
 NOTICE that I make a correction in the version from which I am reading. The Authorized Version has it, "You have multiplied the nation, and not increased the joy." This is not consistent with the connection. The Revised Version has very properly put it, "You have multiplied the nation, You have increased their joy." I have not any learning to display, but I think I could show it to you, if this were the proper time, how the passage came to be read with a, "not," and I could also prove to you that, in this instance, the Revisers were right in making their alteration.
 

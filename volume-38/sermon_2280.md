@@ -1,6 +1,7 @@
 # Sermon 2280 | God's Handwriting Upon David
 
-"All this, said David, the Lord made me understand in writing by His hand upon me, even all the works of this pattern." 1 Chronicles 28:19.
+> All this, said David, the Lord made me understand in writing by His hand upon me, even all the works of this pattern.
+> 1 Chronicles 28:19
 
 THE Temple was not to be built according to the designs of David, or Solomon, or any other man. It was to be built according to a pattern which God, Himself, had formed. In the things of God we are not left to follow our own judgments and devices&mdash;we are to look to the Law and to the Testimony for our instructions. To God's Word we must always come for our orders. What God has commanded is binding upon us in His Church. What He has not commanded, we may safely leave undone.
 

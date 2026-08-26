@@ -1,6 +1,7 @@
 # Sermon 2266 | Blessing for Blessing
 
-"Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenlyplaces in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love." Ephesians 1:3, 4.
+> Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenlyplaces in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love.
+> Ephesians 1:3, 4
 
 God blesses us&mdash;let us bless Him! I pray that every heart here may take its own part in this service of praise&mdash;
 

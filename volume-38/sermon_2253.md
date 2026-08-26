@@ -1,6 +1,7 @@
 # Sermon 2253 | The Perseverance of Faith
 
-"Then Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will. And her daughter was made whole from that very hour." Matthew 15:28.
+> Then Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will. And her daughter was made whole from that very hour.
+> Matthew 15:28
 
 I have frequently spoken to you concerning the faith of this Canaanite woman&mdash;of the way in which Christ tried it and of the manner in which, at length, He honored it&mdash;and granted all that the suppliant sought. The story is so full of meaning that one might turn it this way, that way and the other way, but always see jewels in it. But I am going to use it with only one aim, namely, to encourage those who have faith enough to seek Jesus, but have not yet, to their joy and peace, been quite able to find Him.
 

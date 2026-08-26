@@ -1,8 +1,7 @@
 # Sermon 2242 | God's Will About the Future
 
-"Come now, you that say, today or tomorrow we will go into such a city, and continue there a year, and buy and sell, and get gain: whereas you know not what shall be on the morrow. For what is your life? It is even a vapor, that appears for a little time, and then vanishes away. For that you ought to say, If the Lord wills, we shall live, and do this or that. But now you rejoice in your boasting: all such rejoicing is evil. Therefore to him that knows to do good, and does it not, to him it is sin." James 4:13-17
-
-
+> Come now, you that say, today or tomorrow we will go into such a city, and continue there a year, and buy and sell, and get gain: whereas you know not what shall be on the morrow. For what is your life? It is even a vapor, that appears for a little time, and then vanishes away. For that you ought to say, If the Lord wills, we shall live, and do this or that. But now you rejoice in your boasting: all such rejoicing is evil. Therefore to him that knows to do good, and does it not, to him it is sin.
+> James 4:13-17
 
 MEN, today, are just the same as when these words were first written. We still find people saying what they are going to do today, tomorrow, in six months time or at the end of another year and, perhaps, still further. I have no doubt there are persons here who have their own career mapped out before them pretty distinctly&mdash;and they feel well-near certain that they will realize it all! We are like the men of the past, but this Book, though it has been written so long, might have been written yesterday, so exactly does it describe human nature as it is at the end of this nineteenth Century!
 

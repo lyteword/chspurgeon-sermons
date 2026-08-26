@@ -1,6 +1,7 @@
 # Sermon 2267 | Life From the Dead
 
-"And you has He quickened, who were dead in trespasses and sins." Ephesians 2:1.
+> And you has He quickened, who were dead in trespasses and sins.
+> Ephesians 2:1
 
 OUR translators, as you observe, have put in the words, "has He quickened," because Paul had thrown the sense a little farther on and it was possible for the reader not to catch it. They have but anticipated the statement of the fourth and fifth verses&mdash;"God, who is rich in mercy, for His great love wherewith He loved us, even when we were dead in sins, has quickened us together with Christ."
 

@@ -1,6 +1,7 @@
 # Sermon 2246 | Come From the Four Winds, O Breath!
 
-"He said to me, Prophesy unto the wind, son of man, and say to the wind, Thus says the Lord God; Come from the four winds, O Breath, and breathe upon these slain, that they may live." Ezekiel 37:9.
+> He said to me, Prophesy unto the wind, son of man, and say to the wind, Thus says the Lord God; Come from the four winds, O Breath, and breathe upon these slain, that they may live.
+> Ezekiel 37:9
 
 ACCORDING to some commentators, this vision in the valley of dry bones may refer to three forms of resurrection. Holy Scripture is so marvelously full of meaning that one interpretation seldom exhausts its message to us. The chapter before us is an excellent example of this fact and supplies an illustration of several Scriptural Truths of God.
 

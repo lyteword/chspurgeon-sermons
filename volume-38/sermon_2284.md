@@ -1,6 +1,7 @@
 # Sermon 2284 | "Clear Shining After Rain"
 
-"As the tender grass springing out of the earth by clear shining after rain." 2 Samuel 23:4.
+> As the tender grass springing out of the earth by clear shining after rain.
+> 2 Samuel 23:4
 
 WHAT a blessing it is to the country if, at certain seasons, we have a time of clear shining after the rain! Under some circumstances, nothing but sunshine will save the crops that are ready to be reaped, and there will be great loss to the farming interest, and, indeed, to us all, unless we have the sunshine when it is needed. We must never neglect to pray to the Lord who alone can give, to the natural world, clear shining after rain.
 

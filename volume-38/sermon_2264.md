@@ -1,6 +1,7 @@
 # Sermon 2264 | Sowing in the Wind, Reaping Under Clouds
 
-"He that observes the wind shall not sow; and he that regards the clouds shall not reap." Ecclesiastes 11:4.
+> He that observes the wind shall not sow; and he that regards the clouds shall not reap.
+> Ecclesiastes 11:4
 
 SOW when the time comes, whatever wind blows. Reap when the times comes, whatever clouds are in the sky! There are, however, qualifying proverbs which must influence our actions. We are not to discard prudence in the choice of the time for our work. "To everything there is a season and a time for every purpose under Heaven." It is well to sow when the weather is propitious. It is wise to "make hay while the sun shines." Cut your corn when there is the probability of getting it dry.
 

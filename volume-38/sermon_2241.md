@@ -1,6 +1,7 @@
 # Sermon 2241 | A Stanza of Deliverance
 
-"He brought them forth, also, with silver and gold: and there was not one feeble person among their tribes." Psalm 105:37.
+> He brought them forth, also, with silver and gold: and there was not one feeble person among their tribes.
+> Psalm 105:37
 
 THIS verse has been making music in my heart for several days and, at times, it has even claimed utterance from my tongue. I have caught myself singing a solo, with myself as the only hearer, and this has been the theme, "He brought them forth, also, with silver and gold: and there was not one feeble person among their tribes." I love texts which sing to me and make me join in! If this verse should get into your hearts and set you singing in a similar way, you will be entertaining a very pleasant visitor&mdash;and it will brighten a dark day for you!
 

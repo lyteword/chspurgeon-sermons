@@ -1,6 +1,7 @@
 # Sermon 2282 | David's Prayer in the Cave
 
-"Maschil of David; a Prayer when he was in the cave." Title of Psalm 142.
+> Maschil of David; a Prayer when he was in the cave.
+> Title of Psalm 142
 
 "A PRAYER when he was in the cave." David prayed when he was in the cave. If he had prayed half as much when he was in the palace as he did when he was in the cave, it would have been better for him. But, alas, when he was king, we find him rising from his bed in the evening, looking from the roof of the house, and falling into temptation. If he had been looking up to Heaven&mdash;if his heart bad been in communion with God&mdash;he might never have committed that great crime which has so deeply stained his whole character.
 
