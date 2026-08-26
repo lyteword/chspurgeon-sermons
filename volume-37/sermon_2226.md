@@ -1,6 +1,7 @@
 # Sermon 2226 | "Lay Hold on Eternal Life!"
 
-"Lay hold on eternal life." 1 Timothy 6:12.
+> Lay hold on eternal life.
+> 1 Timothy 6:12
 
 PAUL was very anxious about Timothy, his own son in the faith. He loved him greatly and he had much confidence in him, but still he felt that the work of preaching the Gospel was such a responsible undertaking that he could not be too prayerful for him, nor too earnest in exhorting him to continued steadfastness in those things which he had received. So "the old man eloquent," whose very pen seems to have borrowed some of the burning fervor of his heart, pours out his very soul to young Timothy in the earnest desire that he may find in him a true successor&mdash;one who, when Paul is compelled to lay down his trusteeship&mdash;will take it up and be faithful to his Lord and to the Gospel when his father in Christ is taken away from him. We cannot be too anxious about our young Brothers who are to preach the Gospel of the Grace of God. Always pray for students! Let them continually be mentioned in your private prayers than when those who have borne the burden and heat of the day shall rest with their fathers, God may raise up better men than they, who shall yet more faithfully proclaim His Word.
 

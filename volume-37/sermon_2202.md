@@ -1,6 +1,7 @@
 # Sermon 2202 | "Lo, I Come"&mdash;Exposition
 
-"Sacrifice and offering You did not desire, My ears ha ve You opened: burnt offering and sin offering have You not required. Then said I, Lo, I have come&mdash;in the volume of the Book it is written of Me&mdash;I delight to do Your will, O My God: yes, Your Law is within My heart." Psalm 40:6-8.
+> Sacrifice and offering You did not desire, My ears ha ve You opened: burnt offering and sin offering have You not required. Then said I, Lo, I have come&mdash;in the volume of the Book it is written of Me&mdash;I delight to do Your will, O My God: yes, Your Law is within My heart.
+> Psalm 40:6-8
 
 Explained to us by the Apostle Paul in Hebrews 10:5-7&mdash;
 

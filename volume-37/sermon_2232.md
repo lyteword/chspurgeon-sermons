@@ -1,6 +1,7 @@
 # Sermon 2232 | Christ's Motive and Ours
 
-"For your sakes." 2 Corinthians 8:9.
+> For your sakes.
+> 2 Corinthians 8:9
 
 "For His sake." Philippians 1:29.
 

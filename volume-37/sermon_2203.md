@@ -1,6 +1,7 @@
 # Sermon 2203 | "Lo, I Come"&mdash;Application
 
-"Then said I, Lo, I come." Psalm 40:7.
+> Then said I, Lo, I come.
+> Psalm 40:7
 
 To my great sorrow, last Sunday night I was unable to preach. I had prepared a sermon upon this text with much hope of its usefulness, for I intended it to be a supplement to the morning sermon  which was a doctrinal exposition. The evening sermon was intended to be practical and to commend the whole subject to the attention of enquiring sinners. I came here feeling quite fit to preach, but an overpowering nervousness oppressed me and I lost all self-control&mdash;and left the pulpit in anguish. I come here this morning with the same subject. I have been turning it over and wondering why it was so. Perhaps this sermon was not to be preached on that occasion because God would teach the preacher more of his on feebleness and cast him more fully upon the Divine Strength. That has certainly been the effect upon my own heart.
 

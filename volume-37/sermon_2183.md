@@ -1,6 +1,7 @@
 # Sermon 2183 | A Gracious Dismissal
 
-"And He said to the woman, Your faith has saved you; go in peace." Luke 7:50.
+> And He said to the woman, Your faith has saved you; go in peace.
+> Luke 7:50
 
 THE main part of my subject will be&mdash;that gracious dismissal, "Go in peace." To her who had been so lately blessed, the word, "Go," sounded mournfully, for she would gladly have remained through life with her pardoning Lord, but the added words, "in peace," turned the wormwood into honey&mdash;there was now peace for her who had been so long hunted and harried by her sins! Rising from the feet she had washed with tears, she went forth to keep her future footsteps such as those of a believing and, therefore, saved woman ought to be.
 

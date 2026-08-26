@@ -1,6 +1,7 @@
 # Sermon 2201 | The Sword of the Spirit
 
-"Take the sword of the Spirit, which is the Word of God." Ephesians 6:17.
+> Take the sword of the Spirit, which is the Word of God.
+> Ephesians 6:17
 
 To be a Christian is to be a warrior. The good soldier of Jesus Christ must not expect to find ease in this world&mdash;it is a battlefield! Neither must he reckon upon the friendship of the world, for that would be enmity against God. His occupation is war. As he puts on, piece by piece, the panoply provided for him, he may wisely say to himself, "This warns me of danger; this prepares me for warfare; this prophesies opposition."
 

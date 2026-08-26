@@ -1,6 +1,7 @@
 # Sermon 2200 | The Covenant Promise of the Spirit
 
-"And I will put My Spirit within you." Ezekiel 36:27.
+> And I will put My Spirit within you.
+> Ezekiel 36:27
 
 No preface is needed and the largeness of our subject forbids our wasting time in beating about the bush. I shall try to do two things this morning&mdash;first, I would commend the text. And, secondly, I would, in some measure, expound the text.
 
