@@ -1,6 +1,7 @@
 # Sermon 2807 | Spared!
 
-"I was left." Ezekiel 9:8.
+> I was left.
+> Ezekiel 9:8
 
 THE vision of Ezekiel which is recorded in the previous chapter brought to light the abominations of the house of Judah. The vision which follows in this chapter shows the terrible retribution that the Lord God brought upon the guilty nation, beginning at Jerusalem.
 

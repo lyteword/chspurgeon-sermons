@@ -1,7 +1,7 @@
 # Sermon 2778 | Consulting With Jesus
 
-"And when the queen of Sheba heard of the fame of Solomon concerning the name of the Lord, she came to test him with hard questions...So Solomon answered all her questions: there was nothing so difficult for the king, that he could not explain it to her" 1 Kings 10:1-3.
-
+> And when the queen of Sheba heard of the fame of Solomon concerning the name of the Lord, she came to test him with hard questions...So Solomon answered all her questions: there was nothing so difficult for the king, that he could not explain it to her
+> 1 Kings 10:1-3
 
 THE QUEEN OF SHEBA, a SIGN]. I tried, then, to prove that the queen of
 

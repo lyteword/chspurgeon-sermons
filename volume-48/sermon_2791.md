@@ -1,6 +1,7 @@
 # Sermon 2791 | A High Day in Heaven
 
-"Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner who repents." Luke 15:10.
+> Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner who repents.
+> Luke 15:10
 
 EARTH has engrossed our thoughts too long. It is time that we should lift our eyes and look upward to Heaven. Do you say that you cannot see as far as that? Look again and ask the Holy Spirit to open your eyes, for the Lord Jesus has set the gate wide open that you may at least get a glimpse of what is going on in the Glory Land. He has plainly declared to you many of the things which He has seen and heard of the Father&mdash;and if you will only give good heed to His words, you shall be enabled, by the eye of faith, to see what to mortal eyes is invisible!
 

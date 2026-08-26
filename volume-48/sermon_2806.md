@@ -1,6 +1,7 @@
 # Sermon 2806 | "Jesus Our Lord"
 
-"Jesus our Lord." Romans 4:24.
+> Jesus our Lord.
+> Romans 4:24
 
 "Jesus our Lord" is a somewhat unusual form of expression to be used in the Scriptures. We have many references to, "Jesus Christ," and to, "our Lord Jesus Christ," but there is only one other passage in which this occurs. Yet, to me, it seems to be inexpressibly sweet. I shall be devoutly grateful to God if, in my sermon, I am able to convey to you even a tithe of the sweetness which I have drawn from this expression for my own enjoyment.
 
