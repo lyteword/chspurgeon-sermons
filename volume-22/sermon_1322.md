@@ -1,6 +1,7 @@
 # Sermon 1322 | Rest For The Laboring
 
-"Come unto Me, all you that labor and are heavy laden, and I willgiveyou rest. Take My yoke upon you, and learn of Me; for I am meek and lowly in heart: and you shall find rest unto your souls. For My yoke is easy, and My burden is light." Matthew 11:28-30.
+> Come unto Me, all you that labor and are heavy laden, and I willgiveyou rest. Take My yoke upon you, and learn of Me; for I am meek and lowly in heart: and you shall find rest unto your souls. For My yoke is easy, and My burden is light.
+> Matthew 11:28-30
 
 Our Lord had just been declaring the Doctrine of Election, thanking the heavenly Father that He had chosen babes, though He had passed by the wise and prudent. It is very instructive that, close upon the heels of that mysterious doctrine, should come the gracious invitation of my text&mdash;as much as if the Lord Jesus would say to His disciples, "Let no views of predestination ever keep you back from proclaiming fully My Gospel to every creature." And as if He would say to the unconverted, "Do not be discouraged by the Doctrine of Election. Never let it be a stumbling block in your way, for when My lips have said, 'I thank You, O Father, that You have hid these things from the wise and prudent, and revealed them unto babes,' I also proceed to speak to you in the deepest sincerity of heart and say, "Come unto Me, all you that labor and are heavy laden, and I will give you rest."
 

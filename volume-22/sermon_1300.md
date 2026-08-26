@@ -1,6 +1,7 @@
 # Sermon 1300 | Life's Need and Maintenance
 
-"None can keep alive his own soul" Psalm 22:29.
+> None can keep alive his own soul
+> Psalm 22:29
 
 WE must commence by noticing the connection so that we may arrive at the first meaning of the words. There is a day coming when the true God will be acknowledged as Lord and God by all mankind, for the twenty-seventh verse tells us&mdash;"All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before You." In that day the greatest of men will bow before Him. The verse from which we cull our text says, "All they that are fat upon earth shall eat and worship." The prosperous ones, those who have grown rich and great, shall receive good at the hands of the Savior and shall rejoice to adore Him as the Author of their fatness! Kings shall acknowledge Him as their King and lords accept him as their Lord.
 

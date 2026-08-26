@@ -1,6 +1,7 @@
 # Sermon 1316 | Why the Heavenly Robes are White
 
-"These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb" Revelation 7:14.
+> These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb
+> Revelation 7:14
 
 OUR curiosity inquires into the condition of those who have newly entered Heaven. Like fresh stars they have lit up the celestial firmament with an added splendor. New voices are heard in the choir of the redeemed. In what condition are they at the moment of their admission to the heavenly seats? Their bodies are left behind, we know, to decay back to Mother Earth, but how fare their unclothed immortal spirits? What now occupies those pure and perfect minds? We are not left in the dark upon this matter&mdash;our Lord Jesus Christ has brought immortality and life to light&mdash;and in the words of our text and the preceding and following verses we are informed as to these new comers, these recruits for the Church triumphant!
 

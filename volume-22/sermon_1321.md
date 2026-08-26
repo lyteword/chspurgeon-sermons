@@ -1,7 +1,7 @@
 # Sermon 1321 | Why May I Rejoice?
 
-"Not withstanding in this rejoice not, that the spirits are subject unto you; but rather rejoice, because your names are written in Heaven." Luke 10:20.
-
+> Not withstanding in this rejoice not, that the spirits are subject unto you; but rather rejoice, because your names are written in Heaven.
+> Luke 10:20
 
 We shall commence our discourse by saying that our Lord did not blame or upbraid the 70 for rejoicing that the devils were subject to them. It would have been a very strange thing if they were not joyous on the occasion of so great a success. They had been sent forth upon their Lord's errand. They had gone forward unhesitatingly in His name, girded with His strength. And His power had been revealed so that His name had been glorified&mdash;should they not rejoice? It was the Kingdom of God which they had proclaimed&mdash;should they not be joyful? It was their Lord's enemy, as well as their own, who had "fallen like lightning from Heaven"&mdash;should they not exult? It was not likely, therefore, that the Lord Jesus was angry at their joy when they returned, saying, "Lord, even the spirits are subject unto us through Your name."
 

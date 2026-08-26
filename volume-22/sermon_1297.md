@@ -1,6 +1,7 @@
 # Sermon 1297 | My God
 
-"My God." Psalm 91:2.
+> My God.
+> Psalm 91:2
 
 IF YOU were to find honey in a tree and should wish to give some of it to your friends, I can imagine you cautiously taking it up in your hands, carrying it very carefully&mdash;and yet, when you reached the company, you would find, to your sorrow, a large part of it would have oozed out between your fingers&mdash;so that you had failed to convey to others what was so delicious to yourself. I fear I shall be in the same condition when this sermon is done and, therefore, I am the more eager to assure you at the beginning that the honey which I wish you to partake of is, indeed, of the very richest kind! My text has been, to my own heart, sweeter than honey and the honeycomb!
 

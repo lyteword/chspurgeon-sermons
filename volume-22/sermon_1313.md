@@ -1,7 +1,7 @@
 # Sermon 1313 | A Second Word to Seekers
 
-"And you shall seek Me, and find Me, when you shall search for Me with all your heart." Jeremiah 29:13.
-
+> And you shall seek Me, and find Me, when you shall search for Me with all your heart.
+> Jeremiah 29:13
 
 Such discrimination will be useful in many ways. Perhaps, dear Friend, after last Lord's-Day you said, "I do not understand this promise that seekers shall praise God, for I have been seeking for many months but I have not been able to praise Him. Surely the promise cannot be true for me." Rest assured, dear Friend, that the promise is true for you if you are true to it. The Word of the Lord is sure. There can be no question upon that point&mdash;the questions to be raised must deal with yourself and your searching&mdash;either you do not seek or else you seek amiss. Always conclude that if a general promise does not turn out to be true in your particular instance, there is something in you that hinders it. You must have fallen short of the character to which the promise is made&mdash;the promise, itself, cannot be suspect. "Let God be true and every man a liar."
 
