@@ -1,6 +1,7 @@
 # Sermon 2461 | Rejoicing and Remembering
 
-"We will be glad and rejoice in You, we will remember Your love more than wine." Song of Solomon 1:4.
+> We will be glad and rejoice in You, we will remember Your love more than wine.
+> Song of Solomon 1:4
 
 IT is a very blessed habit of saints who have grown in Grace to enter into actual conversation with the Well-Beloved. Our text is not so much speaking of Him as speaking to Him&mdash;"We will be glad and rejoice in You, we will remember Your love more than wine." Of course, in prayer and in praise, we speak to God, but I suggest that we should seek to have much more of intense and familiar conversations with the Lord Jesus Christ than the most of us at present enjoy. I find it good, sometimes in prayer, to say nothing, but to sit or kneel quite still and to look up to my Lord in adoring silence&mdash;and then sometimes to talk to Him, not asking anything of Him, but just speaking familiarly with Jesus, realizing Him to be present, and waiting to hear Him speak until some precious Word of His from Scripture comes into my soul as with living accents newly spoken by those dear lips which are as lilies dropping sweet-smelling myrrh! The French have a word which they use concerning that conversation which is common among those who love one another, or are on terms of intimate friendship. They call it, "tutoyage," for they say, "you" and, "your," to one another, instead of the more formal language used towards strangers. I like that form of expression that is used in our text and delight to meet with souls that are brought into so rapt a state of fellowship with Christ that they can speak to Him in this familiar fashion, "We will be glad and rejoice in You, we will remember Your love more than wine."
 

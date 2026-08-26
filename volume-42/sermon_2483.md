@@ -1,6 +1,7 @@
 # Sermon 2483 | The Objective of Christ's Death
 
-"Who gave Himself for our sins that He might deliver us from this present evil world, according to the will of God and our Father: to whom be glory forever and ever. Amen." Galatians 1:4, 5.
+> Who gave Himself for our sins that He might deliver us from this present evil world, according to the will of God and our Father: to whom be glory forever and ever. Amen.
+> Galatians 1:4, 5
 
 THE Apostle Paul, in his writings, is notable for the fact that he scarcely ever mentions the name of the Lord Jesus Christ without pausing to praise and bless Him. There are many benedictions and hallelujahs in Paul's Epistles which might have been omitted so far as the run of the sense is concerned, but not one of them could be omitted because his heart was so aglow with love to his Divine Master that he only needed to mention that dear name and out burst his praises in a second! Brethren, let us all try to keep a heart like the Apostle's&mdash;so full of love to Christ that we have only to come across His track and we shall at once fall down and worship and adore Him or, upon the wings of holy love mount up nearer to His Throne.
 

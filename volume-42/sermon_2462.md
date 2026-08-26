@@ -1,6 +1,7 @@
 # Sermon 2462 | The Known and the Unknown
 
-"For who knows what is good for man in this life, all the days of his vain life which he passes like a shadow? Who can tell a man what will happen after him under the sun?" Ecclesiastes 6:12.
+> For who knows what is good for man in this life, all the days of his vain life which he passes like a shadow? Who can tell a man what will happen after him under the sun?
+> Ecclesiastes 6:12
 
 MAN at his very best is only a man and well might David ask, "What is man?" In part, he is but red earth, as Adam was when he came fresh from his Maker's hands. Solomon tells us, in the tenth verse of this chapter, "That which has been is named already, and it is known that it is man." Whoever has lived and however wise and good and great he may have been, he has only been a man. Sum him up, add all together&mdash;the beauties of his body, the skill of his mind, even the virtues of his spirit&mdash;and what is he, even then, but a man? And man is but vapor which appears for a little while and then vanishes away! He is as thin and airy and unsubstantial as his own breath! He comes and he goes&mdash;he is here such a little while that he can scarcely be said to be, for he does but begin to be before he closes his being so far as this world is concerned.
 
