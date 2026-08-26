@@ -1,6 +1,7 @@
 # Sermon 3111 | Warning and Encouragement
 
-"And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept." Genesis 27:38.
+> And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept.
+> Genesis 27:38
 
 You know the story of Esau and Jacob.  Esau Was the elder of the twin sons of Isaac and
 

@@ -1,6 +1,7 @@
 # Sermon 2634 | "Jesus Only" &mdash;a Communion Meditation
 
-"Jesus only." Mark 9:8.
+> Jesus only.
+> Mark 9:8
 
 THIS was the last sight the disciples had upon the mountain and it seems to me to have been the best. They saw "Jesus only." Jesus was often with His people. He was usually with His disciples, but they did not often notice Him as "Jesus only." They probably did so, in this case, because He had been accompanied by two great and notable personages, who, all of a sudden, withdrew themselves and then, "they saw no man any more, save Jesus only." The disciples had seen their Lord transfigured and attended by Moses and Elijah, representatives of the Law and the Prophets. Suddenly, Moses and Elijah vanished from their sight and then, "they saw no man any more, save Jesus only."
 

@@ -1,6 +1,7 @@
 # Sermon 2798 | Sweet Stimulants for the Fainting Soul
 
-"O my God, my soul is cast down within me: therefore will I remember You from the land of Jordan, and of the Hermonites, from the Hill Mizar." Psalm 42:6.
+> O my God, my soul is cast down within me: therefore will I remember You from the land of Jordan, and of the Hermonites, from the Hill Mizar.
+> Psalm 42:6
 
 HERE is a common complaint of God's people and here are two remedies which David, wisely guided of God, administers with discretion. Let us direct our meditation in this order&mdash;first, let us talk of the complaint And then, secondly, let us look into the Divine medicine chest and use the remedies provided there.
 

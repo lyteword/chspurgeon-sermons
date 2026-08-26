@@ -1,6 +1,7 @@
 # Sermon 1749 | A Luther Sermon at the Tabernacle
 
-"But the just shall live by his faith." Habakkuk 2:4.
+> But the just shall live by his faith.
+> Habakkuk 2:4
 
 This text is three times employed by the Apostle Paul as an argument. Read Romans 1:17, Galatians 3:11 and Hebrews 10:38&mdash;in each of these cases it runs, "The just shall live by faith." This is the old original text to which the Apostle referred when he said, "As it is written, The just shall live by faith." We are not wrong in making the Inspiration of the Old Testament to be as important as that of the New, for the truth of the Gospel must stand or fall with that of the Prophets of the old dispensation. The Bible is one and indivisible&mdash;you cannot question the Old Testament and retain the New. Habakkuk must be inspired, or Paul writes nonsense.
 

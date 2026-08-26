@@ -1,6 +1,7 @@
 # Sermon 2293 | Simeon's Swan Song
 
-"Lord, now Jet You Your servant depart in peace, according to Your word: for my eyes have seen Your salvation." Luke 2:29,30.
+> Lord, now Jet You Your servant depart in peace, according to Your word: for my eyes have seen Your salvation.
+> Luke 2:29,30
 
 IF we are believers in Christ, we shall one day use words like these. Perhaps not just at present and yet, possibly, sooner than some of us think, we shall gather up our feet in our bed and we shall say with all composure, "Lord, now let You Your servant depart in peace, according to Your word."
 

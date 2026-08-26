@@ -1,6 +1,7 @@
 # Sermon 1618 | Holiness, The Law of God's House
 
-"This is the law of the house; Upon the top of the mountain the whole limit thereof round about shall be most holy. Behold, this is the law of the house." Ezekiel 43:12.
+> This is the law of the house; Upon the top of the mountain the whole limit thereof round about shall be most holy. Behold, this is the law of the house.
+> Ezekiel 43:12
 
 I SHALL not enter into the immediate meaning of Ezekiel's vision. I believe that the house of which Ezekiel speaks is typical of the Church of the Living God. In it I see not so much the visible Church as that spiritual, mystical Church of Jesus Christ which is the one place of His abode. It is found in a state of Grace on earth and in full Glory in Heaven. Below it is the holy Church militant&mdash;above it is the holy Church triumphant. The Church is the only thing upon earth which can properly be called the House of God, for He dwells not in temples made with hands, that is to say of this building. The finest architecture could never constitute a proper shrine for Deity. Look to yon blue heavens, gaze upon the spangled vault of night and view the ever-flashing, wide and open sea and tell me if any handiwork of man can rival the temple of Nature!
 

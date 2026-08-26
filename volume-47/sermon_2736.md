@@ -1,6 +1,7 @@
 # Sermon 2736 | The Great Miracle Worker
 
-"Then gathered the chief priests and the Pharisees a council, and said, What shall we do? For this Man does many miracles." John 11:47.
+> Then gathered the chief priests and the Pharisees a council, and said, What shall we do? For this Man does many miracles.
+> John 11:47
 
 I WILL make a preface out of the verse preceding our text&mdash;"Some of them"&mdash;that is, some of those who saw Lazarus raised from the dead, "went their ways to the Pharisees, and told them what things Jesus had done. Then gathered the chief priests and the Pharisees a council, and said, What shall we do? For this Man does many miracles."
 

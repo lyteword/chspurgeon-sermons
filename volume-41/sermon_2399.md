@@ -1,6 +1,7 @@
 # Sermon 2399 | "Your First Love"
 
-"Go and cry in the ears of Jerusalem, saying, Thus says the Lord, 'I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown.'" Jeremiah 2:2.
+> Go and cry in the ears of Jerusalem, saying, Thus says the Lord, 'I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown.'
+> Jeremiah 2:2
 
 THIS was the Word of Jehovah to His ancient people. He remembered the faithfulness and earnestness of Israel when the nation was first born and came out of Egypt under Moses&mdash;and went after God into "the waste howling wilderness." Alas, in later years, they would not obey, or trust, or rejoice in God! He therefore tells the Prophet Jeremiah to say to them that He remembers their better days&mdash;they seemed to have forgotten, "but," says the Lord&mdash;"I have not forgotten. 'I remember you, the kindness of your youth, the love of your espousals.'"
 

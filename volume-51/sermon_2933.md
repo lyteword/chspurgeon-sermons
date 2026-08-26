@@ -1,6 +1,7 @@
 # Sermon 2933 | Dead, Yet Alive
 
-"Likewise reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin, therefore, reign in your mortal body, that you should obey it in the lusts thereof." Romans 6:11,12.
+> Likewise reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin, therefore, reign in your mortal body, that you should obey it in the lusts thereof.
+> Romans 6:11,12
 
 How remarkably interwoven and intertwisted are the duties of Believers and their privileges! Indeed, it is often very difficult to say which is a privilege and which is a duty, for that which is a duty under one aspect is a privilege under another aspect&mdash;and that which is evidently a privilege may involve sin if it is not enjoyed and, therefore, it has something of duty about it. I think there should be no dividing asunder the duties and privileges which God has manifestly joined together&mdash;and that we should count it our highest privilege to do His will in every duty which He has enjoined upon us.
 

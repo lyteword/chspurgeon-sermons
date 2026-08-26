@@ -1,6 +1,7 @@
 # Sermon 3088 | The Storm and the Shower
 
-"Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones." Zechariah 13:7.
+> Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones.
+> Zechariah 13:7
 
 We are sure that we understand this passage, for we have our Lord Jesus Christ's application of it to Himself&mdash;"All you," He said to His disciples, "shall be offended because of Me this night: for it is written, I will smite the Shepherd, and the sheep shall be scattered." It is always well, when we are considering a text in the Old Testament which we think may refer to Christ, if we can be certified that it does so by some declaration of the Holy Spirit in the New Testament, or by some testimony from the lips of the Master, Himself, as we have in this case.
 

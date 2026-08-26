@@ -1,6 +1,7 @@
 # Sermon 2643 | The Honored Servant
 
-"Whoever keeps the fig tree shall eat the fruit thereof: so he that waits on his master shall be honored." Proverbs 27:18.
+> Whoever keeps the fig tree shall eat the fruit thereof: so he that waits on his master shall be honored.
+> Proverbs 27:18
 
 IN Solomon's day, every man sat under his own vine and fig tree and there was peace throughout the whole country. Then, God's Law about dividing out the land among the people, so that every man had his own plot, was rightly observed and each one had a fig tree of his own, to which he gave his personal attention. And, in due time, having waited upon the fig tree and kept it, he ate the fruit thereof. Solomon says, in another place, "In all labor there is profit," and it is well when men feel that it is so, for then they will be inclined to labor. A man would not long keep a fruitless fig tree. If he was quite sure that no fruit would be the result of his toil, he would leave the tree to itself, or else he would say, "Cut it down; why cumbers it the ground?"
 

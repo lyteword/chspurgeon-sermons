@@ -1,6 +1,7 @@
 # Sermon 2711 | The Sight of Iniquity
 
-"Why do You show me iniquity, and cause me to behold grievance?" Habakkuk 1:3.
+> Why do You show me iniquity, and cause me to behold grievance?
+> Habakkuk 1:3
 
 IN this discourse, it will be my endeavor to assign some reasons why God causes His people to see iniquity in themselves and in others
 

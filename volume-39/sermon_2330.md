@@ -1,6 +1,7 @@
 # Sermon 2330 | Witnessing Better Than Knowing the Future
 
-"When they therefore were come together, they asked of Him, saying, Lord, willyou at this time restore again the kingdom to Israel? And He said unto them, It is not for you to know the times or the seasons which the Father has put in His own power. But you shall receive power when the Holy Spirit has come upon you: andyou shall be witnesses unto Me both in Jerusalem, and in all Judea, and in Samaria, and unto the uttermost part of the earth." Acts 1:6-8.
+> When they therefore were come together, they asked of Him, saying, Lord, willyou at this time restore again the kingdom to Israel? And He said unto them, It is not for you to know the times or the seasons which the Father has put in His own power. But you shall receive power when the Holy Spirit has come upon you: andyou shall be witnesses unto Me both in Jerusalem, and in all Judea, and in Samaria, and unto the uttermost part of the earth.
+> Acts 1:6-8
 
 THESE are among the last words of our Lord. We greatly prize the last words of good men. Let us set high store by these words of our ascending Lord. It is very curious to my mind that Jesus should make mention of John the Baptist and of John's Baptism in these last words. Read the fifth verse&mdash;"John truly baptized with water; but you shall be baptized with the Holy Spirit not many days hence." It is very usual for good men's memories, in their last hours, to go back to their first hours. I trust that some of us will think of our Baptism even when we are dying&mdash;
 

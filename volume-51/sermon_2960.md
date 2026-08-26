@@ -1,6 +1,7 @@
 # Sermon 2960 | "Where Are the Nine?" Where?
 
-"And Jesus answering said, Were there not ten cleansed? But where are the nine?" Luke 17:17.
+> And Jesus answering said, Were there not ten cleansed? But where are the nine?
+> Luke 17:17
 
 THE whole narrative connected with the text is worthy of your careful reading. There were 10 men, lepers who, according to the old proverb that "birds of a feather flock together," had made a company and seemed to have lived in greater amity through kinship of suffering than they would have done had they been healthy and competent to share the fragrance of each other's joys. Mutual woe may have softened some of their natural jealousies, for we find that there was at least one in the company who was a Samaritan, while the others were Jews. Now, "the Jews have no dealings with the Samaritans," yet, when both are placed beyond the pale of society&mdash;in their sickness an intimacy springs up between them. So does common calamity bring about strange friendships. These men, who, under any other circumstances, would have been mortal enemies, became comfortable companions&mdash;at least, so far as their disease would allow them the thought of comfort.
 

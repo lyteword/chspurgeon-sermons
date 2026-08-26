@@ -1,6 +1,7 @@
 # Sermon 2671 | A Sincere Summary&mdash;and a Searching Scrutiny
 
-"I have kept Your precepts and Your testimonies: for all my ways are before You." Psalm 119:168.
+> I have kept Your precepts and Your testimonies: for all my ways are before You.
+> Psalm 119:168
 
 "I have gone astray like a lost sheep; seek Your servant; for I do not forget Your commandments."
 

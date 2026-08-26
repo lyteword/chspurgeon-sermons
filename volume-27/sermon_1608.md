@@ -1,6 +1,7 @@
 # Sermon 1608 | The Double "Come"
 
-"And the Spirit and the bride say, Come. And let him that hears say, Come." Revelation 22:17.
+> And the Spirit and the bride say, Come. And let him that hears say, Come.
+> Revelation 22:17
 
 WE have open before us the last page of the Word of God. The Spirit of God will not dictate a single fresh line of Truth. We have come to the last chapter and very soon we shall reach the Amen! We are also, according to Divine Revelation, approaching the last page of human history. So short a time will elapse before the present economy shall conclude that the angel says, "Seal not the sayings of the prophecy of this Book: for the time is at hand." How shall the Book finish? If we have come almost to its last verse, how shall it conclude? If we could have been asked by the great Spirit of God, "How shall it close?" what would have been our reply? We must certainly have left it entirely to His infinite wisdom, but what suggestions might we have made?
 

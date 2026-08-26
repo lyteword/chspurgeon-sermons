@@ -1,6 +1,7 @@
 # Sermon 2994 | Jude's Doxology
 
-"Now unto Him who is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and forever. Amen." Jude 1:24,25.
+> Now unto Him who is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and forever. Amen.
+> Jude 1:24,25
 
 PAUL's writings abound in doxologies. You will find them in different forms scattered throughout all his Epistles. But he is not the only Apostle who thus pauses to magnify the name of God. Here is "Judas, not Iscariot," but the true-hearted Jude who has been writing an Epistle which seems all ablaze with lightning, it burns so terribly against certain orders of sinners. Almost every word that Jude writes seems to have the roll of thunder in it&mdash;he appears to be more like the Haggai of the Old Testament than the Jude of the New. Yet he cannot close his short Epistle until he has included some ascription of praise to God!
 

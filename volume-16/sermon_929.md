@@ -1,6 +1,7 @@
 # Sermon 929 | The Model Home Mission and the Model Home Missionary
 
-"Who went about doing good." Acts 10:38.
+> Who went about doing good.
+> Acts 10:38
 
 In aid of the Funds of the Baptist British and Irish Home Missionary Society.
 

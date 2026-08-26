@@ -1,6 +1,7 @@
 # Sermon 1632 | The Nazarene and the Sect of the Nazarenes
 
-"And He came and dwelt in a city called Nazareth: that it might be fulfilled which was spoken by the Prophets, He shall be called a Nazarene." Matthew 2:23.
+> And He came and dwelt in a city called Nazareth: that it might be fulfilled which was spoken by the Prophets, He shall be called a Nazarene.
+> Matthew 2:23
 
 WE find the Jews speaking of Paul, and they say, "We have found this man a pestilent fellow, and a mover of sedition among all the Jews throughout the world, and a ringleader of the sect of the Nazarenes"&mdash;Acts 24:5. Thus it appears that our Lord and Master is called a Nazarene and His disciples are styled "the sect of the Nazarenes," while Christian doctrine was called, by the Jews, the heresy of the Nazarenes. Our Savior, though actually born at Bethlehem, was commonly known as Jesus of Nazareth, because Nazareth was the place where He was brought up. There He remained with His reputed father in the carpenter's shop until the time of His showing unto the people.
 

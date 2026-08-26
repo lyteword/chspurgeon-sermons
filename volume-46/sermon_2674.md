@@ -1,6 +1,7 @@
 # Sermon 2674 | Learning in Private What to Teach in Public
 
-"What I tell you in darkness, speak in light: and what you hear in the ear, preach on the housetops." Matthew 10:27.
+> What I tell you in darkness, speak in light: and what you hear in the ear, preach on the housetops.
+> Matthew 10:27
 
 I HOPE that many who are now present desire, beyond everything else, to be useful to their fellow creatures. We do not want to go to Heaven alone&mdash;we are most anxious to lead others to the Savior! I remember a very remarkable telegram which was sent from England by a lady who had sailed from New York with all her children. She landed in England after being shipwrecked and she sent her husband this brief but suggestive telegram, "Saved&mdash;alone." Ah, that last sad word seemed as if it took almost all the sweetness out of the first one. "Saved alone." May that never be what we shall have to say as we enter Heaven, but may we have the privilege of saying, "Here am I, Father, and the children whom You have given me." May it be my joy to be able to say, "Here am I and all my congregation, saved in the Lord with an everlasting salvation."
 

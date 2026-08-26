@@ -1,7 +1,7 @@
 # Sermon 2779 | Heart-communing
 
-"She communed with him about all that was in her heart." 1 Kings 10:2.
-
+> She communed with him about all that was in her heart.
+> 1 Kings 10:2
 
 she had once obtained an interview with the great and wise king of Israel, was not content with merely putting to him various difficult questions, for she unloosed herself to him and exposed all that lay concealed in her heart&mdash;and Solomon listened attentively to her&mdash;and, no doubt, so spoke to her that he sent her away rejoicing.
 

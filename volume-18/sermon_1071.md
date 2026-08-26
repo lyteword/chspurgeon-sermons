@@ -1,6 +1,7 @@
 # Sermon 1071 | The Ministry Of Gratitude
 
-"And immediately she arose and ministered unto them." Luke 4:39.
+> And immediately she arose and ministered unto them.
+> Luke 4:39
 
 Peter's wife's mother had been sick of a great fever and had been restored by the touch of the Savior's hands and by the power of the Savior's word. The Grace of God does not secure us from trial. The house of Peter and of Andrew, (for it was common to them both), was a highly favored one. The Grace of God had passed by many other houses and had selected this for its dwelling place and yet in that abode there was great sickness&mdash;the wife's mother lay sick of a fever and was near death. This was no small grief to the household&mdash;but that grief was for their lasting benefit.
 

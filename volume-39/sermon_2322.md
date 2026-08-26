@@ -1,6 +1,7 @@
 # Sermon 2322 | When Can We Find Comforters?
 
-"Where shall I seek comforters for you?" Nahum 3:7.
+> Where shall I seek comforters for you?
+> Nahum 3:7
 
 IT is the business of the Prophet of God and of the minister of Christ to seek comfort for those who are in distress. "Comfort you, comfort you My people, says your God." It is a part of our calling to seek, under the direction of the Holy Spirit, the Comforter, to bring words of consolation to those who are heavy in heart. We have other work to do, but, still, this is a part of our commission. God would not have His people's heads hang down. He would have their hearts full ofjoy and peace in believing, so He sends us, with tender, sympathetic words, to strive to comfort all that mourn.
 

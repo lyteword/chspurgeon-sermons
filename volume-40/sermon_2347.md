@@ -1,6 +1,7 @@
 # Sermon 2347 | The Lord's Famous Titles
 
-"The Lord looses the prisoners: the Lord opens the eyes of the blind: the Lord raises them that are bowed down: the Lord lo ves the righteous: the Lord preserves the strangers, He relie ves the fatherless and widow: but the way of the wicked He turns upside down." Psalm 146:7-9.
+> The Lord looses the prisoners: the Lord opens the eyes of the blind: the Lord raises them that are bowed down: the Lord lo ves the righteous: the Lord preserves the strangers, He relie ves the fatherless and widow: but the way of the wicked He turns upside down.
+> Psalm 146:7-9
 
 This morning as well as I could, looking to God for help, I tried, in Christ's place, to persuade men to be reconciled to God. I showed that there was a great spiritual drought and neither dew nor rain to be had except as God should send it. And I tried to press my hearers to go to God, to wait upon Him, to look to Him and, through the mediation of the Lord Jesus Christ, to seek and find in God all that would be necessary for their eternal blessedness.  I
 

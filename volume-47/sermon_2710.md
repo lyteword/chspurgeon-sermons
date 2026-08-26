@@ -1,6 +1,7 @@
 # Sermon 2710 | Christ the Cause of Division
 
-"So there was a division among the people because of Him." John 7:43.
+> So there was a division among the people because of Him.
+> John 7:43
 
 IT seems, then, that even when Christ was the Preacher, there was a division among the hearers, so we must not be surprised if the same result follows from ourpreaching. No doubt strife has sometimes been caused by a preacher's harshness of expression, or unwise utterances. He may have spoken unadvisedly, or provokingly, but if he did not, all would not be pleased, for even when Jesus spoke as never man spoke, all His hearers were not pleased. We truly say, "Many men, many minds" and, therefore, even when Christ spoke, "there was a division among the people because of Him."
 

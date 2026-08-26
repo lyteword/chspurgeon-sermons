@@ -1,6 +1,7 @@
 # Sermon 2629 | God's Work in Man
 
-"And it shall be in that day, says the LORRD, that you shall call Me, Ishi; and shall call Me no more, Baali. For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name." Hosea 2:16.
+> And it shall be in that day, says the LORRD, that you shall call Me, Ishi; and shall call Me no more, Baali. For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name.
+> Hosea 2:16
 
 WITHOUT any preface or prelude, we shall draw from these words three on four lessons.
 

@@ -1,6 +1,7 @@
 # Sermon 2466 | Unpurchasable Love
 
-"If a man would give all the substance of his house for love, it would be utterly despised." Song of Solomon 8:7.
+> If a man would give all the substance of his house for love, it would be utterly despised.
+> Song of Solomon 8:7
 
 THAT is a general truth, applying to all forms of real love&mdash;you cannot purchase love. If it is true love, it will not run on rails of gold. Many a marriage would have been a very happy one if there had been a tithe as much love as there was wealth and, sometimes, love will come in at the cottage door and make the home bright and blest, when it refuses to recline on the downy pillows of the palace. Men may give all the substance of their house and form a marriage bond&mdash;the bond may be there, but not that which will make it sweet to wear. "If a man would give all the substance of his house for love, it would be utterly despised."
 

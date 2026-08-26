@@ -1,6 +1,7 @@
 # Sermon 2470 | Jacob and Doubting Souls a Parallel
 
-"And Israel said, It is enough; Joseph my son is still alive: I will go and see him before I die." Genesis 45:28.
+> And Israel said, It is enough; Joseph my son is still alive: I will go and see him before I die.
+> Genesis 45:28
 
 I THINK that the Patriarch Jacob may well serve as the type and emblem of a doubting soul, one who has been told the good news of salvation, the Gospel of God's Grace, but who cannot bring his mind to believe it.
 

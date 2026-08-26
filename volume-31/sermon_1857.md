@@ -1,6 +1,7 @@
 # Sermon 1857 | The Necessity of Growing Faith
 
-"We are bound to thank God always for you, Brethren, as it is fitting, because your faith grows exceedingly, and the charity of every one of you all abounds toward each other." 2 Thessalonians 1:3.
+> We are bound to thank God always for you, Brethren, as it is fitting, because your faith grows exceedingly, and the charity of every one of you all abounds toward each other.
+> 2 Thessalonians 1:3
 
 LAST Lord's-Day I tried to say cheering and encouraging words to "Little-Faith." I trust that the Holy Spirit, the Comforter, did thereby strengthen some to whom the Savior said, "O you of little faith, why did you doubt?" But none of us would desire to remain among the Little-Faiths&mdash;we long to press forward in our march to the better land. If we have just started in the heavenly race, it is well, for there are grounds of comfort about the first steps in the right way, but we are not going to stop at the starting-point! Our desire is towards the finish line and the crown. My prayer, at the commencement of this discourse, is that we may, each of us, rise out of our little faith into the loftier region of assurance, so that those who love us best may be able to say, "We are bound to thank God always for you, Brethren, as it is fitting, because your faith grows exceedingly."
 

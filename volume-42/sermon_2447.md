@@ -1,6 +1,7 @@
 # Sermon 2447 | "God, and Not Man"&mdash;What Does It Mean?
 
-"I will not return to destroy Ephraim: for I am God, and not man." Hosea 11:9.
+> I will not return to destroy Ephraim: for I am God, and not man.
+> Hosea 11:9
 
 THE Lord, speaking of Himself as, "God, and not man," mentions as the special point in which He is above and beyond man, that He has greater Grace, greater long-suffering, and greater willingness to forgive&mdash;"I will not return to destroy Ephraim: for I am God, and not man." In a thousand respects, God is greater than man! For us to enter into that theme would require a very considerable length of time, but the Lord, here, puts this Truth of God most prominently forward, that He is "God, and not man," in that He is infinitely more forbearing, infinitely more tender, infinitely more ready to pass by offenses than any man can ever be. What men cannot do by reason of the narrowness and shallowness of their goodness, God can and will do by reason of the height and depth and length and breadth of His immeasurable love!
 

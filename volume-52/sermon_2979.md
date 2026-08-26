@@ -1,6 +1,7 @@
 # Sermon 2979 | Our Banner
 
-"You have given a banner to those who fear You, that it may be displayed because of the truth." Psalm 60:4.
+> You have given a banner to those who fear You, that it may be displayed because of the truth.
+> Psalm 60:4
 
 MOST writers upon this Psalm, after having referred the banner to the Kingdom of David, say that there is here a reference to the Messiah. We believe there is. Nor is that reference an obscure allusion. In the Lord Jesus we find the clue to the history and the solution of the prophecy. He is the banner&mdash;He is the ensign that is lifted up before the people. He is Jehovah-Nissi, "the Lord My Banner," whom it is our joy to follow and around whom it is our delight to rally. We shall not stay to prove&mdash;though we might readily do so&mdash;that the banner here intended is no other than the Lord Jesus Christ in the majesty of His Person&mdash;in the efficacy of His merit&mdash;in the completeness of His righteousness&mdash;in the success of His triumph&mdash;in the glory of His advent. If you read it with an eye to Him, you have the meaning at once&mdash; "You has given Christ as a banner to those who fear You, to be displayed because of the truth." So let us consider our Lord Jesus Christ, first, as He is compared to a banner. Secondly, by whom Hie is given. Thirdly, to whom Hie is given. And fourthly, for what purpose.
 

@@ -1,6 +1,7 @@
 # Sermon 2921 | An Old-fashioned Remedy
 
-"He sent His Word and healed them." Psalm 107:20.
+> He sent His Word and healed them.
+> Psalm 107:20
 
 THE healing of natural sickness is not accomplished without the power of God. Vain were the skill of the most learned physician unless the God of Nature cooperated with the medicine. If any of you have been restored of late from sickness, I charge you to praise God for His goodness and for His wonderful works to the children of men. Remember your weary nights. Remember your painful days. Call to mind the vows of your soul in anguish and take care that you play not false to God. In the day of your health, be true to the promises made on your sickbed. Let the song of gratitude go up from your heart and from your lips&mdash;and let the life which He has so graciously preserved be dedicated to His service. It ought to be so. God help you that it may be so.
 

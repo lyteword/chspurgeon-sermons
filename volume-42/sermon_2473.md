@@ -1,6 +1,7 @@
 # Sermon 2473 | An Awful Contrast
 
-"Then they spat in His face." Matthew 26:67.
+> Then they spat in His face.
+> Matthew 26:67
 
 "And I saw a great white throne, and Him that sat on it, from whose face the earth and the Hea ven fled away." Revelation 20:11.
 

@@ -1,8 +1,7 @@
 # Sermon 3100 | Homage Offered to the Great King
 
-"And He shall live, and to Him shall be given of the gold of Sheba; prayer also shall be made for Him continually; and daily shall He be praised." Psalm 72:15.
-
-
+> And He shall live, and to Him shall be given of the gold of Sheba; prayer also shall be made for Him continually; and daily shall He be praised.
+> Psalm 72:15
 
 I believe we must refer the ultimate fulfillment of this prophecy to the times of the latter-day Glory when Jesus Christ shall again appear upon the earth. Then "He shall have dominion from sea to sea, and from the river unto the ends of the earth." Then "they that dwell in the wilderness shall bow before Him; and His enemies shall lick the dust." It has been a great question as to whether Jesus Christ is to come again in Person or by His Spirit. Many passages of Scripture seem to point to His actual and Personal coming and, somehow or other, it does delight my soul to anticipate that Christ may yet come to the scene of His former battles and make it the scene of His future triumphs. I am rejoiced to think that His head, once crowned with thorns on earth, may on earth itself wear a crown of Glory and that His feet that were once wearied in His pilgrimage here with the flinty stones of Jerusalem may yet "stand on the Mount of Olives," while He ushers in "the day of the Lord in the valley of decision." And that His shoulders which once wore the purple robe in mockery may yet be visibly clothed with the royal attire of universal empire when "the Lord shall be King over all the earth."
 

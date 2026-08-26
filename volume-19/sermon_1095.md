@@ -1,6 +1,7 @@
 # Sermon 1095 | The Monster Dragged to Light
 
-"Sin, that it might appear sin, working death in me by that which is good, that sin by the commandment might become exceedingly sinful." Romans 7:13.
+> Sin, that it might appear sin, working death in me by that which is good, that sin by the commandment might become exceedingly sinful.
+> Romans 7:13
 
 > Philosophers have measured mountains   
 > Fathom'd the depths of seas, of states, and kings,   

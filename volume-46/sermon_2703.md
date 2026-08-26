@@ -1,6 +1,7 @@
 # Sermon 2703 | The Preservation of Christians in the World
 
-"I pray not that You should take them out of the world, but that You should keep them from the evil." John 17:15.
+> I pray not that You should take them out of the world, but that You should keep them from the evil.
+> John 17:15
 
 THE text, as we observed on a former occasion, Sermon #47, Volume 1&mdash;Christ's PRAYER FOR HIS PEOPLE contains two prayers&mdash;a negative prayer and a positive prayer. First, there is the negative prayer&mdash;"I pray not that You should take them out of the world." There are wise ends to be observed by their remaining here. It will ultimately increase their happiness in Heaven. It will give glory to God. It shall be the means of the conversion of others&mdash;therefore, "I pray not that you should take them out of the world," but I do pray&mdash;and here comes the positive prayer&mdash;"that, while they are in it, 'you should keep them from the evil.'"
 

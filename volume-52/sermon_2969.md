@@ -1,6 +1,7 @@
 # Sermon 2969 | Angelic Protection in Appointed Ways
 
-"For He shall give His angels charge over you to keep you in all your ways." Psalm 91:11.
+> For He shall give His angels charge over you to keep you in all your ways.
+> Psalm 91:11
 
 OUR subject this morning was the sprinkling of the blood of the paschal lamb upon the lintel and the two doorposts of the houses of the children of Israel and Egypt. As soon as that was done and the lamb had been eaten, they had to start upon their journey to Canaan. They knew that they had to go and they were prepared to go. They had their loins girt and each man had his staff in his hand and his sandals on his feet. After being prisoners so long, they were set free in order that they might become pilgrims to the land which the Lord their God had given to their fathers.
 

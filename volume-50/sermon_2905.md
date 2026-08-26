@@ -1,6 +1,7 @@
 # Sermon 2905 | The Father and the Son
 
-"And truly our fellowship is with the Father and with His Son Jesus Christ." 1 John 1:3.
+> And truly our fellowship is with the Father and with His Son Jesus Christ.
+> 1 John 1:3
 
 THE 12 Apostles were favored with the most intimate communion with our blessed Lord, but I can hardly say that they entered into fellowship with Him during His life on earth. Each of them might have been asked the question that our Savior put to one of them&mdash;"Have I been so long a time with you and yet have you not known Me, Philip?" But after Christ had ascended to Heaven and the Spirit of God had rested upon His disciples and in proportion as the Spirit did rest upon them, all that they had seen, heard and handled of their Lord became a means of communion between Himself and them. They were then able to realize what a very near, dear, deep and familiar communion had been possible to them through having spent some three years or so with Him in public and in private and having actually seen Him, heard His voice and felt the touch of His hands.
 

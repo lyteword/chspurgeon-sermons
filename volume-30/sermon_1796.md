@@ -1,6 +1,7 @@
 # Sermon 1796 | Concerning Saints
 
-"All Your works shall praise You, O Lord; and Your saints shall bless You." Psalm 145:10.
+> All Your works shall praise You, O Lord; and Your saints shall bless You.
+> Psalm 145:10
 
 Do not throw yourselves back in your seats and say, "This will be a sermon for saints and, therefore, we may be excused from listening to it." Do you not see that the first clause gives you a fair word and a kindly hint? "All Your works shall praise You, O Jehovah." Through this you may enter, as by an open door, for if you are not Jehovah's saints, you are His works and are bound to praise His name! In these days of harvest and full summertime, every created thing appears to praise God by its very existence. Insect and fern, pebble and rippling brook, star and cloud, wind and dew&mdash;all reflect the wisdom and goodness of the Most High! Many a man's works are no credit to him and, even in cases where men have worked well and produced much which is to their honor, yet certain of their works are not to their credit, but deserve to be plunged in darkness.
 

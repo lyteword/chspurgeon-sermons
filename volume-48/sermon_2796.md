@@ -1,6 +1,7 @@
 # Sermon 2796 | A Man of God Alone With God
 
-"I have declared my ways, and You heard me: teach me Your statutes." Psalm 119:26.
+> I have declared my ways, and You heard me: teach me Your statutes.
+> Psalm 119:26
 
 WORLDLY men think very little of God. They live at a distance from Him. They have no communion with Him. Like the fool, they have said in their heart, "No God," and they try to realize in their lives their heart's desire. Very different is it with the true Believer. He recognizes God everywhere! He sees God in all the good or ill that checkers life&mdash;he believes that God has created every worm that crawls upon the face of the earth and that He has painted every flower that blooms. The whole world is full of God to him who believes in God and he has communion with God wherever he goes. He cannot live without Him&mdash;He is his joy and delight. He is a child of God&mdash;how can he live happily in his Father's house unless he often sees his Father's face, speaks with Him and hears His voice in return? The Christian makes much of God and God makes much of him, for they have a mutual delight in one another! Hence, in such a text as this, you perceive how the Psalmist talked with God and God heard him&mdash;and he knew that God heard him! And then he spoke again to God and said, "Teach me Your statutes."
 

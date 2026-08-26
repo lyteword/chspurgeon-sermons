@@ -1,6 +1,7 @@
 # Sermon 2455 | A Cure for a Weak Heart
 
-"Be of good courage, and He shall strengthen your heart, all you that hope in the Lord." Psalm 31:24.
+> Be of good courage, and He shall strengthen your heart, all you that hope in the Lord.
+> Psalm 31:24
 
 THERE is no preaching like that which grows out of our own experience. You perceive, dear Friends, that David had trusted in the Lord. In very sore and singular trouble God had delivered him and, at the close of that deliverance, he wrote this Psalm, to be sung by the faithful of all times and every clime, and then he gave this exhortation which grew out of his own experience. O my Brothers, we shall never speak to the heart of our hearers unless what we say has been first engraved on our own hearts! The best notes of a sermon are those that are written on our own inner consciousness. If we speak of the things which we have tasted, and handled, and made our own, we speak with a certainty and with an authority which God is pleased to use for the comfort of His people. Think, then, that you can hear David, who has long since fallen asleep, speaking out of his royal tomb and saying, as the result of his own happy experience, "Be of good courage, and He shall strengthen your heart, all you that hope in the Lord."
 

@@ -1,6 +1,7 @@
 # Sermon 1691 | Christ's Word with You
 
-"Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
+> Come unto Me, all you that labor and are heavy laden, and I will give you rest.
+> Matthew 11:28
 
 WHEN THE REGULAR CONGREGATION LEFT THEIR SEATS TO BE OCCUPIED by STRANGERS.
 

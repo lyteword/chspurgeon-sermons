@@ -1,6 +1,7 @@
 # Sermon 1257 | Love to Jesus the Great Test
 
-"Jesus said unto them, If God were your Father, you would love Me: for I proceeded forth and came from God; neither came I of Myself, but He sent Me." John 8:42.
+> Jesus said unto them, If God were your Father, you would love Me: for I proceeded forth and came from God; neither came I of Myself, but He sent Me.
+> John 8:42
 
 THE order of salvation is, first, we believe in the Lord Jesus Christ and we obtain a change of heart as His gift, and then that renewed heart loves the Lord Jesus in whom it has believed. Faith leads the train of Divine Graces, not love. It would not be preaching the Gospel to say to men, "Love Christ." Love to Jesus is an after growth. To preach the Gospel is to cry, "Believe in the Lord Jesus Christ and you shall be saved." The faith which saves is not, however, a mere credence of facts in which men feel no interest. It is a hearty trustfulness in Jesus for blessings of which we feel the need and it is, in every case, an operative faith&mdash;a faith which works&mdash;and works by love. If you have, indeed, believed in the Lord Jesus Christ to the saving of your soul, then you are a child of God, for, "to as many as received Him, to them gave He power to become the sons of God."
 

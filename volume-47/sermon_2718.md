@@ -1,6 +1,7 @@
 # Sermon 2718 | The Tenses
 
-"Who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver us." 2 Corinthians 1:10.
+> Who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver us.
+> 2 Corinthians 1:10
 
 WHEN children are learning their grammar, they have to pay particular attention to the tenses of the verbs. And it is also important for Christians to remember their tenses&mdash;to remember the past, the present and the future. Our text brings all three very vividly before us and reminds us that God has delivered, does deliver and will yet deliver.
 

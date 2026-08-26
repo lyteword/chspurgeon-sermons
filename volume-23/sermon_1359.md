@@ -1,6 +1,7 @@
 # Sermon 1359 | Happiness&mdash;the Privilege and Duty of Christians
 
-"Happy are you, O Israel; who is like unto you? Opeople saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places." Deuteronomy 33:29.
+> Happy are you, O Israel; who is like unto you? Opeople saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places.
+> Deuteronomy 33:29
 
 THESE are the last recorded words of Moses and they are significant, for they show us that he found comfort, in his dying moments, in considering the happiness of the people for whom he had labored all his life. From the day when, by God's power, he led them up out of Egypt and brought them into the wilderness, they had never ceased to lie near his heart. They had been a very heavy burden to him at times, but with marvelous meekness and patience he had borne with their many rebellious provocations and only once spoken bitterly of them. Oftentimes had he stood in the gap and made intercession for them, when otherwise they would have been destroyed. He had, for their sakes, given up the most glorious prospect that was ever proposed to the mind of man, for the Lord had said to him in secret, "Let Me alone, that I may destroy them; and I will make of you a greater nation."
 

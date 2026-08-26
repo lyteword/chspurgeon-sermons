@@ -1,6 +1,7 @@
 # Sermon 805 | Resurrection With Christ
 
-"But God, who is rich in mercy, because of His great love with which He loved us, even when we were dead in sins, has quickened us together with Christ, (by Grace you are saved)." Ephesians 2:4, 5.
+> But God, who is rich in mercy, because of His great love with which He loved us, even when we were dead in sins, has quickened us together with Christ, (by Grace you are saved).
+> Ephesians 2:4, 5
 
 THERE have been conferences of late of all sorts of people upon all kinds of subjects, but what a remarkable thing a conference would be if it were possible for persons who have been raised from the dead! If you could somehow or other get together the daughter of the Shunammite, the daughter of Jairus, the son of the widow at the gates of Nain, Lazarus, and Eutychus, what strange communing they might have one with another! What singular enquiries they might make, and what remarkable disclosures might they present to us! The thing is not possible, and yet a better and more remarkable assembly may be readily gathered on the same conditions, and more important information may be obtained from the confessions of its members.
 

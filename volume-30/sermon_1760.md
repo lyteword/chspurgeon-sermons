@@ -1,6 +1,7 @@
 # Sermon 1760 | "He Shall Be Great"
 
-"He shall be great." Luke 1:32.
+> He shall be great.
+> Luke 1:32
 
 Being his last sermon before his journey to the South of France.
 

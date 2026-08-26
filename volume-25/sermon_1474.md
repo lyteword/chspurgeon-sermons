@@ -1,6 +1,7 @@
 # Sermon 1474 | The Middle Passage
 
-"O Lord, I have heard Your speech, and was afraid; O Lord, revive Your work in the midst of the years, in the midst of the years make known; in wrath remember mercy." Habakkuk 3:2.
+> O Lord, I have heard Your speech, and was afraid; O Lord, revive Your work in the midst of the years, in the midst of the years make known; in wrath remember mercy.
+> Habakkuk 3:2
 
 (In commemoration of the completion of the twenty-fifth year of his Ministry over the Church meeting in the Tabernacle).
 

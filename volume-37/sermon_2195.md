@@ -1,6 +1,7 @@
 # Sermon 2195 | The Obedience of Faith
 
-"By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed; and he went out, not knowing where he went." Hebrews 11:8.
+> By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed; and he went out, not knowing where he went.
+> Hebrews 11:8
 
 THE part of the text to which I shall call your attention lies in these words, "By faith Abraham obeyed.''" Obedience&mdash;what a blessing it would be if we were all trained to it by the Holy Spirit! How fully should we be restored if we were perfect in it! If all the world would obey the Lord, what a Heaven on earth there would be! Perfect obedience to God would mean love among men, justice to all classes and peace in every land! Our will brings envy, malice, war&mdash;but the Lord's will would bring us love, joy, rest, bliss. Obedience&mdash;let us pray for it for ourselves and others!&mdash;
 

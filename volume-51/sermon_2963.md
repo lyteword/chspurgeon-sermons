@@ -1,6 +1,7 @@
 # Sermon 2963 | Unmitigated Prosperity
 
-"The pleasure of the Lord shall prosper in His hands." Isaiah 53:10.
+> The pleasure of the Lord shall prosper in His hands.
+> Isaiah 53:10
 
 You know that the whole verse says, "Yet it pleased the Lord to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, He shall prolong His days, and the pleasure of the Lord shall prosper in His hands." The last words from our text&mdash;"The pleasure of the Lord shall prosper in His hands."
 

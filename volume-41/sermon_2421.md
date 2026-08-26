@@ -1,6 +1,7 @@
 # Sermon 2421 | Hallelujah! Hallelujah!
 
-"For the Lord takes pleasure in His people: He will beautify the meek with salvation. Let the saints be joyful in glory: let them sing aloud upon their beds. Let the high praises of God be in their mouths and a two-edged sword in their hands." Psalm 149:4-6.
+> For the Lord takes pleasure in His people: He will beautify the meek with salvation. Let the saints be joyful in glory: let them sing aloud upon their beds. Let the high praises of God be in their mouths and a two-edged sword in their hands.
+> Psalm 149:4-6
 
 I THINK I have read that, once, when the seraphic Samuel Rutherford was preaching, he came, before long, to speak on the high praises of the Lord Jesus Christ. That was a theme upon which he was at home, and when he reached that point, and had spoken a little upon it, the Duke of Argyle, who was in the congregation, cried out, "Now you are on the right strain, man; hold on to that!" I thought that, this morning, we, also, struck the right key.  We were trying to extol our God, our King, and to magnify His holy name and something seemed to say to me, "Hold on to that strain! Let us have the same note, again, tonight, and let us continue to laud and praise and magnify the name of the Most High."
 

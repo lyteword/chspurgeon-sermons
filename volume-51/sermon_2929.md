@@ -1,6 +1,7 @@
 # Sermon 2929 | A Challenge and War Cry
 
-"O Death, where is your sting? O Grave, where is your victory? The sting of death is sin, and the strength of sin is the law. But thanks be to God, who gives us the victory through our Lord Jesus Christ. Therefore, my Beloved brethren, be you steadfast, immovable, always abounding in the work of the Lord, for so much as you know that your labor is not in vain in the Lord." 1 Corinthians 15:55-58.
+> O Death, where is your sting? O Grave, where is your victory? The sting of death is sin, and the strength of sin is the law. But thanks be to God, who gives us the victory through our Lord Jesus Christ. Therefore, my Beloved brethren, be you steadfast, immovable, always abounding in the work of the Lord, for so much as you know that your labor is not in vain in the Lord.
+> 1 Corinthians 15:55-58
 
 THERE is little fear that the minister of this flock should forget that man is mortal. Where men are massed in such numbers, we not only believe in mortality, we see it. We hear the funeral knell like the striking of the clock&mdash;habitually. The mower always has work in this pasture&mdash;every week the great gleaner has some ears of corn to gather in this harvest field and every time we assemble in this house we have to remember that some who were with us when we met before have crossed the flood and entered into their rest. We cannot forget this.
 

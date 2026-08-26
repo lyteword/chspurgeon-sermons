@@ -1,6 +1,7 @@
 # Sermon 2295 | God's People&mdash;or Not God's People
 
-"I will have mercy upon her that had not obtained mercy; and I will say to them which were not My people, You are My people; and they shall say, You are my God." Hosea 2:23.
+> I will have mercy upon her that had not obtained mercy; and I will say to them which were not My people, You are My people; and they shall say, You are my God.
+> Hosea 2:23
 
 "As He says also in Hosea, I will call them My people, which were not My people; and her beloved, which was not beloved." Romans 9:25.
 

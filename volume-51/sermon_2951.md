@@ -1,6 +1,7 @@
 # Sermon 2951 | With or Without Shedding of Blood
 
-"Without shedding of blood is no remission." Hebrews 9:22.
+> Without shedding of blood is no remission.
+> Hebrews 9:22
 
 WEEK after week, standing before this congregation to preach the things concerning the Kingdom of Christ, I sometimes say to myself, "I wonder how much longer I shall have to point out to some of these people the way of salvation before they will walk in it&mdash;I wonder how many times I shall have to preach to them the Doctrine of Justification by Faith in the Crucified Christ of Calvary and how often I shall have to urge them to an immediate decision for Christ, the renunciation of their self-confidence and the forsaking of their sins?" It seems to me that after I have done this, the right thing for me to do is to keep on asking you, "Have you given due attention to these Truth of God? Do you know them in your soul?" For, "if you know these things, happy are you if you do them," but the very opposite of happy are you if you leave them undone!
 

@@ -1,8 +1,7 @@
 # Sermon 1396 | Reasons for Turning to the Lord
 
-"Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight." Hosea 6:1,2.
-
-
+> Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight.
+> Hosea 6:1,2
 
 IF man had never sinned, what delightful communion there would have been between him and God! A fairy vision rises before us of loving obedience and condescending fellowship, holy delight and boundless favor, lowly adoration and fatherly smile, perfect bliss and infinite complacency. Alas! Alas! It is no more than a vision! God would have treated man with familiarity and indulgence, lavishing favor and honor upon him. The Garden of Eden, fair as were its glades and lovely as were its flowers, was but a faint image of the things prepared for man had he continued in loyalty to God&mdash; inconceivable delights would have filled up the days of our life on earth had not the serpent's trail come across our nature and slimed it over with sin.
 

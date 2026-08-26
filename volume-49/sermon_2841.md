@@ -1,6 +1,7 @@
 # Sermon 2841 | Prayer&mdash;Its Discouragements and Encouragements
 
-"But He answered her not a word." Matthew 15:23.
+> But He answered her not a word.
+> Matthew 15:23
 
 WITH Christians it is not a matter of question as to whether God hears prayer or not. There is no fact in mathematics which has been more fully demonstrated than this fact in experience that God hears prayer. About some other things in Christianity, young Believers may have a question, but about the Lord's answering prayer, even they cannot entertain a doubt while, to the old and advanced Believer who has tested the power of the Mercy Seat and proved it thousands of times, it is a matter about which he never allows a question, for he knows that as surely as that he, himself, exists, and that God lives in Heaven, the prayers of puny but believing man have power to move the almighty arm of God!
 

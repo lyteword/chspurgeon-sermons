@@ -1,6 +1,7 @@
 # Sermon 2726 | Fourfold Satisfaction
 
-"And I will satiate the soul of the priests with fatness. And My people shall be satisfied with My goodness, says the Lord... ForIhave satiated the weary soul, and I have replenished every sorrowful soul." Jeremiah 31:14,25.
+> And I will satiate the soul of the priests with fatness. And My people shall be satisfied with My goodness, says the Lord... ForIhave satiated the weary soul, and I have replenished every sorrowful soul.
+> Jeremiah 31:14,25
 
 THE subject of this morning  was spiritual'thirst, and the promises made thereto. I tried to encourage those who are not at rest concerning the state of their souls&mdash;those who have strong and ardent desires to escape from the wrath to come&mdash;I tried to encourage them to partake of Christ, by faith, that they might find peace of heart and so might be perfectly satisfied. I believe that some did find peace this morning. We shall be on the look-out for them and hope that they will speedily come and tell us what God has done for their souls.
 

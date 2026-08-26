@@ -1,8 +1,7 @@
 # Sermon 3011 | Faith First, Confession Following
 
-"For with the heart, man believes unto righteousness, and with the mouth, confession is made unto salvation." Romans 10:10.
-
-
+> For with the heart, man believes unto righteousness, and with the mouth, confession is made unto salvation.
+> Romans 10:10
 
 IN speaking of this important matter&mdash;confessing with the mouth what we have believed with the heart, I call your attention, first of all, to the order of the two things. Believing with the heart must come first. Confession with the mouth must and should come afterwards. To confess with the mouth what I do not believe with the heart would be hypocrisy instead of being an acceptable sacrifice. It would be an abomination in the sight of God. How dare I profess to have faith if I do not possess it? How dare I assume a form of godliness unless I have proven its power in my spirit? So first comes the heart's believing and then follows the mouth's confession. Do not reverse the Scriptural order, but take care that you do all things in their due course. Among the last words of the Lord Jesus Christ to His disciples are these, "He that believes and is baptized shall be saved." Note the order&mdash;not Baptism first and believing afterwards&mdash;but he who first believes and then is baptized upon profession of his faith, is the servant of Christ who obeys his Master's commands in their right order&mdash;and he it is who "shall be saved."
 

@@ -1,6 +1,7 @@
 # Sermon 937 | The Profit Of Godliness In This Life
 
-"Bodily exercise profits little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come. This is a faithful saying and worthy of all acceptation." 1 Timothy 4:8,9.
+> Bodily exercise profits little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come. This is a faithful saying and worthy of all acceptation.
+> 1 Timothy 4:8,9
 
 YOUR attention will be the more readily given to this passage, because Paul declares it to be a "faithful"&mdash;a most true and certain saying&mdash;and "worthy of all acceptation," that is to say, worthy to be received and practiced by us all. Paul has four of these faithful sayings. The first, occurs in 1 Timothy 1:15, "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." The second is our text. The third is in 2 Timothy 2:12, "It is a faithful saying, if we suffer, we shall also reign with Him." And the fourth is in Titus 3:8, "This is a faithful saying, that they which have believed in God might be careful to maintain good works."
 

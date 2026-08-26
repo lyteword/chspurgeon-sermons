@@ -1,6 +1,7 @@
 # Sermon 2270 | Two "I Wills" In Isaiah 41
 
-"I will open rivers in high places, and a fountain in the midst of the valleys: I will make the wilderness a pool of water, and the dry land springs of water." Isaiah 41:18.
+> I will open rivers in high places, and a fountain in the midst of the valleys: I will make the wilderness a pool of water, and the dry land springs of water.
+> Isaiah 41:18
 
 YOU notice that in this verse, the Lord twice says, "I will," and in that respect this verse is in harmony with the rest of the chapter. Will the children, when they are at home, find out how many times in this chapter God says, "I will," or "You shall," which is to much the same effect?
 

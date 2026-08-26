@@ -1,8 +1,7 @@
 # Sermon 3056 | The Guilt and the Cleansing
 
-"Purge me with hyssop, and/shall be clean: wash me, and/shall be whiter than snow." Psalm 51:7.
-
-
+> Purge me with hyssop, and/shall be clean: wash me, and/shall be whiter than snow.
+> Psalm 51:7
 
 You know how David had sinned. To the sin of adultery he had added that of murder. David felt like one who was shut out from God and was unworthy to approach Him. He could not be content to remain in such a condition. He longed to be reconciled to God and he remembered that he had sometimes seen a man who had the leprosy put out of the city as an unclean person, or he had seen one who had defiled himself by touching a corpse shut out for a time from all communion with those who drew near to worship God. "Ah," he thought, "that is just as I am&mdash;I am unworthy to appear before God, for I am spiritually unclean."
 

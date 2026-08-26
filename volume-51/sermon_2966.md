@@ -1,6 +1,7 @@
 # Sermon 2966 | Resistance to Salvation
 
-"What have I to do with You, Jesus, You Son of the Most High God?" Mark 5:7.
+> What have I to do with You, Jesus, You Son of the Most High God?
+> Mark 5:7
 
 WHEREVER Jesus comes, there is a commotion. No sooner does He set His foot on the shore at Gadara than He is at once assailed by the powers of darkness! And it is not long before the whole population of the district is affected by His Presence. However uninfluential other people may be, Jesus is never so. He is always either, "the savor of death unto death" or, "the savor of life unto life." He is never a savorless Christ! Virtue is always going out of Him and that virtue stirs up the opposition of evildoers so that, straightaway, they come forth to fight against Him.
 

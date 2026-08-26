@@ -1,6 +1,7 @@
 # Sermon 2668 | Communion With Christ&mdash;a Baptizing Sermon
 
-"Cain two walk together, unless they are agreed?" Amos 3:3.
+> Cain two walk together, unless they are agreed?
+> Amos 3:3
 
 THE expression, "walking together," is often used in Scripture as a figure for communion. "Enoch walked with God: and he was not; for God took him." Communion, if it is thorough and entire, implies activity. It is not merely contemplation, it is action and, therefore, inasmuch as walking is an active exercise, and walking with a man is communion with him, active communion with him, we see how walking comes to be the picture of true communion with Christ. An old Puritan said, "It does not say that Enoch returned to God and then left Him, but he 'walked with God.'" All his journey through, he had God for his Companion and lived in perpetual fellowship with his Maker.
 

@@ -1,6 +1,7 @@
 # Sermon 1228 | Salvation by Faith and the Work of the Spirit
 
-"For we, through the Spirit, wait for the hope of righteousness by faith" Galatians 5:5.
+> For we, through the Spirit, wait for the hope of righteousness by faith
+> Galatians 5:5
 
 IT may seem remarkable that Paul, who was once the strictest of Pharisees, should become the most ardent champion of the doctrines of Salvation by Grace and Justification by Faith. How large a portion of the New Testament is given up to his writings&mdash;and the most prominent subject in all that falls from his pen is righteousness by faith. Did not the Lord show great wisdom in selecting as the chief advocate of this Truth of God a man who knew the other side&mdash;who had worked diligently under the Law, who had practiced every ceremony, who was a Hebrew of the Hebrews&mdash;and had profited above many under the Jews' religion, being more exceedingly zealous of the traditions of the fathers?
 

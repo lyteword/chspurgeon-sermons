@@ -1,6 +1,7 @@
 # Sermon 1793 | The Glory in the Rear
 
-"The glory of the Lord shall be thy rereward." Isaiah 57:8.
+> The glory of the Lord shall be thy rereward.
+>  Isaiah 57:8
 
 "For the Lord will go before you; and the God of Israel will be your rereward." Isaiah 3:12.
 

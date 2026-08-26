@@ -1,6 +1,7 @@
 # Sermon 2306 | Servitude Or Service&mdash;Which?
 
-"Nevertheless they shall be his servants; that they may know My service, and the service of the kingdoms of the countries." 2 Chronicles 12:8.
+> Nevertheless they shall be his servants; that they may know My service, and the service of the kingdoms of the countries.
+> 2 Chronicles 12:8
 
 THE people of God had left their God and He had left them, so that Shishak, the king of Egypt, came against them, and though the Lord had respect to their humble prayer and would not suffer Shishak to destroy Jerusalem, yet He brought them into subjection to the Egyptian king. Our text tells us the reason for this servitude&mdash;"They shall be his servants; that they may know My service, and the service of the kingdoms of the countries."
 

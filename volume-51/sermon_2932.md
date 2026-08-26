@@ -1,6 +1,7 @@
 # Sermon 2932 | False Justification and True
 
-"If I justify myself, my on mouth shall condemn me." Job 9:20.
+> If I justify myself, my on mouth shall condemn me.
+> Job 9:20
 
 "It is God that justifies. Who is he that condemns?" Romans 8:33,34.
 

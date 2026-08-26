@@ -1,6 +1,7 @@
 # Sermon 2531 | A Boundless Benediction
 
-"By the Almighty, who shall bless you with blessings of Heaven above, blessings of the deep that lies under." Genesis 49:25.
+> By the Almighty, who shall bless you with blessings of Heaven above, blessings of the deep that lies under.
+> Genesis 49:25
 
 You must have noticed, when reading Jacob's prophecies concerning his sons, that the good old man, when he came to talk about Joseph, suddenly seemed to be freer of speech than while he was addressing any of the others. The dying flame of life within him appeared to burn up more brightly at the sight of the son of his old age, the darling of his heart. The blessing which Jacob pronounced upon Joseph was infinite in extent&mdash;he seemed to ransack Heaven and earth in order to express the desire of his soul&mdash;and what he knew as a Prophet to be the purpose of God.
 

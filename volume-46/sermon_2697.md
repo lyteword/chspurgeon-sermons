@@ -1,6 +1,7 @@
 # Sermon 2697 | Angelic Interest in the Gospel
 
-"Which things the angels desire to look into." 1 Peter 1:12.
+> Which things the angels desire to look into.
+> 1 Peter 1:12
 
 THE Apostle Peter wrote his first Epistle to a persecuted people, many of whom were in great heaviness through manifold trials. The sufferings of the early Christians are something terrible even to think upon&mdash;the world has scarcely ever beheld more relentless cruelty than that which pursued the first servants of our Divine Lord and Master. Peter, therefore, when he wrote to these tried saints, sought to cheer and encourage them. What, then, did he write about? Why, about the Gospel! For there is nothing like the simple Doctrine of Salvation by Redemption to comfort the most distressed spirits.
 

@@ -1,6 +1,7 @@
 # Sermon 1479 | The Work of Grace the Warrant for Obedience
 
-"He that made me whole, the same said unto me, Take up your bed and walk." John 5:11.
+> He that made me whole, the same said unto me, Take up your bed and walk.
+> John 5:11
 
 (On behalf of the Mansion House Fund for the Hospitals of London).
 

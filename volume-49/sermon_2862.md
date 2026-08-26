@@ -1,6 +1,7 @@
 # Sermon 2862 | The Way of Wisdom
 
-"There is a path which no fowl knows, and which the vulture's eyes have not seen; the lion's whelps have not trodden it, nor the fierce lion passed by it." Job 28:7,8.
+> There is a path which no fowl knows, and which the vulture's eyes have not seen; the lion's whelps have not trodden it, nor the fierce lion passed by it.
+> Job 28:7,8
 
 IN this chapter Job is speaking of the hidden treasures that are to be found deep down in the bowels of the earth. The keen eyes of the vultures, though they see their prey afar off, have never seen the gold, silver and other precious metals which lie in the dark places of the earth. And the lions, especially the young lions hungering for their prey, though they will lie in wait in their lairs in the dens and caves of the earth, have never been able to descend into places as deep as those that are opened up by men who seek after gold and silver.
 

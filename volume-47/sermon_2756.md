@@ -1,6 +1,7 @@
 # Sermon 2756 | Saving the Lost
 
-"The Son of Man hats come to seek and to save that which was lost." Luke 19:10.
+> The Son of Man hats come to seek and to save that which was lost.
+> Luke 19:10
 
 OUR Lord's mission upon earth was a very gracious one. It had a narrow side to it, for He came only as a Minister&mdash; not as a Savior, mark you, but as Minister&mdash;to "the lost sheep of the house of Israel." He was, as the Apostle Paul reminds us, "a Minister of the circumcision for the truth of God." And He did not traverse any other country but Palestine, in order to preach the Gospel to the people, but He kept Himself to the seed of Abraham.
 

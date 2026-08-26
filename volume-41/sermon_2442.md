@@ -1,6 +1,7 @@
 # Sermon 2442 | "My Beloved Is Mine"
 
-"My beloved is mine, and I am His." Song of Solomon 2:16.
+> My beloved is mine, and I am His.
+> Song of Solomon 2:16
 
 THIS is a short verse from the Song of Songs and I do not hesitate to say that it is the soul and heart of that Divine composition. The bride dressed in her richest poesy wears no jewel more precious than this diamond of full assured possession! There is poetry here which none of the sons of music can excel. It is the heart's minstrelsy at its very best. This little sonnet might be sung in Heaven and the golden harps would be well employed if every string went with the accompaniment. How I wish you could, each one, sing it now with a clear sweet voice!&mdash;
 

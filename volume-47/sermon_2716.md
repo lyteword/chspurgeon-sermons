@@ -1,6 +1,7 @@
 # Sermon 2716 | Christ's Poverty, Our Riches
 
-"For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through His poverty might be rich." 2 Corinthians 8:9.
+> For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through His poverty might be rich.
+> 2 Corinthians 8:9
 
 IT is well to notice that Believers are to be constrained to Christian duty by Gospel motives rather than by legal arguments. It is poor work to try to stir up a Christian to perform an act of Grace by an argument fetched from a heathen moralist. And it is equally poor work to try and lead a child of God to perform a service of love by an argument which is applicable only to a slave. Hence you will find that the Apostle Paul, when he wants to urge the saints in Corinth to liberality, does not tell them what they are bound to do according to the requirements of the Law of God, for they are not under the Law&mdash;he uses arguments suitable for men who have come under the blessed Sovereignty of Divine Grace!
 

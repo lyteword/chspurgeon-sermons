@@ -1,6 +1,7 @@
 # Sermon 3036 | Proving God
 
-"Prove Me now." Malachi 3:10.
+> Prove Me now.
+> Malachi 3:10
 
 IT was my pleasure and my privilege, some time ago, to address you from the whole of this verse&mdash;"Bring you all the tithes into the storehouse, that there may be meat in your house, and prove Me now herewith, says the Lord of Hosts, if I will not open you the windows of Heaven, and pour you out a blessing, that there shall not be room enough to receive it."
 

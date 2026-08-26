@@ -1,6 +1,7 @@
 # Sermon 2797 | The Need and Nature of Conversion
 
-"Let the wicked forsake his ways, and the unrighteous man his thoughts: and let him return to the LORRD, and He will have mercy upon him; and to our God, for He will abundantly pardon." Isaiah 55:7.
+> Let the wicked forsake his ways, and the unrighteous man his thoughts: and let him return to the LORRD, and He will have mercy upon him; and to our God, for He will abundantly pardon.
+> Isaiah 55:7
 
 SOME years ago  I
 

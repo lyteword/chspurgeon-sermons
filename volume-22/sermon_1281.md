@@ -1,6 +1,7 @@
 # Sermon 1281 | "Do You Love Me?"
 
-"Simon, son of Jonas, do you love Me?" John 21:16.
+> Simon, son of Jonas, do you love Me?
+> John 21:16
 
 This is a very short and simple text and some would think it very easy to say all that can be said upon it, but, indeed, it is a very large text and too full of meaning for me to attempt to expound it all. The words are few, but the thoughts suggested are very many There are subtle meanings, too, in the original Greek well worth considering, and allusions which deserve to be followed out. I intend, at this time, to confine myself to one point, and to ask your consideration of one thought only. May the Spirit of God prepare our hearts for our meditation and impress the Truth of God upon them. My one point is this&mdash;our Lord asked Peter whether he had a love to His Person. The inquiry is not concerning his love to the kingdom of God, or the people of God&mdash;it begins and ends with his love to the Son of God.
 

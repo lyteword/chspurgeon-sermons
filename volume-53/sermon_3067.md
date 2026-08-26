@@ -1,8 +1,7 @@
 # Sermon 3067 | A Bold Challenge Justified
 
-"Who is he who condemns? It is Christ who died, yes rather, who is risen again, who is even at the right hand ofGod, who also makes intercession for us." Romans 8:34.
-
-
+> Who is he who condemns? It is Christ who died, yes rather, who is risen again, who is even at the right hand ofGod, who also makes intercession for us.
+> Romans 8:34
 
 ALL through this very wonderful chapter the Apostle seems to be piling up, in heaps upon heaps, the many marvels of Divine Grace. I might quote from the old classic fable of the giants who piled the mountains, one upon the other&mdash; Pelion upon Ossa&mdash;and I might say that even so has Paul done here. He has piled mountain upon mountain of wondrous Grace in his description of the way to Heaven! And now he seems to have climbed to the top of them all and to have transformed them into a kind of Tabor or Pisgah. And as he stands there, he exults in the Lord! He waves the palm branch of triumph. He boasts with holy boasting. And he challenges all his enemies to attack him&mdash;"Who shall lay anything to the charge of God's elect? It is God who justifies. Who is he who condemns? It is Christ who died, yes rather, who is risen again, who is even at the right hand of God, who also makes intercession for us."
 

@@ -1,6 +1,7 @@
 # Sermon 1616 | Saved In Hope
 
-"For we are saved by hope, but hope that is seen is not hope: for what a man sees, why does he yet hope for? But if we hope for what we see not, then do we with patience wait for it." Romans 8:24,25.
+> For we are saved by hope, but hope that is seen is not hope: for what a man sees, why does he yet hope for? But if we hope for what we see not, then do we with patience wait for it.
+> Romans 8:24,25
 
 ACCORDING to our version "we are saved by hope," but that is scarcely in accordance with other parts of Holy Scripture. Everywhere in the Word of God we are told that we are saved by faith. See the first verse of the fifth chapter&mdash; "Therefore being justified by faith." Faith is the saving Grace&mdash;not hope&mdash;unless only as hope is, under some aspects, tantamount to faith. Faith is the saving Grace and the original should be rendered thus. One wonders that it is not so in the Revised Version&mdash;"We were saved in hope." It would prevent misapprehension if the passage were so rendered, for as that eminent critic, Bengel, well says, "the words do not describe the means, but the manner of salvation: we are so saved that there may even yet remain something for which we may hope, both of salvation and glory."
 

@@ -1,7 +1,7 @@
 # Sermon 1393 | Speak For Yourself&mdash;a Challenge!
 
-"He is of age; ask him: he shall speak for himself." John 9:21
-
+> He is of age; ask him: he shall speak for himself.
+> John 9:21
 
 Our individuality and the personal responsibilities which fall upon ourselves in reference to Christ must not be lost sight of. If, for instance, a spiritual miracle has been worked upon us and we are obliged to confess. No, if we are delighted to confess that He has opened our eyes&mdash;then we are bound, especially those of us who are of ripe understanding, who may be said to be of full age&mdash;we are bound to bear our own personal testimony for Him. The allegation and the appeal may alike apply to each one of us, "He is of age; ask him: he shall speak for himself." Jesus Christ Himself bore our sins, as we heard this morning. He gave Himself for us. He served us, not by proxy, but by personal consecration.
 

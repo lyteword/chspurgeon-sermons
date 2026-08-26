@@ -1,6 +1,7 @@
 # Sermon 1136 | "Forever With The Lord"
 
-"To be with Christ, which is far better." Philippians 1:23.
+> To be with Christ, which is far better.
+> Philippians 1:23
 
 THE Apostle was confined in the guardroom of the Praetorian. It is very probable that he had a soldier chained to his right hand and another to his left. And it is very possible that this position suggested to him the expression, "I am in a strait betwixt two." He was literally held by two forces and he was mentally in the same condition&mdash;exercised with two strong desires&mdash;influenced by two master passions, and he did not know to which he should yield. He says, "Between the two I am in perplexity," or, as some render it, "I am straitened by the pressure of the two things." Picture yourself sitting in a gloomy dungeon, a captive in the hands of the cruel tyrant, Nero, and under the supervision of the infamous prefect, Tigellinus, the most detestable of all Nero's satellites.
 

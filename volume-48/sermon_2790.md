@@ -1,6 +1,7 @@
 # Sermon 2790 | Our Lord's Substitution
 
-"Who Himself bore our sins in His own body on the tree." 1 Peter 2:24.
+> Who Himself bore our sins in His own body on the tree.
+> 1 Peter 2:24
 
 Peter had almost incidentally mentioned his Master's name and, having done so, he felt that he must enlarge upon that theme, for the name of Christ was very dear to him. He seems to again hear that thrice-repeated question ringing in his ears, "Simon, son of Jonas, do you love Me?" and he can still answer, "Lord, You know all things; You know that I love You." So, having mentioned his Master's name, he feels that he must say something about Him. Oh, that we, also, may have such love for Christ that a touch of His hand, or a glance of His eyes may suffice to detain us! May we never be weary of hearing about Him! May His name exercise a sacred fascination upon us! May it cheer us in life and in death and be the theme of our song throughout eternity!
 

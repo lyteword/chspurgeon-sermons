@@ -1,6 +1,7 @@
 # Sermon 903 | The Way Everlasting
 
-"Lead me in the way everlasting."- Psalm 139:24.
+> Lead me in the way everlasting.
+> - Psalm 139:24
 
 WE must all of us have a "way." We must be journeying, for this is not our resting place. We cannot abide in any one stay. "Forward" is the word of command. As the round earth never pauses but perpetually revolves. As the stars never halt in their course but traverse incessantly their ordained orbits. As the rivers evermore seek the sea&mdash;as the ocean waves unrestingly pursue each other&mdash;even so feel we the common motion and always must we move onward, onward through this life unto the next&mdash;onward forever and ever.
 

@@ -1,6 +1,7 @@
 # Sermon 836 | Sown Light
 
-"Light is sown for the righteous, and gladness for the upright in heart." Psalm 97:11.
+> Light is sown for the righteous, and gladness for the upright in heart.
+> Psalm 97:11
 
 THIS appears to be the doctrine of the entire Psalm, and the verse which follows, "Rejoice in the Lord, you righteous," is intended to be the practical inference drawn from the whole of it. God would have His people believe that better times are in store for them, and, in the faith of the coming good, He would have them, even now, rejoice and be exceedingly glad. If you will read the Psalm you will notice that every verse may give us some strengthening of our faith as to the future blessedness of those that fear the Lord.
 

@@ -1,6 +1,7 @@
 # Sermon 936 | A Blessed Wonder
 
-"When Jesus heard it, He marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel." Matthew 8:10.
+> When Jesus heard it, He marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel.
+> Matthew 8:10
 
 You remember that we commenced this morning's sermon by observing that Jesus is not reported to have marvelled either at the gigantic architecture of the Temple, or at the wonderful discipline of the Roman army, or at the profound knowledge of the rabbis. He only wondered twice, according to the record, and on both of those occasions he marvelled concerning faith&mdash;once at the absence of it, and once at its presence.
 

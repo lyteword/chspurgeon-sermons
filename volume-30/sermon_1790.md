@@ -1,6 +1,7 @@
 # Sermon 1790 | Receiving the Holy Spirit
 
-"He said unto them, Have you received the Holy Spirit since you believed?" Acts 19:2.
+> He said unto them, Have you received the Holy Spirit since you believed?
+> Acts 19:2
 
 IT may be well to notice what question the Apostle did not put to these Ephesian disciples of John. He did not say to them, "Have you believed?" This would have been a very important question and it ought to be settled once and for all. Our faith must either be boldly affirmed or sorrowfully denied&mdash;it should not remain the subject of question. It is a great pity that so many Christians are always saying, "Have I believed?" and allowing that most vital point to be a matter of debate&mdash;for as long as the existence of faith within our souls is the subject of question, we must be unhappy. Faith is the cornerstone of the edifice of godliness&mdash;if it is not well laid and known to be well laid&mdash;there can be no sense of security to the inhabitant of the house. We not only ought to know that we believe, but to know Whom we believe! And it would be well for us to advance beyond common believing to assurance&mdash;and then to full assurance&mdash;the assurance of faith, the assurance of hope and the assurance of understanding.
 

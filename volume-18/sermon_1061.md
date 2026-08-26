@@ -1,6 +1,7 @@
 # Sermon 1061 | Rahab
 
-"By faith the harlot Rahab perished not with them that believed not, when she had received the spies in peace." Hebrews 11:31.
+> By faith the harlot Rahab perished not with them that believed not, when she had received the spies in peace.
+> Hebrews 11:31
 
 "Likewise also was not Rahab the harlot justified by works, when she had received the messengers, and had sent them out another way?" James 2:25.
 

@@ -1,6 +1,7 @@
 # Sermon 3105 | The Search after Happiness
 
-"There aire many who say, Who will show us any good? Lord, lift up the light of Your Countenance upon us." Psalm 4:6.
+> There aire many who say, Who will show us any good? Lord, lift up the light of Your Countenance upon us.
+> Psalm 4:6
 
 This is a text which, by the rich assistance of the Holy Spirit, may serve as a touchstone to try our state. See, here are two classes of men&mdash;the many panting after the good of this world&mdash;and the few turning the eyes of faith to their God and begging that He would lift up the light of His Countenance upon them.
 

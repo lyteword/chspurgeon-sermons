@@ -1,6 +1,7 @@
 # Sermon 789 | Lingerers Hastened
 
-"And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters the Lord being merciful unto him: and they brought him forth, and set him outside the city." Genesis 19:16.
+> And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters the Lord being merciful unto him: and they brought him forth, and set him outside the city.
+> Genesis 19:16
 
 EVEN as Lot lingered in Sodom, awakened sinners are apt to tarry long in their sin and unbelief. Some few are suddenly brought to Christ, and, like Saul of Tarsus, within a few hours enjoy complete Gospel liberty. But many others are unwise children and tarry long in the place of danger, loitering where they ought to hasten and wasting time which they should diligently redeem. It is angelic work to quicken those who linger. The angels who descended to earth in the disguise of wayfarers did not disdain to be employed in such a gracious office, and, if you and I would be like angels, we must do as they did&mdash;take procrastinating sinners by the hand and endeavor to compel them to escape&mdash;constraining them to flee from the wrath to come.
 

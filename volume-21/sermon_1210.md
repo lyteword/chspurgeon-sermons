@@ -1,6 +1,7 @@
 # Sermon 1210 | The Weaned Child
 
-"My soul is even as a weaned child." Psalm 131:2.
+> My soul is even as a weaned child.
+> Psalm 131:2
 
 I was once conversing with a very excellent aged minister and while we were talking about our attitude and feelings, he made the following confession&mdash;he said, "When I read that passage in the Psalm, 'My soul is even as a weaned child,' I wish it were true of me, but I think I should have to make an alteration of one syllable and then it would exactly describe me at times&mdash;'My soul is even as a weaning rather than a weaned child,' for," said he, "with the infirmities of old age, I fear I get fretful and peevish and anxious. And when the day is over I do not feel that I have been in so calm, resigned and trustful a frame of mind as I could desire."
 

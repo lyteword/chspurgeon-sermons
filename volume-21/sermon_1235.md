@@ -1,6 +1,7 @@
 # Sermon 1235 | How a Man's Conduct Comes Home To Him
 
-"The backslider in heart shall be filled with his own ways: and a good man shall be satisfied from himself." Proverbs 14:14.
+> The backslider in heart shall be filled with his own ways: and a good man shall be satisfied from himself.
+> Proverbs 14:14
 
 A common principle is laid down here and declared to be equally true in reference to two characters, who in other respects are a contrast. Men are affected by the course which they pursue, for good or bad&mdash;their own conduct comes home to them. The backslider and the good man are very different, but in each of them the same rule is exemplified&mdash; they are both filled by the result of their lives. The backslider becomes filled by that which is within him, as seen in his life, and the good man, also, is filled by that which Divine Grace implants within his soul. The evil leaven in the backslider leavens his entire being and sours his existence, while the gracious Fountain in the sanctified Believer saturates his whole manhood and baptizes his entire life.
 

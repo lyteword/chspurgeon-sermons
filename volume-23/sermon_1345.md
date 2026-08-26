@@ -1,6 +1,7 @@
 # Sermon 1345 | For Whom Is The Gospel Meant?
 
-"They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance." Mark 2:17.
+> They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance.
+> Mark 2:17
 
 "Christ died for the ungodly." Romans 5:6.
 

@@ -1,8 +1,7 @@
 # Sermon 3068 | Unknown Depths and Heights
 
-"Then said Jesus, Father, forgive them; for they know not what they do." Luke 23:34.
-
-
+> Then said Jesus, Father, forgive them; for they know not what they do.
+> Luke 23:34
 
 IT needs a tongue as eloquent as that which uttered these words to fitly describe the scene before us. Christ, the King of kings, and yet the sorrowful Substitute for sinners, has been stripped naked. The mocking soldiers have unconsciously fulfilled the Scripture which said, "They parted My raiment among them, and for My vesture they did cast lots." He has been thrown roughly to the ground. His legs and arms have been stretched out upon the transverse wood. Rough hands have grasped the cruel nails. Stern blows have been dealt with the heavy hammer&mdash;He now begins to know the physical sufferings of crucifixion. He looks down to the faces of the men who have been putting him to exquisite torture and to bitter shame and utters not a single word of complaint, much less of accusation or of vengeance. And He breathes a prayer, "Father, forgive them"&mdash;My murderers, the rough men who have stripped Me, the cruel men who have nailed My hands and pierced My feet&mdash;"Father, forgive them; for they know not what they do."
 

@@ -1,6 +1,7 @@
 # Sermon 1045 | Joy in a Reconciled God
 
-"And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the atonement." Romans 5:11.
+> And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the atonement.
+> Romans 5:11
 
 OUR text begins with these words, "And not only so." It is the second time in which they occur in the chapter&mdash;I might almost have said the third&mdash;for a similar expression is used in another verse. The Apostle had been mentioning very great and amazing privileges. He had gone from great benefits to yet greater&mdash;he had advanced, I might say, from silver to gold, and from gold to the priceless crystal&mdash;and when he had reached the highest point that we could have thought to be conceivable, he adds, "And not only so." There is always in Christian privilege a beyond. The ancient mariners spoke of the pillars of Hercules and the Ultima Thule, and they supposed that when once their sails had whitened the sea in that direction they had come to the end of the universe and could go no further. But, more venturous ships forced their way to a new world and proved that the former boundaries were imaginary.
 

@@ -1,8 +1,7 @@
 # Sermon 2372 | A Page From a Royal Diary
 
-"Look You upon me and be merciful to me, as You used to do to those who love Your name." Psalm 119:132.
-
-
+> Look You upon me and be merciful to me, as You used to do to those who love Your name.
+> Psalm 119:132
 
 PERHAPS YOU noticed, while I was reading, that during the writing of several of the verses, David occupied himself with the praises of God's Word. He kept to that point, extolling with all his might those Scriptures in which God had spoken to his heart, but he could not go on long without prayer. If these meditations were written in his pocket-book, day by day, it is noteworthy that although he fervently praises the Word of God, yet he also frequently breaks out into prayer. However the child of God may occupy his mind&mdash;and he very properly employs it in many holy occupations&mdash;yet he often turns to prayer, for he cannot live without it. Well does Montgomery say&mdash;
 

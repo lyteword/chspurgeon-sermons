@@ -1,6 +1,7 @@
 # Sermon 1892 | Why They Leave Us
 
-"Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world."&mdash;John 17:24.
+> Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.
+> &mdash;John 17:24
 
 THE PRAYER OF THE SAVIOR rises as it proceeds. He asked for his people that they might be preserved from the world, then that they might be sanctified, and then that they might be made manifestly one; and now he reaches his crowning point&mdash;that they may be with him where he is, and behold his glory. It is well when in prayer the spirit takes to itself wings. The prayer that swings to and fro like a door upon its hinges may admit to fellowship; but that prayer is more after the divine pattern which, like a ladder, rises round by round, until it loses itself in heaven.
 

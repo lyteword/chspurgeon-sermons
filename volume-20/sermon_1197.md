@@ -1,6 +1,7 @@
 # Sermon 1197 | The Claims of God
 
-"Know you that the Lord, He is God: it is He that has made us, and not we, ourselves; we are His people, and the sheep of His pasture. Enter into His gates with thanksgiving, and into His courts with praise: be thankful unto Him, and bless His name. For the Lord is good; His mercy is everlasting: and His Truth endures to all generations." Psalm 100:3,4,5.
+> Know you that the Lord, He is God: it is He that has made us, and not we, ourselves; we are His people, and the sheep of His pasture. Enter into His gates with thanksgiving, and into His courts with praise: be thankful unto Him, and bless His name. For the Lord is good; His mercy is everlasting: and His Truth endures to all generations.
+> Psalm 100:3,4,5
 
 BRETHREN, it is a trick of Satan to distract us from the most important and vital matters by the suggestion of trivial considerations. When the best blessings are asking for our acceptance, he will bring the most trivial things into our minds. He will fill our eyes with dust to prevent our looking to the bronze serpent for healing. From the preaching of Jesus he endeavored to distract human attention by debates upon the tithing of mint and anise and cumin&mdash;the making broad of the borders of one's garments, the wearing of phylacteries&mdash;the straining out of gnats, and I know not what else.
 

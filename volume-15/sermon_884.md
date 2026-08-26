@@ -1,6 +1,7 @@
 # Sermon 884 | Help for Seekers of the Light
 
-"We look for light, but behold obscurity; for brightness, but we walk in darkness."- Isaiah 59:9.
+> We look for light, but behold obscurity; for brightness, but we walk in darkness.
+> - Isaiah 59:9
 
 ISRAEL had greatly revolted from her God and in consequence she had brought upon herself great sorrow. Still, instead of repenting of their faults and returning to their allegiance to Jehovah, the nation continued to be duped by false prophets and presumptuous pride into the expectation of better days. The better days came not. They looked for the sunshine, but they wandered in the mists. They waited for brightness, but walked in gloom. Unhappy Israel! She turned aside from Jehovah to worship Baal&mdash;she went after the gods of the heathen which were not gods&mdash;and from that hour her land was afflicted with pestilence and famine.
 

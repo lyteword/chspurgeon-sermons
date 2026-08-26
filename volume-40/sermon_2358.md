@@ -1,6 +1,7 @@
 # Sermon 2358 | The Unchangeable Christ
 
-"Jesus Christ, the same yesterday, and today and forever." Hebrews 13:8.
+> Jesus Christ, the same yesterday, and today and forever.
+> Hebrews 13:8
 
 LET me read to you the verse that comes before our text. It is always a good habit to look at texts in their connection. It is wrong, I think, to lay hold of small portions of God's Word and take them out of their connection as you might pluck feathers from a bird. It is an injury to the Word of God and, sometimes, a passage of Scripture loses much of its beauty, its true teaching and its real meaning, by being taken from the context. Nobody would think of mutilating Milton's poems by taking a few lines out of Paradise Lost, and then imagining that he could really get at the heart of the poet's power. So, always look at texts in the connection in which they stand. The verse before our text is this, "Remember them which have the rule over you, who have spoken unto you the Word of God: whose faith follow, considering the end of their conversation: Jesus Christ, the same yesterday, and today, and forever."
 

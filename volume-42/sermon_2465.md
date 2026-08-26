@@ -1,6 +1,7 @@
 # Sermon 2465 | Our Omnipotent Leader
 
-"And Jesus came and spoke to them, saying, All power is given to Me in Heaven and on earth." Matthew 28:18.
+> And Jesus came and spoke to them, saying, All power is given to Me in Heaven and on earth.
+> Matthew 28:18
 
 I INTEND chiefly to call your attention to this verse, but it will also be necessary to refer to the rest of the chapter&mdash;"Go, therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit: teaching them to observe all things that I have commanded you: and, lo, I am with you always, even to the end of the world. Amen"
 

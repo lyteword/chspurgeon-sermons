@@ -1,6 +1,7 @@
 # Sermon 2452 | Hope for the Worst Backsliders
 
-"Return, you backsliding children, and I will heal your backslidings. Behold, we come to You; for You are the Lord our God. Truly in vain is salvation hoped for from the hills, and from the multitude of mountains: truly in the Lord our God is the salvation of Israel." Jeremiah 3:22,23.
+> Return, you backsliding children, and I will heal your backslidings. Behold, we come to You; for You are the Lord our God. Truly in vain is salvation hoped for from the hills, and from the multitude of mountains: truly in the Lord our God is the salvation of Israel.
+> Jeremiah 3:22,23
 
 SIN is quite sure to cause sorrow&mdash;and the longer the sorrow is delayed, the heavier it will be when it comes. This ship may be long at sea, but it will come home, at last, with a heavy cargo. There was never a man who broke the Law of God who had not in the end to rue it. "He that digs a pit shall fall into it and who breaks a hedge, a serpent shall bite him," is one of Solomon's sayings, and it is most certainly true. How many there are in this world who have upon them a load of sorrow which is plainly and evidently the result of their own folly and iniquity! Their sin procured it for them.
 

@@ -1,6 +1,7 @@
 # Sermon 2644 | The Last Words of Christ on the Cross
 
-"And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost" Luke 23:46.
+> And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost
+> Luke 23:46
 
 "Into Your hands I commit my spirit: You have redeemed me, O Lord God of Truth."
 

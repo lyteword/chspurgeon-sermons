@@ -1,6 +1,7 @@
 # Sermon 2781 | Jesus Calling
 
-"Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
+> Come unto Me, all you that labor and are heavy laden, and I will give you rest.
+> Matthew 11:28
 
 I HAVE often preached from this text.  I hope, if I am Spared, to often preach from
 

@@ -1,6 +1,7 @@
 # Sermon 2839 | "Prisoners of Hope"
 
-"As for you also, by the blood ofyour covenant Have sent forth your prisoner out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you." Zechariah 9:11,12
+> As for you also, by the blood ofyour covenant Have sent forth your prisoner out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you.
+> Zechariah 9:11,12
 
 THIS passage unquestionably has to do with our Lord Jesus Christ and His salvation. We are not at all in doubt about this matter, for the connection is exceedingly clear. If you begin to read at the ninth verse, you will see that we have, from that place on to our text, much prophetic information concerning our Lord and His Kingdom. We read, first, something about His own manner of triumph and His way of conducting Himself in His Kingdom&mdash;"Rejoice greatly, O daughter of Zion; shout, O daughter of Jerusalem: behold, your King comes unto you: He is just, and having salvation; lowly, and riding upon an ass, and upon a colt the foal of an ass." We know that the Prophet speaks not thus of any man save of our Lord Jesus Christ. He is the King who put aside the pomp and pageantry in which Eastern monarchs delighted and, instead of riding upon a horse, He mounts a lowly ass. If He must ride in procession through the streets of Jerusalem, it shall be in that meek and humble guise. The King of the Kingdom of Grace is not high and lofty, haughty or proud, but condescends to men of low estate.
 

@@ -1,6 +1,7 @@
 # Sermon 2670 | Pride Catechized
 
-"Should it be according to your mind? He will recompense it whether you refuse, or whether you choose; and not I: therefore speak what you know." Job 34:33.
+> Should it be according to your mind? He will recompense it whether you refuse, or whether you choose; and not I: therefore speak what you know.
+> Job 34:33
 
 DEAR FRIENDS, it is never wise to dispute with God. Let a man strive with his fellow, but not with his Maker. If we must discuss any point, let it be with imperfect beings like ourselves, but not with the Infallible and Infinitely wise God, for, in most of our discussions, these questions will come back to us, "Should it be according to your mind? Are you master? Is everyone to be subordinate to you?"
 

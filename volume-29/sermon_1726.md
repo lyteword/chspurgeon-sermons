@@ -1,6 +1,7 @@
 # Sermon 1726 | Buying Without Money
 
-"He that has no money; come, buy, and eat." Isaiah 55:1.
+> He that has no money; come, buy, and eat.
+> Isaiah 55:1
 
 THERE is a semicolon in our translation, but we need not take notice of it. It should not be there, since the text is the second of two parallel sentences arranged according to the method of Hebrew poetry&mdash;
 

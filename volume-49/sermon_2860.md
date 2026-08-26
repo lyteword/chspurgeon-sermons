@@ -1,6 +1,7 @@
 # Sermon 2860 | Owl or Eagle?
 
-"I am like an owl of the desert." Psalm 102:6.
+> I am like an owl of the desert.
+> Psalm 102:6
 
 "Who satisfies your mouth with good things; so that your youth is renewed like the eagle's."
 

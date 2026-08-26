@@ -1,6 +1,7 @@
 # Sermon 2741 | Salvation by Grace
 
-"By Grace you are saved." Ephesians 2:5.
+> By Grace you are saved.
+> Ephesians 2:5
 
 THE cardinal error against which the Gospel of Christ has to contend is the effect of the tendency of the human heart to rely upon salvation by works. The great antagonist to the Truth of God, as it is in Jesus, is that pride of man which leads him to believe that he can be, at least in part, his own savior. This error is the prolific mother of multitudes of heresies! It is through this falsehood that the pure stream of the Truth of God has been tainted so that, instead of flowing on in one clear pure river, it has been sadly polluted. There have been many who have sought to hinder the flowing of the Water of Life, or to divert the stream from its proper current. Many have tried to mingle the fancies and fallacies of men with the Truth as it is in Jesus, in order, thereby, to make it more palatable to poor, fallen, human nature.
 

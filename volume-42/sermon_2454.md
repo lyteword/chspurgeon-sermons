@@ -1,6 +1,7 @@
 # Sermon 2454 | The Secret of Failure
 
-"Then the disciples came to Jesus privately, and said, Why could we not cast it out? So Jesus said to them, Because of your unbelief: for verily I say unto you, If you have faith as a grain of mustard seed, you shall say unto this mountain, Move from here to there and it shall move; and nothing will be impossible for you. However, this kind does not go out except by prayer and fasting." Matthew 17:19-21.
+> Then the disciples came to Jesus privately, and said, Why could we not cast it out? So Jesus said to them, Because of your unbelief: for verily I say unto you, If you have faith as a grain of mustard seed, you shall say unto this mountain, Move from here to there and it shall move; and nothing will be impossible for you. However, this kind does not go out except by prayer and fasting.
+> Matthew 17:19-21
 
 "And when He had come into the house, His disciples asked Him privately, Why could we not cast it out? So He said to them, This kind can come out by nothing but prayer and fasting."
 

@@ -1,6 +1,7 @@
 # Sermon 2906 | Honor for Honor
 
-"Those who honor Me I will honor, and those who despise Me shall be lightly esteemed." 1 Samuel 2:30.
+> Those who honor Me I will honor, and those who despise Me shall be lightly esteemed.
+> 1 Samuel 2:30
 
 God is certain, sooner or later, to recompense men according to the rule of Infallible Justice and if it is so among saints, it is equally so among sinners. If we could really know the secret history of any man's life, we would be able to understand his career better than we now do. There is many a life of which we have had to say to the Lord, "Your way is in the sea, and Your path in the great waters, and your footsteps are not known." Yet if we had known more about the man, it would have been all plain enough. If we had seen the sin that was hidden from human eyes, we would have understood the sorrow that was evident to all.
 

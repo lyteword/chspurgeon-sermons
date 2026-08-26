@@ -1,6 +1,7 @@
 # Sermon 1534 | Salvation By Works, a Criminal Doctrine
 
-"I do not frustrate the Grace of God: for if righteousness comes by the Law, then Christ is dead in vain." Galatians 2:21.
+> I do not frustrate the Grace of God: for if righteousness comes by the Law, then Christ is dead in vain.
+> Galatians 2:21
 
 THE idea of salvation by the merit of our own works is exceedingly insinuating. It matters not how often it is refuted, it asserts itself again and again and when it gains the least foothold it soon makes great advances. Hence Paul, who was determined to show it no quarter, opposed everything which bore its likeness. He was determined not to permit the thin end of the wedge to be introduced into the Church, for well he knew that willing hands would soon be driving it home! Therefore when Peter sided with the Judaizing party and seemed to favor those who demanded that the Gentiles should be circumcised, our brave Apostle withstood him to his face. He always fought for salvation by Grace through faith and contended strenuously against all thought of righteousness by obedience to the precepts of the ceremonial or the moral Law.
 

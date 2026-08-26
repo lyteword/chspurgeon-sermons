@@ -1,6 +1,7 @@
 # Sermon 1319 | The Sinner's Savior
 
-"And when they saw it, they all murmured, saying, He was gone to be a guest with a man that is a sinner." Luke 19:7.
+> And when they saw it, they all murmured, saying, He was gone to be a guest with a man that is a sinner.
+> Luke 19:7
 
 PUBLICANS, or tax-gatherers, among the Jews were objects of intense aversion. The nation was always restless under the Roman yoke, for the Israelite's pride of lineage made him boast that he was born free and was never in bondage unto any man. Moreover, they had hopes of a great future under a Messiah who would lead them on to conquest and, therefore, the Roman yoke galled their shoulders exceedingly and the payment of taxes to a foreign power was a heavy grievance. That the people of God should pay tribute to a heathen power was a bone of continual contention and the persons of the tax-gatherers were held in bitter hatred. While they abhorred the collectors of customs as a class, they reserved their most intense contempt for any of their own countrymen who lent themselves to this obnoxious business.
 

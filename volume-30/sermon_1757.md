@@ -1,6 +1,7 @@
 # Sermon 1757 | The New Year's Guest
 
-"I was a stranger, andyou took Me in." Matthew 25:35.
+> I was a stranger, andyou took Me in.
+> Matthew 25:35
 
 "But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name." John 1:12.
 

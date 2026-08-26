@@ -1,6 +1,7 @@
 # Sermon 734 | The Dawn of Revival, or Prayer Speedily Answered
 
-"At the beginning of your supplications the commandment came forth, and I am come to show you; for you are greatly beloved."- Daniel9:23.
+> At the beginning of your supplications the commandment came forth, and I am come to show you; for you are greatly beloved.
+> - Daniel9:23
 
 PRAYER is useful in a thousand ways. It is spiritually what the old physicians sought after naturally&mdash;namely, a catholicon&mdash;a remedy of universal application. There is no ease of need, distress, or dilemma, in which prayer will not be found to be a very present help. In the case before us Daniel had been studying the book of Jeremiah, and had learned that God would accomplish seventy weeks in the desolation of Jerusalem, but he felt that there was still more to be learned, and he set his face to learn it.
 

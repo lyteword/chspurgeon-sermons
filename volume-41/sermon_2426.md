@@ -1,6 +1,7 @@
 # Sermon 2426 | A Prayer for Revival
 
-"Will You not revive us again that Your people may rejoice in You" Psalm 85:6.
+> Will You not revive us again that Your people may rejoice in You
+> Psalm 85:6
 
 BRETHREN, if you will pray this prayer, it will be better than my preaching from it! And my only motive in preaching from it is that you may pray it. Oh, that at once, before I have uttered more than a few sentences, we might begin to pray by crying, yes, groaning deep down in our souls," Will You not revive us again that Your people may rejoice in You?"
 

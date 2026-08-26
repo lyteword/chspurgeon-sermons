@@ -1,6 +1,7 @@
 # Sermon 1856 | The History of Little-Faith
 
-"And immediately Jesus stretched forth His hand, and caught him, and said unto him, O you of little faith, why did you doubt?" Matthew 14:31.
+> And immediately Jesus stretched forth His hand, and caught him, and said unto him, O you of little faith, why did you doubt?
+> Matthew 14:31
 
 THERE is only one word in the original for the phrase, "O you of little faith." The Lord Jesus virtually addresses Peter by the name of "Little-Faith" in one word. I do not suppose that Peter had ever before dreamed of that name as applicable to himself. Possibly he had thought in his heart that his faith was strong even to assurance. When so lately he had seen his Master feed the multitudes with a few loaves and fishes and had helped to gather up 12 baskets of fragments, he felt that his faith was equal to anything. He who could feed so many with so little, could do any kind of wonder! And how could Peter&mdash;brave, honest Peter&mdash;ever think of doubting his Lord? O Brothers and Sisters, we do not know ourselves! We fancy that we are rich and increased in goods and, lo, in the time of trial we discover that we are naked, poor and miserable!
 

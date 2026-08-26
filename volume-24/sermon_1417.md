@@ -1,7 +1,7 @@
 # Sermon 1417 | "Your Salvation"
 
-"Then took he Him up in his arms, and blessed God, and said, Lord, now let Your servant depart in peace, according to Your word: for my eyes have seen Your salvation." Luke 2:28-30.
-
+> Then took he Him up in his arms, and blessed God, and said, Lord, now let Your servant depart in peace, according to Your word: for my eyes have seen Your salvation.
+> Luke 2:28-30
 
 But there is a time to build up as well as a time to break down. And as we showed on the former occasion where salvation is not and cannot be, so today let us, by the help of God's Spirit, endeavor to point out where salvation really is&mdash;so that those who have learned to look away from themselves may now be taught to look to Christ! May the Holy Spirit grant us this desire of our heart and may thousands, by this sermon, find salvation!
 

@@ -1,6 +1,7 @@
 # Sermon 940 | The Winnowing Fan
 
-"Follow peace with all men, and holiness, without which no man shall see the Lord: looking diligently lest any man fail of the Grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled." Hebrews 12:14,15.
+> Follow peace with all men, and holiness, without which no man shall see the Lord: looking diligently lest any man fail of the Grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled.
+> Hebrews 12:14,15
 
 WELL did the Apostle declare that the righteous scarcely are saved. It is no child's play to be a Christian. The Christian life is beyond the poet's meaning, real and earnest. The hills of difficulty which lie before us are no molehills, and the giants and dragons with which we must contend are no phantoms of a disordered brain. When we reach Heaven, what monuments of Grace we shall be, and how shall we throughout eternity emulate one another's praises, each one feeling himself to be the deepest debtor to Sovereign Grace!
 

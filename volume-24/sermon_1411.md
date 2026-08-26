@@ -1,6 +1,7 @@
 # Sermon 1411 | Under Constraint
 
-"For the love of Christ constrains us; because we thus judge, that if One died for all, then were all dead." 2 Corinthians 5:14.
+> For the love of Christ constrains us; because we thus judge, that if One died for all, then were all dead.
+> 2 Corinthians 5:14
 
 THE Apostle and his brethren were unselfish in all that they did. He could say of himself and of his brethren that when they varied their modes of action they always had the same objective in view&mdash;they lived only to promote the cause of Christ and to bless the souls of men. He says, "Whether we are beside ourselves, it is to God: or whether we are sober, it is for your cause." Some may have said that Paul was too excitable and expressed himself too strongly. "Well," he said, "if it is so, it is to God." Others may have noticed the reasoning faculty to be exceedingly strong in Paul and may, perhaps, have thought him to be too coolly argumentative. "But," said Paul, "if we are sober, it is for your cause." Viewed from some points the Apostle and his co-laborers must have appeared to be raving fanatics, engaged upon a Quixotic enterprise and almost, if not quite, out of their minds.
 

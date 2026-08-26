@@ -1,6 +1,7 @@
 # Sermon 1331 | The Two "Comes"
 
-"And the Spirit and the bride say, Come! And let him who hears say, Come! And let him who thirsts come. And whoever will, let him take the water of life freely." Revelation 22:17.
+> And the Spirit and the bride say, Come! And let him who hears say, Come! And let him who thirsts come. And whoever will, let him take the water of life freely.
+> Revelation 22:17
 
 OUR text stands at the end of the Bible even as this day stands at the end of the year&mdash;and it is full of Gospel even as we would make our closing Sabbath discourse. It would seem as if the Holy Spirit were loath to put down the pen while so many remained unbelieving, notwithstanding the testimony of the Inspired Word and, therefore,, before He closes the canon of Holy Scripture and guards it against all addition or mutilation, with most solemn words He gives one more full, free, earnest, gracious invitation to thirsty souls to come to Christ and drink! So on this last page of the year I would gladly write another Gospel invitation that those who have not, up to now, believed our report, may, even on this last day of the feast, incline their ears and accept the message of salvation!
 

@@ -1,6 +1,7 @@
 # Sermon 2720 | The Savior Resting in His Love
 
-"He will rest in His love." Zephaniah 3:17.
+> He will rest in His love.
+> Zephaniah 3:17
 
 ONE of our sweetest hymns commences with this verse &mdash;
 

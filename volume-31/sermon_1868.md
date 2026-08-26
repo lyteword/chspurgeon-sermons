@@ -1,6 +1,7 @@
 # Sermon 1868 | Death and Life&mdash;the Wage and the Gift
 
-"For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord." Romans 6:23.
+> For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord.
+> Romans 6:23
 
 IN the fifth chapter of this Epistle, Paul had shown, at considerable length, our justification from sin through the righteousness of Jesus Christ our Savior. Our Apostle goes on to speak of our sanctification in Christ, that as by the righteousness of Christ we have been delivered from the guilt and penalty of sin, so by the power and life of Christ in us we are delivered from the dominion of sin, so as not to live any longer therein. His objective is to show that true servants of God cannot live in sin&mdash;that by reason of our newness of life in Christ, it is not possible that we should continue to yield our members, instruments unto iniquity. We have passed out of the realm of death. We have come into the domain of life and, therefore, we must act according to that life and that life&mdash;being in its essence, pure, holy and heavenly&mdash;we must proceed from righteousness unto holiness.
 

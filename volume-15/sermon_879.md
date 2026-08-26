@@ -1,6 +1,7 @@
 # Sermon 879 | An Assuredly Good Thing
 
-"It is good for me to draw near to God."- Psalm 73:28.
+> It is good for me to draw near to God.
+> - Psalm 73:28
 
 WHEN a man is sick, everybody knows what is good for him. They recommend remedies by the score&mdash;salts from the earth, herbs of the field, drugs from the east, minerals from the rock, extracts, compounds, cordials, concoctions, quintessences and I know not what besides&mdash;as many medicines as there are men&mdash;all these are cried up as good for our complaint. Amid such a Babel it is well for a man if he knows on his own account what is good for himself.
 

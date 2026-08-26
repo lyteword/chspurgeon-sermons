@@ -1,6 +1,7 @@
 # Sermon 2345 | Moses' Dying Charge to Israel
 
-"And you shall remember all the way which the Lord your God led you these forty years in the wilderness, to humble you, and to prove you, to know what was in your heart, whether you would keep His commandments, or no." Deuteronomy 8:2.
+> And you shall remember all the way which the Lord your God led you these forty years in the wilderness, to humble you, and to prove you, to know what was in your heart, whether you would keep His commandments, or no.
+> Deuteronomy 8:2
 
 These are the words of Moses, the man of God, when he was near his departure. They make up a part of what has been called his "swan song." He did not often sing&mdash;he did give us at least one song, but when he came near the time he was to die, like the fabled swan, he began to sing&mdash;and most sweetly did he sing!
 

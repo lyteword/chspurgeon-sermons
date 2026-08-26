@@ -1,6 +1,7 @@
 # Sermon 1060 | Behold The Lamb!
 
-"Behold the Lamb of God!" John 1:36.
+> Behold the Lamb of God!
+> John 1:36
 
 IT IS the preacher's principal business&mdash;I think I might say, his only business&mdash;to cry, "Behold the Lamb of God!" For this reason was John born and sent into the world, and such were the prophecies which went before concerning him. If he had been the most eloquent preacher of repentance. If he had been the most earnest declaimer against the sins of the times, he would, nevertheless, have missed his lifework if he had forgotten to say, "Behold the Lamb of God." He did well when he baptized the repenting crowd. He spoke nobly when he faced the Pharisees and was a true hero when he rebuked Herod. But above all his chief errand was to herald the Messiah, to bear witness to the Son of God!
 

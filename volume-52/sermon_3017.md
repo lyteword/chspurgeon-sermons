@@ -1,6 +1,7 @@
 # Sermon 3017 | Seeing God's Goodness Here
 
-"I had fainted, unless I had believed to see the goodness of the Lord in the land of the living." Psalm 27:13.
+> I had fainted, unless I had believed to see the goodness of the Lord in the land of the living.
+> Psalm 27:13
 
 WE were favored with very much of God's goodness last Sabbath evening, when we considered the rule of Grace in guiding a Believer's life, namely, that instead of seeing in order to believe, he has learned to believe in order to see. [Sermon
 

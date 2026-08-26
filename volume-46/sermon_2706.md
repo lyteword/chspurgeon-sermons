@@ -1,6 +1,7 @@
 # Sermon 2706 | Feeding on the Bread of Life
 
-"Verily, verily, I say unto you, He that believes on Me hats everlasting life. I am that bread of life." John 6:47, 48.
+> Verily, verily, I say unto you, He that believes on Me hats everlasting life. I am that bread of life.
+> John 6:47, 48
 
 OBSERVE carefully the order in which our Lord puts the two blessings He mentions&mdash;first, life through believing on Him, and then food to sustain that life. First, "he that believes on Me has everlasting life," and next to that, "I am that bread of life." Life comes first and food follows afterwards. It is impossible for a dead man to feed, or to be fed&mdash; only the living can eat and drink. I once went into the monastery of the Capuchins at Rome and there I saw certain of the departed brotherhood dressed in their regular habits, although they had been dead, some of them a hundred years, some fifty, and one gentleman, I think, had scarcely been dead more than a year or so. But there they sat, with their breviaries in their hands, just as if they had been alive! Yet I did not see any preparations for feeding them. It would have been as ridiculous to attempt to feed them as it was to keep them there at all!
 

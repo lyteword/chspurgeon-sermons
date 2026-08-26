@@ -1,6 +1,7 @@
 # Sermon 2868 | "Ready, Yes, Ready!"
 
-"Ready to perish." Isaiah 27:13.
+> Ready to perish.
+> Isaiah 27:13
 
 "Ready to forgive." Psalm 86:5.
 

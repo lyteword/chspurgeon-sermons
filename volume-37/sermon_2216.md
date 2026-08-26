@@ -1,6 +1,7 @@
 # Sermon 2216 | The Lad's Loaves in the Lord's Hands
 
-"Jesus took the loaves." John 6:11.
+> Jesus took the loaves.
+> John 6:11
 
 Look, there are the people! Five thousand of them, as hungry as hunters, and they all need to have food given to them, for they cannot, any of them, travel to buy it! And here is the provision! Five thin wafers&mdash;and those of barley, more fit for horses than for men&mdash;and two little anchovies, by way of a relish! Five thousand people and five little biscuits to feed them! The disproportion is enormous&mdash;if each one should have only the tiniest crumb, there would not be enough! In like manner, there are millions of people in London and only a handful of whole-hearted Christians earnestly desiring to see the city converted to Christ. There are more than a thousand millions of men in this round world and oh, so few missionaries breaking the Bread of Life to them! Almost as few for the millions, as were these five barley cakes for those five thousand!
 

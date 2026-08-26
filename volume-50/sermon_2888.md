@@ -1,6 +1,7 @@
 # Sermon 2888 | "Christ Is All"
 
-"Where there is neither Greek nor Jew, circumcised nor uncircumcised, Barbarian, Scythian, slave nor free, but Christ is All and in all." Colossians 3:11.
+> Where there is neither Greek nor Jew, circumcised nor uncircumcised, Barbarian, Scythian, slave nor free, but Christ is All and in all.
+> Colossians 3:11
 
 PAUL is writing concerning the new creation and he says that, in it, "There is neither Greek nor Jew, circumcised nor uncircumcised, Barbarian, Scythian, slave nor free, but Christ is All." The new creation is a very different thing from the old one. Blessed are all they who have both seen the Kingdom of Heaven and entered into it. In the first creation, we are born of the flesh&mdash;and that which is born of the flesh is, even at the best, nothing but flesh and can never be anything better. But in the new creation, we are born of the Spirit and so we become spiritual and understand spiritual things. The new life in Christ Jesus is an eternal life and it links all those who possess it with the eternal realities at the right hand of God above.
 

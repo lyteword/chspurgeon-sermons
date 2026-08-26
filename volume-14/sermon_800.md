@@ -1,6 +1,7 @@
 # Sermon 800 | The Centurion's Faith and Humility
 
-"Then Jesus went with them. And when He was now not far from the house, the centurion sent friends to Him, saying unto Him, Lord, trouble not Yourself: for Iam not worthy that You should enter under my roof. Why neither thought I myself worthy to come unto You: but say in a word, and my servant shall be healed. For Ialso am a man set under authority, having under me soldiers, and I say unto one, Go, and he goes; and to another, Come, and he comes; and to my servant, Do this, and he does it." Luke 7:6-8.
+> Then Jesus went with them. And when He was now not far from the house, the centurion sent friends to Him, saying unto Him, Lord, trouble not Yourself: for Iam not worthy that You should enter under my roof. Why neither thought I myself worthy to come unto You: but say in a word, and my servant shall be healed. For Ialso am a man set under authority, having under me soldiers, and I say unto one, Go, and he goes; and to another, Come, and he comes; and to my servant, Do this, and he does it.
+> Luke 7:6-8
 
 THE greatest light may enter into the darkest places. We may find the choicest flowers blooming where we least expected them. Here was a Gentile, a Roman soldier&mdash;a soldier clothed with absolute power&mdash;and yet a tender master, a considerate citizen, a lover of God! Let no man, therefore, be despised because of his calling, and let not the proverb, "Can any good come out of Nazareth?" be ever heard from the wise man's lips. The best of pearls have been found in the darkest caves of the ocean. Why should it not be so, still, that God should have even in Sardis a few that have not defiled their garments&mdash;who shall walk with Christ in white&mdash;for they are worthy.
 

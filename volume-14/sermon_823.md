@@ -1,6 +1,7 @@
 # Sermon 823 | Noah's Flood
 
-"The flood came and took them all away." Matthew 24:39.
+> The flood came and took them all away.
+> Matthew 24:39
 
 WE commonly say that "there is no rule without an exception," and certainly the rule that there is no rule without an exception has an exception to itself, for the rules of God are without exception. The rule that God will punish the ungodly is without an exception. The rule that all who are out of Christ shall perish is a rule without an exception. And the rule that all who are in Christ shall be saved is also without an exception.
 

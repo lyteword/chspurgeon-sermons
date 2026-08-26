@@ -1,6 +1,7 @@
 # Sermon 2468 | Solitude, Silence, Submission
 
-"He sits alone and keeps silent, because He has borne it upon him. He puts his mouth in the dust; if so be there may be hope." Lamentations 3:28,29.
+> He sits alone and keeps silent, because He has borne it upon him. He puts his mouth in the dust; if so be there may be hope.
+> Lamentations 3:28,29
 
 THUS the Prophet describes the conduct of a person in deep anguish of heart. When he does not know what to do, his soul, as if by instinct, humbles itself. He gets into some secret place, he utters no speech, he gives himself over to moaning and to tears, and then he bows himself lower and yet lower before the Divine Majesty, as if he felt that the only hope for him in the extremity of his sorrow was to make complete submission to God and to lie in the very dust before
 

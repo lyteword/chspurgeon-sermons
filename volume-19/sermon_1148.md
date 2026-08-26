@@ -1,6 +1,7 @@
 # Sermon 1148 | The Parent's and Pastor's Joy
 
-"I have no greater joy than to hear that my children walk in truth." 3 John 1:4.
+> I have no greater joy than to hear that my children walk in truth.
+> 3 John 1:4
 
 John speaks of himself as though he were a father and, therefore, we concede to parents the right to use the language of the text. Sure am I that many of you here present, both mothers and fathers, can truly say, "We have no greater joy than to hear that our children walk in truth" But John was not after the flesh, the father of those of whom he was writing&mdash;he was their spiritual father. It was through his ministry that they had been brought into the new life. His relationship to them was that he had been the instrument of their conversion and had afterwards displayed a father's care in supplying them with heavenly food and gracious teaching.
 

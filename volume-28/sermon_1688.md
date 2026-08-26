@@ -1,7 +1,7 @@
 # Sermon 1688 | Stand Fast
 
-"Be not moved away from the hope of the Gospel." Colossians 1:23.
-
+> Be not moved away from the hope of the Gospel.
+> Colossians 1:23
 
 But, Brothers and Sisters, the battle does not end when, by a desperate rush, a man has come to Christ. In many it assumes a new form&mdash;the enemy now attempts to drag the trembler from his refuge and eject him from his stronghold! It is difficult to get at the hope of the Gospel, but quite as difficult to keep it so as not to be moved away from it. If Satan spends great power in keeping us from the hope, he uses equal force in endeavoring to drag us away from it&mdash;and equal cunning in endeavoring to allure us from it. Hence the Apostle tells us not to be moved away from the hope of the Gospel. The exhortation is necessary in presence of an imminent danger. Do not think that in the moment when you believe in Christ the conflict is over, or you will be bitterly disappointed! It is then that the battle renews itself and every inch of the road swarms with enemies.
 

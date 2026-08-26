@@ -1,6 +1,7 @@
 # Sermon 2964 | "Trust in the Living God"
 
-"We trust in the living God." 1 Timothy 4:10.
+> We trust in the living God.
+> 1 Timothy 4:10
 
 IF we are inclined to grieve because everything around us changes, our consolation will be found in turning to our unchanging God. If we lament the ills of mortality, it will be wise for us to turn to Him "who only has immortality." If our earthly joys fade and die, it is a blessed thing for us to be able to go to the fountain of undying joy and there to drink deep draughts of bliss which shall cause us to forget our misery.
 

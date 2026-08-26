@@ -1,6 +1,7 @@
 # Sermon 2870 | Revelation and Conversion
 
-"The Law of the Lord is perfect, converting the soul." Psalm 19:7.
+> The Law of the Lord is perfect, converting the soul.
+> Psalm 19:7
 
 WHEN he spoke of "the Law of the Lord, David did not merely mean the Law as it was given in the Ten Commandments, although that also is perfect and is used, to some extent, in the conversion of souls. The term includes the entire Doctrine of God&mdash;the whole Divine Revelation and though, in David's day, there was not so full and clear a Revelation as we have&mdash;for the New Testament was not then given, nor much of the Old Testament, yet the text has lost none of its former force, but has rather gained more. So I shall use it as applicable to the entire Scriptures&mdash;to the Law and to the Gospel&mdash;and to all that God has revealed. And speaking of it in that sense, I may truly say that it is perfect and that it converts the soul.
 

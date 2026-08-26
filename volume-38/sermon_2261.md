@@ -1,8 +1,7 @@
 # Sermon 2261 | One Worker Preparing For Another
 
-"Now behold, in my trouble I have prepared for the House of the Lord an hundred thousand talents of gold, and a thousand talents of silver; and of brass andiron without weight: for it is in abundance: timber also and stone ha ve I prepared; and you may add thereto." 1 Chronicles 22:14.
-
-
+> Now behold, in my trouble I have prepared for the House of the Lord an hundred thousand talents of gold, and a thousand talents of silver; and of brass andiron without weight: for it is in abundance: timber also and stone ha ve I prepared; and you may add thereto.
+> 1 Chronicles 22:14
 
 THE building of the Temple is an admirable type of the building of the Church of God. I am afraid that there are some present with us at this time who have never helped to build the spiritual Temple for Christ. They are not, themselves, living stones. They are no part of God's spiritual house and they have never helped to bring their cedar, or iron, or gold to the great Builder of the Church. In fact, there may be some here who have rather helped to pull it down&mdash; some who have delighted to throw away the stones&mdash;and who have tried to hide from the Divine Builder the precious material which He intends to use in the sacred edifice. Judge your own hearts and if you cannot say that you are a living stone&mdash;if you have not helped to build up the Church of Christ&mdash;may you be granted Divine Grace to repent of your sin and may the Grace of God convert you! But if you are workers for the Lord. If your hearts are right with God, I think that I shall be able to say some things that will encourage you to work on, even if you should not, for a time, see any immediate results from your work.
 

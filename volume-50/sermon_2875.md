@@ -1,6 +1,7 @@
 # Sermon 2875 | Confirming the Witness of Christ
 
-"Even as the testimony of Christ was confirmed in you." 1 Corinthians 1:6.
+> Even as the testimony of Christ was confirmed in you.
+> 1 Corinthians 1:6
 
 IT is not always the most gifted church which is in the most healthy state. A church may have many rich, influential, or learned members&mdash;many that have the gift of utterance and understand all sciences&mdash;yet that church may be in an unhealthy condition. Such was the case with the church at Corinth. Paul, in the opening of his Epistle, tells them that he thanks God always on their behalf for the Grace of God given unto them by Christ Jesus, that in everything they were enriched in all utterance and in all knowledge, so that they were behind in no gift, waiting for the coming of our Lord Jesus Christ. The Corinthians were what we would call, nowadays, judging them by the usual standard, a first-class church. They had many who understood much of the learning of the Greeks. They were men of classic taste and men of good understanding, men of profound knowledge and yet, in spiritual health, that church was one of the worst in all Greece and, perhaps, in the world! Among the whole of them, you could not find another church sunk so low as this one, although it was the most gifted.
 

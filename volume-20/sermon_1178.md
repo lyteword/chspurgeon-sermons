@@ -1,6 +1,7 @@
 # Sermon 1178 | Glorying in the Lord
 
-"He that glories, let him glory in the Lord." 1 Corinthians 1:31.
+> He that glories, let him glory in the Lord.
+> 1 Corinthians 1:31
 
 THERE is an irresistible tendency in us to glory in something or other. All classes of men glory&mdash;the highest and the lowest, the richest and the poorest, the best educated and the most illiterate. Solomon glories and so does the fool. Goliath glories and so does David. Pharaoh glories and so does his slave. Even in the most modest, the tendency to boast is present&mdash;only its nakedness is daintily concealed. Good men glory, yes, and in hours of weakness they have gloried in objects very unworthy of their boasts. You remember how, when the ambassadors came out of Babylon, Hezekiah showed them all his riches and his stores&mdash;and no doubt he gloried while he took them from treasure house to treasure house&mdash; and opened his caskets and showed all his precious things.
 

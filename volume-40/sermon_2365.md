@@ -1,6 +1,7 @@
 # Sermon 2365 | "Goodness, as a Morning Cloud"
 
-"And Joash did that which was right in the sight of the Lord all the days of Jehoiada the priest." 2 Chronicles 24:2.
+> And Joash did that which was right in the sight of the Lord all the days of Jehoiada the priest.
+> 2 Chronicles 24:2
 
 "Now after the death of Jehoiada came the princes of Judah, and made obeisance to the king. Then the king listened to them. And they left the house of the Lord God of their fathers, and served groves and idols: and wrath came upon Judah and Jerusalem for this, their trespass."
 

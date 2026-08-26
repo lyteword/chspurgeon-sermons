@@ -1,6 +1,7 @@
 # Sermon 2678 | The Lesson of the Almond Tree
 
-"Moreover the word of the LORRD came unto me, saying, Jeremiah, what do you see? And I said, I see a branch of an almond tree. Then said the Lord unto me, You have seen well: for I am ready to perform My word." Jeremiah 1:11,12.
+> Moreover the word of the LORRD came unto me, saying, Jeremiah, what do you see? And I said, I see a branch of an almond tree. Then said the Lord unto me, You have seen well: for I am ready to perform My word.
+> Jeremiah 1:11,12
 
 OBSERVE, first, dear Friends, that before Jeremiah becomes a speaker for God, he must be a seer. The name for a Prophet, in the olden time, was a "seer"&mdash;a man who could see&mdash;one who could see with his mind's eye, one who could also see with spiritual insight, so as vividly to realize the Truth of God which he had to deliver in the name of the Lord. Learn that simple lesson well, O you who try to speak for God! You must be seers before you can be speakers.
 

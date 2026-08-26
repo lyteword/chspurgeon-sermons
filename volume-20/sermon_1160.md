@@ -1,6 +1,7 @@
 # Sermon 1160 | The Entreaty of the Holy Spirit
 
-"Therefore, as the Holy Spirit says, Today if you will hear His voice, harden not your hearts." Hebrews 3:7.
+> Therefore, as the Holy Spirit says, Today if you will hear His voice, harden not your hearts.
+> Hebrews 3:7
 
 THE peculiar circumstances in which we are now placed as a congregation demand of me that my discourses should be principally directed to the unconverted, that the awakened may be decided, that those may be awakened who as yet remain unmoved, and that a desire to seek the Lord may spread all around us. We may leave the 99 in the wilderness for a little while, just now, and go after that which has gone astray. It is our duty, usually, to feed the children, but for a while we may leave that to other agencies, and hand out food to those who are perishing of hunger. These seasons of revival do not last forever&mdash;they come and they go and, therefore&mdash;they must be taken advantage of while they are with us.
 

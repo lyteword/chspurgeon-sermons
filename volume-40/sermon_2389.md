@@ -1,6 +1,7 @@
 # Sermon 2389 | Guidance To Grace and Glory
 
-"You shall guide me with Your counsel, and afterward receive me to Glory." Psalm 73:24.
+> You shall guide me with Your counsel, and afterward receive me to Glory.
+> Psalm 73:24
 
 The Psalmist, here, evidently perceives that his Lord is near. He does not so much speak of God as to Him&mdash;"You shall guide me with Your counsel." You know what the French call, tutoyage&mdash;you-ing and you-ing&mdash;there is something of that kind of language in the text, a speaking in tones of hallowed familiarity with God. As if the Lord were close by, the Psalmist says to Him, "You shall guide me with Your counsel, and afterward receive me to Glory"&mdash;not in the way of prayer asking God to do so, but in childlike confidence expressing the conviction that it shall be so and rejoicing in the blessed assurance of it. "You shall"&mdash;I know You will, I am sure of it, I have firm reliance on it, and I bless You for it&mdash;"You shall guide me with Your counsel, and afterward receive me to Glory." It is not every man who can talk like that and it is not every believing man who has yet attained confidence enough to dare to speak so. It is well if you can only pray that this may be the case with you, but the sweetness lies in grasping this Truth of God with a childlike delight and, with unfaltering faith believing it to be yours. "You shall guide me with Your counsel, and afterward receive me to
 

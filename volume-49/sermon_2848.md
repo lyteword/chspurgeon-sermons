@@ -1,6 +1,7 @@
 # Sermon 2848 | Theocracy
 
-"I will be your King." Psalm 44:4.
+> I will be your King.
+> Psalm 44:4
 
 "You are my King, O God." Hosea 13:10.
 

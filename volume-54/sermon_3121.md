@@ -1,8 +1,7 @@
 # Sermon 3121 | The Necessity of Regeneration
 
-"Marvel not that I said unto you, You must be born-again." John 3:7.
-
-
+> Marvel not that I said unto you, You must be born-again.
+> John 3:7
 
 We need not wonder that there are some mysteries in our holy faith, for there are mysteries everywhere. In Nature there are ten thousand things that we cannot understand. In our own bodies there are inexplicable mysteries. He who thinks for only a little while, even of so simple a matter as to how it is that food is gradually turned into flesh, knowing how impossible it would be for us to do it by any chemical process or mechanical apparatus, will see that there is a mystery in every human life&mdash;a secret chamber into which the eyes of man cannot look. There are mysteries all around us at this very moment. If we go outside this building, we shall, like Nicodemus, observe that the wind blows. We know it blows, for we hear the sound of it, but as to from where it comes, or where it goes, we know nothing. As there are mysteries in Nature, as there are mysteries in our own bodies, as there are mysteries all around us even in the most commonplace things, it is not remarkable that there should be mysteries in the Kingdom of God!
 

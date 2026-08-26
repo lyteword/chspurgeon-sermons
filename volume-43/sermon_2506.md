@@ -1,6 +1,7 @@
 # Sermon 2506 | God's Law in Man's Heart
 
-"For this is the covenant that I will make with the house of Israel after those days, says the Lord; I will put My laws into their mind, and write them in their hearts." Hebrews 8:10.
+> For this is the covenant that I will make with the house of Israel after those days, says the Lord; I will put My laws into their mind, and write them in their hearts.
+> Hebrews 8:10
 
 WHEN God gave Israel His Law&mdash;the Law of the First Covenant&mdash;it was such a holy Law that it ought to have been kept by the people. It was a just and righteous Law, concerning which God said, "You shall do My judgments, and keep My ordinances, to walk therein: I am the Lord your God. You shall therefore keep My statutes, and My judgments: which if a man does, he shall live in them: I am the Lord." The Law of the Ten Commandments is strictly just&mdash;it is such a Law as a man might make for himself if he studied his own best interests and had wisdom enough to frame it aright. It is a perfect Law in which the interests of God and man are both studied. It is not a partial Law, but impartial, complete, and covering all the circumstances of life. You could not take away one command out of the ten without spoiling both tables of the Law and you could not add another command without being guilty of making a superfluity. The Law is holy, just and good&mdash;it is like the God who made it&mdash;it is a perfect Law. Then, surely, it ought to have been kept. When men revolt against unjust laws, they are to be commended, but when a law is admitted to be perfect, then disobedience to it is an act of exceeding guilt.
 

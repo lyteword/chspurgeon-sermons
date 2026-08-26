@@ -1,6 +1,7 @@
 # Sermon 2231 | An Urgent Request for an Immediate Answer
 
-"And now if you will deal kindly and truly with my master, tell me: and if not, tell me; that I may turn to the right hand, or to the left." Genesis 24:49.
+> And now if you will deal kindly and truly with my master, tell me: and if not, tell me; that I may turn to the right hand, or to the left.
+> Genesis 24:49
 
 THE chapter from which the text is taken bristles with points. There is a remarkable parallel between Eliezer seeking a wife for Isaac and the ministers of Christ seeking souls for Jesus. It is something more than an allegory. It is really a very instructive parable of how we are to deal for our Master with the souls of men and women. For as truly as Abraham sent his servant to seek a bride for his son, we are commissioned to search for those who shall be brought into the Church, and at last, as the bride of Christ, sit down at the marriage feast in the Glory Land above!
 

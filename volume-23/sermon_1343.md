@@ -1,6 +1,7 @@
 # Sermon 1343 | The Jewel of Peace
 
-"Now the Lord of Peace Himself give you peace always by all means. The Lord be with you all." 2 Thessalonians 3:16.
+> Now the Lord of Peace Himself give you peace always by all means. The Lord be with you all.
+> 2 Thessalonians 3:16
 
 WHEN the heart is full of love it finds the hand too feeble for its desires. Therefore it seeks relief in intercession and benediction&mdash;wishing, praying and blessing where it cannot actually effect its loving purpose. The Apostle would have done for the Thessalonians all the good that was conceivable had it been in his power, but his wishes far outstripped his abilities and, therefore, he betook himself to interceding for them and to invoking upon them the blessing of the Lord and Master whom he served. Here is a lesson for us in the art of doing good&mdash;as we lengthen the eyesight with the telescope, as we send our words afar by the telegraph&mdash;so let us extend our ability to do good by the constant use of intercessory prayer.
 

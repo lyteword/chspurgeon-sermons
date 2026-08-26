@@ -1,6 +1,7 @@
 # Sermon 1934 | "And We Are"&mdash;a Jewel from the Revised Version
 
-"Behold, what manner of love the Father has bestowed upon us, that we should be called the sons of God." 1 John 3:1
+> Behold, what manner of love the Father has bestowed upon us, that we should be called the sons of God.
+> 1 John 3:1
 
 So far we keep to our Authorized Version. Now read the Revised Version, and note the words added&mdash; "Behold what manner of love the Father has bestowed upon us, that we should be called children of God: and such we are."
 

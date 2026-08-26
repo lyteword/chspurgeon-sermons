@@ -1,6 +1,7 @@
 # Sermon 1380 | Vanities and Verities
 
-"We look not at the things which are seen, but at the things which are notseen: for the things which are seen are temporal; but the things which are not seen are eternal." 2 Corinthians 4:18.
+> We look not at the things which are seen, but at the things which are notseen: for the things which are seen are temporal; but the things which are not seen are eternal.
+> 2 Corinthians 4:18
 
 THE Apostle Paul was by no means a stoic. He had not conquered all human feeling and rendered himself a stone man. On the contrary, he was exceedingly sensitive. You can see abundant evidence, not only in the Acts of the Apostles, but also in the tone of all his Epistles, that he has a very tender spirit. He feels acutely any unkindness. If a friend forsakes him, he mourns it. Or if friends help him, there is genuine emotion in his gratitude. He is sensitive, too, to poverty, sensitive to shame&mdash;sensitive to all those griefs which he has to bear for Christ's sake. He feels them&mdash;you can see that he does. He is not an invulnerable man in armor&mdash;he is a man of flesh and blood whom the arrows pierce and pain.
 

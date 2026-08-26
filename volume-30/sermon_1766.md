@@ -1,6 +1,7 @@
 # Sermon 1766 | A Waiting God and a Waiting People
 
-"And therefore will the Lord wait, that He may be gracious unto you and, therefore, will He be exalted, that He may have mercy upon you: for the Lord is a God of judgment: blessed are all they that wait for Him." Isaiah 30:18.
+> And therefore will the Lord wait, that He may be gracious unto you and, therefore, will He be exalted, that He may have mercy upon you: for the Lord is a God of judgment: blessed are all they that wait for Him.
+> Isaiah 30:18
 
 The people were in a great hurry to be delivered from their enemies. The Assyrians had come up in great force and were covering the land with their armies. They had already devastated the neighboring kingdom of Israel and, therefore, the men of Judah were afraid that they would be swallowed up quickly, even as dry stubble is devoured by fire. The Prophet bade the inhabitants of Jerusalem remain where they were, adding, "For thus says the Lord God, the Holy One of Israel: In returning and rest shall you be saved; in quietness and in confidence shall be your strength." But they would not listen to the counsel of wisdom&mdash;they preferred to follow the suggestion of their fears and go down into Egypt for shelter.
 

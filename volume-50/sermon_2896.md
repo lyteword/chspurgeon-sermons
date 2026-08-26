@@ -1,8 +1,7 @@
 # Sermon 2896 | Harvest Time
 
-"Is today not the wheat harvest?" 1 Samuel 12:17.
-
-
+> Is today not the wheat harvest?
+> 1 Samuel 12:17
 
 I SHALL not notice the connection, but I shall simply take these words as a slogan and my sermon will be founded upon a harvest field. I shall rather use the harvest for my text than any passage that I find here. "Is today not the wheat harvest?" I suppose the dwellers in cities think less of times and seasons than dwellers in the country. Men who were born, trained up, nourished and nurtured among cornfields, harvests, sowing and reaping, are more likely to notice such things than you who are always engaged in mercantile pursuits and think less of these things than rustics do. But I suppose if it is almost necessary that you should regard the harvest less than others, it ought not to be carried to too great an extreme. Let us not be forgetful of times and seasons. There is much to be learned from them and I would refresh your memories by a harvest field.
 

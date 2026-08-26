@@ -1,6 +1,7 @@
 # Sermon 2404 | "A People Prepared for the Lord"
 
-"To make ready a people prepared for the Lord." Luke 1:17.
+> To make ready a people prepared for the Lord.
+> Luke 1:17
 
 John was the herald of Christ&mdash;he was to prepare the way for the coming King&mdash;but from this text it appears that he was to do more than that. He was not only to make the road ready for the Lord, but he was also "to make ready a people prepared for the Lord." That was a great work, a task in which he would require strength and wisdom greater than his own. He would need that the Spirit of God, who was to be given without measure to the coming One, should also be, in a measure, within himself, if he should really "make ready a people prepared for the Lord."
 

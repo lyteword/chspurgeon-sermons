@@ -1,6 +1,7 @@
 # Sermon 2788 | Prayer for the Church
 
-"Cause Your face to shine upon Your sanctuary." Daniel 9:17.
+> Cause Your face to shine upon Your sanctuary.
+> Daniel 9:17
 
 A TRUE-HEARTED Believer does not live for himself. Where there is abundance of Grace and great strength of mind in the service of God, there is sure to be a spirit of unselfishness. It was so with Daniel, who was a model man in the matter of decision of character and a holy, believing walk before the Lord. That "man greatly beloved" was, in all respects, faithful to his convictions. No lion's den could silence his courageous prayer. No presence of mighty monarch or of his festive guests could turn him aside from delivering his fateful message.
 

@@ -1,6 +1,7 @@
 # Sermon 868 | Mature Faith&mdash;Illustrated By Abraham's Offering Up Isaac
 
-"And He said, Take now your son, your only son Isaac, whom you love, and get you into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell you of."- Genesis 22:2.
+> And He said, Take now your son, your only son Isaac, whom you love, and get you into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell you of.
+> - Genesis 22:2
 
 I DO not intend to enter into this narrative in its bearing upon our Lord, although we have here one of the most famous types of the Only Begotten, whom the Great Father offered up for the sins of His people. Perhaps that may be the subject this evening. But as I have, in the recollection of some of you, already given you three sermons upon the life of Abraham, illustrating his effectual calling, his justification and his consecration to the Lord, we will now complete the series by dwelling upon the triumph of Abraham's faith when his spiritual life had come to the highest point of maturity.
 

@@ -1,6 +1,7 @@
 # Sermon 1936 | The Unkept Vineyard&mdash;or, Personal Work Neglected
 
-"They made me the keeper of the vineyards, but my own vineyard have I not kept." Song of Solomon 1:6.
+> They made me the keeper of the vineyards, but my own vineyard have I not kept.
+> Song of Solomon 1:6
 
 The text is spoken in the first person singular&mdash;"They made me." Therefore let the preaching, tonight, be personal to you, dear Friends&mdash;personal to the preacher, first, and then to each one of this mixed multitude. May we at this hour think less of others than of ourselves! May the sermon be of practical value to our own hearts! I do not suppose that it will be a pleasing sermon. On the other hand it may be a saddening one. I may bring unhappy memories before you, but let us not be afraid of that holy sorrow which is health to the soul. Since the spouse in this text speaks of herself, "They made me the keeper of the vineyards, but my own vineyard have I not kept," let each one of us copy her example and think of ourselves.
 

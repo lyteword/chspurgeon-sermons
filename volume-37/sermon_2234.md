@@ -1,6 +1,7 @@
 # Sermon 2234 | The Best Donation
 
-"And this they did, not as we hoped, but first gave themselves to the Lord, and unto us by the will of God." 2 Corinthians 8:5.
+> And this they did, not as we hoped, but first gave themselves to the Lord, and unto us by the will of God.
+> 2 Corinthians 8:5
 
 HERE we see the Apostle Paul disappointed, though he was never discontented. God had taught him how to abound and how to suffer need. In the School of Grace he had learned contentment, but at this time he had met with disappointment. Things had not happened as he thought they should have done and now he tells the Corinthians how the Churches of Macedonia have disappointed him. "This they did, not as we hoped."
 

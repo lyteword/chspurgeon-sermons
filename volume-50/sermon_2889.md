@@ -1,6 +1,7 @@
 # Sermon 2889 | Christ Receiving Sinners
 
-"And it came to pass, as Jesus sat at the table in the house, behold, manypublicans and sinners came and sat down with Him and His disciples." Matthew 9:10.
+> And it came to pass, as Jesus sat at the table in the house, behold, manypublicans and sinners came and sat down with Him and His disciples.
+> Matthew 9:10
 
 How strangely different was our Lord Jesus Christ from the philosophers of Greece! They were reserved in their demeanor&mdash;eclectic, or studiously choice in their tastes and jealous of contact with their fellow creatures. Retiring from the busy haunts of men to encircle themselves with an atmosphere created by their own breath, they wanted none in their society but those who were fit companions for men so exalted in wisdom. Their disciples looked up to them with profound and insincere reverence&mdash;and they, themselves, in their various halls and classrooms, talked as men might who were teaching little children. And their pupils were completely subject to their dictation, but they always kept "the common people" at a distance, for they concerned not themselves to instruct the many, but only to teach the few who were ambitious to become wise like themselves!
 

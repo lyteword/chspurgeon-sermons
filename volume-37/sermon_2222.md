@@ -1,6 +1,7 @@
 # Sermon 2222 | Lydia, the First European Convert
 
-"Now a certain woman named Lydia heard us. She was a seller of purple, from the city of Thyatira, who worshipped God, whose heart the Lord opened, that she attended unto the things which were spoken of Paul." Acts 16:14.
+> Now a certain woman named Lydia heard us. She was a seller of purple, from the city of Thyatira, who worshipped God, whose heart the Lord opened, that she attended unto the things which were spoken of Paul.
+> Acts 16:14
 
 We may laudably exercise curiosity with regard to the first proclamation of the Gospel in our own quarter of the globe. We are happy that history so accurately tells us, by the pen of Luke, when first the Gospel was preached in Europe and by whom, and who was the first convert brought by that preaching to the Savior's feet. I half envy Lydia that she should be the leader of the European band! But I feel right glad that a woman led the van and that her household followed so closely in the rear.
 

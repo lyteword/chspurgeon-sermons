@@ -1,6 +1,7 @@
 # Sermon 1571 | The Joy Of Jesus
 
-"In that hour Jesus rejoiced in spirit and said, I thank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent and have revealed them unto babes. Even so, Father, for so it seemed good in Your sight. All things are delivered to Me of My Father: and no man knows who the Son is, but the Father; and who the Father is, but the Son and He to whom the Son will reveal Him." Luke 10:21,22.
+> In that hour Jesus rejoiced in spirit and said, I thank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent and have revealed them unto babes. Even so, Father, for so it seemed good in Your sight. All things are delivered to Me of My Father: and no man knows who the Son is, but the Father; and who the Father is, but the Son and He to whom the Son will reveal Him.
+> Luke 10:21,22
 
 LAST Lord's-Day morning we considered the lamentations of Jesus.  We will now turn our thoughts to the joys of Jesus. It is remarkable that this is the only instance on record in the Gospels in which our Lord is said to have rejoiced. It stands alone and is, therefore, the more to be prized&mdash;"In that hour Jesus rejoiced in spirit." He was the "Man of sorrows and acquainted with grief for our sakes and, therefore, we are not astonished to find few indications of joy in the story of His life. Yet I do not think it would be fair to infer from the fact of a solitary mention of His rejoicing that He did not rejoice at other times. On the contrary, our Lord must, despite His sorrow, have possessed a peaceful, happy spirit.
 

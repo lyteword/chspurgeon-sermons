@@ -1,6 +1,7 @@
 # Sermon 1577 | Sin Subdued
 
-"He will subdue our iniquities." Micah 7:19.
+> He will subdue our iniquities.
+> Micah 7:19
 
 BUT lately I tuned my harp to the music of forgiven sin and we sang of pardon bought with blood, finding our keynote in the words of David&mdash;"Who forgives all your iniquities." It was a sweet subject to all our hearts, for we all have a portion in it, seeing we are all sinful and have need to be forgiven&mdash;therefore did our souls dance to the high sounding cymbals as we rejoiced in the complete pardon which our gracious God has given to all who believe in Jesus. But, Beloved, the pardon of sin is not enough for us&mdash;we have another equally urgent need. If the Lord would forgive us all our sins we could not be happy with that alone. "Who forgives all your iniquities" is not perfect music till we add to it the next note, "who heals all your diseases."
 

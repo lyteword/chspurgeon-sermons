@@ -1,8 +1,7 @@
 # Sermon 3062 | The Spirit's Office Towards Disciples
 
-"He shall glorify Me: for He shall receive ofMine, and shall show it unto you." John 16:14.
-
-
+> He shall glorify Me: for He shall receive ofMine, and shall show it unto you.
+> John 16:14
 
 MANY persons are anxiously asking the question, "Are we partakers of the Holy Spirit?" With enlarged anxiety, they reason thus, "We have felt certain inward emotions. There has been in us, we trust, a change of life. Eager are our desires for God and His Grace. Do these come of the Spirit of God? When we find a suggestion which appears to be holy in our soul, does it come from Him? When we are at any time filled with earnestness and pray, or our soul has peculiar delight in considering Divine things, may we say with truth that we are under the operation of the Holy Spirit?" I do not intend to go thoroughly into the resolution of these scruples&mdash;that would be too wide a subject for a short evening's discourse&mdash;but there is one point which may often relieve your perplexities. It appears from the text that it is the work and office and custom of the Holy Spirit to glorify Christ. If, therefore, with much strength and fervor in your soul, you glorify Him, you may trust that it comes from the Spirit of God. But if there is anything in you which is derogatory to the Character or Person or Glory of the Lord Jesus, it may either come from Satan or from your own corrupt mind. But from the Spirit of God it never came and it would be blasphemy to impute it to Him. Whatever you feel which lifts Christ on high in your soul comes of the Spirit&mdash;but whatever there may be which exalts self or anything else in the place of Christ&mdash;no matter from where it comes&mdash;the Holy Spirit has nothing to do with it!
 

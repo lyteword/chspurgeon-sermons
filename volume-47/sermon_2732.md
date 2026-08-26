@@ -1,6 +1,7 @@
 # Sermon 2732 | Believers Tested by Trials
 
-"Behold, Igo forward, but He is not there; and backward, but I cannot perceive Him: on the left hand, where He works, but I cannot behold Him: He hides Himself on the right hand, that I cannot see Him: but He knows the way that I take: when He has tried me, I shall come forth as gold." Job 23:8-10.
+> Behold, Igo forward, but He is not there; and backward, but I cannot perceive Him: on the left hand, where He works, but I cannot behold Him: He hides Himself on the right hand, that I cannot see Him: but He knows the way that I take: when He has tried me, I shall come forth as gold.
+> Job 23:8-10
 
 Job, as we noticed in our reading, was at that time in very deep distress. I commend this fact to the notice of any here who are very sorely tried. You may be the people of God and yet be in a terrible plight, for Job was a true servant of the Most High, yet he sat down among the ashes and scraped himself with a potsherd because he was covered with sore boils and, at the same time, he was reduced to absolute poverty. The path of sorrow has been trod by thousands of holy feet&mdash;you are not the first one who could sit down and say, "I am the man that has seen affliction." You were not the first tried one, you are not the only one and you will not be the last one. "Many are the afflictions of the righteous." So let this be some comfort to you&mdash;that you are one of the Lord's suffering children, one of those who have to pass through rough roads and fiery places in the course of their pilgrimage to Heaven.
 

@@ -1,6 +1,7 @@
 # Sermon 3021 | Landlord and Tenant
 
-"Set your house in order; for you shall die, and not live." Isaiah 38:1.
+> Set your house in order; for you shall die, and not live.
+> Isaiah 38:1
 
 NOTWITHSTANDING that a thousand voices proclaim our mortality, we are all to apt to put aside the contemplation of it. Since we cannot escape from death, we endeavor to shut our eyes to it, although there is no subject whose consideration would be more beneficial to us. Altering one word of the poet's line, I may say&mdash;
 

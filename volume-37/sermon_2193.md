@@ -1,6 +1,7 @@
 # Sermon 2193 | A Poor Man's Cry&mdash;and What Came Of It
 
-"This poor man cried, and the Lord heard him, and saved him out of all his troubles." Psalm 34:6
+> This poor man cried, and the Lord heard him, and saved him out of all his troubles.
+> Psalm 34:6
 
 ON the morning of last Lord's-Day  we labored to bring sinners to their God and the Lord graciously made the Word effectual. We gave voice to the invitation to return and we entreated men to take with them words and turn to the Lord. God's people found it a happy time. It is a very amazing fact, but an undoubted one, that the simple Gospel which saves sinners also feeds saints! Saints are never better pleased than when they hear those first Truths of God which instruct sinners in the way to God. The Lord be thanked that it is so!
 

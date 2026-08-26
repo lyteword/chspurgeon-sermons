@@ -1,6 +1,7 @@
 # Sermon 2669 | Comfort From Christ's Omniscience
 
-"Lord, You know all things; You know that I love You." John 21:17.
+> Lord, You know all things; You know that I love You.
+> John 21:17
 
 Peter was somewhat pressed. He felt that he was pushed into a corner and compelled to look into his own heart and divulge its innermost secret. To be asked once, in the presence of his Brothers, whether he loved his Lord more than they did, had a tendency to humiliate him, for he had boastfully declared that, though all men should be offended because of Christ, he would not. But to be asked, next, whether he really loved Christ at all, sank him to the ground with holy shame. And when his Master asked him, the third time, "Simon, son of Jonah, do you love Me?" Peter was grieved&mdash;not angry&mdash;that could not be his condition under such circumstances, nor was he rebellious, but, at last, his heart was effectually touched by his Master's skillful hands and he was grieved, just as true love is always grieved when it is questioned, but most of all grieved when it is questioned again, and again, and again. Now, the enormity of his guilt in denying his Lord has come home to him&mdash;and the grief which he had caused his gracious Master is now reflected in his own deep and contrite sorrow. "Peter was grieved because He said unto him the third time, Do you love Me?"
 

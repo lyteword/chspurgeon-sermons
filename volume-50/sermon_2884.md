@@ -1,6 +1,7 @@
 # Sermon 2884 | "Who Is on the Lord's Side?"
 
-"Then Moses stood in the entrance of the camp, and said, Whoever is on the Lord's side&mdash;come to me! And all the sons of Levi gathered themselves together to him." Exodus 32:26.
+> Then Moses stood in the entrance of the camp, and said, Whoever is on the Lord's side&mdash;come to me! And all the sons of Levi gathered themselves together to him.
+> Exodus 32:26
 
 THOSE idolatrous people seem to have been awestruck by the appearance of Moses in their midst. You can picture them gathered around Aaron, worshipping the golden calf and performing their unclean rites&mdash;but, as soon as ever Moses marches into the camp, they recognize his commanding presence and his kingly authority. "Drag down that abomination," he cries! "And break it in pieces." And though, just now, they were adoring it, they implicitly obey him. The calf is hurled from its pedestal, burnt in the fire, ground to powder and mingled with the water that the idolaters drank. Then rings out the grand challenge of our text. The brave man who seems to stand like a solid rock amid the raging billows, feels it necessary to strike a decisive blow for Jehovah&mdash;and once and for all put an end to that shameful idolatry. So, taking his stand, as though to lift up the banner of Jehovah, he cries, "'Whoever is on the Lord's side&mdash;come to me!' And all the sons of Levi gathered themselves together to him"&mdash;the men who afterwards became the priests of the Most High God. Then came that just but terrible command to execute the idolaters&mdash;and three thousand of the people perished as a warning to the rest&mdash;and that cursed image-worship was stamped out of the camp, at least, for a time.
 

@@ -1,6 +1,7 @@
 # Sermon 1874 | A Discourse Upon True Blessedness Here and Hereafter
 
-"Blessed is the man that endures temptation: for when he is tried, he shall receive the crown of life, which the Lord has promised to them that love Him." James 1:12.
+> Blessed is the man that endures temptation: for when he is tried, he shall receive the crown of life, which the Lord has promised to them that love Him.
+> James 1:12
 
 THE text is a Beatitude. It begins with BLESSED. We should all like to be blessed. What a more than golden word that "blessed," is! It begins the Psalms of David&mdash;there is sweetest poetry in it. It begins the sermon of the Son of David. It is the end of all holy teaching. "Happiness" is the earthly word. "Blessedness" is the heavenly one. Happiness may prove to be a superficial appearance, but blessedness is deep as the abyss. Happiness ripples like a flowing brook, but blessedness is a springing well. Happiness may be wholly human, but blessedness has the Divine element in it. Happiness is transient; blessedness is eternal! Happiness may lie in our own conception of things; blessedness is God's verdict, God's truthful statement of a man's condition! Happiness may prove but tinsel&mdash;blessedness is solid gold. Oh, to be blessed! Blessed of the Lord which made Heaven and earth!
 

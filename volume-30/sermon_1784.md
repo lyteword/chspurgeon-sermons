@@ -1,6 +1,7 @@
 # Sermon 1784 | Unbelief Condemned and Faith Commended
 
-"They are a very froward generation, children in whom is no faith." Deuteronomy 32:20.
+> They are a very froward generation, children in whom is no faith.
+> Deuteronomy 32:20
 
 "Blessed is that man that makes the Lord his trust." Psalm 40:4.
 

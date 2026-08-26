@@ -1,6 +1,7 @@
 # Sermon 2809 | Faith&mdash;life
 
-"The just shall live by his faith." Habakkuk 2:4.
+> The just shall live by his faith.
+> Habakkuk 2:4
 
 "The just shall live by faith." Romans 1:17.
 

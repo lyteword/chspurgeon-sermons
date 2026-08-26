@@ -1,6 +1,7 @@
 # Sermon 1437 | Others To Be Gathered In
 
-"The Lord God which gathers the outcasts of Israel says, Yet will I gather others to him, beside those that are gathered unto him." Isaiah 56:8.
+> The Lord God which gathers the outcasts of Israel says, Yet will I gather others to him, beside those that are gathered unto him.
+> Isaiah 56:8
 
 God's work flow is that of gathering. There was a time when it was scattering. Man built the tower of Babel which was intended to be the center of unity, the armory of power and the seat of dominion from where some mighty Nimrod might sway his scepter over all the human race. But the Lord would not have it so. Infinite wisdom baffled finite ambition! Man's center is not God's center and, therefore, He confounded their language and scattered them into nations by which the whole earth has been inhabited.
 

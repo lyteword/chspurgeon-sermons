@@ -1,6 +1,7 @@
 # Sermon 1356 | The Heavenly Wind
 
-"The wind blows where it wishes, and you hear the sound of it, but cannot tell from where it comes, and where it goes: so is everyone that is born of the Spirit." John 3:8.
+> The wind blows where it wishes, and you hear the sound of it, but cannot tell from where it comes, and where it goes: so is everyone that is born of the Spirit.
+> John 3:8
 
 THE Holy Spirit is to be admired, not only for the great Truths of God which He teaches us in Holy Scripture, but also for the wonderful manner in which those Truths are balanced. The Word of God never gives us too much of one thing or too little of another. It never carries a doctrine to an extreme, but tempers it with its corresponding doctrine. Truth seems to run at least in two parallel lines, if not in three, and when the Holy Spirit sets before us one line He wisely points out to us the other. The truth of Divine Sovereignty is qualified by human responsibility and the teaching of abounding Grace is seasoned by a remembrance of unflinching Justice. Scripture gives us, as it were, the acid and the alkali&mdash;the rock and the oil which flows from it&mdash;the sword which cuts and the balm which heals.
 

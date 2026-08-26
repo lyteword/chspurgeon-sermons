@@ -1,6 +1,7 @@
 # Sermon 1654 | "At Your Word"
 
-"And Simon answering said unto Him, Master, we have toiled all the night, and have taken nothing: nevertheless at Your word I will let down the net." Luke 5:5.
+> And Simon answering said unto Him, Master, we have toiled all the night, and have taken nothing: nevertheless at Your word I will let down the net.
+> Luke 5:5
 
 How very much may simple obedience partake of the sublime! Peter went to take up the net, but let it down into the sea as he said as naturally as possible, "At Your word I will let down the net." He was then and there appealing to one of the grandest principles which rules among intelligent beings&mdash;and to the strongest force which sways the universe&mdash;"At Your word." Great God, it is "at Your Word" that seraphs fly and cherubs bow! Your angels which excel in strength do Your commandments hearkening to the voice of Your word. "At Your word" space and time first came into existence and all things that are. "At Your word"&mdash;here is the cause of causes, the beginning of the creation of God. "By the word of the Lord were the heavens made," and by that word was the present constitution of this round world settled as it stands.
 

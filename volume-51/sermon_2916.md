@@ -1,6 +1,7 @@
 # Sermon 2916 | A Memorable Milestone
 
-"I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart; I have declared Your faithfulness and Your salvation: I have not concealed Your loving-kindness and Your truth from the great congregation. Withhold not Your tender mercies from me, O Lord: let Your loving-kindness and Your truth continually preserve me." Psalm 40:9-11.
+> I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart; I have declared Your faithfulness and Your salvation: I have not concealed Your loving-kindness and Your truth from the great congregation. Withhold not Your tender mercies from me, O Lord: let Your loving-kindness and Your truth continually preserve me.
+> Psalm 40:9-11
 
 THE twenty-fifth ANNIVERSARY OF MR. Spurgeon's FIRST SERMON IN THE TABERNACLE!
 

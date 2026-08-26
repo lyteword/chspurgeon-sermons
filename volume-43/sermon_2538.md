@@ -1,6 +1,7 @@
 # Sermon 2538 | An Epistle Illustrated by a Psalm
 
-"You have pushed me violently that I might fall: but the Lord helped me. The Lord is my strength and song, and He has become my salvation." Psalm 118:13,14.
+> You have pushed me violently that I might fall: but the Lord helped me. The Lord is my strength and song, and He has become my salvation.
+> Psalm 118:13,14
 
 In memory of my fiftieth birthday, our friends have built a house at the back of the Tabernacle, to be used for the purposes of the Church, and to be called JUBILEE HOUSE. It will be a lasting Ebenezer bearing this witness, "Hitherto has the Lord helped us." I was asked to select a text of Scripture to put upon a stone which all could read and, thereby, be made to understand the meaning of the house and its name. The chosen text of Scripture (Psalm 118:13-18) was cut into a stone after a fashion, but the words were not set forth in full&mdash;the mason thought it sufficient to inscribe the chapter and the verses. Now, as people do not generally carry their Bibles with them to refer to, this appeared to me to be a failure. I like a matter made boldly clear, so that he may run that reads it! Therefore, I have had the words, themselves, engraved upon a large slab of marble, to be read by all of our day and by coming generations, also. I believe that such memorials silently work for lasting good and the more of them the better. In this case, at least, if there are not "sermons in stones," there will be texts of sermons, which is even better.
 

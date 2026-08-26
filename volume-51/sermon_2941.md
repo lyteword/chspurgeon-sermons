@@ -1,6 +1,7 @@
 # Sermon 2941 | Mary's Magnificat
 
-"And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savor." Luke 1:46, 47.
+> And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savor.
+> Luke 1:46, 47
 
 MARY's Magnificat was a song of faith. You have thought, perhaps, that you could easily have sung this song if you had been as highly favored as she was, but are you sure that you could have done so? Have you ever realized the difficulties under which this hymn was composed and sung? If not, permit me to remind you that the wondrous birth which had been promised to her had not then been accomplished and in her mind there must have been a consciousness that many would doubt her statements. The visitation of the angel and all its consequences would seem to be ridiculous and even impossible to many to whom she might venture to mention the circumstances&mdash;no, more than that&mdash;would subject her to many cruel insinuations which would scandalize her character! And that which conferred upon her the highest honor that ever fell to woman would, in the judgment of many, bring upon her the greatest possible dishonor. We know what suspicions even Joseph had and that it was only a Revelation from God that could remove them. Mary would have been sorely troubled if she had been influenced by her natural feelings and had been swayed by external circumstances.
 

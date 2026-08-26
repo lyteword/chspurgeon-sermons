@@ -1,6 +1,7 @@
 # Sermon 2562 | Cries From the Cross
 
-"My God, My God, why have You forsaken Me? Why are You so far from helping me, and from the words of My roaring?" Psalm 22:1.
+> My God, My God, why have You forsaken Me? Why are You so far from helping me, and from the words of My roaring?
+> Psalm 22:1
 
 (This was the first evening Sermon preached by Mr. Spurgeon after the fatal calamity at the Surrey Gardens Music Hall two weeks previously.  On commenting on his discourse, Mr. Spurgeon said, "The observations I have to make will be very brief, seeing that afterwards we are to partake of the Lord's Supper. I shall make no allusion to the recent catastrophe&mdash;that theme of my daily thoughts and nightly dreams, ever since it h as occurred. I hope, however, to speak about that event at some future period." This Mr. Spurgeon did, in many memorable utterances which will be included in Vol. II of his Autobiography, now in course of compilation).
 

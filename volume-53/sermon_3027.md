@@ -1,6 +1,7 @@
 # Sermon 3027 | God's Time for Comforting
 
-"My eyes fail from searching Your Word, saying, When will You comfort me?" Psalm 119:82.
+> My eyes fail from searching Your Word, saying, When will You comfort me?
+> Psalm 119:82
 
 DAVID, in his troubles, knew where to turn for consolation&mdash;and that is no small piece of wisdom. When a man is ill, he may not know to which physician he had better send, but if he knows of one who has had much experience with the disease from which he is suffering, he sends for him at once if he is a wise patient. David knew that the best place for a true Believer to find consolation was in God's Word, so he did not look in a thousand places, but his eyes were turned to God's Word&mdash;and though he did not immediately find the comfort that he sought, yet he continued to look even till his eyes seemed to fail him, till they ached with looking, till they wearied with watching, till his disappointed expectation made his heart sick! Yet the idea never entered into his mind that he had better knock at another door, or seek another friend, or try another fountain! He still continued in the attitude of expectancy and desire, his eyes still searching the Word of God to find the comfort that he so greatly needed.
 

@@ -1,6 +1,7 @@
 # Sermon 1544 | Mahanaim&mdash;or, Hosts Of Angels
 
-"And Jacob went on his way and the angels of God met him. And when Jacob saw them, he said, This is God's host: and he called the name of that place Mahanaim." Genesis 32:1,2.
+> And Jacob went on his way and the angels of God met him. And when Jacob saw them, he said, This is God's host: and he called the name of that place Mahanaim.
+> Genesis 32:1,2
 
 "And it came to pass, when David was come to Mahanaim, that Shobi the son of Nahash of Rabbah of the children of Ammon and Machir the son of Ammiel of Lodebar and Barzillai the Gileadite of Rogelim, brought beds and basins and earthen vessels and wheat and barley and flour and parched corn and beans and lentiles and parched seeds and honey and butter and sheep and cheese of kine, for David and for the people that were with him, to eat, for they said, The people are hungry and weary and thirsty in the wilderness." 2Samuel17:27229.
 

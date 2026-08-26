@@ -1,6 +1,7 @@
 # Sermon 1932 | Love's Law and Life
 
-"If you love Me, keep My commandments." John 14:15.
+> If you love Me, keep My commandments.
+> John 14:15
 
 THIS is a chapter singularly full of certainties and remarkably studded with "ifs." Concerning most of the great things in it there never can be an, "if," and yet, "if," comes up, I think, no less than seven times in the chapter and, "if," too, not about trifles, but about the most solemn subjects. It is, perhaps, worthy of mention that with each of these, "ifs," there is something connected, as following out of it, or appearing to be involved in it, or connected with it.
 
