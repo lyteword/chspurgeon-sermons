@@ -1,6 +1,7 @@
 # Sermon 2704 | "Flee From the Wrath to Come"
 
-"Who hats warned you to flee from the wrath to come?" Matthew 3:7.
+> Who hats warned you to flee from the wrath to come?
+> Matthew 3:7
 
 "Who have fled for refuge to lay hold upon the hope set before us." Hebrews 6:18.
 

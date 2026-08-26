@@ -1,6 +1,7 @@
 # Sermon 2659 | Fallen Asleep
 
-"Some are fallen asleep." 1 Corinthians 15:6.
+> Some are fallen asleep.
+> 1 Corinthians 15:6
 
 Writing concerning the brethren who had seen the Lord Jesus Christ after His Resurrection and of whom "above five hundred" were present at one time, Paul said, at the date when he was writing this Epistle, "the greater part" remained alive, "but," he added, "some are fallen asleep."
 

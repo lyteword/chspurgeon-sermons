@@ -1,6 +1,7 @@
 # Sermon 2687 | Too Good to Be Saved!
 
-"I tell you, this man went down to his house justified rather than the other." Luke 18:14.
+> I tell you, this man went down to his house justified rather than the other.
+> Luke 18:14
 
 THE publican was justified rather than the Pharisee. The outwardly worse man of the two was accepted rather than the one who was apparently better. "This man went down to his house justified rather than the other." Observe, dear Friends, our Savior's gentle way of describing the contrast between these two men. He says that the publican was "justified rather than the other," but we all know that behind this mild and lenient expression, there is the sad and solemn Truth of God that the Pharisee was not justified at all. It is concerning that fact that I am about to speak to you. The publican was justified and the Pharisee was not, yet our Lord only said, "This man went down to his house justified rather than the other." It will be true wisdom on our part, also, to sometimes state a Truth in the very mildest way possible. A Scriptural Doctrine loses nothing of its effect by being tenderly expressed&mdash;indeed, a forcible Truth of God may even have its force increased by being rather understated than overstated. Our Lord Jesus Christ knew when to use this holy art and He did so on this occasion and, therefore, you and I will be wise if we do the same when a fitting opportunity occurs.
 

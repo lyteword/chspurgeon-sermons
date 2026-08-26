@@ -1,6 +1,7 @@
 # Sermon 2656 | The Death of Christ for His People
 
-"He laid down His life for us." 1 John 3:16.
+> He laid down His life for us.
+> 1 John 3:16
 
 Come, Believer, and contemplate this sublime Truth of God, thus proclaimed to you in simple monosyllables&mdash;"He laid down His life for us." There is not one long word in the sentence&mdash;it is all as simple as it can be&mdash;and it is simple because it is sublime. Sublimity in thought always needs simplicity in words to express itself. Little thoughts require great words to explain them. Little preachers need Latin words to convey their feeble ideas, but great thoughts and great expressers of those thoughts are content with little words.
 

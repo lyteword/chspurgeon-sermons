@@ -1,6 +1,7 @@
 # Sermon 2676 | Comfort From the Future
 
-"You shall forget your misery, and remember it as waters that pass away." Job 11:16.
+> You shall forget your misery, and remember it as waters that pass away.
+> Job 11:16
 
 Job's misery was extreme and it seemed as if he could never forget it. He never did forget the fact of it, but he did forget the pain of it. That he had been utterly miserable would always remain recorded upon the tablets of his memory, but the wretchedness itself would not remain. It would be so entirely removed that it should be as a thing that has been altogether forgotten. Nothing better can happen to our misery than that it should be forgotten in the sense referred to in our text, for then, evidently, it will be clean gone from us. It will be as it is when even the scent of the liquor has gone out of the cask, when even the flavor of the bitter drug lingers no longer in the medicine glass, but has altogether disappeared. So is it with the sorrow that has so effectually gone out of the mind that it is just as though it had never been there.
 

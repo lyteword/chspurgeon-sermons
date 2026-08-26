@@ -1,6 +1,7 @@
 # Sermon 2701 | Jesus Joyfully Received
 
-"He...received Him joyfully." Luke 19:6.
+> He...received Him joyfully.
+> Luke 19:6
 
 THIS morning I showed you, dear Friends, how joyfully Jesus receives sinners&mdash;how He welcomes them&mdash; how glad He is to find those whom He came to seek and to save. From this text it appears that when sinners receive Jesus, they receive Him joyfully, so that there is joy on both sides. It is a joyful business altogether&mdash;the Savior is glad to save and the sinner is glad to be saved! I know which of the two has the greater joy, for it is always more blessed to give than to receive, and the great heart of Jesus, in its Infinite Benevolence, is conscious of a rarer joy than even the saved sinner can experience. It is a delight to Him to save. So great is His joy that He cannot contain it all within His own heart and He represents Himself as calling together His friends and neighbors, and saying to them, "Rejoice with Me, for I have found My sheep which was lost."
 
