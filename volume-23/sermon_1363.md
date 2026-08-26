@@ -1,6 +1,7 @@
 # Sermon 1363 | Sudden Sorrow
 
-"Suddenly are my tents spoiled, and my curtains in a moment." Jeremiah 4:20.
+> Suddenly are my tents spoiled, and my curtains in a moment.
+> Jeremiah 4:20
 
 "And when you are spoiled, what will you do?" Jeremiah 4:30.
 

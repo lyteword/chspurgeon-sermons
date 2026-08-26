@@ -1,6 +1,7 @@
 # Sermon 1389 | A Gospel Sermon To Outsiders
 
-"Be of good comfort, rise; He calls you." Mark 10:49.
+> Be of good comfort, rise; He calls you.
+> Mark 10:49
 
 Preached on a night when the Tabernacle was free to all comers, the regular congregation having vacated their seats.
 

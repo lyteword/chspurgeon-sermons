@@ -1,6 +1,7 @@
 # Sermon 1383 | The Cause And Cure Of Weariness In Sunday School Teachers
 
-"Let us not be weary in doing good: for in due season we shall reap, if we faint not." Galatians 6:9.
+> Let us not be weary in doing good: for in due season we shall reap, if we faint not.
+> Galatians 6:9
 
 THIS verse occurs in the Epistle to the Galatians, which so plainly sets forth the grand doctrine of Justification by Faith and teaches us most plainly that salvation is not of works, but of Grace. As if to confuse forever those who say that the doctrine of Free Grace is unpractical, the Apostle, before he closes his Epistle, exhorts Believers to labor. And in the verse before us gives us a sentence worthy to be printed in letters of gold and hung up forever before the eyes of all Christian workers, "Be not weary in doing good." It is true, my Brothers and Sisters, that you are not to save yourselves by doing good. Your motive is not selfish, but because you are saved already, you desire to manifest the power of gratitude and to prove to all the world that those who receive a free salvation are the very men who most cheerfully labor to please God and to bring glory to His name. O you who are debtors to infinite mercy, "Be not weary in doing good."
 
