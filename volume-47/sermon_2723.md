@@ -1,6 +1,7 @@
 # Sermon 2723 | God's Dealings With Egypt and Israel
 
-"And smote all the first-born in Egypt; the chief of their strength in the tabernacles of Ham: but made His own people to go forth like sheep, and guided them in the wilderness like a flock." Psalm 78:51, 52.
+> And smote all the first-born in Egypt; the chief of their strength in the tabernacles of Ham: but made His own people to go forth like sheep, and guided them in the wilderness like a flock.
+> Psalm 78:51, 52
 
 THERE is a very sharp line of division here between the Egyptians and the Lord's own people, and that line of division always has existed and always will, for all attempts to blend the seed of the serpent with the seed of the woman must fail. Between the Church and the world, however debased the Church may become, and however reformed the world may be, there will still be a clear distinction even until the end&mdash;and that distinction will be seen in the day of the appearing of our Lord and Savior Jesus Christ, when "before Him shall be gathered all nations: and He shall separate them one from another, as a shepherd divides his sheep from the goats: and He shall set the sheep on His right hand, but the goats on the left."
 

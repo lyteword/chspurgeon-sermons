@@ -1,6 +1,7 @@
 # Sermon 2759 | The Pleasures of Piety
 
-"My meditation of Him shall be sweet." Psalm 104:34.
+> My meditation of Him shall be sweet.
+> Psalm 104:34
 
 IT has often been insinuated, if it has not been openly affirmed, that the contemplation of Divine things has a tendency to depress the spirits. Religion, many thoughtless persons have supposed, is not becoming to the young&mdash;it checks the ardor of their youthful blood. It may be very well for men with gray heads who need something to comfort and solace them as they descend the hill of life into the grave. It may be suitable for those who are in poverty and deep trial, but that it is at all congruous with the condition of a healthy, able-bodied, successful and happy young man&mdash;this is generally said to be out of the question!
 

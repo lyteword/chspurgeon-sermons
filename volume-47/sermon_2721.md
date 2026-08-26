@@ -1,6 +1,7 @@
 # Sermon 2721 | Faith Without Sight
 
-"Jesus said to him, Thomas, because you have seen Me, you have believed: blessed are they that have not seen, and yet have believed." John 20:29.
+> Jesus said to him, Thomas, because you have seen Me, you have believed: blessed are they that have not seen, and yet have believed.
+> John 20:29
 
 WE count those people blessed, indeed, who lived in our Savior's day and saw Him when He dwelt here among men. And truly blessed were their eyes, for they saw, and their ears, for they heard what kings and Prophets had long desired to see and to hear, yet were not so privileged. But we who now believe in our Lord and Savior Jesus Christ have a blessing superior to theirs, for the benediction of the text is not to those who saw and believed, but to those who "have not seen, and yet have believed." No doubt Thomas was highly favored when his Lord said to him, "Reach here your finger, and behold My hands; and reach here your hand, and thrust it into My side." This was an act of very remarkable condescension on Christ's part. I can scarcely conceive that any other of the 12 Apostles was more tenderly treated than was this doubting disciple. Nevertheless, though Thomas was greatly privileged, there is a superior blessing, as his Master told him&mdash;and that blessing, I hope, belongs to many of us&mdash;"Blessed are they that have not seen, and yet have believed."
 

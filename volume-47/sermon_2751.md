@@ -1,6 +1,7 @@
 # Sermon 2751 | "A Prepared Place for a Prepared People"
 
-"I go to prepare a place for you." John 14:2.
+> I go to prepare a place for you.
+> John 14:2
 
 "Giving thanks unto the Father, who has qualified us to be partakers of the inheritance of the saints in the light."
 

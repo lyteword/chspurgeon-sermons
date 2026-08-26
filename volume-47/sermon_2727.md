@@ -1,6 +1,7 @@
 # Sermon 2727 | Bitter Herbs
 
-"With bitter herbs they shall eat it." Exodus 12:8.
+> With bitter herbs they shall eat it.
+> Exodus 12:8
 
 PERHAPS, before I come to the consideration of this sentence, it may be profitable, especially to the younger folk among us, if we think of the many points in which the Passover was a type of our Lord Jesus Christ. Paul tells us that "Christ our Passover is sacrificed for us" and, therefore, he informs us, by Inspiration&mdash;and therefore it is not a matter of conjecture or fancy&mdash;that the Passover was instituted to be a type of Jesus Christ who is the Lamb of God, the one appointed Sacrifice for the sins of all His people.
 

@@ -1,6 +1,7 @@
 # Sermon 2743 | Mistaken Notions About Repentance
 
-"Then you will remember your evil ways, and your deeds that were not good, and you will loathe yourselves in your own sight for your iniquities and for your abominations." Ezekiel 36:31.
+> Then you will remember your evil ways, and your deeds that were not good, and you will loathe yourselves in your own sight for your iniquities and for your abominations.
+> Ezekiel 36:31
 
 We noticed, in our reading, in what a kingly style the Lord speaks all through this chapter. He does not say "if or "but," but He says, "you will"and "you shall"and this teaches us that God is Omnipotent even in the regions of free agency. It would be preposterous to say that man is not a free agent! There are some who, in order to glorify the Grace of God, have sought to deny the free agency of man&mdash;I do not mean that they have done it in so many words, but, practically, the effect of their language has been to deny it. But man is perfectly free and God violates not the human will&mdash;yet I cannot explain to you how it is&mdash;He is as much able to rule perfectly free agents as He is to control the atoms of inert matter. It is Omnipotence which compels yonder starry orbs to obey the laws which God has made and to travel in their appointed courses, but, to my mind, it is even more marvelous Omnipotence which leaves men free agents and controls not their will, but yet sweetly triumphs over them and wins for God the accomplishment of His Divine Purposes!
 

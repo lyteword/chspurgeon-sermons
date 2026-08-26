@@ -1,6 +1,7 @@
 # Sermon 2748 | Rest As a Test
 
-"Ask for the old path, where the good way is, and walk in it, and you shall find rest for your souls." Jeremiah 6:16.
+> Ask for the old path, where the good way is, and walk in it, and you shall find rest for your souls.
+> Jeremiah 6:16
 
 A VERY short time ago, I gave you, in print,  a sermon upon this text which, I daresay many of you well remember. I am not now going to pursue the same line of thought as I then followed. I have taken this text again, not to preach from all its words so much as from one single Truth of God which is clear in it, namely, that you may judge which is the old path and which is the good way in which you ought to walk, by this test&mdash;if you are in the old path, the good way&mdash;you find rest for your soul. You may, therefore, judge of your position at the present moment and test the quality of your religion&mdash;for there are many false faiths, erroneous creeds, man-made religions and evil spirits that have gone out into the world. But you may try them all by this test if you are, indeed, in the old path, the good way&mdash;in God's own way&mdash;you find rest for your soul!
 

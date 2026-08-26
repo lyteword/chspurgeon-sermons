@@ -1,6 +1,7 @@
 # Sermon 2730 | The Secret of Love to God
 
-"We love Him, because He first loved us." 1 John 4:19.
+> We love Him, because He first loved us.
+> 1 John 4:19
 
 THIS morning, 
 
