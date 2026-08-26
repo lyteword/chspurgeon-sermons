@@ -1,6 +1,7 @@
 # Sermon 550 | The Ship on Fire&mdash;a Voice of Warning
 
-"Escape for thy life."&mdash;Genesis 19:17.
+> Escape for thy life.
+> &mdash;Genesis 19:17
 
 "Thou hast magnified thy mercy, which thou hast shewed unto me in saving my life."&mdash;Genesis 19:19.
 
