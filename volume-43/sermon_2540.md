@@ -1,6 +1,7 @@
 # Sermon 2540 | Declaring the Works of the Lord
 
-"I shall not die, but live, and declare the works of the Lord." Psalm 118:17.
+> I shall not die, but live, and declare the works of the Lord.
+> Psalm 118:17
 
 I could not deal with all the text on the last occasion, so I return to it. May the Holy Spirit bedew the Word afresh, and make it a joy to meditate thereon!
 

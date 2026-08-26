@@ -1,6 +1,7 @@
 # Sermon 2502 | Grace and Glory
 
-"The LORRD will give grace and glory." Psalm 84:11.
+> The LORRD will give grace and glory.
+> Psalm 84:11
 
 WHEREVER, in the Old Testament, you see the word, "Lord," in capital letters, it ought to be read, "JEHOVAH," SO our text really is, "JEHOVAH will give grace and glory."
 

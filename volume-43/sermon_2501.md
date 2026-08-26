@@ -1,6 +1,7 @@
 # Sermon 2501 | All and All in All
 
-"Christ is all, and in all." Colossians 3:11.
+> Christ is all, and in all.
+> Colossians 3:11
 
 "That God may be all in all." 1 Corinthians 15:28.
 

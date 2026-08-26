@@ -1,6 +1,7 @@
 # Sermon 2508 | "Beautiful Forever"
 
-"He will beautify the meek with salivation." Psalm 149:4.
+> He will beautify the meek with salivation.
+> Psalm 149:4
 
 I FIND that the text bears other interpretations. I will mention two of them. It might be read&mdash;and I think correctly&mdash;"He will beautify the afflicted with deliverance." Let me speak about that meaning first of all, for it is worth retaining. God's own people are frequently made to mourn. Their Lord takes pleasure in them, but yet, for their good, He often sends them grief. At times they are distressed and their enemies appear to triumph over them. They are brought into sore straits and burdened and surrounded with difficulties, but, though "many are the afflictions of the righteous," "the Lord delivers him out of them all. He keeps all his bones; not one of them is broken."
 

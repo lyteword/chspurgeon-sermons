@@ -1,6 +1,7 @@
 # Sermon 2503 | The Question Between the Plagues
 
-"How long will you refuse to humble yourself before Me?" Exodus 10:3.
+> How long will you refuse to humble yourself before Me?
+> Exodus 10:3
 
 PHARAOH is the type and image of proud men. God permitted him to be left to the natural hardness of his heart and he stood up against Jehovah in a very remarkable way. Those who are students of the ancient history of Egypt, those especially who have seen the remains of the colossal statues of the kings and those tremendous pyramids which probably were the places of their sepulture, will know that man worship was carried on to the very highest degree in connection with the ancient kingdom of Egypt. Our modern civilization has deprived kings of much of the dignity which once hedged them round. We have grown wonderfully familiar with our fellow men in the very highest places of the earth, but in those old monarchies, when the king was absolute and supreme, when his wish, even though he was little better than a maniac&mdash;was the law that governed the people&mdash;when not a dog dared move his tongue against the despot, then kings seemed to be like little gods and they lorded it over their subjects with a vengeance!
 

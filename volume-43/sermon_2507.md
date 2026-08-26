@@ -1,6 +1,7 @@
 # Sermon 2507 | He Ran, and He Ran
 
-"But when he saw Jesus afar off, he ran and worshipped Him." Mark 5:6.
+> But when he saw Jesus afar off, he ran and worshipped Him.
+> Mark 5:6
 
 "But when he wasyet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him." Luke 15:20.
 
