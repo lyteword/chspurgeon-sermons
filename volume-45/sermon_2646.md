@@ -1,6 +1,7 @@
 # Sermon 2646 | The Baptist's Message
 
-"The next day John saw Jesus cooing toward him and said, Behold the Lamb of God, who takes away the sin of the world!" John 1:29.
+> The next day John saw Jesus cooing toward him and said, Behold the Lamb of God, who takes away the sin of the world!
+> John 1:29
 
 John was the herald of Christ. He came to bear witness to Him and to prepare the way for Him. In olden times when kings traveled, they were accustomed to send heralds before them to announce their coming, and to prepare the way for them. And I have read that on several occasions the herald wore such gorgeous apparel&mdash;adorned with gold and lace&mdash;that when he went into some of the towns and villages, the people thought that he must be the king, himself! So they made ready to receive him with royal honors. When he said, "No, I am not the king, I have merely come to sound the trumpet and to say that he is coming," they wondered what the king, himself, must be like if his herald was so resplendent&mdash;and it is said that in several instances they refused to receive the king when he came, for they said, "The man who told us that he was only your servant was a far finer looking man than you are, and much more grandly dressed." So, when the king arrived and they saw that he was but plainly dressed, as kings usually are when not wearing their state robes, they would not receive him.
 

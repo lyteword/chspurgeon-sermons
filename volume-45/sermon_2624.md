@@ -1,6 +1,7 @@
 # Sermon 2624 | Secondhand
 
-"Are you speaking for yourself about this, or did others tell you this concerning Me?" John 18:34.
+> Are you speaking for yourself about this, or did others tell you this concerning Me?
+> John 18:34
 
 I EXPLAINED this morning,  why our Savior put that question to Pilate. The Roman governor had asked Him, "Are you the King of the Jews?" And Jesus as good as said to him, "Have you, of your own knowledge, seen anything in Me that looks like setting up to be a king in opposition to Caesar? You intend, by asking Me that question, to enquire whether I have led a rebellion against your government, or the imperial authority which you represent. Now, has there been anything which you have observed which would have led you to make this enquiry, or do you only ask it because of what the Jews have been saying in their enmity against Me?" You will see, dear Friends, that our Lord asked this question in order that He might get from Pilate's own lips the acknowledgment that he had not seen any sign of sedition or rebellion in Him and that it might be proved that the charge had been brought to Pilate by those outside, and had not come from the Roman governor himself.
 

@@ -1,6 +1,7 @@
 # Sermon 2630 | What Jesus Would Do
 
-"How often would I have gathered your children together, even as a hen gathers her chickens under her wings, and you would not!" Matthew 23:37.
+> How often would I have gathered your children together, even as a hen gathers her chickens under her wings, and you would not!
+> Matthew 23:37
 
 THE theologians have met each other around this text as on a field of battle. They have contended, controverted and dragged the text about as if it were a wild beast which they would tear limb from limb. And yet, if you will look through the letter of it, and come to its inner spirit, you will see that it is not strange that Jesus should have uttered it. It would have been much more marvelous if he had not spoken thus, and it would have been a terrible crux in all theology if we had read here, "I never would have gathered your children together even if they had been willing to be gathered." That would have been a thing hard to be understood, indeed! And it would have presented a greater difficulty than any which can be found in our text.
 

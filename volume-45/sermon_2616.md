@@ -1,6 +1,7 @@
 # Sermon 2616 | Christ's Care of His Disciples
 
-"If, therefore, you seek Me, let these go their way." John 18:8.
+> If, therefore, you seek Me, let these go their way.
+> John 18:8
 
 WE need but hint at the circumstances under which these words were uttered. Our Savior was in the Garden of Geth-semane with His disciples when a multitude came with the officers commissioned by the High Priest to seize Him. He went boldly towards them and asked, "Whom do you seek?" They answered, "Jesus of Nazareth." At His words, "I am He," "they drew back and fell to the ground," and then Jesus said to them, "I have told you that I am He. If, therefore, you seek Me, let these go their way."
 

@@ -1,6 +1,7 @@
 # Sermon 2618 | "Straightway"
 
-"They straightway left their nets, and followed Him." Matthew 4:20.
+> They straightway left their nets, and followed Him.
+> Matthew 4:20
 
 "THEY straightway left their nets." Immediately, without hesitation, without question. At once, on the spot, then and there, instantaneously&mdash;at the Master's call they "left their nets, and followed Him." It was one mark of our Savior's authority and power that. when He commanded, men obeyed. Your memories will help you to recall many instances in which persons and even inanimate things instantly obeyed when Christ gave them the word of command. Satan and legions of demons, diseases of every kind and even winds and waves&mdash;those things which usually seem to be lawless and wild always gave heed to the Law which issued from His lips. When He spoke, it was done, for His Word was with power.
 

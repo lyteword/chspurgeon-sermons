@@ -1,6 +1,7 @@
 # Sermon 2614 | Strange Things
 
-"We have seen strange things today." Luke 5:26.
+> We have seen strange things today.
+> Luke 5:26
 
 THE world is growing very old, dull and commonplace. One takes the newspaper and, often, after glancing through it, has to say, "There is really nothing in it." The reason probably being that there is nothing fresh or new happening on the earth&mdash;it is the same old sad story of sin and sorrow constantly repeated. The world seems to be like a cluster from the vine when all its generous juice has been pressed out. Life, to many persons, has come to be excessively humdrum. The human mind is always craving after novelties and, to find these novelties, it makes "much ado about nothing." It runs raving mad over that which is not worth thinking of and whips itself up into an intense excitement about a matter that is of no more importance than a drop in a bucket, or the small dust of the balance. The fact is, man wants something really fresh and strange and if he can get it, he feels delighted! I hardly think that when our good friend, Mr. John Ashworth, brought out his book, he would have achieved so great a success with it if he had not called it Strange Tales. But the strangeness was the attraction. The stories in it were strange tales to the mass of mankind, though to some of us they are very familiar things&mdash;but the strangenesswas the point that attracted readers.
 

@@ -1,6 +1,7 @@
 # Sermon 2654 | Wakeful and Watchful Eyes
 
-"Behold, He that keeps Israel shall neither slumber nor sleep." Psalm 121:4.
+> Behold, He that keeps Israel shall neither slumber nor sleep.
+> Psalm 121:4
 
 "Behold, as the eyes of servants look unto the hands of their masters, and as the eyes ofa maiden unto the hands of her mistress; so our eyes wait upon the LORRD our God, until He has mercy on us."
 
