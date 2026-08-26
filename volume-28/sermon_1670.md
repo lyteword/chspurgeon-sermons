@@ -1,6 +1,7 @@
 # Sermon 1670 | One Lion, Two Lions, No Lion at All!
 
-"The slothful man says, There is a lion outside, I shall be slain in the streets." Proverbs 22:13.
+> The slothful man says, There is a lion outside, I shall be slain in the streets.
+> Proverbs 22:13
 
 "The slothful man says, There is a lion in the way; a lion is in the streets."
 

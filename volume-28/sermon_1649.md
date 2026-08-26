@@ -1,6 +1,7 @@
 # Sermon 1649 | Freshness
 
-"My glory was fresh in me, and my bow was renewed in my hand." Job 29:20.
+> My glory was fresh in me, and my bow was renewed in my hand.
+> Job 29:20
 
 "I shall be anointed with fresh oil." Psalm 92:10.
 

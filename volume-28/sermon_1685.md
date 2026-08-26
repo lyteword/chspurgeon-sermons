@@ -1,6 +1,7 @@
 # Sermon 1685 | God's Non-Remembrance of Sin
 
-"I, even I, am He that blots outyour transgressions for My own sake, and will not remember your sins." Isaiah 43:25.
+> I, even I, am He that blots outyour transgressions for My own sake, and will not remember your sins.
+> Isaiah 43:25
 
 "For I will forgive their iniquity, and I will remember their sin no more."
 

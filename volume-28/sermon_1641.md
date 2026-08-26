@@ -1,6 +1,7 @@
 # Sermon 1641 | Great Spoil
 
-"I rejoice at Your Word, as one that finds great spoil." Psalm 119:162.
+> I rejoice at Your Word, as one that finds great spoil.
+> Psalm 119:162
 
 IN the preceding verse David had avowed his reverence for God's Word in the following language&mdash;"My heart stands in awe of Your Word." It is clear that holy awe is perfectly consistent with intense delight. Fear seems to stand far apart from joy and yet, in the experience of the child of God, they are next of kin. We are familiar with combinations such as this&mdash;"They returned from the sepulcher with fear and great joy." "Happy is the man that fears always." "Serve the Lord with fear and rejoice with trembling." These two emotions are like two notes which, apart, are widely different, but sound harmoniously together&mdash;the one is far down and the other is high up in the scale&mdash;but they melt into one with sweet accord in the experience of God's people. It is a blessed thing both to reverence the Word of God and to have an intense joy in it. May we all know what the mixed emotion means.
 

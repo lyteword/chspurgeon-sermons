@@ -1,6 +1,7 @@
 # Sermon 1658 | Healed or Deluded? Which?
 
-"They have healed the hurt of the daughter of My people slightly, saying, Peace, peace; when there is no peace." Jeremiah 8:11.
+> They have healed the hurt of the daughter of My people slightly, saying, Peace, peace; when there is no peace.
+> Jeremiah 8:11
 
 "Heal me, O Lord, and I shall be healed; save me, and I shall be saved: for You are my praise." Jeremiah 17:14.
 

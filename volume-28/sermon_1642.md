@@ -1,6 +1,7 @@
 # Sermon 1642 | "Verily, Verily"
 
-"Verily, verily, I say unto you, he that hears My Word, and believes on Him that sent Me, has everlasting life, and shall not come into condemnation but is passed from death unto life." John 5:24.
+> Verily, verily, I say unto you, he that hears My Word, and believes on Him that sent Me, has everlasting life, and shall not come into condemnation but is passed from death unto life.
+> John 5:24
 
 "Verily, Verily, I say unto you, he that believes on Me has everlasting life."-
 

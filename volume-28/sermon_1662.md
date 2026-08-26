@@ -1,6 +1,7 @@
 # Sermon 1662 | The Indwelling and Outflowing of the Holy Spirit
 
-"He that believes on Me, as the Scripture has said, out of his belly shall flow rivers of living water. (But this spoke He of the Spirit, which they that believe on Him should receive: for the Holy Spirit was not yet given; because that Jesus was not yet glorified)." John 7:38,39.
+> He that believes on Me, as the Scripture has said, out of his belly shall flow rivers of living water. (But this spoke He of the Spirit, which they that believe on Him should receive: for the Holy Spirit was not yet given; because that Jesus was not yet glorified).
+> John 7:38,39
 
 "Nevertheless I tell you the truth; It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send Him unto you."
 
