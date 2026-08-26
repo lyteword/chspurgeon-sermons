@@ -1,6 +1,7 @@
 # Sermon 1884 | Exhortation&mdash;"Set Your Heart"
 
-"Now set your heart and your soul to seek the Lord your God." 1 Chronicles 22:19.
+> Now set your heart and your soul to seek the Lord your God.
+> 1 Chronicles 22:19
 
 THE PASTOR's RETURN. THREE SPECIALLY- SELECTED SERMONS TO HIS CHURCH, CONGREGATION, READERS AND FRIENDS, CONSISTING OF
 

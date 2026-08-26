@@ -1,6 +1,7 @@
 # Sermon 1900 | Rejoice Evermore
 
-"Rejoice evermore." 1 Thessalonians 5:16.
+> Rejoice evermore.
+> 1 Thessalonians 5:16
 
 THIS is a sunny precept. When we read it, we feel that the time of the singing of birds has come. That joy should be made a duty is a sure token of the blessedness of the New Covenant. Because Jesus has suffered, we are encouraged, commanded and enabled to rejoice. Only the Man of Sorrows and His chosen Apostles can teach for a precept such a word as this&mdash;"Rejoice evermore" Happy people who can be thus exhorted! We ought to rejoice that there is a command to rejoice! Glory be unto the God of happiness who bids His children be happy. While musing on this text, I seem carried in spirit to the green woods and their bowers. As in a dell, all blue with flowers, where the sun smiles down upon me through the half-born oak leaves, I sit down and hear the blessed birds of the air piping out their love-notes&mdash;their music says only this&mdash;"Rejoice evermore." All that I see, and hear, and feel surrounds me with garlands of delight, while the fairest of all the shepherds of Sharon sings to me this delicious pastoral&mdash;"Rejoice evermore" The very words have breathed spring into my soul and set my heart blossoming! Thus am I also made to be as a daffodil which long has hidden away among the clods, but now, at last, ventures to lift up her yellow lily and ring out her golden bell. Who can be sad, or silent, when the voice of the Beloved says, "Rejoice evermore"!
 

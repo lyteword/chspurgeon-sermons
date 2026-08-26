@@ -1,6 +1,7 @@
 # Sermon 1919 | The Very Bold Prophecy
 
-"I was sought by those who did not ask for Me; I was found by those who did notseek Me: I said, Behold Me, behold Me, to a nation that was not called by My name" Isaiah 65:1.
+> I was sought by those who did not ask for Me; I was found by those who did notseek Me: I said, Behold Me, behold Me, to a nation that was not called by My name
+> Isaiah 65:1
 
 this is the passage which was quoted by the Apostle Paul in the tenth chapter of his Epistle to the Romans. At the twentieth verse of that chapter he says&mdash;"Isaiah is very bold, and says, I was found of them that sought Me not; I was made manifest unto them that asked not after Me. But to Israel He says, All day long I have stretched forth My hands unto a disobedient and gainsaying people." The Apostle followed the Septuagint translation, but altered the position of the clauses.
 
