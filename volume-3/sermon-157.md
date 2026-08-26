@@ -1,6 +1,7 @@
 # Sermon 157 | Thy Redeemer
 
-"And thy redeemer, the Holy One of Israel."&mdash;Isaiah 41:14.
+> And thy redeemer, the Holy One of Israel.
+> &mdash;Isaiah 41:14
 
 And why does it say, "and thy Redeemer?" What was the use of appending the Redeemers name to this precious exhortation? By God's help it shall be the business of this evening to show why there is a peculiar blessedness in the fact that God hath not only said, "I will help thee, saith the Lord," but has added, "and thy redeemer, the Holy One of Israel."
 
