@@ -87,11 +87,11 @@ Simply to Your Cross I cling." Yes, more than this, you will need Divine aid eve
 
 My strength is at Your feet to lie." And, poor helpless one, if you are but hidden in Christ, you are forever secure! Storms may arise, but you cannot be overwhelmed! Old Boreas may blow until his cheeks burst, but not a breath of wind can injure you, for in the cleft of the Rock you shall be hidden until the vengeance is gone!
 
-Exposition by C. H. Spurgeon: Hebrews 11:1-21.
+## Exposition by C. H. Spurgeon: Hebrews 11:1-21.
 
 This is the Arc de Triomphe erected to the memory of the heroes of faith, whose names are here recorded by the Apostle's Inspired pen with a brief mention of some of their most memorable actions. If it had not been for their faith, which moved them to accomplish such valiant deeds, we might not have known anything about them.
 
-Verse 1. Now faith is the substance of things hoped for, the evidence of things not seen. Though the "things" are only "hoped for" and "not seen" at present, the eye of faith can see them and the hand of faith can grasp them! Faith is more mighty than any of our senses, or than all our senses combined!
+Now faith is the substance of things hoped for, the evidence of things not seen. Though the "things" are only "hoped for" and "not seen" at present, the eye of faith can see them and the hand of faith can grasp them! Faith is more mighty than any of our senses, or than all our senses combined!
 
 For by it the elders obtained a good report It is noteworthy that they obtained this "good report" by their faith. Doubt gives a man an evil reputation&mdash;it is only Believers who obtain such a "report" as even the Holy Spirit describes as "good."
 
@@ -111,7 +111,7 @@ his house.  By which he condemned the world, and became heir of the righteousnes
 
 By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed: and he went out, not knowing where he went Though Abraham did not know where he was going, God knew, and that was quite sufficient for the Patriarch. As a little child is willing to be led by his parent, so Abraham was willing to be led by God, even though that meant leaving his own country and his own people and going to the distant land which God intended to give him.
 
-10. By faith he sojournedin the land ofpromise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker
+By faith he sojournedin the land ofpromise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker
 
 is God. 
 
@@ -119,13 +119,13 @@ He was only a sojourner in the land of promise, he knew that even the promised l
 
 Through faith also Sara herself received strength to conceive seed, and was delivered of a child when she was past age, because she judged Him faithful who had promised. Sarah's faith was not like Abraham's, yet it was true faith and, therefore, her name appears among faith's worthies.
 
-12, 13. Therefore sprang there even of one, andhim as good as dead, so many as the stars ofthe sky in multitude, and as the sand which is by the seashore innumerable. These all died in faith, not having received the promises, but having seen them afar off, and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth. Though the promises could only be seen afar off, faith has such long arms that it embraced them, clung to them as loving relatives cling to one another and would not let them go. So may we see the promises, and be persuaded that they belong to us, and embrace them as we clasp to our bosom those who are nearest and dearest to us!
+Therefore sprang there even of one, andhim as good as dead, so many as the stars ofthe sky in multitude, and as the sand which is by the seashore innumerable. These all died in faith, not having received the promises, but having seen them afar off, and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth. Though the promises could only be seen afar off, faith has such long arms that it embraced them, clung to them as loving relatives cling to one another and would not let them go. So may we see the promises, and be persuaded that they belong to us, and embrace them as we clasp to our bosom those who are nearest and dearest to us!
 
-14, 15. For they that say such things declare plainly that they seek a country. And truly, if they had been mindful of that country from which they came out, they might have had opportunity to have returned. True pilgrims never think of going back&mdash;they know that whatever difficulties and trials lie ahead of them, there are far greater ones in "that country from which they came out." Bunyan's Christian was quite resolved not to go back to the City of Destruction whatever perils he might have to face on his way to the Celestial City.
+For they that say such things declare plainly that they seek a country. And truly, if they had been mindful of that country from which they came out, they might have had opportunity to have returned. True pilgrims never think of going back&mdash;they know that whatever difficulties and trials lie ahead of them, there are far greater ones in "that country from which they came out." Bunyan's Christian was quite resolved not to go back to the City of Destruction whatever perils he might have to face on his way to the Celestial City.
 
 But now they desire a better country, that is, an heavenly: therefore God is not ashamed to be called their God: for He has prepared for them a city. Their desire for "a better country" has been implanted within them by God, Himself, and "He has prepared for them a city" which will more than satisfy their utmost desires.
 
-17-19. By faith Abraham, when he was tried, offered up Isaac: and he that had received the promises offered up his only begotten son, of whom it was said, That in Isaac shallyour seed be called: accounting that God was able to raise him up, even from the dead; from whence also he received him in a figure. However puzzled Abraham may have been by the command to offer up the son in whom his seed was to be called, his plain duty was to obey that command and to leave the Lord to fulfill His own promise in His own way. Perhaps he had also learned, through his mistake concerning Ishmael, that God's way of fulfilling His promise might not be his way&mdash;and that God's way was always best.
+By faith Abraham, when he was tried, offered up Isaac: and he that had received the promises offered up his only begotten son, of whom it was said, That in Isaac shallyour seed be called: accounting that God was able to raise him up, even from the dead; from whence also he received him in a figure. However puzzled Abraham may have been by the command to offer up the son in whom his seed was to be called, his plain duty was to obey that command and to leave the Lord to fulfill His own promise in His own way. Perhaps he had also learned, through his mistake concerning Ishmael, that God's way of fulfilling His promise might not be his way&mdash;and that God's way was always best.
 
 By faith Isaac blessed Jacob and Esau concerning things to come. He was old and blind, so that he did not know which of his sons came for the first blessing, yet he could see into the future sufficiently to bless both his sons "concerning things to come." What wondrous power there is in faith even when it is exercised by very imperfect individuals!
 
