@@ -75,9 +75,9 @@ Sinner, that is not true! But it is true that "light is sown for the righteous, 
 
 May God bless you, for Christ's sake! Amen.
 
-Exposition by C. H. Spurgeon: Isaiah 43:1-19.
+## Exposition by C. H. Spurgeon: Isaiah 43:1-19.
 
-Verse 1. But now thus says the Lord that created you, O Jacob, and He that formed you, O Israel The Lord reminds us that He first created us, and that He afterwards molded us. We are like Jacob by nature, but He has made us Israel by Grace.
+But now thus says the Lord that created you, O Jacob, and He that formed you, O Israel The Lord reminds us that He first created us, and that He afterwards molded us. We are like Jacob by nature, but He has made us Israel by Grace.
 
 Fear not: for I have redeemed you, I have called you by your name; you are Mine. Redemption is a deep well of comfort. If the Lord has indeed bought us with His blood, He will not think lightly of us. And if He has called us by name and declared that we belong to Him, we may rest assured that He will not lose His own property, but that He will preserve it to the end.
 
@@ -87,15 +87,15 @@ and trouble&mdash;we shall have to go through waters and rivers, and shall have 
 
 through much tribulation that we must enter the Kingdom of God. But He does promise that no harm shall come to us from it all. "We know that all things work together for good to them that love God"&mdash;that waters, rivers, fires and flames bring us benefits and blessings&mdash;and that they shall none of them bring a curse upon us.
 
-3, 4. For I am the Lord your God, the Holy One of Israel, your Savior I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable.  God puts honor upon His beloved ones.
+For I am the Lord your God, the Holy One of Israel, your Savior I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable.  God puts honor upon His beloved ones.
 
 They were in themselves dishonorable, for they had nothing of goodness about them until the Lord imparted it to them.
 
 And I have loved you. God loved His ancient people Israel. He has always loved His Church and He still loves Believers.
 
-4, 5. Therefore will I give men for you, and people for your life. Fear not: for I am with you. It is enough for a child that his mother is near him, or that his father is with him&mdash;then is it not enough for you, O child of God, that God is with you? Israel was scattered when Isaiah wrote this prophecy, and would be afterwards scattered far and wide over the face of the earth. So God gave this comforting assurance, "fear not: for I am with you."
+Therefore will I give men for you, and people for your life. Fear not: for I am with you. It is enough for a child that his mother is near him, or that his father is with him&mdash;then is it not enough for you, O child of God, that God is with you? Israel was scattered when Isaiah wrote this prophecy, and would be afterwards scattered far and wide over the face of the earth. So God gave this comforting assurance, "fear not: for I am with you."
 
-5, 6. I will bring your seed from the east, and gather you from the west; I will say to the north, Give up; and to the south, Keep not back: bring My sons from far, and My daughters from the ends of the earh.  God's chosen ones have
+I will bring your seed from the east, and gather you from the west; I will say to the north, Give up; and to the south, Keep not back: bring My sons from far, and My daughters from the ends of the earh.  God's chosen ones have
 
 wandered very far away from Him, but the Great Shepherd of the sheep, who bought them with His blood, will gather them and there shall be one flock and one Shepherd.
 
@@ -111,7 +111,7 @@ You are My witness, says the Lord. The chosen people of God have become witnesse
 
 And My servant whom Ihave chosen.  That great Servant of God, you know His name, even Christ Jesus the faithful and true Witness, bears better witness for God than the whole nation of the Jews, or the Lord's chosen people in all ages can bear!
 
-10, 11. That you may know and believe Me, and understand that I am He: before Me there was no God formed, neither shall there be after Me. I, even I, am the Lord; and beside Me there is no Savior. Look the whole world over and see where there is any Savior for sinners except Jesus Christ. Does any other religion even profess to have a Savior? Destroyers they have, but where is their Savior?
+That you may know and believe Me, and understand that I am He: before Me there was no God formed, neither shall there be after Me. I, even I, am the Lord; and beside Me there is no Savior. Look the whole world over and see where there is any Savior for sinners except Jesus Christ. Does any other religion even profess to have a Savior? Destroyers they have, but where is their Savior?
 
 Ihave declared, and have saved. "I said that I would save, and I have saved."
 
@@ -125,7 +125,7 @@ And there is none that can deliver out of My hand: I will work, and who shall le
 
 Thus says the Lord, your Redeemer, the Holy One of Israel; For your sake I have sent to Babylon, and have brought down all their nobles, and the Chaldeans, whose cry is in the ships. Up the broad river Euphrates, and down to the Persian Gulf, Babylon and Chaldea gloried in their greatness, but God sent the Medo-Persian power to break them in pieces for the sake of His people, that Cyrus might let them go free!
 
-15-17. I am the Lord, your Holy One, the Creator of Israel, your King. Thus says the Lord, which makes a way in the sea, and a path in the mighty waters; which brings forth the chariot and horse, the army and the power; they shall lie down together, they shall not rise: they are extinct, they are quenched as tow. Like the wick of a lamp, soon put out. Here is, probably, an illusion to the overthrowing of Egypt at the Red Sea&mdash;they came out with their horses and chariots, but they were made to lie down together in the sea. God overcame His people's enemies then and He can and will do the same to the end of the chapter.
+I am the Lord, your Holy One, the Creator of Israel, your King. Thus says the Lord, which makes a way in the sea, and a path in the mighty waters; which brings forth the chariot and horse, the army and the power; they shall lie down together, they shall not rise: they are extinct, they are quenched as tow. Like the wick of a lamp, soon put out. Here is, probably, an illusion to the overthrowing of Egypt at the Red Sea&mdash;they came out with their horses and chariots, but they were made to lie down together in the sea. God overcame His people's enemies then and He can and will do the same to the end of the chapter.
 
 Remember you not the former things, neither consider the things of old. Do not look merely upon what God has done; but look to the future and remember that He is able to do the same again.
 
