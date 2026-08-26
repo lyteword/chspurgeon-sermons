@@ -1,6 +1,7 @@
 # Sermon 1402 | "Lead Us Not Into Temptation"
 
-"Lead us not into temptation." Matthew 6:13.
+> Lead us not into temptation.
+> Matthew 6:13
 
 LOOKING over a book of addresses to young people the other day, I met with the outline of a discourse which struck me as being a perfect gem. I will give it to you. The text is the Lord's prayer and the exposition is divided into most instructive heads. "Our Father which are in Heaven"&mdash;a child away from home. "Hallowed be Your name"&mdash;a worshipper. "Your kingdom come"&mdash;a subject. "Your will be done in earth, as it is in Heaven"&mdash;a servant. "Give us this day our daily bread"&mdash;a beggar. "And forgive us our debts as we forgive our debtors"&mdash;a sinner. "And lead us not into temptation, but deliver us from evil"&mdash; a sinner in danger of being a still greater sinner.
 

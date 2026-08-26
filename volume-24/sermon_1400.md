@@ -1,6 +1,7 @@
 # Sermon 1400 | With the King for His Work!
 
-"These were the potters, and those that dwelt among plants and hedges: there they dwelt with the king for his work." 1 Chronicles 4:23.
+> These were the potters, and those that dwelt among plants and hedges: there they dwelt with the king for his work.
+> 1 Chronicles 4:23
 
 (a slogan for Sunday school teachers).
 

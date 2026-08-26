@@ -1,6 +1,7 @@
 # Sermon 1430 | Refined, But Not With Silver
 
-"Behold, I have refined you, but not with silver; I have chosen you in the furnace of affliction." Isaiah 48:10.
+> Behold, I have refined you, but not with silver; I have chosen you in the furnace of affliction.
+> Isaiah 48:10
 
 THE Lord refines His people, but He exercises great discrimination as to the means by which He does so. A silver furnace is one of the very best for the removal of dross and would seem to be well adapted for refining the most precious things, but it is not choice enough for the Lord's purpose with His people. It is prepared with extreme care and has great separating power, but the purging away of sin needs greater care and more cleansing energy than a silver refinery can supply. The greatest delicacy of skill is exhibited by the refiner who watches over the process and regulates the degree of heat and the length of time in which the precious metal shall lie in the crucible&mdash;this, then, might well serve as a figure of the best mode of sanctification&mdash;but evidently the figure falls short in its delicacy.
 

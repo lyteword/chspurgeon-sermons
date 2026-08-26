@@ -1,6 +1,7 @@
 # Sermon 1415 | Great Difference
 
-"Where is the God of Judgment?" Malachi 2:17.
+> Where is the God of Judgment?
+> Malachi 2:17
 
 "Then shall you return, and discern between the righteous and the wicked, between him that serves God and him that serves Him not." Malachi 3:18.
 

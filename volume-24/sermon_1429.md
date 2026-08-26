@@ -1,6 +1,7 @@
 # Sermon 1429 | Faith's Sure Foundation
 
-"He that believes on Him shall not be confounded." 1 Peter 2:6.
+> He that believes on Him shall not be confounded.
+> 1 Peter 2:6
 
 MY sermon last Sabbath morning  was upon the true position of the witness within and I then tried to show that the guarantee and ground of our believing in Christ unto eternal life is the witness which God Himself has borne concerning His Son. Not our feelings, or experiences, but the testimony of God is to stand to us as the reason for our believing. I tried to set forth that doctrine very clearly and I have been greatly delighted to find that the blessing of God rendered it effectual. I have met with five young men who have each one said, "If this believing in Christ because God has set Him forth and borne witness to Him, is really the way of salvation, then we are saved and we come forward to declare that we are on the Lord's side."
 

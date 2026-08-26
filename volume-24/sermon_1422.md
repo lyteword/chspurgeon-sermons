@@ -1,6 +1,7 @@
 # Sermon 1422 | The Chief Physician and the Centurion's Servant
 
-"Jesus said unto him I will come and heal him." Matthew 8:7.
+> Jesus said unto him I will come and heal him.
+> Matthew 8:7
 
 "And Jesus said unto the centurion, Go your way; and as you have believed, so be it done unto you." Matthew 8:13.
 
