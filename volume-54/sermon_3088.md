@@ -76,7 +76,7 @@ As for you who are saved by Christ, see what you owe Him. By every groan He suff
 
 Hymns from "Our Own Hymn Book"&mdash;291, 406.
 
-Exposition by C. H. Spurgeon: Psalm22.
+## Exposition by C. H. Spurgeon: Psalm22.
 
 This Psalm so sweetly and so accurately pictures the inward griefs of our Divine Savior that it might have been
 
@@ -90,17 +90,17 @@ weep out the twenty-second Psalm, which begins with our Savior's saddest cry fro
 
 My God, My God! Why have You forsaken Me? Every word here is emphatic. Take the first two words "My God, My God. "These reveal our Savior's claim upon God as His God. Why have You forsaken Me? I can understand that others should leave Me, but why have You done so?" Then lay the stress upon the last word&mdash;"'Why have You forsaken Me&mdash;Your only begotten Son, your ever-obedient Son, your well-beloved Son?"
 
-1, 2. Why are You so far from helping Me, and from the words of My roaring? O My God, I cry in the daytime, but You hear not; and in the night season, and am not silent. See our Savior hanging on the Cross! Hear Him utter these sorrowful words and remember that He had come up from Gethsemane, all crimson with the bloody sweat which had oozed from every pore as He had agonized in prayer&mdash;yet no deliverance had come to Him, for God had left Him to die in accordance with the Covenant into which He had voluntarily entered.
+Why are You so far from helping Me, and from the words of My roaring? O My God, I cry in the daytime, but You hear not; and in the night season, and am not silent. See our Savior hanging on the Cross! Hear Him utter these sorrowful words and remember that He had come up from Gethsemane, all crimson with the bloody sweat which had oozed from every pore as He had agonized in prayer&mdash;yet no deliverance had come to Him, for God had left Him to die in accordance with the Covenant into which He had voluntarily entered.
 
 But You are holy, O You that inhabit the praises of Israel. He will not bring any charge against God, even though He has left Him. And, Beloved, in your bitterest griefs never lay any blame upon your God. Like Job, say, "Shall we receive good at the hand of God, and shall we not receive evil? The Lord gave, and the Lord has taken away; blessed be
 
 the name of the Lord." 
 
-4-6. Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and no man.&mdash;So low did Christ stoop, for our sake, that He became less than man! There is a little crimson worm, to which this passage alludes, which seems to be made altogether of blood&mdash;and Christ felt as if He were nothing but a mass of suffering, a poor trodden "worm, and no man."
+Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and no man.&mdash;So low did Christ stoop, for our sake, that He became less than man! There is a little crimson worm, to which this passage alludes, which seems to be made altogether of blood&mdash;and Christ felt as if He were nothing but a mass of suffering, a poor trodden "worm, and no man."
 
-6-8. A reproach of men, and despised of the people. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him. It is very easy to read these words, or to hear them read, but it is not so easy to realize the sorrow they must have caused Christ. He was dying, in unutterable agonies, yet His cruel enemies thrust out their tongues at Him, hissed their bitter taunts and made a jest even of His prayers. If you have ever been in great suffering and have then been ridiculed, you know something of the acute anguish that must have been felt by our Savior when He was dying amidst mockery and scorn without a friend to help Him.
+A reproach of men, and despised of the people. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him. It is very easy to read these words, or to hear them read, but it is not so easy to realize the sorrow they must have caused Christ. He was dying, in unutterable agonies, yet His cruel enemies thrust out their tongues at Him, hissed their bitter taunts and made a jest even of His prayers. If you have ever been in great suffering and have then been ridiculed, you know something of the acute anguish that must have been felt by our Savior when He was dying amidst mockery and scorn without a friend to help Him.
 
-9-11. But You are He that took Me out ofthe womb: You didmake Me hope when I was upon Mymother's breasts. I was cast upon You from the womb: You are My God from My mother's belly. Be not far from Me; for trouble is near; for there is none to help. Men recollect how God took care of them in the time of their infancy. And when they are brought very low, they look to Him who guarded them in the times when they could not lift a finger to help themselves. The Savior did so. He was peculiarly born of God&mdash;there was a specialty about His birth which entitled Him to plead it when He was in His death throes.
+But You are He that took Me out ofthe womb: You didmake Me hope when I was upon Mymother's breasts. I was cast upon You from the womb: You are My God from My mother's belly. Be not far from Me; for trouble is near; for there is none to help. Men recollect how God took care of them in the time of their infancy. And when they are brought very low, they look to Him who guarded them in the times when they could not lift a finger to help themselves. The Savior did so. He was peculiarly born of God&mdash;there was a specialty about His birth which entitled Him to plead it when He was in His death throes.
 
 Many bulls have compassedMe: strong bulls ofBashan have beset Me round. He was looking on the Scribes and Pharisees, and the strong Roman soldiers who made a ring around the Cross.
 
@@ -118,11 +118,11 @@ And My tongue cleaves to My jaws; and You have brought Me into the dust of death
 
 For dogs have compassed Me. There is the ribald crowd, the common multitude, howling at Him and eager for His blood.
 
-16, 17. The assembly ofthe wicked have enclosed Me: they pierced My hands and My feet I may count all My bones: they look and stare upon Me. They had stripped Him and this was no small part of the Savior's grief and shame that He hung there a spectacle of scorn to ten thousand cruel eyes that looked and stared at Him.
+The assembly ofthe wicked have enclosed Me: they pierced My hands and My feet I may count all My bones: they look and stare upon Me. They had stripped Him and this was no small part of the Savior's grief and shame that He hung there a spectacle of scorn to ten thousand cruel eyes that looked and stared at Him.
 
 They part My garments among them, and cast lots upon My vesture. Now He returns to prayer&mdash;
 
-19-21. But be not You far from Me, O Lord: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power ofthe dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. He had been delivered before and He expected deliverance again. And He had it, but He had to pass through the iron gates of death to get it and to win the victory over death by His own death! Now there is a change in the Psalm. The Savior's griefs are drawing to an end and He begins to look at the result of His passion. He sees what is to follow from His Crucifixion and He talks thus to Himself&mdash;
+But be not You far from Me, O Lord: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power ofthe dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. He had been delivered before and He expected deliverance again. And He had it, but He had to pass through the iron gates of death to get it and to win the victory over death by His own death! Now there is a change in the Psalm. The Savior's griefs are drawing to an end and He begins to look at the result of His passion. He sees what is to follow from His Crucifixion and He talks thus to Himself&mdash;
 
 I will declare Your name unto My brethren. "I shall live again. I shall see Peter and James and John, and many more whom I have loved&mdash;and I will talk with them about My Father."
 
@@ -130,9 +130,9 @@ In the midst of the congregation will I praise You. He knew that He would rise f
 
 praise God in the midst of His brethren.
 
-23, 24. You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction ofthe afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. He is telling Himself, in the little quiet interval just before He breathed out His soul, what His testimony would be concerning God&mdash;how He did hear Him and help Him at the last.
+You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel For He has not despised nor abhorred the affliction ofthe afflicted; neither has He hid His face from Him; but when He cried unto Him, He heard. He is telling Himself, in the little quiet interval just before He breathed out His soul, what His testimony would be concerning God&mdash;how He did hear Him and help Him at the last.
 
-25, 26. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the Lord that seek Him. . He is Still talking to Himself about what WOuld happen after
+My praise shall be of You in the great congregation: I will pay My vows before them that fear Him. The meek shall eat and be satisfied: they shall praise the Lord that seek Him. . He is Still talking to Himself about what WOuld happen after
 
 His death and Resurrection&mdash;how gracious men would praise the Lord and how He, Himself, would live again to praise God among them! He so realizes the existence of those whom He has redeemed, that He seems to talk to them as if they were actually present. He says&mdash;
 
@@ -142,7 +142,7 @@ All the ends of the world shall remember and turn unto the Lord; and all the kin
 
 For the Kingdom is the Lord's: and He is the governor among the nations. See how He distributes crowns, and talks of thrones, just as He is about to die&mdash;so sure is He that His soul shall not rest in Hades, neither shall His holy body see corruption, but that He shall rise again and be forever "King of kings, and Lord of lords."
 
-29-31. All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive His own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. They shall come. I should have liked to hear those syllables fall from those dear lips of His. "They shall come," He says to Himself. "They shall come"&mdash;
+All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive His own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. They shall come. I should have liked to hear those syllables fall from those dear lips of His. "They shall come," He says to Himself. "They shall come"&mdash;
 
 Andshall declare His righteousness unto apeople that shall be born. He sees the great host of the regenerate, the twice-born, who shall be saved through His death.
 
