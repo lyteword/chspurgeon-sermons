@@ -1,6 +1,7 @@
 # Sermon 2882 | Forgiveness and Fear
 
-"There is forgiveness with You, that You may be feared." Psalm 130:4.
+> There is forgiveness with You, that You may be feared.
+> Psalm 130:4
 
 THIS is good news, indeed&mdash;the best of news&mdash;and they will prize it most who are like the Psalmist was when he wrote these words. And who are they?
 

@@ -1,7 +1,7 @@
 # Sermon 2867 | The Life-look
 
-"Look unto Me, and be you saved, all the ends of the earth: for I am God, and there is no other." Isaiah 45:22.
-
+> Look unto Me, and be you saved, all the ends of the earth: for I am God, and there is no other.
+> Isaiah 45:22
 
 "That is all you have to do! A child can look! One who is almost an idiot can look! However weak, or however poor a man may be, he can look! And if he looks, the promise is that he shall live." Then, stopping, he pointed to where I was sitting under the gallery and he said, "That young man there looks very miserable." I expect I did, for that is how I felt. Then he said, "There is no hope for you, young man, or any chance of getting rid of your sin but by looking to Jesus." And he shouted, as I think only a Primitive Methodist can, "Look! Look, young man! Look now!" And I did look and when they sang a hallelujah before they went home, in their own earnest way, I am sure I joined in it. It happened to be a day when the snow was lying deep and more was falling, so, as I went home, those words of David kept ringing through my heart, "Wash me and I shall be whiter than snow"&mdash;and it seemed as if all Nature was in accord with that blessed deliverance from sin which I had found in a single moment by looking to Jesus Christ!
 

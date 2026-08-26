@@ -1,6 +1,7 @@
 # Sermon 2887 | A Dire Disease Strangely Cured
 
-"With His stripes we are healed." Isaiah 53:5.
+> With His stripes we are healed.
+> Isaiah 53:5
 
 "By whose stripes you were healed." 1 Peter 2:24.
 

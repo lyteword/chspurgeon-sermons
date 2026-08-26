@@ -1,8 +1,7 @@
 # Sermon 2915 | A Visit to Bethlehem
 
-"Let us now go to Bethlehem and see this thing which is come to pass, which the Lord has made known unto us." Luke 2:15.
-
-
+> Let us now go to Bethlehem and see this thing which is come to pass, which the Lord has made known unto us.
+> Luke 2:15
 
 (Notwithstanding the above note, which is in Mr. Spurgeon's handwriting on the manuscript of the sermon, the publishers cannot find any trace of its publication. They are very glad to be able to issue it just 50 years after it was preached).
 

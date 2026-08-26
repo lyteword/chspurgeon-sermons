@@ -1,6 +1,7 @@
 # Sermon 2871 | Anxiety, Ambition, Indecision
 
-"Neither be you of a doubtful mind." Luke 12:29.
+> Neither be you of a doubtful mind.
+> Luke 12:29
 
 THE chief concern of a man should be to see that his own soul is right in the sight of God. Solomon said, "Keep your heart with all diligence; for out of it are the issues of life." Many persons think a great deal about the adorning of the body, but do not think anything about the ornaments of the soul. The feeding of the physical frame engrosses much care, but the supply of spiritual food is often neglected. Yet, O Man, you yourself are better than your body! Your immortal soul is worth far more than that poor carcass of yours which will soon become food for worms! And all the things that you have, what are they compared with your inner self&mdash;your real self&mdash;your heart, your soul, your spirit?
 
