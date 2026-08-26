@@ -1,6 +1,7 @@
 # Sermon 2396 | Eternal Life!
 
-"This is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sent." John 17:3.
+> This is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sent.
+> John 17:3
 
 "We are in Him that is true, even in His Son, Jesus Christ. This is the true God, and eternal life. Little children, keep yourselves from idols." 1 John 5:20,21.
 

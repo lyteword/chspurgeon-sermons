@@ -1,6 +1,7 @@
 # Sermon 2433 | Heman's Sorrowful Psalm
 
-"But unto You have I cried, O Lord; and in the morning shall my prayer come before You." Psalm 88:13.
+> But unto You have I cried, O Lord; and in the morning shall my prayer come before You.
+> Psalm 88:13
 
 WHAT misery of soul some persons endure before they find peace with God! There is no need that it should be so with them&mdash;their anguish often arises from a mistake. The Gospel is very simple&mdash;it is just&mdash;"Believe and live." He that believes in the Lord Jesus Christ is not condemned&mdash;he at once receives pardon, passes from death unto life&mdash;and he shall never come into condemnation. But a very large number of persons will not go the straight road to Heaven. They cannot believe that it is the right road, so they get troubled in their thoughts&mdash;tumbled up and down in their minds&mdash;as John Bunyan puts it. They go staggering over dark mountains, stumbling and falling, wounding and bruising themselves, and it is a long time before they come out into the light and joy of peace in believing. I would recommend you young people, especially, to take the straight way to salvation by trusting in Jesus just as you are. You shall, by doing so, avoid the poor pilgrim's Slough of Despond and many other things that might trouble and burden you. But, as I know that many do go round about and so get troubled and perplexed, I am going to talk to them from these words of the Psalmist.
 

@@ -1,6 +1,7 @@
 # Sermon 2439 | Five Links in a Golden Chain
 
-"To Titus, my own  son after the common faith: Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Savior." Titus 1:4.
+> To Titus, my own  son after the common faith: Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Savior.
+> Titus 1:4
 
 AMONG the friends of Paul, Titus was one of the most useful and one of the best beloved. Paul was the Apostle to the Gentiles and Titus was a Gentile. I should suppose that both his parents were Gentiles and, in this respect, he differed from Timothy, whose mother was a Jewess. Timothy would well serve as a preacher to the circumcision, but Titus would be a man after Paul's heart as a preacher to the Gentiles. He seems to have been a man of great common sense, so that, when Paul had anything difficult to be done, he sent Titus. When the collection was to be made at Corinth on behalf of the poor saints at Jerusalem, Paul sent Titus to stir the members up and, with him, another brother to take charge of the contributions. Titus appears to have been a man of business capacity and strict honesty, as well as a man who could order the Church aright and preach the Gospel with power.
 

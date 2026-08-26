@@ -1,6 +1,7 @@
 # Sermon 2430 | Christians, and Their Communion With God
 
-"Yes, in the way of Your judgments, O Lord have we waited for You, the desire of our soul is for Your name, and for the remembrance of You. With my soul have I desired You in the night; yes, by my spirit within me will I seek You early." Isaiah 26:8,9.
+> Yes, in the way of Your judgments, O Lord have we waited for You, the desire of our soul is for Your name, and for the remembrance of You. With my soul have I desired You in the night; yes, by my spirit within me will I seek You early.
+> Isaiah 26:8,9
 
 IT is something when a man truly knows that there is a God. Behind the doubt of the existence of God, many men shield themselves and permit themselves to indulge in iniquities of which they might be ashamed if they did not make a cloak of their atheism. I would have no man live doubting the existence of God&mdash;such a doubt cannot help him to live better&mdash;it may cause him to live much worse.
 

@@ -1,6 +1,7 @@
 # Sermon 2422 | "There Is Forgiveness"
 
-"But there is forgiveness with You, that You may be feared." Psalm 130:4.
+> But there is forgiveness with You, that You may be feared.
+> Psalm 130:4
 
 HAVE you noticed the verse which comes before the text? It runs thus, "If You, Lord, should mark iniquities, O Lord, who shall stand?" That is a confession. Now, confession must always come before absolution. "If we confess our sins, He is faithful and just to forgive us our sins." If we try to cloak our sin, "if we say that we have no sin, we deceive ourselves, and the truth is not in us," and no pardon can come from God to us. Therefore, plead guilty, plead guilty! You ought to do it, for you are guilty. You will find it wisest to do it, for this is the only way to obtain mercy. Cast yourself upon the mercy of your Judge and you shall find mercy&mdash;but first acknowledge that you need mercy. Be honest with your conscience and honest with your God&mdash;confess the iniquity which you have done and mourn over the righteousness to which you have not attained.
 
