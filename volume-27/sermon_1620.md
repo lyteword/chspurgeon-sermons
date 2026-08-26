@@ -1,6 +1,7 @@
 # Sermon 1620 | Is It Nothing To You?
 
-"Is it nothing to you, all you that pass by? Behold and see if there is any sorrowlike unto my sorrow, which is done unto me, with which the Lord has afflicted me in the day of His fierce anger." Lamentations 1:12.
+> Is it nothing to you, all you that pass by? Behold and see if there is any sorrowlike unto my sorrow, which is done unto me, with which the Lord has afflicted me in the day of His fierce anger.
+> Lamentations 1:12
 
 On a night when the Tabernacle was thrown open to all comers, the ordinary hearers vacating their seats for the occasion.
 

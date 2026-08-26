@@ -1,6 +1,7 @@
 # Sermon 1624 | Welcome! Welcome!
 
-"And the people, when they knew it, followed Him: and He received them, and spoke unto them of the kingdom of God, and healed them that had need of healing." Luke 9:11.
+> And the people, when they knew it, followed Him: and He received them, and spoke unto them of the kingdom of God, and healed them that had need of healing.
+> Luke 9:11
 
 MY subject has been suggested to me by the rendering of this passage given in the Revised Version, where we read&mdash; "But the multitudes perceiving it, followed Him; and He welcomed them." The difference lies, you see, between the words, "He received them," and, "He welcomed them." The new version is an instructive improvement, of which we will, at once, make evangelical use. The multitude perceived that Jesus was departing and began to value His Presence, all the more, because they feared the loss of it. They could not tell where He might go, nor for how long, and they could not afford to part with Him&mdash;therefore no sooner did they see the boat leave with Him, than, watching the direction in which it was steered, they hastened along the shore to overtake Him at His landing.
 

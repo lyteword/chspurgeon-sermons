@@ -1,6 +1,7 @@
 # Sermon 1575 | The Sitting of the Refiner
 
-"And He shall sit as a refiner and purifier of silver: and He shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness." Malachi 3:3.
+> And He shall sit as a refiner and purifier of silver: and He shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness.
+> Malachi 3:3
 
 THIS is spoken of as one of the results of the coming of the Lord&mdash;He would test and try all things, destroy the false and the evil and make those pure whom He permitted to remain. Behold, the Promised One has come! He whom Israel sought suddenly appeared in His Temple as the Messenger of the Covenant. Glad were the eyes of Simeon, Anna and all those who waited for Him&mdash;and glad, this day, are our voices as we proclaim that the Messiah has appeared! The glorious Son of God, the Anointed of the Most High has been among men and faithful witnesses have testified concerning Him, "We beheld His glory, the glory as of the Only Begotten of the Father, full of Grace and truth."
 

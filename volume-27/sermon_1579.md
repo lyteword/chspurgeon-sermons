@@ -1,6 +1,7 @@
 # Sermon 1579 | Roads Cleared
 
-"Cast you up, cast you up, prepare the way, take up the stumbling block out of the way of My people." Isaiah 57:14.
+> Cast you up, cast you up, prepare the way, take up the stumbling block out of the way of My people.
+> Isaiah 57:14
 
 (Preached on an evening when the Tabernacle was left to strangers).
 

@@ -1,6 +1,7 @@
 # Sermon 1623 | Wholehearted Religion
 
-"And I will give them one heart, and one way, that they may fear Me forever, for the good of them, and of their children after them." Jeremiah 32:39.
+> And I will give them one heart, and one way, that they may fear Me forever, for the good of them, and of their children after them.
+> Jeremiah 32:39
 
 THOSE of you who were present last Lord's-Day morning will remember my sermon upon "Mongrel Religion,"  in which I dealt with those who feared the Lord and served other gods. Their heart was divided and, therefore, they were found faulty. They had, as the Hebrew puts it, a heart and a heart&mdash;a heart that went this way and a heart that went the other way. And so, as a matter of fact, they became, as the Prophet says, as "a silly dove that has no heart." The discourse of this morning is intended to exhibit wholehearted religion which is the opposite of the sad mixture which we have so lately denounced. We wish to look upon persons of Caleb's stamp, who followed the Lord fully&mdash; in whom, by the Grace of God, the divided heart has become united&mdash;so that with their whole heart they serve the Lord their God.
 

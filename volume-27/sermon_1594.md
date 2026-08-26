@@ -1,6 +1,7 @@
 # Sermon 1594 | The Candle
 
-"Neither do men light a candle and put it under a bushel, but on a candlestick; and it gives light unto all that are in the house. Let your light so shine before men, that they may see your good works, and glorify your Father which is in Heaven." Matthew 5:15,16
+> Neither do men light a candle and put it under a bushel, but on a candlestick; and it gives light unto all that are in the house. Let your light so shine before men, that they may see your good works, and glorify your Father which is in Heaven.
+> Matthew 5:15,16
 
 OUR Savior was speaking of the influence of His disciples upon their fellow men and He, first of all, mentioned that secret but powerful influence which He describes under the figure of salt&mdash;"You are the salt of the earth." No sooner is a man born unto God than he begins to influence men with an influence which is rather felt than seen. The very existence of a Believer operates upon unbelievers. He is like a handful of salt cast upon flesh&mdash;he has a savor in himself and this penetrate those who are in contact with him. The unobserved, almost unconscious influence, of a holy life is most effectual to serving society and the prevention of moral putrefaction. May there be salt in every one of us, for, "salt is good." Have salt in yourselves and then you will become a blessing to all around you.
 

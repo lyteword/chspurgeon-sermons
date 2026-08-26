@@ -1,6 +1,7 @@
 # Sermon 1633 | Sarah and Her Daughters
 
-"Look unto Abraham your father, and unto Sarah that bore you." Isaiah 51:2.
+> Look unto Abraham your father, and unto Sarah that bore you.
+> Isaiah 51:2
 
 "Even as Sara obeyed Abraham, calling him lord: whose daughters you are, as long as you do well, and are not afraid with any amazement." 1 Peter3:6.
 

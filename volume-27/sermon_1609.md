@@ -1,6 +1,7 @@
 # Sermon 1609 | Faith&mdash;What Is It? How Can It Be Obtained?
 
-"By Grace are you saved through faith." Ephesians 2:8.
+> By Grace are you saved through faith.
+> Ephesians 2:8
 
 I MEAN to dwell mainly upon that expression, "Through faith." I call attention, however, first of all, to the foun-tainhead of our salvation, which is the Grace of God. "By Grace are you saved." Because God is gracious, therefore sinful men are forgiven, converted, purified and saved. It is not because of anything in them, or that ever can be in them, that they are saved, but because of the boundless love, goodness, pity, compassion, mercy and Grace of God. Tarry a moment, then, at the wellhead. Behold the pure river of Water of Life as it proceeds out of the Throne of God and of the Lamb. What an abyss is the Grace of God! Who can fathom it? Like all the rest of the Divine attributes, it is infinite! God is full of love, for "God is love." God is full of goodness&mdash;the very name, "God," is but short for, "good."
 

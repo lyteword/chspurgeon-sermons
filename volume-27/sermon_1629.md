@@ -1,6 +1,7 @@
 # Sermon 1629 | Two Good Things
 
-"It is good for me that I have been afflicted; that I might learn Your statutes." Psalm 119:71.
+> It is good for me that I have been afflicted; that I might learn Your statutes.
+> Psalm 119:71
 
 "It is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works." Psalm 73:28.
 

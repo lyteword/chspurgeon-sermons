@@ -1,6 +1,7 @@
 # Sermon 1630 | Four Choice Sentences
 
-"Behold I am with you." Genesis 28:15.
+> Behold I am with you.
+> Genesis 28:15
 
 "I will be with you." Genesis 31:3.
 
