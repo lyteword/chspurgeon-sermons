@@ -1,6 +1,7 @@
 # Sermon 2926 | The Love of Our Espousals
 
-"Go and cry in the ears of Jerusalem, saying, Thus says the Lord: I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown." Jeremiah 2:2.
+> Go and cry in the ears of Jerusalem, saying, Thus says the Lord: I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown.
+> Jeremiah 2:2
 
 BRETHREN, we may forget the past, but God does not. He says, "I remember you, the kindness of your youth." God's mercies come to us in such a constant stream&mdash;they are so many and so varied that we are very apt to have a feeble memory towards them. But the Lord remembers what He has done for us and He expects a return. He remembers the kindness which He showed to us in our youth&mdash;for so some interpreters read this passage&mdash;and He remembers the love which He manifested towards us in the days of our espousals. As the husbandman remembers how he plowed the land&mdash; how he dug about the tree and fed it and, therefore, looks for a better harvest, or a larger crop of fruit, so does God remember what He did for us in our youth&mdash;how some of us were trained in godly households&mdash;sent to schools where the main part of our education was the fear of God&mdash;tenderly kept out of the way of temptation&mdash;fostered and nurtured in every good word and work. God remembers this.
 

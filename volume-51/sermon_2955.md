@@ -1,6 +1,7 @@
 # Sermon 2955 | Simple But Sound
 
-"One thing I know, that whereas I was blind, now I see." John 9:25.
+> One thing I know, that whereas I was blind, now I see.
+> John 9:25
 
 DID it ever strike you how wonderfully calm and collected our Lord must have been at this time? He had been preaching in the Temple, talking to a multitude of Jews. They grew furious with Him&mdash;a number of stones which were used in repairing the temple were lying about on the floor and they took up those stones to cast at Him. He, by some means, forced a passage and escaped out of the midst of them&mdash;and when He came to the gate of the Temple with His disciples&mdash;who seem to have followed Him in the lane which He was able to make through the throng of His foes&mdash;He saw this blind man and, as if there had been no bloodthirsty foes at His heels, He stopped! He stopped as calmly as if an attentive audience had been waiting upon His lips&mdash;to look at the blind man. The disciples stopped, too, but they paused to ask questions.
 

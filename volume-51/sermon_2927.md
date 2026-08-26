@@ -1,6 +1,7 @@
 # Sermon 2927 | Love at Leisure
 
-"Mary, who also sat at Jesus'feet, and heard His Word." Luke 10:39.
+> Mary, who also sat at Jesus'feet, and heard His Word.
+> Luke 10:39
 
 MARY was full of a love to Christ which could be very active and self-sacrificing. I have read to you of her pouring the precious box of spikenard upon our Lord for His anointing. She was, therefore, one who not only waited and listened, but she served the Lord after her sort and fashion. If she had been simply contemplative and nothing more, we might, perhaps, have considered her somewhat of a one-sided character&mdash;and while pointing to that which was good in her as an example, we might have had to comment on her deficiencies. But she did more than sit at the Master's feet. Beloved, if we ever serve the Lord as Mary did, we shall do well.
 

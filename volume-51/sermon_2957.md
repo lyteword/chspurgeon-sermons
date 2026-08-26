@@ -1,6 +1,7 @@
 # Sermon 2957 | Advance!
 
-"The Lord our God spoke unto us in Horeb, saying, You have dwelt long enough in this mountain." Deuteronomy 1:6.
+> The Lord our God spoke unto us in Horeb, saying, You have dwelt long enough in this mountain.
+> Deuteronomy 1:6
 
 IT is a good thing, sometimes, to look back&mdash;to take a retrospective view of our life. It is a very bad thing to live upon the past&mdash;to say, "I believe I am a child of God because I had certain spiritual enjoyments and experiences 10 or 12 years ago." Ah, such stale fare as this will not feed hungry souls. They need present enjoyment, or, at least, present confidence in the ever-living God. Yet, Brothers and Sisters, we may sometimes gather fuel for today from the ashes of yesterday's fire. Remembering the mercies of God in the past, we may rest assured concerning the present and the future.
 
