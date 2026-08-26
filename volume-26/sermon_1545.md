@@ -1,6 +1,7 @@
 # Sermon 1545 | God Glorified By Children's Mouths
 
-"Out of the mouth of babes and sucklings ha ve You ordained strength because of Your enemies, that You might still the enemy and the Avenger." Psalm 8.2.
+> Out of the mouth of babes and sucklings ha ve You ordained strength because of Your enemies, that You might still the enemy and the Avenger.
+> Psalm 8.2
 
 IN CONNECTION WITH THE CENTENARY OF SUNDAY SCHOOLS
 

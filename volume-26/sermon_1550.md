@@ -1,6 +1,7 @@
 # Sermon 1550 | The Unspeakable Gift
 
-"Thanks be unto God for His unspeakable gift!" 2 Corinthians 9:15.
+> Thanks be unto God for His unspeakable gift!
+> 2 Corinthians 9:15
 
 PAUL had spoken of the liberality of the Corinthian Believers and he had endeavored to stir them up to a prudent preparation for displaying it. "Now, therefore," he said, "perform the doing of it, that as there was a readiness to will, so there may be a performance, also, out of that which you have." He closes his exhortation by this remarkable sentence&mdash;"Thanks be unto God for His unspeakable gift!"&mdash;intending, no doubt, to thereby give expression to his own hearty thankfulness and also to deliver a master stroke of argument for Christian liberality. Nothing can so excite God's people as to give to Him, as the remembrance of what God has given to them. "Freely you have received, freely give," is our Lord's own argument. Gospel Graces are best stimulated by Gospel motives.
 

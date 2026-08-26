@@ -1,6 +1,7 @@
 # Sermon 1541 | Unprofitable Servants
 
-"And cast you the unprofitable servant into outer darkness: there shall be weeping and gnashing of teeth." Matthew 25:30.
+> And cast you the unprofitable servant into outer darkness: there shall be weeping and gnashing of teeth.
+> Matthew 25:30
 
 "So likewise you, when you shall have done all those things which are commanded you, say, We are unprofitable servants: we ha ve done that which was our duty to do."
 

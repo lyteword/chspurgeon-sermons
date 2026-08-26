@@ -1,6 +1,7 @@
 # Sermon 1553 | Faith Working By Love
 
-"Faith which works by love." Galatians 5:6.
+> Faith which works by love.
+> Galatians 5:6
 
 ALL ways of justification by human works and outward forms are set aside by the Apostle. In one sentence he closes up every road which is cast up by man and opens up the way of the Lord, even the way of salvation by Grace through faith in Christ Jesus. Some hope to be saved by ritualism&mdash;their hopes are struck hip and thigh by these words, "Neither circumcision avails anything." On the other hand, many are relying upon their freedom from all ceremonies and place their reliance upon a sort of anti-ritualism&mdash;they are struck by the words, "nor uncircumcision." As Jews relied upon circumcision, so do many depend upon Baptism and sacraments&mdash;to these the Apostle gives no quarter. Others glory in uncircumcision&mdash;they have practiced no rites nor ceremonies&mdash;their mode of worship is plain even to unsightliness, free almost to disorder and of this they are apt to make a righteousness.
 

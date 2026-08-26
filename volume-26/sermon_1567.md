@@ -1,6 +1,7 @@
 # Sermon 1567 | The Blood of the Covenant
 
-"This is the blood of the Testament which God has enjoined unto you." Hebrews 9:20.
+> This is the blood of the Testament which God has enjoined unto you.
+> Hebrews 9:20
 
 [The original title of this sermon was The Blood of the Testament..
 

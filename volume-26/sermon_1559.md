@@ -1,6 +1,7 @@
 # Sermon 1559 | Tokens For Good
 
-"Show me a token for good; that they which hate me may see it and be ashamed: because You, Lord, have helped me and comforted me." Psalm 86:17.
+> Show me a token for good; that they which hate me may see it and be ashamed: because You, Lord, have helped me and comforted me.
+> Psalm 86:17
 
 I WOULD have you note, beloved Friends, at the outset, how this man of God, in the hour of conflict, looks to his Divine Protector. He does not run about to consult with friends, nor does he set himself down to digest his bitter sorrow in solitude, but he gets away to the Lord, his God, who has covenanted to help him. That same God who in his brightest days was his great joy, is, in his darkest night, his surest consolation. Therefore he cries, "Lord, show me a token for good. Show it! Let it come from You. All other signs and tokens I can forego, but You show me a token for good and my spirit will be revived at once." You see, he looks away from the secondary to the Primary, from the temporal to the Eternal&mdash;from that which he could see with his eyes&mdash;to Him whom, having not seen, he trusted and rejoiced in.
 
