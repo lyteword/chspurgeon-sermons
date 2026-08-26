@@ -84,26 +84,26 @@ Shall walk all day beneath His shade
 
 And there at night shall rest his head." Let this be your shield to keep off the thrusts of distress and this be your high rock against all the winds of sorrow! Amen.
 
-Exposition by C. H. Spurgeon: Psalm103.
+## Exposition by C. H. Spurgeon: Psalm103.
 
-Verse 1. Bless the Lord, O my Soul: and all that is within me, bless His holy name.  Come, my Heart, be down in the dumps no longer! Take your harp from the willows, tune its strings and begin to pour forth its music to the praise of Divine Love!
+Bless the Lord, O my Soul: and all that is within me, bless His holy name.  Come, my Heart, be down in the dumps no longer! Take your harp from the willows, tune its strings and begin to pour forth its music to the praise of Divine Love!
 
-2-4. Bless the Lord, O my Soul, and forget not all His benefits: who forgives all your iniquities, who heals all your diseases; who redeems your life from destruction; who crowns you with loving kindness and tender mercies. This is a better crown than any emperor ever wore, unless he, also, was a child of God. Priceless and rare gems and jewels adorn this wondrous coronet&mdash;"who crowns you with loving kindness and tender mercies."
+Bless the Lord, O my Soul, and forget not all His benefits: who forgives all your iniquities, who heals all your diseases; who redeems your life from destruction; who crowns you with loving kindness and tender mercies. This is a better crown than any emperor ever wore, unless he, also, was a child of God. Priceless and rare gems and jewels adorn this wondrous coronet&mdash;"who crowns you with loving kindness and tender mercies."
 
-5-9. Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. The Lord executes righteousness and judgment for all that are oppressed. He made known His ways unto Moses, His acts unto the children ofIsrael. The Lord is merciful and gracious, slow to anger, andplenteous in mercy. He willnot always chide.  Are you suffering His
+Who satisfies your mouth with good things; so that your youth is renewed like the eagle's. The Lord executes righteousness and judgment for all that are oppressed. He made known His ways unto Moses, His acts unto the children ofIsrael. The Lord is merciful and gracious, slow to anger, andplenteous in mercy. He willnot always chide.  Are you suffering His
 
 chiding just now? They are good for you, but they will not last forever. "He will not always chide."
 
-9, 10. Neither will He keep His anger forever He has not dealt with us after our sins. It is all of the Lord's mercies that we are not consumed. "He has not dealt with us after our sins."
+Neither will He keep His anger forever He has not dealt with us after our sins. It is all of the Lord's mercies that we are not consumed. "He has not dealt with us after our sins."
 
-10-12. Nor rewarded us according to our iniquities. For as the Heaven is high above the earth, so great is His mercy toward them that fear Him. As far as the east is from the west, so far has He removed our transgressions from us Then surely He will also
+Nor rewarded us according to our iniquities. For as the Heaven is high above the earth, so great is His mercy toward them that fear Him. As far as the east is from the west, so far has He removed our transgressions from us Then surely He will also
 
 remove our troubles from us! But if not, as He has removed our transgressions so far away that they can never be brought back again, we have real cause for joy whatever happens to us here.
 
 Like as a fatherpities his children, so the Lordpities them that fear Him.  The very best of them are only objects of pity. Though they are the best, they need that He should look down upon them with Infinite Compassion.
 
-14-19. For He knows our frame; He remembers that we are dust. As for man, his days are asgrass: as a flower ofthe field, so he flourishes. For the wind passes over it, and it is gone; and the place thereof shall know it no more. But the mercy of the Lord is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children; to such as keep His Covenant, and to those that remember His Commandments to do them. The Lord has prepared His Throne in the Heavens and His Kingdom rules over all. What a comfort this is for us! Over the great as well as over the little, over all parts of the earth, as well where war rages as where peace reigns, "His Kingdom rules over all." Nothing happens without His permission! Even the little things of life are ordered by Him! The foreknown station of a rush by the riverside is as fixed as the place of a king&mdash;and the chaff from the hand of the winnower is steered as surely as the stars in their courses, for to God nothing is little and nothing is great.
+For He knows our frame; He remembers that we are dust. As for man, his days are asgrass: as a flower ofthe field, so he flourishes. For the wind passes over it, and it is gone; and the place thereof shall know it no more. But the mercy of the Lord is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children; to such as keep His Covenant, and to those that remember His Commandments to do them. The Lord has prepared His Throne in the Heavens and His Kingdom rules over all. What a comfort this is for us! Over the great as well as over the little, over all parts of the earth, as well where war rages as where peace reigns, "His Kingdom rules over all." Nothing happens without His permission! Even the little things of life are ordered by Him! The foreknown station of a rush by the riverside is as fixed as the place of a king&mdash;and the chaff from the hand of the winnower is steered as surely as the stars in their courses, for to God nothing is little and nothing is great.
 
-20, 21. Bless the Lord, you His angels that excel in strength, that do His commandments, hearkening unto the voice of His word. Bless you the Lord, all you His hosts. "Let all the armies of Heaven break forth into one song&mdash; "Bless you the Lord, all you His hosts."
+Bless the Lord, you His angels that excel in strength, that do His commandments, hearkening unto the voice of His word. Bless you the Lord, all you His hosts. "Let all the armies of Heaven break forth into one song&mdash; "Bless you the Lord, all you His hosts."
 
-21, 22. You ministers of His, that do His pleasure. Bless the Lord, all His works in all places of His dominion: bless the Lord, O my Soul.
+You ministers of His, that do His pleasure. Bless the Lord, all His works in all places of His dominion: bless the Lord, O my Soul.
