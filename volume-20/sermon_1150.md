@@ -1,6 +1,7 @@
 # Sermon 1150 | Life More Abundant
 
-"I am come that they might ha ve life, and that they might have it more abundantly." John 10:10.
+> I am come that they might ha ve life, and that they might have it more abundantly.
+> John 10:10
 
 "THE thief comes not but for to steal, and to kill, and to destroy." False teachers, whatever their professions, seriously injure and endanger the souls of men and in the end cause their destruction. Their selfish ends can only be answered by the ruin of their dupes. The Lord Jesus, the true Teacher of men, causes injury to none, and brings death to no man's door. His teaching is full of goodness, kindness and love. It works most effectually for human happiness and benefit. Error is deadly. The Truth of God is life-giving. The coming of the old serpent worked our death. The Advent of the woman's Seed has brought us life. We shall omit all preface and ask you to note that, according to the text, Jesus Christ is come, first, that His people may have life. And, secondly, that where life is already given it may be enjoyed more abundantly.
 

@@ -1,6 +1,7 @@
 # Sermon 1209 | A Grateful Summary of Twenty Volumes
 
-"Unto me, who am less than the least of all saints, is this Grace given, that I should preach among the Gentiles the unsearchable riches of Christ." Ephesians 3:8.
+> Unto me, who am less than the least of all saints, is this Grace given, that I should preach among the Gentiles the unsearchable riches of Christ.
+> Ephesians 3:8
 
 THIS is a very remarkable day for me, for if I am spared to preach this present sermon, I shall have completed 20 years of printed discourses issued week by week. This will be the last sermon of my twentieth volume, making 1,209 in all. This is by no means a common occurrence. Indeed, I have not heard of another case in which for so long a time published discourses have been welcomed by the Christian Church and scattered broadcast over the land. Having obtained help of God, I continue unto this day testifying the Gospel of Christ Jesus. For this I magnify the name of the Lord and ask my dear friends associated with me to assist me in the expression of my thankfulness to Almighty God for such special lovingkindness.
 

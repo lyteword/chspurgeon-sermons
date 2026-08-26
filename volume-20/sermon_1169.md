@@ -1,6 +1,7 @@
 # Sermon 1169 | The Fullness of Christ the Treasury of the Saints
 
-"For it pleased the Father that in Him should all fullness dwell." Colossians 1:19.
+> For it pleased the Father that in Him should all fullness dwell.
+> Colossians 1:19
 
 "And of His fullness we ha ve all received, and Grace for Grace." John 116.
 

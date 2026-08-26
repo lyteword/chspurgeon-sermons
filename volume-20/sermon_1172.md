@@ -1,6 +1,7 @@
 # Sermon 1172 | The Savior You Need
 
-"Andbeing made perfect, He became the Author of eternal salvation unto all them that obey Him." Hebrews 5:9.
+> Andbeing made perfect, He became the Author of eternal salvation unto all them that obey Him.
+> Hebrews 5:9
 
 THE great folly of awakened sinners lies in looking to themselves when they are convinced that they are lost. When the Law condemns them&mdash;when they have the sentence of death ringing with its dolorous knell through their consciences&mdash;they nevertheless turn to themselves for help. As well might they search for life within the ribs of death, or dig for light in the dreary vaults of outer darkness! First, they try what outward reformation can do and they are amazed when they discover their own impotence. Then they turn their eyes towards their feelings and either they labor after tears and mental tortures till they grow conceitedly miserable, or else they yield to hopelessness, because they find their heart to be as an adamant stone. They frequently fly to ceremonies and go far in formalism but find no peace.
 

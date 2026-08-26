@@ -1,6 +1,7 @@
 # Sermon 1204 | The Reception of Sinners
 
-"But the father said to his servants, Bring forth the best robe, and put it on him, and put a ring on his hand, and shoes on his feet: And bring here the fatted calf, and kill it; and let us eat and be merry." Luke 15:22,23.
+> But the father said to his servants, Bring forth the best robe, and put it on him, and put a ring on his hand, and shoes on his feet: And bring here the fatted calf, and kill it; and let us eat and be merry.
+> Luke 15:22,23
 
 LAST Lord's-Day we spoke upon the consecration of priests. That theme might seem too high for troubled hearts and trembling consciences who fear that they shall never be made priests and kings unto God. So glorious a privilege appears to them to hang in the dim, distant future, if, indeed, they reach it at all. Therefore, at this time, we will go down from the elevated regions to comfort those who are seeking the Lord&mdash;with the view of helping them, in their turn, to climb, also!
 
