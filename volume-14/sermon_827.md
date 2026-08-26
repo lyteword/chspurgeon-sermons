@@ -1,6 +1,7 @@
 # Sermon 827 | The Faculty Baffled, The Great Physician Successful
 
-"And a certain woman, which had an issue of blood 12 years, and had suffered many things of many physicians, and had spent all that she had, and was nothing bettered, but rather grew worse, when she had heard of Jesus, came in the press behind, and touched His garment. For she said, If I may touch but His clothes, I shall be whole." Mark 5:25-28.
+> And a certain woman, which had an issue of blood 12 years, and had suffered many things of many physicians, and had spent all that she had, and was nothing bettered, but rather grew worse, when she had heard of Jesus, came in the press behind, and touched His garment. For she said, If I may touch but His clothes, I shall be whole.
+> Mark 5:25-28
 
 BRIEFLY consider this poor woman's case. She was afflicted with a disease of exceedingly long standing which not only wasted her strength and threatened to bring her speedily to the grave, but rendered her, according to the Jewish ceremonial Law, unclean, and therefore unable to mix in company. Thus she was doomed to be a poor, suffering, desponding, desolate woman. The physicians of those days were bold enough to attempt impossible cures, but their skill was not at all commensurate with their courage. They tormented their patients, but seldom relieved them of anything but their money.
 

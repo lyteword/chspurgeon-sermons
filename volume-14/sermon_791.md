@@ -1,6 +1,7 @@
 # Sermon 791 | The Arrows of the Bow Broken in Zion
 
-"There broke He the arrows of the bow, the shield, and the sword, and the battle." Psalm 76:3.
+> There broke He the arrows of the bow, the shield, and the sword, and the battle.
+> Psalm 76:3
 
 THE writer of this song of triumph gloried as a patriot in the defeat of his country's foes&mdash;he did better, he triumphed as a believer in Jehovah in the victories which were worked by the power of the Lord his God! I have sometimes wished that we English Christians blended in ourselves a little more of the two characters of patriots and Believers. I am persuaded that if our poets had been holy and devout men, and at the same time bold patriots, like David, they would not have lacked subjects for the most glorious national hymns.
 

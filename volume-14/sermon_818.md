@@ -1,6 +1,7 @@
 # Sermon 818 | The Pleiades and Orion
 
-"Can you bind the sweet influences of Pleiades, or loose the bands of Orion?" Job 38:31.
+> Can you bind the sweet influences of Pleiades, or loose the bands of Orion?
+> Job 38:31
 
 MOST of you know that singularly beautiful cluster of stars called the Pleiades&mdash;very small, but intensely bright. These are most conspicuous about the time of spring, and therefore, in poetry the vernal influences which quicken the earth and clothe it with the green grass and the many-colored flowers are connected with the Pleiades. By the sweet influences of the Pleiades we understand, then, in plain language, those benign influences which produce the spring and the summer. These, it is said, no man can restrain.
 

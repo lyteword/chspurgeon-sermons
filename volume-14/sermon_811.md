@@ -1,6 +1,7 @@
 # Sermon 811 | Unto You, Young Men
 
-"I have written unto you, young men, because you are strong, and the Word of God abides in you, and you have overcome the Wicked One." 1 John 2:14.
+> I have written unto you, young men, because you are strong, and the Word of God abides in you, and you have overcome the Wicked One.
+> 1 John 2:14
 
 John abounded in charity, but with the utmost stretch of it he could not have written to all young men in this style, for, alas, all young men are not strong, nor does the Word of God abide in them all, nor have they all overcome the Wicked One. Strong in muscle they may be, like Samson, but like Samson they are weak in moral principle and before long are found in the lap of a sinful Delilah to their own destruction. What multitudes of young men there are in London who, instead of being spiritually strong, are weakness itself&mdash;bending like the willow in every gale, drifting down the stream like dead fish&mdash;having neither the wish nor the ability to stem the torrent of temptation!
 

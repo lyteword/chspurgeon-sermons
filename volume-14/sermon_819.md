@@ -1,6 +1,7 @@
 # Sermon 819 | The Minstrelsy of Hope
 
-"God, even our own God, shall bless us. God shall bless us." Psalm 67:6, 7.
+> God, even our own God, shall bless us. God shall bless us.
+> Psalm 67:6, 7
 
 "God, even our own God." What an exceedingly sweet title! What a loveliness and liveliness of heart must have been in the man who first applied that endearing name to the God of Jacob! Though it is thousands of years ago since the sweet singer of Israel thus spoke of the Lord of Hosts, the name has a freshness and even a novelty about it to believing ears, "God, even our own God." I cannot resist touching that string again, the note is so enchanting to my soul! That word, "own," or "our own," seems always to throw an atmosphere of delicious fragrance about anything with which it is connected. If it is our country&mdash;
 

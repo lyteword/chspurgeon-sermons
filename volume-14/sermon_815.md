@@ -1,6 +1,7 @@
 # Sermon 815 | Daniel's Undaunted Courage
 
-"Now when Daniel knew that the writing was signed, he went into his house; and his windows being open in his chamber towards Jerusalem, he kneeled upon his knees three times a day, and prayed, and gave thanks before his God, as he did before." Daniel 6:10.
+> Now when Daniel knew that the writing was signed, he went into his house; and his windows being open in his chamber towards Jerusalem, he kneeled upon his knees three times a day, and prayed, and gave thanks before his God, as he did before.
+> Daniel 6:10
 
 Daniel had been exalted to very great worldly prosperity but his soul had prospered, too. Oftentimes outward advancement means inward decline. Tens of thousands have been intoxicated by success. Though they bade fair in starting in the race of life to win the prize, they were tempted to turn aside to gather the golden apples and so they missed the crown. It was not so with Daniel&mdash;he was as perfect before God in his high estate as in his lowlier days&mdash;and this is to be accounted for by the fact that he sustained the energy of his outward profession by constant secret communion with God.
 

@@ -1,6 +1,7 @@
 # Sermon 809 | The Approachableness of Jesus
 
-"Then drew near unto him all the publicans and sinners for to hear him."&mdash;Luke 15:1.
+> Then drew near unto him all the publicans and sinners for to hear him.
+> &mdash;Luke 15:1
 
 THE MOST DEPRAVED and despised classes of society formed an inner ring of hearers around our Lord. I gather from this that he was a most approachable person, that he was not of repulsive manners, but that he courted human confidence and was willing that men should commune with him.
 
