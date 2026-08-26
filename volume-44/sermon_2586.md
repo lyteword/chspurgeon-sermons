@@ -1,6 +1,7 @@
 # Sermon 2586 | A Far-reaching Promise
 
-"For the promise is unto you, and to your children, and to all that are afar off, even as many as the Lord our God shall call." Acts 2:39.
+> For the promise is unto you, and to your children, and to all that are afar off, even as many as the Lord our God shall call.
+> Acts 2:39
 
 WE learn from the text a fact worth remembering, namely, that in the first stage of the Christian ministry, the thing to be aimed at is that men should be pricked in the heart. Then, in the second stage, the thing to be desired is that they should gladly receive the Word of God. Notice what is said in the thirty-seventh verse&mdash;"When they heard this, they were pricked in their heart." Then in the forty-first verse&mdash;"Then they that gladly received his word were baptized." Hence, in the beginning, the preacher's business is not to convert men, but the very reverse! It is idle to attempt to heal those who are not wounded, to attempt to clothe those who have never been stripped and to make those rich who have never realized their poverty. As long as the world stands, we shall need the Holy Spirit, not only as the Comforter, but also as the Convincer, who will "reprove the world of sin, and of righteousness, and ofjudgment."
 

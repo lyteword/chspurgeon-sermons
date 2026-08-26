@@ -1,6 +1,7 @@
 # Sermon 2575 | A Sermon of Personal Testimony
 
-"For it is not a vain thing for you; because it is your life." Deuteronomy 32:47.
+> For it is not a vain thing for you; because it is your life.
+> Deuteronomy 32:47
 
 (One of the nights when the regular hearers left their seats to be occupied by strangers).
 

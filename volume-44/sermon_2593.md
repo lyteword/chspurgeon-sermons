@@ -1,6 +1,7 @@
 # Sermon 2593 | A Welcome for Jesus
 
-"And it came topass, that when Jesus was returned, the people gladly received Him, for they were all waiting for Him." Luke 8:40.
+> And it came topass, that when Jesus was returned, the people gladly received Him, for they were all waiting for Him.
+> Luke 8:40
 
 THE Revised Version is, in some places, though not in many, better than the Authorized Version. Our text is one of the few instances in which there is an improvement&mdash;"And as Jesus returned, the multitude welcomed Him, for they were all waiting for Him."
 

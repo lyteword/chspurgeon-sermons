@@ -1,6 +1,7 @@
 # Sermon 2568 | Sabbath-work
 
-"And on the same day was the SSabbath." John 5:9.
+> And on the same day was the SSabbath.
+> John 5:9
 
 OUR Divine Master healed men every day of the week. From the first day even to the close of the seventh day, He went about doing good and healing all manner of diseases. The healing virtue did not flow from Him occasionally, but perpetually. It was not like that famous pool which was only now and then touched with the angel's wing and so made salutary to the sick folk lying around&mdash;but whoever stepped into the pool of Christ's mercy found healing at any hour of the day or night!
 

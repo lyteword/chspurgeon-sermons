@@ -1,6 +1,7 @@
 # Sermon 2597 | A Prayer for Everybody
 
-"Then came she and worshipped Him, saying, Lord, help me!" Matthew 15:25.
+> Then came she and worshipped Him, saying, Lord, help me!
+> Matthew 15:25
 
 OUR text tells us of a case of real distress and it shows us how a woman prayed when in agony. It is a good thing, when young people begin to write, especially if they think of writing for the press, if they will, before they send away their manuscript, take their pen and strike out every superfluous word. Even as a general rule, for conversation or for correspondence, every word that we can do without is better omitted. As it is difficult to travel if we are encumbered with a great quantity of luggage, so is it difficult to make our meaning clear when it is crushed beneath the weight of too many words. Take your pen, then, young author. Sit down quickly and strike out all the merely ornamental words that you have written. And when you have got rid of them, you will probably have some respectable sentences left.
 

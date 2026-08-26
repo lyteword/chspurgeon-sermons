@@ -1,6 +1,7 @@
 # Sermon 2585 | Spiritual Glean1ng
 
-"Let her gleam even among the sheaves, and reproach her not." Ruth 2:15.
+> Let her gleam even among the sheaves, and reproach her not.
+> Ruth 2:15
 
 OUR country cousins have been engaged recently in harvest occupations and most of them understand what is meant by gleaning. Perhaps they are not, all of them, so wise as to understand the heavenly art of spiritual'gleaning. That is the subject which I have chosen for our meditation on this occasion&mdash;my attention having been called to it while I have been riding along through the country and, as I like to improve the seasons of the year as they come and go, I shall give you a few homely remarks with regard to spiritual gleaning. In the first place, we shall observe that there is a great Husbandman. It was Boaz in this case. It is our Heavenly Father who is the Husbandman in the other case. Secondly, we shall notice a humble gleaner. It was Ruth in this instance. It is every Believer who is represented by her&mdash;at least we shall so consider the subject. And, in the third place, here is a very gracious permission given&mdash;"Let her glean even among the sheaves, and reproach her not."
 
