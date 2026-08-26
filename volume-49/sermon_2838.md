@@ -1,6 +1,7 @@
 # Sermon 2838 | God's Glory in Hiding Sin
 
-"It is the glory of God to conceal a thing, but the honor of kings is to search out a matter." Proverbs 25:2.
+> It is the glory of God to conceal a thing, but the honor of kings is to search out a matter.
+> Proverbs 25:2
 
 THE translation of our text, if it had been more literal, would have run thus, "It is the glory of God to covera matter, but the honor of kings is to search out a matter." For the sake of variety in language, our translators sometimes gave two different interpretations to the same word and though that makes the verbiage more smooth, it is generally a great mistake and apt to mislead us. The word, "conceal," is just the same word that we get in the passage, "Blessed is he... whose sin is covered." So the text runs thus&mdash;I will give it to you again that I may further impress it upon you&mdash;"It is the glory of God to cover a matter, but the honor of kings is to search out a matter."
 

@@ -1,6 +1,7 @@
 # Sermon 2843 | The Seed by the Wayside
 
-"As he sowed, some fell by the wayside; and it was trodden down, and the fowls of the air devoured it." Luke 8:5.
+> As he sowed, some fell by the wayside; and it was trodden down, and the fowls of the air devoured it.
+> Luke 8:5
 
 THIS parable is recorded by Matthew, Mark and Luke. It is a very important one and, therefore, it is very carefully preserved for us. Matthew puts it, "When he sowed, some seeds fell by the wayside, and the fowls came, and devoured them up."
 

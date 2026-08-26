@@ -1,6 +1,7 @@
 # Sermon 2845 | Lacking Moisture
 
-"And some fell upon a rock, and as soon as it was sprung up, it withered away because it lacked moisture." Luke 8:6.
+> And some fell upon a rock, and as soon as it was sprung up, it withered away because it lacked moisture.
+> Luke 8:6
 
 IN this parable of the sower, there is great discrimination of character, not only between those who bring forth fruit and those who bring forth none, but also between those who bring forth fruit in different degrees&mdash;not only between the fruitful and the fruitless&mdash;but also between various forms of fruitlessness. The reasons are given, not in bulk, but in detail&mdash;why this failed, and that failed, and the other failed. All this points to discrimination in hearing. When there is discrimination in the preacher, as there should always be, there should be an equal discrimination in the hearer, and each one should try to take to himself that special part of the Word which is intended for him.
 

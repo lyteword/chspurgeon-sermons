@@ -1,6 +1,7 @@
 # Sermon 2816 | Invitation to a Conference
 
-"Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Isaiah 1:18.
+> Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool.
+> Isaiah 1:18
 
 THE persons to whom this gracious invitation was addressed were in a terrible condition&mdash;they could not well have been in a worse plight. They had provoked God above measure by their many sins. He had severely chastened them, yet they had not repented of their iniquities. They would not be either drawn from them or driven from them. Now the Lord seems to say that something else must be done&mdash;such a state of things must not be allowed to last any longer.
 

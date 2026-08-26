@@ -1,6 +1,7 @@
 # Sermon 2822 | Christ in Bonds
 
-"Now Annas had sent Hum bound unto Caiaphas the high priest." (The Revised Version says, "Annas therefore sent Him bound unto Caiaphas the high priest").
+> Now Annas had sent Hum bound unto Caiaphas the high priest.
+> (The Revised Version says, "Annas therefore sent Him bound unto Caiaphas the high priest")
 
 John 18:24.
 

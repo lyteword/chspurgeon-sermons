@@ -1,6 +1,7 @@
 # Sermon 2814 | Abraham's Great Reward
 
-"Fear not, Abram: I am your shield, and your exceeding great reward." Genesis 15:1.
+> Fear not, Abram: I am your shield, and your exceeding great reward.
+> Genesis 15:1
 
 You have probably heard a great many sermons on the first part of the text, "I am your shield," so, on this occasion, I am going to leave that portion in order to more fully consider the second part&mdash;"I am your exceeding great reward."
 

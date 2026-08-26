@@ -1,6 +1,7 @@
 # Sermon 2840 | Laying the Hand on the Sacrifice
 
-"And he shall lay his hand upon the head of the sin offering." Leviticus 4:29.
+> And he shall lay his hand upon the head of the sin offering.
+> Leviticus 4:29
 
 I MIGHT have taken as my text several other verses in the same chapter, for they all express the same idea as the words I have just read to you. For the sake of emphasis, let me ask you to look at the fourth verse. When a priest had committed sin and brought a sin offering unto the Lord, it is written, "He shall bring the bullock unto the door of the tabernacle of the congregation before the Lord; and shall lay his hand upon the bullock's head." The fifteenth verse tells us that when the whole congregation of Israel had sinned through ignorance, the Lord said to Moses, "The elders of the congregation shall lay their hands upon the head of the bullock before the Lord." Then, in the twenty-fourth verse, we read that when a ruler had sinned through ignorance and brought his sin offering, "He shall lay his hand upon the head of the goat, and kill it in the place where they kill the burnt offering before the Lord." And, in the thirty-third verse, you find that if a common person had committed a sin through ignorance, or if his sin should come to his knowledge, he was to bring a sin offering and then it was added, "He shall lay his hand upon the head of the sin offering."
 

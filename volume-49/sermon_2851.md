@@ -1,6 +1,7 @@
 # Sermon 2851 | Unseasonable Prayer
 
-"Why do you cry unto Me?" Exodus 14:15.
+> Why do you cry unto Me?
+> Exodus 14:15
 
 AT first sight we might suppose that crying unto God was so good a thing that it would never be necessary for the Lord to ask the question, "Why do you cry unto Me?" But the question we are now to consider shows that there may be a time when, even to a man like Moses, it is necessary for God to ask, "Why do you cry unto Me?" Think of the circumstances in which the Israelites were then&mdash;the Red Sea was before them and the Egyptians were behind&mdash;so that when the Lord said to Moses, "Why do you cry unto Me?" Moses might very properly have replied, "What else can I do? There are great multitudes of blood-thirsty foes behind us and nothing but the roaring sea in front of us&mdash;what can we do except cry unto You?" But the fact was that the time for praying about the matter was past and the time for acting had come. So the Lord said to Moses, in effect, "Speak not to Me, but 'speak unto the children of Israel, that they go forward'&mdash; forward through the sea that now rolls in front of them. That sea will divide as they march into it, so you need not pray any more about that difficulty. I will prepare a pathway for the people as they advance and they shall go safely through the very midst of the sea."
 
