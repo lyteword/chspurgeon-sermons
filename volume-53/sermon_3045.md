@@ -1,6 +1,7 @@
 # Sermon 3045 | Believers a Blessing
 
-"You shall be a blessing," Zechariah 8:13.
+> You shall be a blessing,
+> Zechariah 8:13
 
 SO terribly had God punished idolatrous Israel and Judah that their names were a byword and a proverb among all the surrounding nations. If any man wished to pronounce upon his fellow man the most dreadful curse that he could utter, he would say, "May you become like a Jew&mdash;may a blight fall upon your whole life as awful as that which has fallen upon Israel!" Even the heathen used the Jewish nation as a model of their cursing and blasphemed the name of Jehovah who had poured out the vials of His wrath upon them. But God declared that He would return to His ancient people in love and mercy&mdash;and replenish them in the multitude of His loving kindnesses to them so that, from that time, instead of being the pattern of cursing, they should be used as the model of a blessing&mdash;that when men wished good things for one another, they would say, "May you be as blessed as the children of Israel, whom the Lord of Hosts has favored above all the rest of mankind!" You remember that old Jacob, when he blessed the sons of Joseph, uttered a sort of formula for future use by others, "He blessed them that day, saying, In you shall Israel bless, saying, God make you as Ephraim and as Manasseh." And I believe that to this day, in Jewish marriages, the blessing is given to the newly married couple, "As Isaac and Rebekah may they be!" In like manner would God make His people to become the model of benediction as before they had been the pattern of a curse.
 

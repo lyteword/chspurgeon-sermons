@@ -1,6 +1,7 @@
 # Sermon 3063 | Jotham's Peculiar Honor
 
-"So Jotham became mighty, because he prepared his ways before the Lord his God." 2 Chronicles 27:6.
+> So Jotham became mighty, because he prepared his ways before the Lord his God.
+> 2 Chronicles 27:6
 
 THIS is a very singular expression which is used here concerning Jotham who is one of the kings of Judah who are commended as having done that which was right in the sight of the Lord. All of them had their faults, yet they were the best monarchs that sat upon the throne of Judah&mdash;and concerning Jotham it is mentioned as his peculiar honor that he "became mighty, because he prepared his ways before the Lord his God."
 

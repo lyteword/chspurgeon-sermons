@@ -1,6 +1,7 @@
 # Sermon 3051 | Lessons From a Dovecot
 
-"Who are these that fly as a cloud, and as the doves to their windows?" Isaiah 60:8.
+> Who are these that fly as a cloud, and as the doves to their windows?
+> Isaiah 60:8
 
 THE chapter from which our text is taken predicts very glorious times for the true Church of God. The promises recorded in this chapter were, in a measure, fulfilled when Jews and Gentiles were gathered into the fold of Christ in great numbers in the days of the Apostles. But God's promises are not like man's. When a man has kept his promise once, it does not stand good any longer&mdash;but God's promises may be fulfilled a hundred times over and yet remain just as valid as when He first gave them. So what God did for His Church at Pentecost, He is prepared to do today&mdash;and He will do it on a yet larger scale in those happy times that are yet to come&mdash;the latter days for which we look and long with joyful expectation!
 

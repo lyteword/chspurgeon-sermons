@@ -1,8 +1,7 @@
 # Sermon 3070 | A Visit to Christ's Hospital
 
-"Fools because of their transgression and because of their iniquities, are afflicted. Their soul abhors all manner of meat; and they draw near unto the gates ofdeath. Then they cry unto the Lord in their trouble, and He saves them out of their distresses. He sent His Word and healed them, and delivered them from their destructions. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing." Psalm 107:17-22.
-
-
+> Fools because of their transgression and because of their iniquities, are afflicted. Their soul abhors all manner of meat; and they draw near unto the gates ofdeath. Then they cry unto the Lord in their trouble, and He saves them out of their distresses. He sent His Word and healed them, and delivered them from their destructions. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing.
+> Psalm 107:17-22
 
 IT is a very profitable thing to visit a hospital. The sight of others' sickness tends to make us grateful for our own health. And it is a great thing to be kept in a thankful frame of mind, for ingratitude is a spiritual disease, injurious to every power of the soul. A hospital inspection will also teach us compassion and that is of great service. Anything that softens the heart is valuable. Above all things, in these days we should strive against the petrifying influences which surround us. It is not easy for a man who has constantly enjoyed good health and prosperity, to sympathize with the poor and the suffering. Even our Great High Priest, who is full of compassion, learned it by carrying our sorrows in His own Person. To see the sufferings of the afflicted, in many cases, would be enough to move a stone. And if we visit a hospital and come back with a more tender heart, we shall have found it a sanatorium to ourselves.
 

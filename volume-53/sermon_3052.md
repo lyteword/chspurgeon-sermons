@@ -1,8 +1,7 @@
 # Sermon 3052 | Christ's Loneliness and Ours
 
-"Jesus answered them, Do you now believe? Behold, the hour comes, yes, is now come, that you shall be scattered, every man to his own, and shall leave Me alone: and yet I am not alone, because the Father is with Me." John 16:31,32.
-
-
+> Jesus answered them, Do you now believe? Behold, the hour comes, yes, is now come, that you shall be scattered, every man to his own, and shall leave Me alone: and yet I am not alone, because the Father is with Me.
+> John 16:31,32
 
 "Do you now believe?" Then it seems that faith held them fast to Christ, but as soon as fear prevailed they were scattered and left their Master alone. Faith has an attracting and upholding power. It is the root of constancy and the source of perseverance under the power of God's Spirit. While we believe, we remain faithful to our Lord. When we are unbelieving, we are scattered, "every man to his own." While we trust, we follow closely. When we give way to fear, we ungratefully forsake our Lord. May the Holy Spirit maintain our faith in full vigor that it may nourish all our other Graces! Faith being strong, no faculty of the inner man will languish, but if faith declines, the energy of our spiritual nature speedily decays. If you believe not, you shall not be established, but "the just shall live by faith" to the fullest force oflife.
 

@@ -1,6 +1,7 @@
 # Sermon 3022 | God's Innumerable Mercies
 
-"I know not the numbers thereof." Psalm 71:15.
+> I know not the numbers thereof.
+> Psalm 71:15
 
 THE writer of this Psalm describes all the dealings of God with him under the head, "righteousness" and, "salvation." That description is perfectly accurate, for all that God does for His people is, first of all, in faithfulness to His promise. As He has spoken, so He does. Never, even in the sharpest trial, can the heir of Heaven accuse God of being unfaithful to what He has promised. He told His disciples that they would have to endure tribulation&mdash;and when it came, they proved the truth of His prophecy&mdash;and everything that God does to us, whether little or great, whether sharp or kind, will prove to have been done in accordance with His faithful Word.
 
