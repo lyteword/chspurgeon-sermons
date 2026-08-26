@@ -1,6 +1,7 @@
 # Sermon 1058 | No Quarter
 
-"Elijah said unto them, take the prophets of Baal; let not one of them escape," 1 Kings 18:40.
+> Elijah said unto them, take the prophets of Baal; let not one of them escape,
+> 1 Kings 18:40
 
 ELIJAH may be called the Iron Prophet. He was a stern and brave man who flinched not to deliver his Master's message at all hazards. It was right that such a man should be raised up just at that time, for the Sidonian queen, Jezebel, was a woman of imperious spirit, superstitious to the last degree and resolute in carrying out her will. She ruled King Ahab with sovereign sway and had issued her mandate that the Prophets of Jehovah should be slain&mdash;a mandate which was all too well obeyed. None could stand before this tigress until Elijah came and dared her malice to do its worst. That lone man, of heroic soul, stemmed the fearful torrent of idolatry and like a rock in mid-current, firmly stood his ground. He, alone and single-handed, was more than a match for all the priests of the palace and the groves, even as one lion scatters a flock of sheep.
 

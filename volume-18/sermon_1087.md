@@ -1,6 +1,7 @@
 # Sermon 1087 | The Hexapla Of Mystery
 
-"And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory." 1 Timothy 3:16.
+> And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory.
+> 1 Timothy 3:16
 
 THE Apostle tells us in the preceding verse that the Lord has a double design in maintaining His Church in the world. The first is that it may be the place of His abode, for the Church of the living God is "the house of God," the home wherein He reveals Himself unto His own children, the resting place of His love which He has of old appointed. Jehovah still inhabits the praises of Israel and still He fulfills His promise to His chosen, "I will dwell in them and walk in them." (2 Cor. 6:16). Blessed is the Church which has realized this first design of God and so has continued to enjoy the Lord's Presence and power. May we in this place be a building fitly framed together and grow unto a holy temple in the Lord, for a habitation of God through the Spirit.
 

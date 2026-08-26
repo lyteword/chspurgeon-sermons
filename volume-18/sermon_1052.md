@@ -1,6 +1,7 @@
 # Sermon 1052 | The Sphere Of Instrumentality
 
-"Jesus said, Take away the stone." John 11:39.
+> Jesus said, Take away the stone.
+> John 11:39
 
 "Jesus said to them, Loose him, and let him go." John 11:44.
 

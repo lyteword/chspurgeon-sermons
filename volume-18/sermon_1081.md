@@ -1,6 +1,7 @@
 # Sermon 1081 | A Visit to the Tomb
 
-"He is not here: for He is risen, as He said. Come, see the place where the Lord lay." Matthew 28:6.
+> He is not here: for He is risen, as He said. Come, see the place where the Lord lay.
+> Matthew 28:6
 
 THE holy women, Mary Magdalene and the other Mary, came to the sepulcher hoping to find there the body of their Lord which they intended to embalm. Their intention was good and their will was accepted before God, but, for all that, their desire was not gratified for the simple reason that it was contrary to God's design. It was at variance with even what Christ had foretold and plainly declared to them. "He is not here: for He is risen, as He said."
 

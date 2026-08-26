@@ -1,6 +1,7 @@
 # Sermon 1085 | Dwell Deep, O Dedan!
 
-"Dwell deep, O inhabitants of Dedan." Jeremiah 49:8.
+> Dwell deep, O inhabitants of Dedan.
+> Jeremiah 49:8
 
 WE do not quite know who these inhabitants of Dedan were, but in all probability they were some Arabian tribe or tribes. Perhaps they were descendants of Keturah. This Arabian tribe probably dwelt in the rock city of Petra and were mingled with the Edomites. The Prophet warned them that God was about to destroy the Edomites&mdash;"For I have sworn by Myself, says the Lord, that Bozrah shall become a desolation, a reproach, a waste and a curse; and all the cities thereof shall be perpetual wastes."
 

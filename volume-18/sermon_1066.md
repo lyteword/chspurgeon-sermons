@@ -1,6 +1,7 @@
 # Sermon 1066 | A Call For Revival
 
-"Come my beloved, let us go forth into the field, let us lodge in the villages. Let us get up early to the vineyards; let us see if the vine flourish, whether the tender grapes appear, and the pomegranates bud forth: there willI give you my loves. The mandrakes give a smell, and at our gates are all manner of pleasant fruits, new and old, which I have laid up for you, O my beloved." Song of Solomon 7:11-13.
+> Come my beloved, let us go forth into the field, let us lodge in the villages. Let us get up early to the vineyards; let us see if the vine flourish, whether the tender grapes appear, and the pomegranates bud forth: there willI give you my loves. The mandrakes give a smell, and at our gates are all manner of pleasant fruits, new and old, which I have laid up for you, O my beloved.
+> Song of Solomon 7:11-13
 
 I REMEMBER to have heard it said that when a Church is in a right condition, all that it wants on the Sabbath is that the sermon should be like the orders given by a commanding officer to his troops&mdash;it need not be rhetorical or eloquent, it only need be clear and plain&mdash;a word of direction for the Lord's servants. If the soldiers are prepared for action they will not look to be regaled with oratory, but having heard the words of command they will, with all their hearts, go about to obey them.
 

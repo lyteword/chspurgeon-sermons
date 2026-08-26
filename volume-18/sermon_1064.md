@@ -1,6 +1,7 @@
 # Sermon 1064 | Salvation All of Grace
 
-"By Grace are you saved." Ephesians 2:8.
+> By Grace are you saved.
+> Ephesians 2:8
 
 OTHER Divine attributes are manifest in salvation. The Wisdom of God devised the plan. The Omnipotence of God executes in us the work of salvation. The Immutability of God preserves and carries it on&mdash;in fact, all the attributes of God are magnified in the salvation of a sinner&mdash;but at the same time the text is most accurate since Grace is the fountainhead of salvation and is most conspicuous throughout. Grace is to be seen in our election, for, "there is a remnant according to the election of Grace, and if by Grace then it is no more of works."
 
