@@ -2,7 +2,7 @@
 
 "I conferred not with flesh and blood." Galatians 1:16.
 
-THE conversion of Paul is one of the evidences of the truth of our holy religion. So far as this life was concerned, he had nothing to gain, but everything to lose by becoming a Christian. From being a great Rabbi he came to be the companion of poor fishermen who themselves were the followers of One who was poorer even than they! It is clear that he was no fanatic and not at all likely to be carried away by any sudden impulse. He was clear-headed, thoughtful, logical and his conversion must have been worked by some very extraordinary power&mdash;there must have been, to him at least, overwhelming evidence of the truth of what he believed and of that form of faith to which he devoted his whole after life.
+The conversion of Paul is one of the evidences of the truth of our holy religion. So far as this life was concerned, he had nothing to gain, but everything to lose by becoming a Christian. From being a great Rabbi he came to be the companion of poor fishermen who themselves were the followers of One who was poorer even than they! It is clear that he was no fanatic and not at all likely to be carried away by any sudden impulse. He was clear-headed, thoughtful, logical and his conversion must have been worked by some very extraordinary power&mdash;there must have been, to him at least, overwhelming evidence of the truth of what he believed and of that form of faith to which he devoted his whole after life.
 
 In addition to supplying us with valuable evidence of the truth of Christianity, Paul has left to us a most remarkable example of its force in his own person. Never was there a man more fully possessed with the Spirit of Christ than he was. He was no feeble saint with just enough Grace to enable him to go limping into Heaven&mdash;he was a spiritual athlete, wrestling with the powers of darkness, running with endurance the race set before him and "filled with all the fullness of God." He was one who was indeed "strong in the Lord, and in the power of His might." He threw himself, with all his natural zeal, into the cause of Christ&mdash;that natural zeal being so sanctified by the Spirit of God as to make him a mighty and valiant servant of the Lord. I pray that we, also, Beloved, may be what Paul was. I will not even deny his bonds! He did so when he said to king Agrippa, "I would to God that not only you, but also all that hear me this day were both almost, and altogether such as I am, except these bonds." But we might be willing even to wear his bonds if we might but have such a character as his fully developed within us!
 
@@ -14,7 +14,7 @@ I want to show you, first, that faith needs no warrant for its action but the co
 
 ourselves practically. And then I shall show you, in the last place, that the principle is a grand one and commends itself to our best judgment
 
-First, FAITH NEEDS NO WARRANT FOR ITS ACTION BUT THE COMMAND OF God.
+First, faith needs no warrant for its action but the command of God.
 
 Believers have no need to consult with flesh and blood. I may refer you in illustration of this Truth of God to good men in all ages. There is Noah, for instance. He is commanded by God to build an ark of gopher wood&mdash;an ark large enough to hold himself and his family and some of all beasts, birds and creeping things that were upon the face of the earth! Was it not an absurd idea to build so huge an ark upon dry land? Yet Noah did not consult with any of the people who were then living&mdash;we read, "Thus did Noah: according to all that God commanded him, so did he."
 
@@ -36,7 +36,7 @@ I have generally found that when men do consult with flesh and blood, the consul
 
 There I leave the grand and searching principle that faith needs no warrant for its action but the command of God!
 
-Now secondly, I am going to show you THE RANGE OF ITS PRACTICAL APPLICATION TO OURSELVES.
+Now secondly, I am going to show you the range of its practical application to ourselves.
 
 I judge that, first of all, it applies to all our known duties. I am not now speaking to unconverted people&mdash;I am speaking to you who profess to be converted. You say that you are saved and that you do not trust in your own works. That is well. I have preached to you the Scriptural Doctrine of Salvation by Grace, but now I am going to give you a practical principle that is inseparably associated with that Doctrine. It is this&mdash;It is the duty of every Christian to forsake every known sin, whatever it may be, and, in doing so, he is notto consult with flesh and blood. Many professors say, "This course is wrong, judging by the Scriptural standard. But then, society has long tolerated it. No, it has even decreed it to be right." But will society judge you at the Last Great Day? If you are cast into Hell as a deceitful professor, will society fetch you out of the bottomless pit? If you are found at last outside the gates of Heaven, will society recompense you for your eternal loss? What have you, O man of God, to do with society? Christians are to come out from among the ungodly to daily take up their cross and follow Christ&mdash;to go outside the camp, bearing His reproach. The friend of the world is the enemy of Christ. What have you to do with doing as the world does?
 
@@ -64,9 +64,9 @@ Another says, "My position would become very uncomfortable if I were to be bapti
 
 "Solid joys and lasting treasure."
 
-I see that my time has gone, but I need not dwell upon the last point&mdash; that THIS PRINCIPLE COMMENDS
+I see that my time has gone, but I need not dwell upon the last point&mdash; that this principle commends
 
-ITSELF TO OUR BEST JUDGMENT.
+itself to our best judgment.
 
 It is the judgment we exercise upon others. We do not like to see half-and-half people, do we? And if we see people who are willing to suffer for their principles, we respect and honor them. Well then, let us so act that others may be able, in their inmost hearts, to respect and honor us!
 
@@ -76,11 +76,11 @@ And finally, this will be our judgment at the Last Great Day. We shall account t
 
 If you love not the Lord Jesus Christ, take heed that He should come against you with His rod of iron and utterly destroy you. May He, by His gracious Spirit, give to all of us faith in Him and loyalty to Him for His dear name's sake! Amen.
 
-Exposition by C. H. Spurgeon: John 14.
+## Exposition by C. H. Spurgeon: John 14.
 
-Verse 1. Let not your heart be troubled: you believe in God, believe also in Me.\See Sermons #730, Volume 13&mdash;let not your
+Let not your heart be troubled: you believe in God, believe also in Me.\See Sermons #730, Volume 13&mdash;let not your
 
-HEART BE TROUBLED; #1741, Volume 29&mdash;"LET NOT YOUR HEART BE TROUBLED" and #3076, Volume 54&mdash;THE CAUSE AND EFFECT OF HEART TROUBLE&mdash; the Sermon to which this Exposition belongs.] Here is a troubled company of
+heart be troubled; #1741, Volume 29&mdash;"Let not your heart be troubled" and #3076, Volume 54&mdash;The Cause and Effect of Heart Trouble&mdash; the Sermon to which this Exposition belongs.] Here is a troubled company of
 
 disciples, very much cast down, so their Divine Master, full of infinite tenderness, talks to them in this gentle manner, "Let not your heart be troubled." He does not like to see them troubled, for when they are, He is also troubled. Our Lord here prescribes faith as the only remedy for heart trouble. If you, poor troubled soul, can believe, you will leave off fretting. Twice our Lord uses the word, "believe." He seems to say to His disciples, "Take another dose of faith&mdash;it will take away from you this faintness of heart from which you are suffering. 'You believe in God, believe also in Me.'" And then He seeks to make them forget their heart trouble by talking most sweetly to them about His Father and His Father's dwelling place. It is a great thing to divert the mind, when it is troubled, from that which bores into it and threatens to destroy it.
 
@@ -104,34 +104,34 @@ impossible it is to fully describe our Lord in human language! He is going away,
 
 If you had known Me, you would have known My Father also: and from henceforth you know Him, and have seen Him. It cheers the children of God to talk to them about their Father, and about their Father's house, so that is what the Elder Brother did in His great kindness to His disciples&mdash;He talked to them about their Father and His Heaven.
 
-8-10. Philip said unto Him, Lord, show us the Father, and it suffices us. Jesus said unto him, Have I been so long a time with you, and yet have you not known Me, Philip? He that has seen Me has seen the Father; then how can you say, Show us the Father? Do you not believe I am in the Father, and the Father in Me? The words that I speak unto you I speak not of Myself: but the Father that dwells in Me, He does the works. Christ and the Father are indissolubly One. Even when He was here in His humiliation, He was not separated from His Father except in that dread hour when He was bearing His people's sins upon the Cross. Now He is visibly One with His Father on the Throne of Glory!
+Philip said unto Him, Lord, show us the Father, and it suffices us. Jesus said unto him, Have I been so long a time with you, and yet have you not known Me, Philip? He that has seen Me has seen the Father; then how can you say, Show us the Father? Do you not believe I am in the Father, and the Father in Me? The words that I speak unto you I speak not of Myself: but the Father that dwells in Me, He does the works. Christ and the Father are indissolubly One. Even when He was here in His humiliation, He was not separated from His Father except in that dread hour when He was bearing His people's sins upon the Cross. Now He is visibly One with His Father on the Throne of Glory!
 
-11, 12. Believe Me that Iam in the Father, and the Father in Me: or else believe Me for the very works 'sake. Verily, verily, I say unto you, He that believes on Me, the works that I do shall he do also. "I am going away from you; but be not dismayed, for I shall not take away My power from you&mdash;that will remain with you."
+Believe Me that Iam in the Father, and the Father in Me: or else believe Me for the very works 'sake. Verily, verily, I say unto you, He that believes on Me, the works that I do shall he do also. "I am going away from you; but be not dismayed, for I shall not take away My power from you&mdash;that will remain with you."
 
-12, And greater works than these shall he do; because I go unto My Father. "My very absence will let loose a greater power than you could have experienced while I was here! You will need more power when I am gone from you, and you shall have more. Therefore, 'let not your heart be troubled.' Besides, you will still be able to pray, and prayer will bring you greater blessings than any that I ever gave you."
+And greater works than these shall he do; because I go unto My Father. "My very absence will let loose a greater power than you could have experienced while I was here! You will need more power when I am gone from you, and you shall have more. Therefore, 'let not your heart be troubled.' Besides, you will still be able to pray, and prayer will bring you greater blessings than any that I ever gave you."
 
-13, 14. And whatever you shall ask in My name, that will I do, that the Father may be glorified in the Son. If you shall ask anything in My name, I will do it. Every word in this address of Christ was full of comfort to His disciples.
+And whatever you shall ask in My name, that will I do, that the Father may be glorified in the Son. If you shall ask anything in My name, I will do it. Every word in this address of Christ was full of comfort to His disciples.
 
-15, 16. If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter, that He may abide with you forever. There was the One who would enable the disciples to meet every trial&mdash;
+If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter, that He may abide with you forever. There was the One who would enable the disciples to meet every trial&mdash;
 
 that other Comforter  whom Christ promised to them! Their trouble was that their Lord was going away from them. That other Comforter made amends for that and He will make amends to you, Believer, for every form of trial to which you may be exposed. Is it bodily weakness? Is it the infirmity of old age? Is it depression of spirit? Is it losses and crosses at home? Is it crooked things that cannot be made straight? Well, Christ's promise still stands good, "I will pray the Father, and He shall give you another Comforter, that He may abide with you forever."
 
 Even the Spirit of Truth: whom the world cannot receive, because it sees Him not, neither knows Him: but you know Him."You are on familiar terms with Him. You are intimate with Him. You know Him."
 
-17-20. For He dwells with you, andshall be in you. I will not leave you comfortless. I will come to you. Yet a little while, and the world sees Me no more; but you see Me: because I live, you shall live also. At that day you shall know that I am in My Father, and you in Me, and I in you. These are the three wonderful mysteries of the union between God, and Christ, and His people&mdash;"I am in My Father, and you in Me, and I in you."
+For He dwells with you, andshall be in you. I will not leave you comfortless. I will come to you. Yet a little while, and the world sees Me no more; but you see Me: because I live, you shall live also. At that day you shall know that I am in My Father, and you in Me, and I in you. These are the three wonderful mysteries of the union between God, and Christ, and His people&mdash;"I am in My Father, and you in Me, and I in you."
 
-21, 22. He that has My commandments andkeeps them, he it is that loves Me: andhe that loves Me shall be loved of My Father, and I will love him, and will manifest Myself to him. Judas said unto Him, not Iscariot, Lord, how is it that You will manifest Yourself unto us, and not unto the world? "Perhaps if You did manifest Yourself to the world, the world would bow down before You and worship You." But Christ's plan was to manifest Himself to the inner circle of His own chosen ones.
+He that has My commandments andkeeps them, he it is that loves Me: andhe that loves Me shall be loved of My Father, and I will love him, and will manifest Myself to him. Judas said unto Him, not Iscariot, Lord, how is it that You will manifest Yourself unto us, and not unto the world? "Perhaps if You did manifest Yourself to the world, the world would bow down before You and worship You." But Christ's plan was to manifest Himself to the inner circle of His own chosen ones.
 
-23-27. Jesus answered and said unto him, If a man loves Me, he will keep My words: and My Father will love him, and We will come unto him, and make our abode with him. He that loves Me not keeps not My sayings: and the word
+Jesus answered and said unto him, If a man loves Me, he will keep My words: and My Father will love him, and We will come unto him, and make our abode with him. He that loves Me not keeps not My sayings: and the word
 
 which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, whatever I have said unto you. Peace I leave with you, My peace I give unto
 
 you.  He had given them peace while He was with them. His Divine Presence had been their continual comfort. But now, although He was going away from them, He would leave His peace behind Him as the most precious legacy that He could bequeath to them&mdash;"Peace I leave with you, My peace I give unto you."
 
-27, 28. Not as the world gives, give I unto you. Let not your heart be troubled, neither let it be afraid. You have heard how I said unto you, I go away, and come again unto you. If you loved Me, you would rejoice&mdash;. "I know that you do love Me, but if you really acted as if you loved Me, you would rejoice."
+Not as the world gives, give I unto you. Let not your heart be troubled, neither let it be afraid. You have heard how I said unto you, I go away, and come again unto you. If you loved Me, you would rejoice&mdash;. "I know that you do love Me, but if you really acted as if you loved Me, you would rejoice."
 
-28, Because I said, I go unto the Father: for My Father is greater than I. The Lord Jesus, though equal with the Father, had voluntarily laid aside His Glory and taken the form and place of a Man, making Himself of no reputation, so His disciples ought to have rejoiced that He was going back to His primitive Glory!
+Because I said, I go unto the Father: for My Father is greater than I. The Lord Jesus, though equal with the Father, had voluntarily laid aside His Glory and taken the form and place of a Man, making Himself of no reputation, so His disciples ought to have rejoiced that He was going back to His primitive Glory!
 
-29, 30. AndnowIhave toldyou, before it comes topass, that when it is comes topass, you might believe. Hereafter I will not talk much with you: for theprince of this world comes, and has nothing in Me. Still Christ would have enough to do to meet that arch-enemy and to endure all that would come upon Him during that dread encounter.
+AndnowIhave toldyou, before it comes topass, that when it is comes topass, you might believe. Hereafter I will not talk much with you: for theprince of this world comes, and has nothing in Me. Still Christ would have enough to do to meet that arch-enemy and to endure all that would come upon Him during that dread encounter.
 
 But that the world may know that I love the Father; and as the Father gave Me commandment, even so I do. Arise, let us go from here.

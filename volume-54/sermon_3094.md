@@ -4,7 +4,7 @@
 
 
 
-I DARESAY you have seen collections of celebrated sermons which have been chosen with more or less discretion. I suppose that the sermon of Peter, on the day of Pentecost, was one of the most celebrated discourses that was ever delivered, for it was the means of bringing 3,000 persons to conviction, to conversion, to profession of faith and to union with the visible Church! Yet I do not believe that any library collector would ever have put this sermon by Peter among the most famous. It does not seem to me to be very eloquent&mdash;there is no climax in it, nothing of that fashionable thing called a "peroration." It is all plain speaking and hard hitting, very personal, very much to the point, very full of clear Scriptural reasoning&mdash;but there is nothing at all oratorical about it. It is just such a simple speech as you might expect from a fisherman as Peter had been! I should think that Peter's discourse was delivered calmly and deliberately. He was at a white heat of earnestness and was altogether too earnest to lose his self-control. His whole being was so thoroughly possessed by what he had to say that he thought little of how he said it.
+I daresay you have seen collections of celebrated sermons which have been chosen with more or less discretion. I suppose that the sermon of Peter, on the day of Pentecost, was one of the most celebrated discourses that was ever delivered, for it was the means of bringing 3,000 persons to conviction, to conversion, to profession of faith and to union with the visible Church! Yet I do not believe that any library collector would ever have put this sermon by Peter among the most famous. It does not seem to me to be very eloquent&mdash;there is no climax in it, nothing of that fashionable thing called a "peroration." It is all plain speaking and hard hitting, very personal, very much to the point, very full of clear Scriptural reasoning&mdash;but there is nothing at all oratorical about it. It is just such a simple speech as you might expect from a fisherman as Peter had been! I should think that Peter's discourse was delivered calmly and deliberately. He was at a white heat of earnestness and was altogether too earnest to lose his self-control. His whole being was so thoroughly possessed by what he had to say that he thought little of how he said it.
 
 It was a very powerful sermon, but where did the power lie, do you think? Well, instrumentally and speaking after the manner of men, I think it lay partly in Peter's vivid realization of what he was saying. He knew that his Lord and Savior had, with wicked hands, been crucified and slain&mdash;and that He had risen from the grave and had gone back again to Heaven. You could see, by his whole manner, that he was not talking about myths and fancies, but about truths and things of which he knew for certain. There is always a power about a man's message when his hearers know that he who delivers it believes what he is saying and has no latent doubts, no concealed skepticisms, but speaks what he knows and testifies what he has seen.
 
@@ -14,7 +14,7 @@ But the real strength of Peter's sermon lay in this, that he had been that very 
 
 Peter as well as upon the rest&mdash;and he, too, had been "filled with the Holy Spirit," so that through him the Holy Spirit spoke. Therefore it was that when he delivered that very simple sermon, his hearers were pricked in their heart, and thousands of them cried out, "Men and brethren, what shall we do?" Oh, that some such power might fall upon this congregation this evening, especially upon the unconverted part of it, that they might be "pricked in their heart" as Peter's hearers were!
 
-My subject is the pricking in the heart and my first observation is that a SAVING IMPRESSION IS ALWAYS a PRICK IN THE HEART.
+My subject is the pricking in the heart and my first observation is that a saving impression is always a prick in the heart.
 
 A prick in the heart is very painful. To be pricked anywhere is not a thing to be desired, but a prick in the heart would not merely be painful, but, in a natural and literal sense, it would be fatal. There are a great many different kinds of impressions made by preachers upon their hearers, but blessed is that preacher who makes a wound right in their hearts!
 
@@ -38,9 +38,9 @@ All this followed because they had been "pricked in their heart." It was a sorro
 
 A faith that has no tears in its eyes is a blind faith, for where there is sight there will be weeping. Never did a soul look to Christ, whom it had pierced, without weeping and mourning because of its sin. Faith and repentance are twins&mdash;they are born together and they will live together&mdash;and as long as a Christian is in this world both will be needed. Rowland Hill used to say that the only thing that he would be sorry to leave when he went to Heaven was that sweet, lovely, sorrowful Grace of repentance&mdash;he supposed he could not repent in Heaven, but it was such a sweet experience to keep on repenting that he would wish to repent forever if such a thing might be.
 
-Now, in the second place, let us notice WHAT TRuthS God USES AS DAGGERS TO PRICK SINNERS IN
+Now, in the second place, let us notice what truths God uses as daggers to prick sinners in
 
-THE HEART.
+the heart.
 
 I have known some pricked in the heart merely by discovering that the Gospel, the Bible, was really true. They have been skeptical&mdash;they have perhaps been blasphemers but, all of a sudden, being honestly convinced that the Bible was true, they have been broken down at once, just as Saul of Tarsus was. He would not have persecuted Christ if he had believed Him to be the Messiah, but he thought He was an impostor and, therefore, honestly determined to put down His followers. He says concerning himself, "I obtained mercy because I did it ignorantly in unbelief." The moment the Lord Jesus called to him out of Heaven, and said, "Saul, Saul, why do you persecute Me?...I am Jesus who you persecute," he was pricked in the heart and soon he became, as many others have become, just as earnest in the defense of the Truth of God as he had before, in his ignorance, been in opposition to it!
 
@@ -76,7 +76,7 @@ They laid, my Lord, on Thee." Yes, a bleeding Savior makes men's hearts bleed. W
 
 thus their hearts and then lead them to the wounded Savior, and let them know that whoever believes in Him was loved of God before time began and shall be loved of God when time shall be no more!
 
-Now I want to notice very briefly, in the third place, WHOSE HAND USES THESE SHARP DAGGERS SO THAT SINNERS GET "PRICKED IN THEIR HEART."
+Now I want to notice very briefly, in the third place, whose hand uses these sharp daggers so that sinners get "pricked in their heart."
 
 Not Peter's, my Brothers and Sisters, nor mine, nor the hand of any Gospel minister! It must be a more powerful hand than any of these&mdash;even the hand of the Holy Spirit The fact is that He who wrote these Truths in the Bible must Himself write them on men's hearts, or else they will forever remain inoperative except to condemn! There is One who knows all about the human heart&mdash;the Holy Spirit searches the heart and tries the reins of the children of men&mdash;and He knows how to apply the Truth of God so as to make it quick and powerful, and to drive home to the heart that sword which, because He uses it, is called "the sword of the Spirit, which is the Word of God." I pray that He may take the Truth this very moment and use it thus. A sword hanging on the wall does not wound anybody. Our daily prayer ought to be, "O almighty Spirit, gird Your sword upon Your thigh and wield it in Your Omnipotent might, that sinners may be 'pricked in their heart,' and so be brought to repentance and salvation!"
 
@@ -86,7 +86,7 @@ Therefore let us, who are the children of God, cry mightily unto the Spirit and 
 
 men!'"
 
-Our last enquiry must be, HOW CAN THESE PRICKS IN THE HEART BE HEALED? You had the answer in the first hymn we sang tonight&mdash;
+Our last enquiry must be, how can these pricks in the heart be healed? You had the answer in the first hymn we sang tonight&mdash;
 
 "When wounded sore the stricken soul Lies bleeding and unbound. One hand only, a pierced hand, Can salve the sinner's wound. When sorrow swells the laden breast, And tears of anguish flow, One heart only, a broken heart Can feel the sinner's woe."
 
