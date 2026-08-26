@@ -1,6 +1,7 @@
 # Sermon 2159 | The Holdfasts of Faith
 
-"Who is the father of us all, (as it is written, Ihave made you a father of many nations,) before Him whom he believed, even God, who quickens the dead, and calls those things which are not as though they were." Romans 4:16,17.
+> Who is the father of us all, (as it is written, Ihave made you a father of many nations,) before Him whom he believed, even God, who quickens the dead, and calls those things which are not as though they were.
+> Romans 4:16,17
 
 The preacher begs the reader, before perusing the sermon, to read the two portions of Scripture which were used in the public service&mdash; Genesis 15:1-6 and Romans 4.
 
