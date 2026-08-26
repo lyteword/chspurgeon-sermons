@@ -1,6 +1,7 @@
 # Sermon 1781 | Two Pauls and a Blinded Sorcerer
 
-"Then the deputy, when he saw what was done, believed, being astonished at the Doctrine of the Lord." Acts 13:12.
+> Then the deputy, when he saw what was done, believed, being astonished at the Doctrine of the Lord.
+> Acts 13:12
 
 CYPRUS was by no means a reputable island&mdash;it was devoted to the goddess Venus and you can imagine what her worship was&mdash;and what would be the fruitful licentiousness which sprang of it. It was the native country of Barnabas and, as he was, at first, the leader of the missionary party sent out by the Church of Antioch, it was fit that Barnabas and Saul should begin preaching there. Landing at one end of the island, the two Apostolic men traversed it till they came to Paphos, where the Roman governor resided. Now, this Paphos was the central city of the worship of Venus and was the scene of frequent profligate processions and abominable rites. We might call it, "the place where Satan's seat is."
 

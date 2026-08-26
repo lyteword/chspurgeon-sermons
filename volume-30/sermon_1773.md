@@ -1,6 +1,7 @@
 # Sermon 1773 | What Is Your Life?
 
-"For what is your life? It is even a vapor, that appears for a little time, and then vanishes away." James 4:14.
+> For what is your life? It is even a vapor, that appears for a little time, and then vanishes away.
+> James 4:14
 
 A sermon suggested by the sudden death of H.R.H., the Duke of Albany.
 

@@ -1,6 +1,7 @@
 # Sermon 1803 | Jehovah-Jireh
 
-"And Abraham called the name of that place Jehovah-jireh: as it is said to this day, In the mount of the Lord it shall be seen." Genesis 22:14.
+> And Abraham called the name of that place Jehovah-jireh: as it is said to this day, In the mount of the Lord it shall be seen.
+> Genesis 22:14
 
 "ABRAHAM called the name of that place Jehovah-jireh," or, "Jehovah will see it," or, "Jehovah will provide," or, "Jehovah will be seen." We are offered a variety of interpretations, but the exact idea is that of seeing and being seen. For God to see is to provide. Our own word, "provide," is only Latin for, "to see." You know how we say that we will see to a matter. Possibly this expression hits the nail on the head. Our heavenly Father sees our needs and, with Divine foresight of love, prepares the supply. He sees to a need to supply it&mdash;and in the seeing He is seen&mdash;in the providing He manifests Himself!
 

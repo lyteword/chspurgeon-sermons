@@ -1,6 +1,7 @@
 # Sermon 1813 | Jonah's Resolve&mdash;or, "Look Again!"
 
-"Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple." Jonah 2:4.
+> Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple.
+> Jonah 2:4
 
 WHAT a complex creature is man! Those who fancy that they can fully describe him, do not understand him. He is a riddle and a contradiction. As says Ralph Erskine&mdash;
 

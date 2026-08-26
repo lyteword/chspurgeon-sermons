@@ -1,6 +1,7 @@
 # Sermon 1809 | May I?
 
-"If I may." Matthew 9:21.
+> If I may.
+> Matthew 9:21
 
 THE woman in the narrative was fully persuaded that if she did but touch our Lord's garment, she would be made whole. What she had heard and seen concerning Jesus made her sure of His superabundant power to heal the sick. A touch would do it. Yes, even a touch of His clothes. Her one and only question was, might she touch Him? Could she touch Him? She would surely be healed if she could touch, but was this allowable? Was this possible? I know that multitudes of sin-sick men and women are vexed with this same question. Oh that I could help them over the difficulty! May the Holy Spirit, the Comforter, aid me!
 

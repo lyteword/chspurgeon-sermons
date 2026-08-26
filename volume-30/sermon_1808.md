@@ -1,6 +1,7 @@
 # Sermon 1808 | The Threshing Floor of Ornan
 
-"At that time, when David saw that the Lord had answered him on the threshing floor of Oman, the Jebusite, he sacrificed there." 1 Chronicles 21:28.
+> At that time, when David saw that the Lord had answered him on the threshing floor of Oman, the Jebusite, he sacrificed there.
+> 1 Chronicles 21:28
 
 "Then David said, This is the house of the Lord God, and this is the altar of the burnt offering for Israel."
 
