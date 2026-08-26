@@ -1,6 +1,7 @@
 # Sermon 2378 | Pardon for the Greatest Guilt
 
-"Manasseh did that which was evil in the sight of the Lord, like unto the abominations of the heathen, whom the Lord had cast out before the children of Israel. And when he was in affliction, he asked the Lord, his God, and humbled himself greatly before the God of his fathers, and prayed unto Him: and He was entreated of him, and heard his supplication, and brought him, again, to Jerusalem into his kingdom. Then Manasseh knew that the Lord, He was God." 2 Chronicles 33:2,12,13.
+> Manasseh did that which was evil in the sight of the Lord, like unto the abominations of the heathen, whom the Lord had cast out before the children of Israel. And when he was in affliction, he asked the Lord, his God, and humbled himself greatly before the God of his fathers, and prayed unto Him: and He was entreated of him, and heard his supplication, and brought him, again, to Jerusalem into his kingdom. Then Manasseh knew that the Lord, He was God.
+> 2 Chronicles 33:2,12,13
 
 THIS story of Manasseh is a very valuable one. I feel sure of this because you meet with it twice in the Word of God. It is a dreary story&mdash;a very dreary story&mdash;and the sad part of it is given twice in the Bible, while the consoling part of it is only recorded once. The Holy Spirit has some motive and reason for this, we may be sure. If you look in the Second Book of Kings, in the twenty-first Chapter, you will find, with some little alteration, the very same story that we have been reading, so far as the deplorable part of it is concerned. I take it that this is because God would have us pay great attention to this narrative. He would have us, again and again, dwell upon such wonders of Sovereign Grace as Manasseh presents to us.
 

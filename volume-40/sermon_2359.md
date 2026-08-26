@@ -1,6 +1,7 @@
 # Sermon 2359 | Personal and Effectual Calling
 
-"He calls His own sheep by name, and leads them out." John 10:3.
+> He calls His own sheep by name, and leads them out.
+> John 10:3
 
 IF YOU were near an Eastern village, you would probably see a large square, walled about with stones rolled roughly one upon another. You would also see a gate and, perhaps, more than one entrance into this enclosure. The square is empty through the day, for the flocks have gone into the neighboring pastures. But, towards evening, at certain seasons of the year, all the shepherds bring their flocks to these enclosures and there they are shut in for the night all together. One man has but a few sheep and another man has only a few sheep, while the more wealthy owner has larger flocks, but all are enclosed in what I will call the parish fold.
 

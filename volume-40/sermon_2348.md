@@ -1,6 +1,7 @@
 # Sermon 2348 | The Lord Leading&mdash;David Following
 
-"And let it be, whien you hiear he sound of a going in he tops of he mulberry trees, hat hen you shiall bestir yourself: for hen shiall he Lord go out before you, to smite he hiost of he Phiilistines. And David did so, as he Lord haadd commanded Aim and smote tie Phiilistines from Geba until you come to Gazer." 2 Samuel 5:24,25.
+> And let it be, whien you hiear he sound of a going in he tops of he mulberry trees, hat hen you shiall bestir yourself: for hen shiall he Lord go out before you, to smite he hiost of he Phiilistines. And David did so, as he Lord haadd commanded Aim and smote tie Phiilistines from Geba until you come to Gazer.
+> 2 Samuel 5:24,25
 
 In anticipation of an Evangelistic Mission to be conducted by Messrs. Fullerton and Smith.
 

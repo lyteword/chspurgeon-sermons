@@ -1,6 +1,7 @@
 # Sermon 2391 | The Keeper of the Vineyard
 
-"I the Lord keep it. I will water it every moment: lest any hurt it, I will keep it night and day." Isaiah 27:3.
+> I the Lord keep it. I will water it every moment: lest any hurt it, I will keep it night and day.
+> Isaiah 27:3
 
 MY discourse this evening can hardly be called a sermon. It will be just a simple talk about a few experimental Truths of God, but I trust that it will be useful to some of the Lord's people.
 

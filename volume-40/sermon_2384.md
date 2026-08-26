@@ -1,6 +1,7 @@
 # Sermon 2384 | "Forget You, I Will Not"
 
-"You are My servant: O Israel, you shall not be forgotten of Me." Isaiah 44:21.
+> You are My servant: O Israel, you shall not be forgotten of Me.
+> Isaiah 44:21
 
 The idols said nothing to their worshippers. They had mouths, but they spoke not. You might go on worshipping an image for 20 years, but you would never get a reply to anything you said to it. It could not see you, it could not hear you, it could not answer you. That is a poor kind of worship! I do not think that I would care to go on worshipping a Madonna even if she winked&mdash;one cannot make much out of a wink&mdash;we need something more than that from the object of our adoration.
 

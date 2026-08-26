@@ -1,6 +1,7 @@
 # Sermon 2342 | A New Year's Retrospect And Prospect
 
-"Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear." Psalm 10:17.
+> Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear.
+> Psalm 10:17
 
 IT has been sometimes said that a good Sabbath makes a good week. Sir Matthew Hale long ago said&mdash;
 

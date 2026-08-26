@@ -1,6 +1,7 @@
 # Sermon 2357 | The Two Pillars Of Salvation
 
-"We believe on Him that raised up Jesus, our Lord, from the dead; who was delivered for our offenses, and was raised, again, for our justification." Romans 4:24,25.
+> We believe on Him that raised up Jesus, our Lord, from the dead; who was delivered for our offenses, and was raised, again, for our justification.
+> Romans 4:24,25
 
 FAITH&mdash;true, saving faith&mdash;is in all ages the same. It may exercise itself upon different things, but the faith of Abraham is the same faith as that which was in the heart of Paul&mdash;and the faith of Paul was precisely the same faith as that which is in the heart of every Believer at the present moment! We have "like precious faith" with the godly of all the ages. It is always the same faith as it is always the same God and the same Savior.
 

@@ -1,6 +1,7 @@
 # Sermon 2388 | Once Dead, Now Alive
 
-"And you has He quickened, who were dead in trespasses and sins." Ephesians 2:1.
+> And you has He quickened, who were dead in trespasses and sins.
+> Ephesians 2:1
 
 I PREACHED to you, this morning,  the Doctrine of the Resurrection of the Dead and its various bearings. But unless you have experienced spiritual resurrection, you do not understand that doctrine and you cannot grasp its meaning. Spiritual resurrection may be understood in theory, but it cannot be really comprehended until we, ourselves, have been raised out of spiritual death. Always remember that in the things of God, knowledge is only to be gained by personal experience. If you would understand regeneration, you must be born again. If you would understand faith, simple as it is, you must, yourselves, believe.
 
