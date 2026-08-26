@@ -1,8 +1,7 @@
 # Sermon 2999 | Railings
 
-"When you build a new house, then you shall make a railing for your roof that you bring not guilt of bloodshed on your household, if any man fall from it." Deuteronomy 22:8.
-
-
+> When you build a new house, then you shall make a railing for your roof that you bring not guilt of bloodshed on your household, if any man fall from it.
+> Deuteronomy 22:8
 
 THIS interesting law which, in its letter, was binding on the Jewish people, in its spirit furnishes an admirable rule for us upon whom the ends of the world are come.
 

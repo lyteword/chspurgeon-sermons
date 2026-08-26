@@ -1,6 +1,7 @@
 # Sermon 3004 | The Christian's Manifestation
 
-"Beloved, now are we the sons of God, and it does not yet appear what we shall be; but we know that when He shall appear, we shall be like Him; for we shall see Him as He is." 1 John 3:2.
+> Beloved, now are we the sons of God, and it does not yet appear what we shall be; but we know that when He shall appear, we shall be like Him; for we shall see Him as He is.
+> 1 John 3:2
 
 THE text mentions, "now," and then passes on to the future and speaks of, "yet." It does, however, speak of, "now" and, after all, despite our trials, there is much to make us happy in our present condition. "Beloved, now are we the sons of God." Our manifold temptations and infirmities cannot make us lose the blessings that come to us through our adoption into the family of God! "Happy are you, O Israel: who is like unto you, O people saved by the Lord?" Today, even today, we are the blessed of the Lord and we find in godliness the blessing of "the life that now is."
 

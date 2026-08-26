@@ -1,6 +1,7 @@
 # Sermon 2980 | A Lift for the Prostrate
 
-"And he (that is, Jesus) came and took her by the hand, and lifted her up; and immediately the fever left her, and she ministered unto them." Mark 1:31.
+> And he (that is, Jesus) came and took her by the hand, and lifted her up; and immediately the fever left her, and she ministered unto them.
+> Mark 1:31
 
 Peter's wife's mother was sick of a very terrible fever. It was no ordinary one, such as, we are told, is common in the district when she lived, but "Luke, the beloved physician," as Paul calls the Evangelist, tells us that "Simon's wife's mother was taken with a great fever." You know that it is the nature of fever to leave the patient prostrate even when the disease departs, but Jesus Christ not only intended to heal Peter's wife's mother and to heal her at once, but He also meant that she should be so completely cured that she should have no lingering prostration. Christ's cures are always perfect cures, not partial ones! He does not cause the fever to go and permit the prostration to remain&mdash;He takes away both the fever and the prostration!
 
