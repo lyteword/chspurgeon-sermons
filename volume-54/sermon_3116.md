@@ -90,11 +90,11 @@ And now, dear Friends, in parting for the night, it is meet for us to say, "Fare
 
 But what of some of you? You can make no such appointment to meet us there, for your way is not that way&mdash;not with horses of fire to Heaven, but with chariots of flame down to Hell&mdash;down, down, down forever into the depths of grief! We dare not say that we will meet you there. If you will go there, you must go alone! If you will perish, you must perish by yourself! If you will live and die without a Savior, you cannot expect your friends to accompany you to that dreary world of woe! But why go you, why go you, O solitary traveler, where you would not have your fellow go? You would not see your child damned&mdash;let me say the word with solemn awe&mdash;you would not see your child damned, would you? Then why should you so dam yourself? "But must I be?" you ask. No, Sinner, there is no "must" for that! There hangs my Master, the Crucified Redeemer, and if you look to Him, there will be another "must" for you, namely, that you must be saved! The road to Heaven is by the Cross of Calvary. Christ Jesus marks the way to Glory by the crimson drops of blood which flowed from His pierced hands and feet. Trust Jesus! Trust Him wholly! Trust Him now! Trust Him forever and then we will meet! We will meet again in the morning, and so&mdash;good night!
 
-Exposition by C. H. Spurgeon: Psalm62.
+## Exposition by C. H. Spurgeon: Psalm62.
 
 In this Psalm the royal singer casts himself entirely on God. Here we see the foundation of his expectation laid bare. He has no confidence anywhere but in God. The Psalm begins in the original with the word, "Only." I always call it, "The 'only' Psalm" because it harps upon that word. David had no mixed reliance&mdash;he had not built upon a foundation partly of iron and partly of clay&mdash;it was all in harmony throughout. His trust was in the Lord alone!
 
-Verse 1. Truly. Or, as it is in the margin, "Only."
+Truly. Or, as it is in the margin, "Only."
 
 My soul waits upon God: from Him comes my salvation. It is a blessed thing to truly wait only upon God. You have proved everything else to be a failure and now you hang upon the bare arm of God alone. There is certainly enough for you to depend upon there! Most people want something to see, something tangible to the senses, to be the object of their confidence, but David says, "Only my soul waits upon God: from Him comes my salvation." It is already on the road. It is coming now. It is a salvation from present trouble and from present temptation. A complete salvation is on the road for all those whose souls are waiting only upon God!
 
@@ -110,11 +110,11 @@ My Soul, wait only upon God,  my expectation is from Him. First he said that his
 
 He only is my rock andmy salvation: He is my defense; I shallnot be moved. Notice how David's faith grows. In verse 2, he says, "I shall not be greatly moved." But now he says, "I shall not be moved at all." What strength faith gives to a man, and what strength prayer gives to a man! We may begin our supplication tremblingly, but as we draw near to God we become confident in Him and filled with holy boldness!
 
-8. In God is my salvation and my glory: the rock of my strength, and my refuge is in God. Trust in Him at all times. I cannot tell what "times" you may be passing through just now, yet I can repeat David's exhortation, "Trust in Him at all times." In your darkest hours, in the most terrible times that you ever have, when all seems lost, when the dearest object of your heart's love is taken from you, or when you, yourself, are coming to the swellings of Jordan, still trust in the Lord! "Trust in Him at all times."
+In God is my salvation and my glory: the rock of my strength, and my refuge is in God. Trust in Him at all times. I cannot tell what "times" you may be passing through just now, yet I can repeat David's exhortation, "Trust in Him at all times." In your darkest hours, in the most terrible times that you ever have, when all seems lost, when the dearest object of your heart's love is taken from you, or when you, yourself, are coming to the swellings of Jordan, still trust in the Lord! "Trust in Him at all times."
 
 You people, pour out your heart before Him. That is the way to get rid of all your troubles&mdash;take your heart and turn it upside down&mdash;and pour out all that is in it! Do not save a drop&mdash;try not to hide one secret sorrow from your God, nor one slight grief that nestles in a corner of your spirit. "Pour out your heart before Him." It will not be wise for you to pour it out before your fellows, for they will misunderstand you and misrepresent you. But "pour out your heart before Him."
 
-8, 9. God is a refuge for us. Selah. Surely men of low degree are vanity, There is nothing in them. They are only the very essence of vanity.
+God is a refuge for us. Selah. Surely men of low degree are vanity, There is nothing in them. They are only the very essence of vanity.
 
 And men of high degree&mdash;They must surely be better! No, they are even worse&mdash;"Men of high degree"&mdash;
 
