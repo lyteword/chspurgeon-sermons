@@ -1,6 +1,7 @@
 # Sermon 1475 | Crowning Blessings Ascribed to God
 
-"You crown the year with Your goodness." Psalm 65:11.
+> You crown the year with Your goodness.
+> Psalm 65:11
 
 (The second Sermon in commemoration of the completion of 25 years of his Ministry in the midst of the Church assembling in the Tabernacle).
 

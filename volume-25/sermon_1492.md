@@ -1,6 +1,7 @@
 # Sermon 1492 | The First Note of My Song
 
-"Who forgives all your iniquities." Psalm 103:3.
+> Who forgives all your iniquities.
+> Psalm 103:3
 
 I am a firm believer, not only in the Inspiration of the Psalms, themselves, but also in the correctness of their order. I believe that Paul was right when he called a certain Psalm, "the Second Psalm," and that those are wrong who so disarrange the book as to make it the sixteenth. Anything to certain radicals in theology is better than the established order&mdash; they change for change sake! Many attempts have been made to arrange the Psalms chronologically and critics have shifted them about at their pleasure, according to this theory or that. Their wisdom is utter folly! The Psalms as they stand have an order most appropriate and instructive.
 

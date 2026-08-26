@@ -1,6 +1,7 @@
 # Sermon 1459A | Satan's Punctuality, Power and Purpose
 
-"Then comes the devil, and takes away the Word out of their hearts, lest they should believe and be saved." Luke 8:12.
+> Then comes the devil, and takes away the Word out of their hearts, lest they should believe and be saved.
+> Luke 8:12
 
 IT is a great comfort that such multitudes are willing to hear the Word of God. Even though many should turn out to be as the rock, the wayside, or the thorny ground, still it is a cheering circumstance that the Seed can be sown broadcast over so large an acreage. Yet the thoughts excited by the sight of a vast congregation are not all pleasurable&mdash; the question most naturally arises&mdash;What will come of all this preaching and hearing? Will the heavenly Seed produce a harvest or fall on barren soil? The thoughtful Christian, in considering this question, takes into consideration the condition of the persons addressed and remembers that many are unprepared for the Gospel. So far from being like a field furrowed to receive the Seed, they are like a heavily traveled road.
 

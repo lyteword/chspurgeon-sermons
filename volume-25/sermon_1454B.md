@@ -1,6 +1,7 @@
 # Sermon 1454B | The Poor Man's Prayer
 
-"Remember me, O Lord, with the favor that You bear unto Your people: O visit me with Your salvation; that I may see the good of Your chosen, that I may rejoice in the gladness of Your nation, that I may glory with Your inheritance." Psalm 106:4,5.
+> Remember me, O Lord, with the favor that You bear unto Your people: O visit me with Your salvation; that I may see the good of Your chosen, that I may rejoice in the gladness of Your nation, that I may glory with Your inheritance.
+> Psalm 106:4,5
 
 BELOVED, we always reckon it a very hopeful sign when a man begins to think of personal religion. Merely to come with the crowd and professedly to worship is but poor work. But when a man gets to feel the weight of his own sin and to confess it with his heart before God&mdash;when he wants a Savior for himself and begins to pray alone that he may find that Savior&mdash;when he is not content with being the child of pious parents, or with having been introduced into the Church in his childhood after the fashion of certain sects. When he pines for real godliness, personal religion, true conversion&mdash;it is a blessed sign, indeed! When a stag separates itself from the herd, we reckon that the dart has struck home&mdash;the wound is grievous and the creature seeks solitude&mdash;for a bleeding heart cannot bear company. Blessed are God's woundings, for they lead to a heavenly healing!
 

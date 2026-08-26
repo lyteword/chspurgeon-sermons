@@ -1,6 +1,7 @@
 # Sermon 1471 | Concealing the Words of God
 
-"I have not concealed the Words of the Holy One." Job 6:10.
+> I have not concealed the Words of the Holy One.
+> Job 6:10
 
 (On behalf of the Baptist Missionary Society).
 
