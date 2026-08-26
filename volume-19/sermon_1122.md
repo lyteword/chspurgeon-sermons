@@ -1,6 +1,7 @@
 # Sermon 1122 | Fresh Grace Confidently Expected
 
-"I shall be anointed with fresh oil." Psalm 92:10.
+> I shall be anointed with fresh oil.
+> Psalm 92:10
 
 DAVID IS very positive. He does not say, "I hope I shall be anointed with fresh oil and I have a pleasing expectation that it may be so." But he speaks of his future as absolutely certain&mdash;"I shall be anointed with fresh oil." Nor will it appear at all wonderful that he should be so positive if you read the Psalm, for his subject there is the ever-living and all-sufficient God. And when we get near to God we get into the region of positive certainty. While we depend upon man we are in the realm of, "maybe," and, "hope," and, "perhaps"&mdash;but when we come to rest in God we are far removed from everything that is of chance and conjecture. Our God is the God of Truth and Righteousness. "He is my rock, and there is no unrighteousness in Him."
 

@@ -1,6 +1,7 @@
 # Sermon 1114 | Onward!
 
-"Brethren, I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus." Philippians 3:13,14.
+> Brethren, I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus.
+> Philippians 3:13,14
 
 SO far as his acceptance with God is concerned, a Christian is complete in Christ as soon as he believes. Those who have trusted themselves in the hands of the Lord Jesus are saved&mdash;and they may enjoy holy confidence upon the matter, for they have a Divine warrant for so doing. "There is therefore now no condemnation to them that are in Christ Jesus." To this salvation the Apostle had attained. But while the work of Christ for us is perfect and it were presumption to think of adding to it, the work of the Holy Spirit in us is not perfect&mdash;it is continually carried on from day to day&mdash;and will need to be continued throughout the whole of our lives.
 

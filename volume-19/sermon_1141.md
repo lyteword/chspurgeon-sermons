@@ -1,6 +1,7 @@
 # Sermon 1141 | Good News for the Destitute
 
-"He will regard the prayer of the destitute, and not despise their prayer." Psalm 102:17.
+> He will regard the prayer of the destitute, and not despise their prayer.
+> Psalm 102:17
 
 OBSERVE that the verse which precedes the text describes the Lord as appearing in His Glory. His Zion is to be built up and therefore her King puts on the robes of His splendor. The imagery sets forth the Lord as a great Monarch, superintending with great pomp and state, the building of a sumptuous palace. We see Him commanding the architects and the workmen, and passing from point to point amid attending courtiers. Trumpets are sounding, banners are displayed, princes and nobles glitter in their array and the King appears in His Glory.
 

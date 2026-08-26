@@ -1,6 +1,7 @@
 # Sermon 1098 | Wonders
 
-"And praise the name of the Lord your God, that has dealt wondrously with you." Joel 2:26.
+> And praise the name of the Lord your God, that has dealt wondrously with you.
+> Joel 2:26
 
 IN the case which is particularly mentioned in this chapter, the nation of Israel had very grievously gone astray and therefore they were visited by a very remarkable chastisement. An unusual plague of locusts devoured all the fruit of the field and the people were vexed with a sore famine. The day of the Lord was very terrible and none of them could abide it. The Prophet Joel was commissioned to exhort them to repentance and if, indeed, they listened to his earnest entreaties their later history was bright with mercy. By God's good hand upon them, they were brought to repentance&mdash;they wept and cried to God and then the same God who with His left hand had been wondrous in chastisement, was, with His right hand, equally wonderful in blessing and enriching them.
 
