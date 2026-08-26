@@ -1,6 +1,7 @@
 # Sermon 946 | The Profit Of Godliness In The Life To Come
 
-"Godliness is profitable unto all things, having the promise of the life that now is, and of that which is to come." 1 Timothy 4:8.
+> Godliness is profitable unto all things, having the promise of the life that now is, and of that which is to come.
+> 1 Timothy 4:8
 
 WE endeavored, this morning to prove the profitableness of godliness as to the life which now is, and to discriminate as to what the promise of this life really is. We tried to prove that "the promise" of the life that now is&mdash;its real and highest beauty and excellence&mdash;consists in peace of mind, peace with God, contentment, and happiness of spirit. And while we pointed out that godliness did not ensure wealth, or health, or even a good name&mdash;for all these, even to godly men, might not be granted&mdash;yet we showed that the great end of our being, that for which we live and were created, that which will best make it worth while to have existed, shall certainly be ours if we are godly.
 

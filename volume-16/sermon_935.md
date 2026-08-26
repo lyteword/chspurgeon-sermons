@@ -1,6 +1,7 @@
 # Sermon 935 | The Sad Wonder
 
-"And He marvelled because of their unbelief." Mark 6:6.
+> And He marvelled because of their unbelief.
+> Mark 6:6
 
 THAT Jesus marvelled was in itself a marvel. We never read that either science or art, Nature or Providence excited His wonder. We do not find that He marvelled at the grandeur of the Temple, although His disciples were evidently wonder-struck, for they said, "Master, see what manner of stones and buildings are here!" Little did His mind dwell upon the gigantic size of the stones, or the antiquity of the pile, or the grandeur of the architecture. But His sympathetic soul mourned as it foresaw the destruction of the whole, and of those who dwelt around it&mdash;and He uttered the prophetic words, "There shall not be left one stone upon another, that shall not be thrown down."
 

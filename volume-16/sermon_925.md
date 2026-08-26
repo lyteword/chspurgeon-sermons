@@ -1,7 +1,7 @@
 # Sermon 925 | Individual Sin Laid On Jesus
 
-"All we like sheep have gone astray. We have turned, every one to his own way; and the Lord has laid on Him the iniquity of us all." Isaiah 53:6.
-
+> All we like sheep have gone astray. We have turned, every one to his own way; and the Lord has laid on Him the iniquity of us all.
+> Isaiah 53:6
 
 I shall first give a general exposition of the text. Then in the second place I shall dwell upon the special doctrine which I wish to teach. And then, thirdly, we shall draw from that special doctrine a special lesson.
 

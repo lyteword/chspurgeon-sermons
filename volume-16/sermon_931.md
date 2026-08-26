@@ -1,6 +1,7 @@
 # Sermon 931 | Three Precious Things
 
-"He is precious." 1 Peter 2:7.
+> He is precious.
+> 1 Peter 2:7
 
 "Precious promises." 2Peter 1:4.
 

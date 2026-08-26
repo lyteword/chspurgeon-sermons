@@ -1,6 +1,7 @@
 # Sermon 909 | Voices from the Excellent Glory
 
-"And Jesus, when He was baptized, went up straightway out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit of God descending like a dove, and lighting upon Him: and lo a voice from Heaven, saying, This is My Beloved Son, in Whom I am well-pleased." Matthew 3:16,17.
+> And Jesus, when He was baptized, went up straightway out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit of God descending like a dove, and lighting upon Him: and lo a voice from Heaven, saying, This is My Beloved Son, in Whom I am well-pleased.
+> Matthew 3:16,17
 
 "While he yet spoke, behold, a bright cloud overshadowed them: and behold a Voice out of the cloud, which said, This is My Beloved Son, in Whom I am well-pleased; hear Him."
 
