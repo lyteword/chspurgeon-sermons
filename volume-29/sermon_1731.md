@@ -1,6 +1,7 @@
 # Sermon 1731 | Accepted of the Great Father
 
-"He has made us accepted in the Beloved." Ephesians 1:6.
+> He has made us accepted in the Beloved.
+> Ephesians 1:6
 
 A FEW Sabbath mornings ago I spoke to you upon those memorable words of the great Father, "This is My beloved Son, in whom I am well pleased"  We now go a step farther and see how the love of God to His beloved Son overflows and runs like a river of life to all those who are in Christ Jesus. To Jesus He says, "This is My beloved Son," and then He turns to all who are in union with Him and says, "These, also, are My beloved for His sake." As Believers we are assured by the text that we are "accepted in the Beloved," to the praise of the glory of God's Grace! Why is that peculiar title used here? It might have been said we are accepted in Christ, or accepted in the Mediator! There must be some motive for giving Him this special name in this place.
 

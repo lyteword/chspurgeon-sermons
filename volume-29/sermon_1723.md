@@ -1,6 +1,7 @@
 # Sermon 1723 | "Knock!"
 
-"Knock, and it shall be opened unto you." Matthew 7:12.
+> Knock, and it shall be opened unto you.
+> Matthew 7:12
 
 I believe, no doubt, that, taken very strictly, the three exhortations of this verse&mdash;which, indeed, are but one&mdash; were, first of all, intended for God's believing people. It was to His disciples that the Lord said, "Cast not your pearls before swine" and, perhaps, certain of them who were poor in spirit might turn around and say, "Lord, we have few pearls; we are too poor to have the treasures of Your Grace so plentifully. You have bidden us not to give that which is holy unto dogs; but holiness is rather a thing we seek after than possess." "Well," says the Lord, "you have only to ask and have; you have not because you ask not; you have only to seek and you will be sure to find&mdash;for holy things, like rare pearls, are to be discovered if you look for them. You have only to knock and spiritual secrets shall open to you, even the innermost Truths of God."
 

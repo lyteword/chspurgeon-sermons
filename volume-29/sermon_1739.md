@@ -1,6 +1,7 @@
 # Sermon 1739 | Bankrupt Debtors Discharged
 
-"And when they had nothing to pay, he frankly forgave them both." Luke 7:42.
+> And when they had nothing to pay, he frankly forgave them both.
+> Luke 7:42
 
 THE two debtors differed very considerably in the amounts which they owed&mdash;the one was in arrears 500 pence and the other fifty. There are differences in the guilt of sins and in the degrees of men's criminality. It would be a very unfair and unrighteous thing to say that all men are exactly alike in the extent of their transgression. Some are honest and upright, kind and generous, even though they are but natural men&mdash;while others appear to be of a malicious, envious, selfish disposition&mdash;and rush into evil, sinning, as it were, with both hands greedily. The man who is moral, sober and industrious is only a fifty-pence debtor as compared with the vicious, drunken blasphemer whose debt is written at 500 pence.
 

@@ -1,6 +1,7 @@
 # Sermon 1747 | Marvelous! Marvelous!
 
-"Thus says the Lord of Hosts: If it is marvelous in the eyes of the remnant of this people in these days, will it also be marvelous in My eyes? says the Lord of Hosts." Zechariah 8:6.
+> Thus says the Lord of Hosts: If it is marvelous in the eyes of the remnant of this people in these days, will it also be marvelous in My eyes? says the Lord of Hosts.
+> Zechariah 8:6
 
 God sent His servant Zechariah with a promise that Jerusalem should be rebuilt and that it should enjoy a time of great peace and prosperity. Instead of men being slain in battle in the prime of their days, old men and old women were to dwell in the streets of Jerusalem, "every man with his staff in his hand for very age." And whereas war had often cut off the women and the children, the promise further added, "the streets of the city shall be full of boys and girls playing in its streets." Everything was to be prosperous in the land around, so as to bring plenty into the city&mdash;"For the seed shall be prosperous; the vine shall give her fruit, and the ground shall give her increase, and the heavens shall give their dew; and I will cause the remnant of this people to possess all these things."
 

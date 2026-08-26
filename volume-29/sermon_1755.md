@@ -1,6 +1,7 @@
 # Sermon 1755 | The Top of the Ladder
 
-"And to know the love of Christ, whichpasses knowledge, thatyou might be filled with all the fullness of God." Ephesians 3:19.
+> And to know the love of Christ, whichpasses knowledge, thatyou might be filled with all the fullness of God.
+> Ephesians 3:19
 
 THIS is a part of Paul's prayer for the Ephesian believers. It is the closing clause and consummation of it. It mentions the grandest gift for which he prayed. His prayer was like that ladder which Jacob saw, the top of which reached to Heaven and God&mdash;and the Apostle at the foot of it was not asleep&mdash;but looking up with eager eyes and marking each rising rung of light. Be it ours by sweet experience to ascend that staircase of light! May the Holy Spirit reveal it to us even now! You must begin to read at the fourteenth verse&mdash;"For this cause I bow my knees unto the Father of our Lord Jesus Christ, of whom the whole family in Heaven and earth is named, that"&mdash;this is one rung of the ladder. "That He would grant you, according to the riches of His glory, to be strengthened with might by His Spirit in the inner man, that"&mdash; here comes the second rung&mdash;one step helps you to reach the next and you are strengthened that you may rise higher and enjoy a further privilege!
 

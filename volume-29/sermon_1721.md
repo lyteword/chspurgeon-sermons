@@ -1,6 +1,7 @@
 # Sermon 1721 | Glory!
 
-"Who has called us unto His eternal glory." 1 Peter 5:10.
+> Who has called us unto His eternal glory.
+> 1 Peter 5:10
 
 A FORTNIGHT ago, when I was only able to creep to the front of this platform, I spoke to you concerning the future of our mortal bodies&mdash;, we went a step further and we did not preach so much about the resurrection of the body as upon the hope of Glory for our entire nature, our text being, "Christ in you, the hope of glory."
 

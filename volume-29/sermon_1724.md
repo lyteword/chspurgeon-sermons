@@ -1,6 +1,7 @@
 # Sermon 1724 | Supposing Him to Have Been in the Company
 
-"Supposing Him to ha ve been in the company." Luke 2:44.
+> Supposing Him to ha ve been in the company.
+> Luke 2:44
 
 ALL who were present on the occasion are sure to remember our meditation upon, "Supposing Him to Be the Gardener"  Although it was only supposition and evidently a mistake, yet it yielded us most profitable thought. Here is another supposition, again a mistake&mdash;a mistake which yielded a good deal of sorrow to those who made it&mdash;and yet in the hands of God's Spirit, it may bring forth profitable instruction to us as we think it over.
 

@@ -1,6 +1,7 @@
 # Sermon 1716 | The Bridegroom's Parting Words
 
-"You that dwells in the gardens, the companions hearken to your voice: cause Me to hear it." Song of Solomon 8:13.
+> You that dwells in the gardens, the companions hearken to your voice: cause Me to hear it.
+> Song of Solomon 8:13
 
 THE Song is almost ended&mdash;the bride and Bridegroom have come to their last stanzas&mdash;and they are about to part for a while. They utter their adieus and the Bridegroom says to His beloved, "You that dwells in the gardens, the companions hearken to your voice: cause Me to hear it." In other words, when I am far away from you, fill this garden with My name and let your heart commune with Me. She promptly replies, and it is her last word till He comes, "Make haste, my Beloved, and be You like a roe or a young hart upon the mountains of spices." These farewell words of the Well-Beloved are very precious to His chosen bride. Last words are always noticed&mdash;the last words of those who loved us dearly are much valued&mdash;the last words of one who loved us to the death are worthy of a deathless memory.
 

@@ -1,6 +1,7 @@
 # Sermon 1717 | The Marvelous Magnet
 
-"I, if I am lifted up from the earth, will draw all men unto Me. This He said, signifying what death He should die." John 12:32,33.
+> I, if I am lifted up from the earth, will draw all men unto Me. This He said, signifying what death He should die.
+> John 12:32,33
 
 On an evening when the regular hearers left their seats to be occupied by strangers.
 
