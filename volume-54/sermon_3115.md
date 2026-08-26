@@ -1,8 +1,7 @@
 # Sermon 3115 | Sin and Grace
 
-"Where sin abounded, Grace did much more abound." Romans 5:20.
-
-
+> Where sin abounded, Grace did much more abound.
+> Romans 5:20
 
 There are two very powerful forces in the world which have been here ever since the time when Eve partook of the forbidden fruit in the Garden of Eden. Those two forces are sin and Divine Grace. A very great power is sin, a power dark, mysterious, baleful, but full of force. The sorrows of mankind&mdash;from where did they come but from sin? We would have known no war, nor pestilence, nor famine, nor would anything of sickness or sorrow ever have smitten the human race had not sin sown its evil seed in this earth! Sin is the Pandora's box from which all evil has come to mankind. See what ravages death has made&mdash;its hillocks are everywhere! Its mighty scythe mows men down as the mower cuts down the grass of the field&mdash;but death came by sin and after death comes judgment and, to the ungodly, the doom that never can be described, the eternal wrath whose blackness the wildest tempest cannot imitate! Who dug this pit? It was the Justice of God on account of sin and sin must, therefore, be charged with the authorship of sorrow, disease, death and Hell. This is no mean power with which we have come into conflict&mdash;it is a veritable Goliath&mdash;stalking along and defying the whole race of mankind!
 

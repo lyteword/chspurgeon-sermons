@@ -1,8 +1,7 @@
 # Sermon 3112 | A Sermon and a Reminiscence
 
-"Unto you therefore who believe, He is precious." 1 Peter 2:7.
-
-
+> Unto you therefore who believe, He is precious.
+> 1 Peter 2:7
 
 When one has a head cold, it is a very effectual hindrance to thought. You may do what you will and select what subject you may, but somehow or other the mind has lost its elasticity. I frankly confess that for this reason I selected this text for my discourse. I thought that, perhaps, if the head would not work, the heart might, and that if the thoughts came not, yet the emotions might. Emotions may well be stirred in the preacher, if not in the hearer, by the memories awakened by this passage. For I remember well that, more than 22 years ago, the first sermon that I ever attempted to make was from this text. I had been asked to walk out to the little village of Teversham, some little distance from the town of Cambridge, in which I lived, to accompany a young man whom I supposed to be the preacher for the evening, and on the way I said to him that I trusted God would bless him in his labors. "Oh, dear!" he said, "I never preached in my life. I never thought of doing such a thing! I was asked to walk with you and I sincerely hope that God would bless you in your preaching." "No," I said, "but I never preached and I don't know that I could do anything of the sort." We walked together till we came to the place, my inmost soul being all in a tremble as to what would happen. When we found the congregation assembled, and no one else there to speak of Jesus, though I was only 16 years of age, as I found that I was expected to preach, I did preach, and this was the text.
 

@@ -1,8 +1,7 @@
 # Sermon 3089 | A Sermon on a Grand Old Text
 
-"This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." 1 Timothy 1:15.
-
-
+> This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief.
+> 1 Timothy 1:15
 
 You will observe that Paul wrote this verse immediately after he had given a little outline of his own personal history. He had, he said, been "a blasphemer, and a persecutor, and injurious." And then he added this priceless Gospel verse, as if he inferred it from God's Grace to him, as well as received it by Inspiration, "This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." It was an experimental text, then, one which the Apostle fetched out of the deeps of his own soul, as divers bring pearls from the ocean bed. He dipped his pen into his own heart when he wrote these words. No preaching or teaching can equal that which is experimental. If we would impress the Gospel upon others, we must have first received it ourselves. Vainly do you attempt to guide a child in the pathway which you have never trodden, or to speak to adults of benefits of Divine Grace which you have never enjoyed. Happy is that preacher who can truly say he speaks what he does know and testifies what he has seen.
 

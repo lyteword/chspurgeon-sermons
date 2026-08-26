@@ -1,8 +1,7 @@
 # Sermon 3092 | Knowing and Doing
 
-"For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through Hispoverty, might be rich." 2 Corinthians 8:9.
-
-
+> For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through Hispoverty, might be rich.
+> 2 Corinthians 8:9
 
 We may, for once, dispense with a preface, and go straight to our subject. The text speaks, first, of something that we know. When we have, for a while, meditated upon that, we will speak of some things that are due because of this something that we know.
 

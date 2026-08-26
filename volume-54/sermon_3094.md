@@ -1,8 +1,7 @@
 # Sermon 3094 | Heart Piercing
 
-"Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the Apostles, Men and brethren, what shall we do?" Acts 2:37
-
-
+> Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the Apostles, Men and brethren, what shall we do?
+> Acts 2:37
 
 I daresay you have seen collections of celebrated sermons which have been chosen with more or less discretion. I suppose that the sermon of Peter, on the day of Pentecost, was one of the most celebrated discourses that was ever delivered, for it was the means of bringing 3,000 persons to conviction, to conversion, to profession of faith and to union with the visible Church! Yet I do not believe that any library collector would ever have put this sermon by Peter among the most famous. It does not seem to me to be very eloquent&mdash;there is no climax in it, nothing of that fashionable thing called a "peroration." It is all plain speaking and hard hitting, very personal, very much to the point, very full of clear Scriptural reasoning&mdash;but there is nothing at all oratorical about it. It is just such a simple speech as you might expect from a fisherman as Peter had been! I should think that Peter's discourse was delivered calmly and deliberately. He was at a white heat of earnestness and was altogether too earnest to lose his self-control. His whole being was so thoroughly possessed by what he had to say that he thought little of how he said it.
 

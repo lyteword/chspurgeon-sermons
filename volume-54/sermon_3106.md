@@ -1,8 +1,7 @@
 # Sermon 3106 | Freedom Through Christ's Blood
 
-"As for you also, by the blood of your covenant Have set forth your prisoners out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you." Zechariah 9:11,12.
-
-
+> As for you also, by the blood of your covenant Have set forth your prisoners out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you.
+> Zechariah 9:11,12
 
 This morning, . I tried to show that in consequence of the blood of the Covenant having been shed and the Covenant having so been fulfilled, Jesus Christ was brought back out of the prison of the grave, set at liberty and exalted to indescribable Glory in the highest Heaven. I then showed that Jesus Christ is the Representative of all His people&mdash; that when He was set free, they were virtually set free, and that when He returned into Glory, He went there as their Representative, taking possession of the heavenly places in their name, so that, in due time, where He is, there they may also be. I had not time, this morning, to make a fitting application of our subject. But happily for us, here stands another text, an older one, and yet most suitable to come after the other, so I will use it now.
 

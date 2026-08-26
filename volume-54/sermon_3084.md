@@ -1,8 +1,7 @@
 # Sermon 3084 | Paul's Parenthesis
 
-"By the Grace of God I am what I am." 1 Corinthians 15:10.
-
-
+> By the Grace of God I am what I am.
+> 1 Corinthians 15:10
 
 If you will read the context of this passage, you will find that these words occur in one of Paul's digressions, or parenthesis. He was a writer who very frequently went off at a tangent&mdash;he often left the subject on which he was writing, turned his thoughts in quite another direction&mdash;and then came back and went on with the subject which he had left for a while. In this respect, I have often, in my own mind, likened the Apostle Paul to Samson. When he was on the road to Timnah with his father and mother, he turned aside to slay the lion and afterwards to find the honey in the carcass. And each time he came back to his parents, just as if nothing had happened. So the Apostle Paul often turns aside from some grand argument upon which he is engaged and says something very valuable and important upon quite another topic&mdash;and then comes back again and calmly and deliberately goes on with his argument!
 
