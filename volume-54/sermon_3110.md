@@ -113,9 +113,9 @@ I leave these thoughts with those of you who know the way of the wilderness. Tho
 
 God bless every one of us, for Jesus' sake! Amen.
 
-Exposition by C. H. Spurgeon: Psalm143.
+## Exposition by C. H. Spurgeon: Psalm143.
 
-Verses 1-3. Hear my prayer, O Lord, give ear to my supplications: in Your faithfulness answer me, and in Your righteousness. And enter not into judgment with Your servant for in Your sight shall no man living be justified. For the enemy has persecuted my soul; he has smitten my life down to the ground; he has made me to dwell in darkness, as those that have been long dead. This is a very graphic description of David's sorrow. And those who have ever come under the power of Satan so as to be crushed in spirit and see all their hopes blighted and withered know what David meant when he penned these words. Only think of a soul dwelling in darkness like a body that has been long dead and shut up in the grave.
+Hear my prayer, O Lord, give ear to my supplications: in Your faithfulness answer me, and in Your righteousness. And enter not into judgment with Your servant for in Your sight shall no man living be justified. For the enemy has persecuted my soul; he has smitten my life down to the ground; he has made me to dwell in darkness, as those that have been long dead. This is a very graphic description of David's sorrow. And those who have ever come under the power of Satan so as to be crushed in spirit and see all their hopes blighted and withered know what David meant when he penned these words. Only think of a soul dwelling in darkness like a body that has been long dead and shut up in the grave.
 
 Therefore is my spirit overwhelmed within me; my heart within me is desolate. What a sad expression that is! It would be difficult to bring out all its meaning. "My heart within me is desolate"&mdash;lonely, deserted, desponding, despairing, almost destroyed.
 
@@ -123,7 +123,7 @@ I remember the days of old; I meditate on all Your works; I muse on the work of 
 
 I stretch forth my hands unto You: my soul thirsts after You, as a thirsty land. Selah. "My soul seems scarcely such a living thing as a thirsty stag panting for the cooling stream, but as the parched earth that cannot call to You, and yet does gape with open mouth as if she silently implored the rain, so is it with me." God sends the dew to the grass which cannot call to Him for it! Then how much more will He send the dew of His Grace to us who do cry to Him for it and with anguish thirst after it!
 
-8. Hear me speedily, O Lord: my spirit fails. Hide not Your face from me, lest I be like unto them that go down into the pit. Cause me to hear Your loving kindness in the morning; for in You do I trust cause me to know the way wherein I should walk; for I lift up my soul unto You. What a dead "lift" it is sometimes! Yet we must not let our soul lie
+Hear me speedily, O Lord: my spirit fails. Hide not Your face from me, lest I be like unto them that go down into the pit. Cause me to hear Your loving kindness in the morning; for in You do I trust cause me to know the way wherein I should walk; for I lift up my soul unto You. What a dead "lift" it is sometimes! Yet we must not let our soul lie
 
 in the gutter. By God's help, we must lift it up and the nearer the soul is lifted up to God, the more it comes into the light&mdash;and the more sure it is yet to obtain its liberty.
 
@@ -131,6 +131,6 @@ Volume 26&mdash;at school] for You are my God: Your spirit is good.
 
 "Make my spirit good!"
 
-10, 11. Lead me into the land of uprightness. Quicken me, O Lord, for Your name's sake. Do not these prayers fit you, my Brothers and Sisters? Do you not feel as if you were being taught how to pray by the reading of this Psalm? I think it must be so at least with some of you.
+Lead me into the land of uprightness. Quicken me, O Lord, for Your name's sake. Do not these prayers fit you, my Brothers and Sisters? Do you not feel as if you were being taught how to pray by the reading of this Psalm? I think it must be so at least with some of you.
 
-11, 12. For Your righteousness' sake bring my soul out of trouble. And of Your mercy cut offmy enemies, and destroy all them that afflict my soul: for I am Your servant. We cannot join in the prayers in this verse just as it stands, for we live in another dispensation in which we are taught to pray for our enemies, not against them, but as far as this verse relates to our spiritual enemies&mdash;our sins, temptations and Satanic foes&mdash;we do pray that they may be utterly cut off and that the very name of them may be blotted out from under Heaven! May God hear that prayer and answer it, for His dear son's sake! Amen.
+For Your righteousness' sake bring my soul out of trouble. And of Your mercy cut offmy enemies, and destroy all them that afflict my soul: for I am Your servant. We cannot join in the prayers in this verse just as it stands, for we live in another dispensation in which we are taught to pray for our enemies, not against them, but as far as this verse relates to our spiritual enemies&mdash;our sins, temptations and Satanic foes&mdash;we do pray that they may be utterly cut off and that the very name of them may be blotted out from under Heaven! May God hear that prayer and answer it, for His dear son's sake! Amen.
