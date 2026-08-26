@@ -1,6 +1,7 @@
 # Sermon 2326 | Satan Departing, Angels Ministering
 
-"And when the devil had ended all the temptation, he departed from Him for a season." Luke 4:13.
+> And when the devil had ended all the temptation, he departed from Him for a season.
+> Luke 4:13
 
 "Then the devil left Him, and behold, angels came and ministered unto Him."
 

@@ -1,6 +1,7 @@
 # Sermon 2310 | Howling Changed To Singing
 
-"Howlong will You forget me, O Lord? Forever? How long will You hide Your face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? How long shall my enemy be exalted over me?...I wiil sing unto the Lord, because He has dealt bountifully with me." Psalm 13:1,2, 6.
+> Howlong will You forget me, O Lord? Forever? How long will You hide Your face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? How long shall my enemy be exalted over me?...I wiil sing unto the Lord, because He has dealt bountifully with me.
+> Psalm 13:1,2, 6
 
 THIS is a very short Psalm, there are only six verses in it, but what a change there is between the beginning and the end of it! The first two verses are dolorous to the deepest degree, but the last verse is joyful to the highest degree. David begins many of his Psalms sighing and ends them singing, so that I do not wonder that Peter Moulin says, "One would think that those Psalms had been composed by two men of a contrary humor." If I were asked, "Are there two men here, or is there only one?" My answer would be that there is only one, but that one is two, for every man is two men, especially every spiritual man. He will find within himself an old man and a new man, an old nature and a new nature&mdash;and even the new nature, itself, is subject to strange changes&mdash;so that, like April weather, we have sunshine and showers blended. Sometimes it seems as if all the showers were poured on top of the sunshine and the sunshine, itself, were quenched and could scarcely gladden us.
 

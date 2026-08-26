@@ -1,6 +1,7 @@
 # Sermon 2332 | Lessons From the Manna
 
-"Then said the Lord unto Moses, Behold, I will rain bread from Heaven for you; and the people shall go out and gather a certain quota every day, that I may prove them, whether they will walk in My Law, or no." Exodus 16:4.
+> Then said the Lord unto Moses, Behold, I will rain bread from Heaven for you; and the people shall go out and gather a certain quota every day, that I may prove them, whether they will walk in My Law, or no.
+> Exodus 16:4
 
 IT seems to us that it must have been a very difficult thing to supply food for the hundreds of thousands, I shall not be incorrect if I say the millions who were in the wilderness. But, difficult as that was, the commissariat was not so difficult as the education. To train that mob of slaves into a nation under discipline&mdash;to lift up those who had been in bondage and make them fit to enjoy national privileges&mdash;this was the Herculean task that Moses had to perform. And their God, who loved the children of Israel and chose them&mdash;and determined to make them a peculiar people unto Himself, undertook to teach them&mdash;and He used their food as part of the means of their education. Animals are often taught through their food. When they cannot be reached in any other way, they have been instructed by their hunger, by their thirst and by their feeding. And the Lord, who knew of what a coarse nature Israel was composed, and how the people had degenerated from the old stock during their long bondage, took care to teach them by every means, not only by the higher and the more spiritual, by the typical and symbolical, but He also taught them by their hunger and by their thirst, by the supply of water from the Rock and by the manna which He rained from Heaven.
 

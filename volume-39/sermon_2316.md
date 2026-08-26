@@ -1,6 +1,7 @@
 # Sermon 2316 | Twelve Covenant Mercies
 
-"Incline your ear, and come unto Me: hear, and your soul shall live: and I will make an everlasting Covenant with you, even the sure mercies of David." Isaiah 55:3.
+> Incline your ear, and come unto Me: hear, and your soul shall live: and I will make an everlasting Covenant with you, even the sure mercies of David.
+> Isaiah 55:3
 
 I GOT so far this morning  as to plead with men to come to God to hear what He had to say, to give diligent and earnest heed to His teaching about their souls and about salvation. And while I pleaded, I can truly say, with all the strength I had, I made this one of the master arguments that, in hearing, their soul would live&mdash;and in coming to God, they would find Him ready to enter into Covenant with them, "an everlasting Covenant, even the sure mercies of David."
 

@@ -1,6 +1,7 @@
 # Sermon 2314 | Three Blessings of the Heavenly Charter
 
-"You have granted me life and favor, and Your visitation has preserved my spirit." Job 10:12.
+> You have granted me life and favor, and Your visitation has preserved my spirit.
+> Job 10:12
 
 IT is well, sometimes, to sit down and take a grateful review of all that God has done for us, and with us, from our first day until now. We must not be like hogs under the oak, that eat the acorns but never thank the tree, or the Lord who made it grow. We must not receive the dew and yet never think of the Heaven from which it comes. To be ungrateful is to be unmanly&mdash;to be ungrateful to God is to commit high treason against the majesty of His goodness. I think that an hour would be well spent, by any person here, in sitting quietly and going over his autobiography. Turn over the pages of your diary&mdash;if you have none written, turn over the pages of your memory&mdash;and think of all that God has done for you from the day when you hung upon your mother's breast until the present moment&mdash;
 

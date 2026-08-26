@@ -1,6 +1,7 @@
 # Sermon 2289 | The Right Keynote for the New Year
 
-"But we will bless the Lord from this time forth and forevermore. Praise the Lord." Psalm 115:18.
+> But we will bless the Lord from this time forth and forevermore. Praise the Lord.
+> Psalm 115:18
 
 IT has been truly said that if the members of our churches were in a right condition of heart, the work of the pastor towards them would be no more difficult than that of a commanding officer to his troops. A general, or a captain has never to study eloquence&mdash;he has simply to give the word of command tersely and plainly&mdash;and himself to lead the way. So, if our hearts were right in the sight of God, we would not need illustrations to win attention or arguments to urge us on&mdash;we would only need to know what is the special duty of the hour and, helped by the Divine Spirit&mdash;we would, with alacrity, seek to perform it.
 

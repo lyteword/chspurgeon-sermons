@@ -1,6 +1,7 @@
 # Sermon 2292 | Abraham, a Pattern To Believers
 
-"By faith he (Abraham) sojourned in the land of promise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker is God." Hebrews 11:9,10.
+> By faith he (Abraham) sojourned in the land of promise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker is God.
+> Hebrews 11:9,10
 
 ABRAHAM's life, taken literally, is full of instruction, but we shall be wise to take the spirit of it and endeavor to make it our own. We cannot live just as Abraham did, but we can carry out the great principles which lay at the root of Abraham's life and, if the Holy Spirit will work in us a like degree of faith to that of the holy Patriarch, we may glorify God by our lives, even as he did.
 

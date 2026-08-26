@@ -1,6 +1,7 @@
 # Sermon 2333 | The Whole Band Against Christ
 
-"Then the soldiers of the governor took Jesus into the Common Hall and gathered unto Him the whole band of soldiers." Matthew 27:27.
+> Then the soldiers of the governor took Jesus into the Common Hall and gathered unto Him the whole band of soldiers.
+> Matthew 27:27
 
 I HAVE not observed that anyone has turned to account the fact that "the whole band of soldiers" gathered in the Praetorium, or Common Hall, for the purpose of mocking our Lord. That they did mock Him has often been noticed and preached upon, but that they should have gathered unto Him the whole garrison&mdash;that all should have been there&mdash;is mentioned both by Matthew and by Mark. And this being twice recorded cannot have been without some meaning and some lesson for us.
 
