@@ -76,9 +76,9 @@ And finally, this will be our judgment at the Last Great Day. We shall account t
 
 If you love not the Lord Jesus Christ, take heed that He should come against you with His rod of iron and utterly destroy you. May He, by His gracious Spirit, give to all of us faith in Him and loyalty to Him for His dear name's sake! Amen.
 
-Exposition by C. H. Spurgeon: John 14.
+## Exposition by C. H. Spurgeon: John 14.
 
-Verse 1. Let not your heart be troubled: you believe in God, believe also in Me.\See Sermons #730, Volume 13&mdash;let not your
+Let not your heart be troubled: you believe in God, believe also in Me.\See Sermons #730, Volume 13&mdash;let not your
 
 heart be troubled; #1741, Volume 29&mdash;"Let not your heart be troubled" and #3076, Volume 54&mdash;The Cause and Effect of Heart Trouble&mdash; the Sermon to which this Exposition belongs.] Here is a troubled company of
 
@@ -104,34 +104,34 @@ impossible it is to fully describe our Lord in human language! He is going away,
 
 If you had known Me, you would have known My Father also: and from henceforth you know Him, and have seen Him. It cheers the children of God to talk to them about their Father, and about their Father's house, so that is what the Elder Brother did in His great kindness to His disciples&mdash;He talked to them about their Father and His Heaven.
 
-8-10. Philip said unto Him, Lord, show us the Father, and it suffices us. Jesus said unto him, Have I been so long a time with you, and yet have you not known Me, Philip? He that has seen Me has seen the Father; then how can you say, Show us the Father? Do you not believe I am in the Father, and the Father in Me? The words that I speak unto you I speak not of Myself: but the Father that dwells in Me, He does the works. Christ and the Father are indissolubly One. Even when He was here in His humiliation, He was not separated from His Father except in that dread hour when He was bearing His people's sins upon the Cross. Now He is visibly One with His Father on the Throne of Glory!
+Philip said unto Him, Lord, show us the Father, and it suffices us. Jesus said unto him, Have I been so long a time with you, and yet have you not known Me, Philip? He that has seen Me has seen the Father; then how can you say, Show us the Father? Do you not believe I am in the Father, and the Father in Me? The words that I speak unto you I speak not of Myself: but the Father that dwells in Me, He does the works. Christ and the Father are indissolubly One. Even when He was here in His humiliation, He was not separated from His Father except in that dread hour when He was bearing His people's sins upon the Cross. Now He is visibly One with His Father on the Throne of Glory!
 
-11, 12. Believe Me that Iam in the Father, and the Father in Me: or else believe Me for the very works 'sake. Verily, verily, I say unto you, He that believes on Me, the works that I do shall he do also. "I am going away from you; but be not dismayed, for I shall not take away My power from you&mdash;that will remain with you."
+Believe Me that Iam in the Father, and the Father in Me: or else believe Me for the very works 'sake. Verily, verily, I say unto you, He that believes on Me, the works that I do shall he do also. "I am going away from you; but be not dismayed, for I shall not take away My power from you&mdash;that will remain with you."
 
-12, And greater works than these shall he do; because I go unto My Father. "My very absence will let loose a greater power than you could have experienced while I was here! You will need more power when I am gone from you, and you shall have more. Therefore, 'let not your heart be troubled.' Besides, you will still be able to pray, and prayer will bring you greater blessings than any that I ever gave you."
+And greater works than these shall he do; because I go unto My Father. "My very absence will let loose a greater power than you could have experienced while I was here! You will need more power when I am gone from you, and you shall have more. Therefore, 'let not your heart be troubled.' Besides, you will still be able to pray, and prayer will bring you greater blessings than any that I ever gave you."
 
-13, 14. And whatever you shall ask in My name, that will I do, that the Father may be glorified in the Son. If you shall ask anything in My name, I will do it. Every word in this address of Christ was full of comfort to His disciples.
+And whatever you shall ask in My name, that will I do, that the Father may be glorified in the Son. If you shall ask anything in My name, I will do it. Every word in this address of Christ was full of comfort to His disciples.
 
-15, 16. If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter, that He may abide with you forever. There was the One who would enable the disciples to meet every trial&mdash;
+If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter, that He may abide with you forever. There was the One who would enable the disciples to meet every trial&mdash;
 
 that other Comforter  whom Christ promised to them! Their trouble was that their Lord was going away from them. That other Comforter made amends for that and He will make amends to you, Believer, for every form of trial to which you may be exposed. Is it bodily weakness? Is it the infirmity of old age? Is it depression of spirit? Is it losses and crosses at home? Is it crooked things that cannot be made straight? Well, Christ's promise still stands good, "I will pray the Father, and He shall give you another Comforter, that He may abide with you forever."
 
 Even the Spirit of Truth: whom the world cannot receive, because it sees Him not, neither knows Him: but you know Him."You are on familiar terms with Him. You are intimate with Him. You know Him."
 
-17-20. For He dwells with you, andshall be in you. I will not leave you comfortless. I will come to you. Yet a little while, and the world sees Me no more; but you see Me: because I live, you shall live also. At that day you shall know that I am in My Father, and you in Me, and I in you. These are the three wonderful mysteries of the union between God, and Christ, and His people&mdash;"I am in My Father, and you in Me, and I in you."
+For He dwells with you, andshall be in you. I will not leave you comfortless. I will come to you. Yet a little while, and the world sees Me no more; but you see Me: because I live, you shall live also. At that day you shall know that I am in My Father, and you in Me, and I in you. These are the three wonderful mysteries of the union between God, and Christ, and His people&mdash;"I am in My Father, and you in Me, and I in you."
 
-21, 22. He that has My commandments andkeeps them, he it is that loves Me: andhe that loves Me shall be loved of My Father, and I will love him, and will manifest Myself to him. Judas said unto Him, not Iscariot, Lord, how is it that You will manifest Yourself unto us, and not unto the world? "Perhaps if You did manifest Yourself to the world, the world would bow down before You and worship You." But Christ's plan was to manifest Himself to the inner circle of His own chosen ones.
+He that has My commandments andkeeps them, he it is that loves Me: andhe that loves Me shall be loved of My Father, and I will love him, and will manifest Myself to him. Judas said unto Him, not Iscariot, Lord, how is it that You will manifest Yourself unto us, and not unto the world? "Perhaps if You did manifest Yourself to the world, the world would bow down before You and worship You." But Christ's plan was to manifest Himself to the inner circle of His own chosen ones.
 
-23-27. Jesus answered and said unto him, If a man loves Me, he will keep My words: and My Father will love him, and We will come unto him, and make our abode with him. He that loves Me not keeps not My sayings: and the word
+Jesus answered and said unto him, If a man loves Me, he will keep My words: and My Father will love him, and We will come unto him, and make our abode with him. He that loves Me not keeps not My sayings: and the word
 
 which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, whatever I have said unto you. Peace I leave with you, My peace I give unto
 
 you.  He had given them peace while He was with them. His Divine Presence had been their continual comfort. But now, although He was going away from them, He would leave His peace behind Him as the most precious legacy that He could bequeath to them&mdash;"Peace I leave with you, My peace I give unto you."
 
-27, 28. Not as the world gives, give I unto you. Let not your heart be troubled, neither let it be afraid. You have heard how I said unto you, I go away, and come again unto you. If you loved Me, you would rejoice&mdash;. "I know that you do love Me, but if you really acted as if you loved Me, you would rejoice."
+Not as the world gives, give I unto you. Let not your heart be troubled, neither let it be afraid. You have heard how I said unto you, I go away, and come again unto you. If you loved Me, you would rejoice&mdash;. "I know that you do love Me, but if you really acted as if you loved Me, you would rejoice."
 
-28, Because I said, I go unto the Father: for My Father is greater than I. The Lord Jesus, though equal with the Father, had voluntarily laid aside His Glory and taken the form and place of a Man, making Himself of no reputation, so His disciples ought to have rejoiced that He was going back to His primitive Glory!
+Because I said, I go unto the Father: for My Father is greater than I. The Lord Jesus, though equal with the Father, had voluntarily laid aside His Glory and taken the form and place of a Man, making Himself of no reputation, so His disciples ought to have rejoiced that He was going back to His primitive Glory!
 
-29, 30. AndnowIhave toldyou, before it comes topass, that when it is comes topass, you might believe. Hereafter I will not talk much with you: for theprince of this world comes, and has nothing in Me. Still Christ would have enough to do to meet that arch-enemy and to endure all that would come upon Him during that dread encounter.
+AndnowIhave toldyou, before it comes topass, that when it is comes topass, you might believe. Hereafter I will not talk much with you: for theprince of this world comes, and has nothing in Me. Still Christ would have enough to do to meet that arch-enemy and to endure all that would come upon Him during that dread encounter.
 
 But that the world may know that I love the Father; and as the Father gave Me commandment, even so I do. Arise, let us go from here.
