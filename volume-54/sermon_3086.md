@@ -105,7 +105,7 @@ This is the lower part of the choir. Some of the singers are up in the galleries
 
 But whether you will rejoice or not, my soul does magnify the Lord and my spirit does rejoice in God my Savior! And so I will, by His help, till death suspends these mortal songs, or melts them into the immortal songs before the Throne of God! God bless you, Brothers and Sisters, for Christ's sake! Amen.
 
-Exposition by C. H. Spurgeon: Psalm 116.
+## Exposition by C. H. Spurgeon: Psalm 116.
 
 I love the Lord because He has heard my voice and my supplications.  Every answered prayer should make us love the
 
@@ -113,17 +113,17 @@ Lord and especially those prayers that come up from our heart when it is overwhe
 
 Because He has inclined His ear unto me, therefore will I call upon Him as long as I live. "This begging business pays so well that I will never give it up as long as I live! The Lord has heard me, so He shall hear me again and again. He is so good and so generous a God&mdash;and such bounties are continually being distributed at His door&mdash;that I will never go to anybody else, but will continue to knock at God's door as long as I live." The Psalmist goes on to tell us what was the special occasion which brought out this expression of his gratitude.
 
-4. The sorrows of death compassed me, and the pains of Hell got hold upon me: I found trouble and sorrow. Then called I upon the name of the Lord; O Lord, I beseech You, deliver my soul  His petition was short, earnest, plain and personal. It was a
+The sorrows of death compassed me, and the pains of Hell got hold upon me: I found trouble and sorrow. Then called I upon the name of the Lord; O Lord, I beseech You, deliver my soul  His petition was short, earnest, plain and personal. It was a
 
 sharp arrow shot from the bow of prayer&mdash;and it reached its mark in the heart of God. Are any of you just now in very sore distress? Then let each one imitate the example of the Psalmist and pray, " Lord, I beseech You, deliver my soul." Have you been delivered as the Psalmist was? Then, make a note of it! Be sure to jot it down in your diary, so that when you get into such a trouble again, you may turn to the record of God's delivering mercy and say, "The God who delivered me before has not changed, so I will apply to Him again, for I am sure that He will again deliver me."
 
-5, 6. Gracious is the Lord, and righteous; yes our Godis merciful The Lord preserves the simple: I was brought low and He helped me. Poor simpletons who cannot help themselves, but who are, nevertheless, free from deceit and craft and take God's Word as they find it&mdash;sincere simple souls&mdash;who trust in the Lord! He will take care of them, but He will leave those who think they are wise enough to do so, to take care of themselves.
+Gracious is the Lord, and righteous; yes our Godis merciful The Lord preserves the simple: I was brought low and He helped me. Poor simpletons who cannot help themselves, but who are, nevertheless, free from deceit and craft and take God's Word as they find it&mdash;sincere simple souls&mdash;who trust in the Lord! He will take care of them, but He will leave those who think they are wise enough to do so, to take care of themselves.
 
-7, 8. Return unto your rest my soul; for the Lord has dealt bountifully with you. For You have delivered my soul from death, my eyes from tears, and my feet from falling. If we have enjoyed this trinity of deliverances, let us praise the Three-One God forever and ever! Praise Him, my Soul, if you are saved! Praise God, my eyes! Be filled with the happy tears of gratitude since He has delivered you from the bitter, briny tears of grief! Praise Him, you feet that He has kept from falling and run in the way of His commandments with great joy!
+Return unto your rest my soul; for the Lord has dealt bountifully with you. For You have delivered my soul from death, my eyes from tears, and my feet from falling. If we have enjoyed this trinity of deliverances, let us praise the Three-One God forever and ever! Praise Him, my Soul, if you are saved! Praise God, my eyes! Be filled with the happy tears of gratitude since He has delivered you from the bitter, briny tears of grief! Praise Him, you feet that He has kept from falling and run in the way of His commandments with great joy!
 
 I will walk before the Lord in the land of the living. "That shall be my way of walking&mdash;not before men, that I may gain their praise, but I will consider the Lord and the Lord alone. And as long as I please Him, I shall not mind whether I please anybody else or not.
 
-10, 11. I believed, therefore have I spoken: I was greatly afflicted: I said in my haste, All men are liars. It is always better not to speak in haste. It is very seldom that we say much that is worth hearing when we talk too fast. "I said in my haste, All men are liars."
+I believed, therefore have I spoken: I was greatly afflicted: I said in my haste, All men are liars. It is always better not to speak in haste. It is very seldom that we say much that is worth hearing when we talk too fast. "I said in my haste, All men are liars."
 
 What shall I render unto the Lord for all His benefits toward me? That is better, for it is better to praise the Lord than to find fault with men, even if the fault found is really there. It is better for each one of us to be rendering our
 
@@ -138,7 +138,7 @@ I will take&mdash;The Psalmist asks, "What shall I render?" And he answers, "I w
 
 "I will take"&mdash;
 
-13, 14. The cup of salvation, and call upon the name of the Lord. I willpay my vows unto the Lord now in the presence ofall His people. And I can be spokesman for you, Brothers and Sisters in Christ, and say that the Lord is good, and that we have proved Him to be good to us under peculiarly trying circumstances. He does not fail to help His people, neither does He turn His back upon them in their hour of need. We have tried all other dependences and have been bitterly disappointed. But the Rock of Israel's salvation stands fast forever, Glory be to the name of Jehovah of Hosts! Let us pay our vows unto the Lord now in the presence of all His people.
+The cup of salvation, and call upon the name of the Lord. I willpay my vows unto the Lord now in the presence ofall His people. And I can be spokesman for you, Brothers and Sisters in Christ, and say that the Lord is good, and that we have proved Him to be good to us under peculiarly trying circumstances. He does not fail to help His people, neither does He turn His back upon them in their hour of need. We have tried all other dependences and have been bitterly disappointed. But the Rock of Israel's salvation stands fast forever, Glory be to the name of Jehovah of Hosts! Let us pay our vows unto the Lord now in the presence of all His people.
 
 Precious in the sight of the Lord is the death of His saints. j It is an event for which He makes all necessary arrangements. He does not allow it to happen "accidentally," or according to the will of man. As good old John Ryland says&mdash;
 
@@ -151,4 +151,4 @@ bonds.  The Psalmist
 
 said that he was a home-born slave because his mother was a servant of God and he was born, as it were, a servant of his mother's Lord. How delightful it is to be a Christian and the son of a Christian! Let us rejoice and be glad if that is our happy lot. It is more honor to have had a mother who feared the Lord than a mother who was princess or an empress, but who had not the Grace of God in her heart.
 
-17-19. I will offer to You the sacrifice of thanksgiving, and will call upon the name of the Lord. I will pay my vows unto the Lord now in the presence ofall His people, in the courts of the Lord's house, in the midst of you, O Jerusalem. Praise you the Lord.
+I will offer to You the sacrifice of thanksgiving, and will call upon the name of the Lord. I will pay my vows unto the Lord now in the presence ofall His people, in the courts of the Lord's house, in the midst of you, O Jerusalem. Praise you the Lord.
