@@ -1,6 +1,7 @@
 # Sermon 1230 | A Holy and Homely Resolve
 
-"I will behave myself wisely in a perfect way. O when will You come unto me? I will walk within my house with a perfect heart." Psalm 101:2.
+> I will behave myself wisely in a perfect way. O when will You come unto me? I will walk within my house with a perfect heart.
+> Psalm 101:2
 
 THE one hundredth Psalm is perhaps the best known song of praise in the Word of God. To sing the "Old Hundredth" has been a habit of worshippers from generation to generation&mdash;the custom of every succeeding age as it is still our custom. "Make a joyful noise unto the Lord all you lands." Now, it is somewhat significant that the one hundred and first, which immediately follows it, should be such a practical Psalm&mdash;all about how a man should walk in his house, how he should put away sin from his very eyes and keep himself from evil companionship. What does it seem to teach us but this, that the best praise is purity and that the best music in the world is holiness?
 

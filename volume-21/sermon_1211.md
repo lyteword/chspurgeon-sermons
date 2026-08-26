@@ -1,6 +1,7 @@
 # Sermon 1211 | The Hospital of Waiters Visited with the Gospel
 
-"Jesus said unto him, Rise, take up your bed, and walk." John 5:8.
+> Jesus said unto him, Rise, take up your bed, and walk.
+> John 5:8
 
 IT was the Sabbath! Where would Jesus spend that day and how? He would not spend it, we are quite sure, in any unhallowed manner or in any trifling sort. What would He do? He would do good, for it is lawful to do good on the Sabbath. Where would He do good? He knew that there was one sight in Jerusalem which was particularly painful&mdash;the sight of a number of poor persons, blind, lame and crippled, who were lying round a pool of water, waiting for a blessing which seldom came. He thought He would go and do good there, for there good was most needed. Would to God that all Christ's servants felt that the most urgent necessity has the greatest claim upon them&mdash;that where there is the most need, there they ought to exercise the most kindness&mdash;and that no way of spending the Sabbath could be better than that of bearing the Gospel of Salvation to those who are most in need of it.
 

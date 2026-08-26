@@ -1,6 +1,7 @@
 # Sermon 1244 | Faith's Ultimatum
 
-"Though He slay me, yet will I trust in Him." Job 13:15.
+> Though He slay me, yet will I trust in Him.
+> Job 13:15
 
 THIS is one of the supreme sayings of Scripture. It rises, like an alpine summit, clear above all ordinary heights of speech. It pierces the clouds and glistens in the Light of God. If I were required to quote a selection of the most sublime utterances of the human mind, I should mention this among the first&mdash;"Though He slay me, yet will I trust in Him." I think I might almost say to the man who thus spoke, what our Lord said to Simon Peter when he had declared him to be the Son of the Highest&mdash;"Flesh and blood has not revealed this unto you." Such tenacious holding, such immovable confidence, such unstaggering reliance are not products of mere nature, but rare flowers of rich Divine Grace!
 

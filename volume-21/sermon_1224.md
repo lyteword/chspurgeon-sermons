@@ -1,6 +1,7 @@
 # Sermon 1224 | Jesus, The Stumbling Stone Of Unbelievers
 
-"Unto you therefore which believe He is precious: but unto them which are disobedient, the stone which the builders disallowed, the same is made the head of the corner, and a stone of stumbling, and a rock of offense, even to them which stumble at the word, being disobedient." 1 Peter 2:7,8.
+> Unto you therefore which believe He is precious: but unto them which are disobedient, the stone which the builders disallowed, the same is made the head of the corner, and a stone of stumbling, and a rock of offense, even to them which stumble at the word, being disobedient.
+> 1 Peter 2:7,8
 
 So it always is where Jesus comes&mdash;He divides the company into Believers and unbelievers&mdash;the obedient and the disobedient. But why are unbelievers, here, called disobedient? Is faith a matter of law and because a man does not believe, does he therefore disobey? How can it be otherwise? Is it not a natural duty for every man to believe that which is true? Let the very least among us judge in so simple a matter! It so happens that in the very form and sound of the words in the original tongue, to believe and to obey are much the same and, certainly, to disbelieve and to disobey are things of very near relationship. To disbelieve is in its very essence disobeying, for he who disbelieves the Word of the King is disloyal at heart.
 
