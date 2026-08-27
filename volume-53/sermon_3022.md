@@ -126,11 +126,11 @@ I wish that all of us here, constantly receiving, as we do, so many mercies, had
 
 May God bless you all, for Jesus' sake! Amen.
 
-Exposition by C. H. Spurgeon: Psalm 71.
+## Exposition by C. H. Spurgeon: Psalm 71.
 
 This Psalm, written by an old man, is especially suitable for an old man. It is numbered seventy-one and it may suit those who have reached that age&mdash;but it is also appropriate to us all in prospect of the days of feebleness that will come to us, sooner or later, if we are spared to grow old.
 
-Verse 1. In You, O Lord, do I put my trust let me never be put to confusion. "Stand by me, O Lord, for I only stand as You uphold me&mdash;and if You should leave me, after I have trusted in You&mdash;what could I say or do? Therefore, O Jehovah, since I put my trust in You, 'let me never be put to confusion.'"
+In You, O Lord, do I put my trust let me never be put to confusion. "Stand by me, O Lord, for I only stand as You uphold me&mdash;and if You should leave me, after I have trusted in You&mdash;what could I say or do? Therefore, O Jehovah, since I put my trust in You, 'let me never be put to confusion.'"
 
 Deliver me in Your righteousness, and cause me to escape. "I am like a poor dove taken in a net&mdash;I cannot get away. Stretch out Your hand, O Lord, and tear the net and so deliver me, and cause me to escape. I cannot do anything for myself, except pray to You to deliver me."
 
@@ -140,7 +140,7 @@ Be You my strong habitation, whereunto I may continually resort You have given c
 
 "You have commanded angels and men, 'Touch not My anointed, and do My Prophets no harm.'" And each Believer can say to Him, "You have given commandment to save me; for You are my rock and my fortress."
 
-4, 5. Deliver me, O my God, out of the hands of the wicked, out of the hands of the unrighteous and cruel man. For You are my hope, O Lord God: You are my trust from my youth Happy is the man who can truthfully say that, "You are my trust from my youth." God does not cast off His old servants, as men often do. Those who give Him the best of their days will not find that He will desert them when the feebleness of age creeps over them.
+Deliver me, O my God, out of the hands of the wicked, out of the hands of the unrighteous and cruel man. For You are my hope, O Lord God: You are my trust from my youth Happy is the man who can truthfully say that, "You are my trust from my youth." God does not cast off His old servants, as men often do. Those who give Him the best of their days will not find that He will desert them when the feebleness of age creeps over them.
 
 By You have I been held up from the womb: You are He that took me out of my mother's womb: my praise shall be continually of You. We do not think, as often as we should, of what we owe to God for His care over us at the time of our birth. Our mothers returned thanks on their own behalf and ours, but, as we look back, we are bound to return thanks, too, for that kindly care of God in our most extreme weakness&mdash;when the little candle of life was scarcely lighted and might have been so easily blown out. Then, as God took care of us in our first infancy, do You not think that He will take care of us when we get into our second childhood? We are never likely to be quite as weak as we were then, but, as the Lord guarded us at that time, will He not guard us in those dark days which are already looming before some of us? Of course He will! Therefore, be of good courage, for He shall strengthen your heart and your praise shall be continually of Him.
 
@@ -150,13 +150,13 @@ But You are my strong refuge. Even the weak are strong when God is their refuge!
 
 Let my mouth be filled with Your praise and with Your honor all day. What a blessed mouthful, and what a sweet mouthful this is&mdash;and what a blessed means of keeping the mouth from saying unkind, slanderous, or murmuring words!
 
-10. Cast me not off in the time of old age; forsake me not when my strength fails. For my enemies speak against me and they that lay wait for my soul take counsel together When the lion is sick, every cur is bold enough to bark at him. Men were afraid of David when he was strong, but when he grew feeble, they began to howl at him and gather round him like a pack of hounds around a wounded stag. Worst of all, they uttered this monstrous lie, which was most grievous to David's heart.
+Cast me not off in the time of old age; forsake me not when my strength fails. For my enemies speak against me and they that lay wait for my soul take counsel together When the lion is sick, every cur is bold enough to bark at him. Men were afraid of David when he was strong, but when he grew feeble, they began to howl at him and gather round him like a pack of hounds around a wounded stag. Worst of all, they uttered this monstrous lie, which was most grievous to David's heart.
 
 Saying, God has forsaken him: persecute and take him; for there is none to deliver him. If they had possessed even ordinary compassion, they would have said, "Since there is none to deliver him, let us not attack him. If God has forsaken him, he is in misery enough, so let us try to comfort him." But, instead of doing this, they acted after the fashion of their father, the devil, who has no tenderness and nothing of a compassionate spirit within him.
 
 O God, be not far from me: O my God, make haste for my help. Notice the still more intense grip of faith in the second clause. The Psalmist first says, ' 'O God," then He says, "O myGod." It is grand pleading when we so grasp God with the personal grip of faith that we cry, "O my God, make haste for my help."
 
-14. Let them be confounded and consumed that are adversaries to my soul; let them be covered with reproach and dishonor that seek my hurt. But I will hope continually, and still yet praise You more and more. Hoping and praising are among the very best styles of living. Hoping honors God in secret&mdash;and praising honors Him in public. Oh, for more of these two good things!
+Let them be confounded and consumed that are adversaries to my soul; let them be covered with reproach and dishonor that seek my hurt. But I will hope continually, and still yet praise You more and more. Hoping and praising are among the very best styles of living. Hoping honors God in secret&mdash;and praising honors Him in public. Oh, for more of these two good things!
 
 My mouth shall show forth Your righteousness and Your salvation all the day; for I know not the numbers thereof When David spoke of those who hated him without a cause, he said that they were more than the hairs of his head. He could not count them, but he went as near to doing so as he could. But when he began to speak of God's mercies as displayed in His righteousness and His salvation, he did not draw any comparison, or attempt to number them. This is a calculation in which we are utterly lost&mdash;our system of numeration fails us altogether when we come to deal with the loving kindness of the Lord!
 
@@ -179,6 +179,6 @@ You shall increase my greatness, and comfort me on every side. Think of poor old
 
 I will also praise You with the psaltery, even Your Truth, O my God. "When I have proved Your Truth. When my joyful experience has proved that every promise of Yours is true to Your servant, then I will praise both yourself and Your Truth, O my God."
 
-22, 23. Unto You will I sing with the harp, O You Holy One of Israel My lips shall greatly rejoice when I sing unto You. That is the best kind of praise to God when our very lips are happy in singing&mdash;when we do not merely speak the sound, but when the meaning wells up from our heart and our lips are glad to sing it out.
+Unto You will I sing with the harp, O You Holy One of Israel My lips shall greatly rejoice when I sing unto You. That is the best kind of praise to God when our very lips are happy in singing&mdash;when we do not merely speak the sound, but when the meaning wells up from our heart and our lips are glad to sing it out.
 
-23, 24. And my soul, which You have redeemed. My tongue also shall talk of Your righteousness all daylong: for they are confounded, for they are brought unto shame that seek my hurt
+And my soul, which You have redeemed. My tongue also shall talk of Your righteousness all daylong: for they are confounded, for they are brought unto shame that seek my hurt
