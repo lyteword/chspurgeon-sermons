@@ -53,9 +53,9 @@ And then, dear Friends, the text means yet more than that&mdash;we shall inherit
 
 But this must be the work of Grace. We must be born-again, or else our proud spirits will never be meek. And if we have been born-again, let it be our joy, as long as we live, to show that we are the followers of the meek and lowly Jesus with whom gracious words I close my discourse&mdash;"Come unto Me, all you that labor and are heavy laden, and I will give you rest. Take My yoke upon you, and learn of Me; for I am meek and lowly in heart, and you shall find rest unto your souls. For My yoke is easy, and My burden is light." So may it be, for Christ's sake! Amen.
 
-Exposition by C. H. Spurgeon: Matthew5:1-12.
+## Exposition by C. H. Spurgeon: Matthew5:1-12.
 
-Verse 1. And seeing the multitudes, He went up into a mountain. For convenience and quietude and to be out of the way of traffic He went up into a mountain. Elevated Doctrines would seem most at home on the high places of the earth.
+And seeing the multitudes, He went up into a mountain. For convenience and quietude and to be out of the way of traffic He went up into a mountain. Elevated Doctrines would seem most at home on the high places of the earth.
 
 And when He was set. For that was the mode of Eastern teaching.
 
@@ -63,7 +63,7 @@ His disciples came unto Him. They made the inner ring around Him and others gath
 
 And He opened His mouth and taught them. Chrysostom says that He taught them even when He did not open His mouth! His very silence was instructive. But when He did open His mouth, what streams of wisdom flowed forth! He "taught them." He did not open His mouth to make an oration, He was a Teacher, so His aim was to teach those who came to Him. And His ministers best follow their Lord's example when they keep to the vein of teaching. The pulpit is not the place for the display of oratory and eloquence, but for real instruction&mdash;"He opened His mouth, and taught them."
 
-3. Saying, Blessed. The Old Testament closes with the word "curse." The New Testament begins here, in the preaching of Christ, with the word, "Blessed." He has changed the curse into a blessing. "Blessed."
+Saying, Blessed. The Old Testament closes with the word "curse." The New Testament begins here, in the preaching of Christ, with the word, "Blessed." He has changed the curse into a blessing. "Blessed."
 
 Are the poor in spirit: for theirs is the Kingdom of Heaven. This is a paradox that puzzles many, for the poor in spirit often seem to have nothing&mdash;yet they have the Kingdom of Heaven, so they have everything! He who thinks the least of himself is the man of whom God thinks the most. You are not poor in God's sight if you are poor in spirit.
 
@@ -85,4 +85,4 @@ For they shall be called the children of God. They shall not only be the childre
 
 Blessed are theey which are persecuted for righteousness' sake: for theirs is the Kingdom of Heaven. They have it now, they are already participating in it for, as Christ was persecuted and He is again persecuted in them, as they are partakers of His sufferings, so are they sharers in His Kingdom.
 
-11, 12. Blessed are you when men shall revile you, andpersecute you, and shall say all manner of evil against you falsely, for My sake. Rejoice and be exceedingly glad: for great is your reward in Heaven: for so persecuted they the Prophets which were before you. You have an elevation by persecution&mdash;you are lifted into the peerage of martyrdom, though you occupy but an inferior place in it, yet you are in it. Therefore, "rejoice and be exceedingly glad."
+Blessed are you when men shall revile you, andpersecute you, and shall say all manner of evil against you falsely, for My sake. Rejoice and be exceedingly glad: for great is your reward in Heaven: for so persecuted they the Prophets which were before you. You have an elevation by persecution&mdash;you are lifted into the peerage of martyrdom, though you occupy but an inferior place in it, yet you are in it. Therefore, "rejoice and be exceedingly glad."
