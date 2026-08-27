@@ -3,7 +3,7 @@
 > A man shall be as the shadow of a great rock in a weary land.
 > Isaiah 32:2
 
-EVEN in our usually temperate climate, we sometimes complain of the great heat, which is coolness itself compared with the terrible burning of Oriental lands. A journey through the Sahara Desert might make us long for even the heat of our hottest summer, unbearable though it seems to us to be. With the hot sand beneath his feet from day to day, with not a tree and scarcely so much as a bush within sight. With the sun pouring down torrents of heat as though he were full of wrath against the wayfarer, with water exceedingly scarce and what is to be obtained about as nauseous as one can conceive, the traveler through the wilderness finds it to be a "weary land," indeed, and longs for the time when he shall once again see the cultivated fields and the lands that flow with brooks and rivers!
+Even in our usually temperate climate, we sometimes complain of the great heat, which is coolness itself compared with the terrible burning of Oriental lands. A journey through the Sahara Desert might make us long for even the heat of our hottest summer, unbearable though it seems to us to be. With the hot sand beneath his feet from day to day, with not a tree and scarcely so much as a bush within sight. With the sun pouring down torrents of heat as though he were full of wrath against the wayfarer, with water exceedingly scarce and what is to be obtained about as nauseous as one can conceive, the traveler through the wilderness finds it to be a "weary land," indeed, and longs for the time when he shall once again see the cultivated fields and the lands that flow with brooks and rivers!
 
 Travelers tell us that when the heat has become so intense that every living creature seems to be exhausted&mdash;when birds, if there are any, droop their wings, and beasts lie down and pant out their very life&mdash;at such times they have been glad to see great rocks right in the center of the barren plain. And, creeping under their shadow, they have left it on record that they have found most refreshing coolness and have lifted up their hands in gratitude to God for the blessing of "the shadow of a great rock in a weary land." Though I have never experienced to the same degree what these travelers report, I remember one hot day in Northern Italy, when riding over a dry plain where the only living creatures seemed to be the lizards and the abundant flies which they were pursuing, and the myriads of mosquitoes that stung one almost to madness&mdash;a great rock was really a source of solid comfort. Though we could afford time to rest only for a little while beneath its shadow, we gratefully remembered it all day long and wished that we could have stayed until nightfall beneath the shadow of that "great rock in a weary land."
 
@@ -11,7 +11,7 @@ Writing under Divine Inspiration, the Prophet Isaiah describes the Lord Jesus Ch
 
 I shall try to bring out the meaning of the text by noticing, first, why our Lord may thus be compared to the shadow of a great rock. Secondly, I shall show when He is especially refreshing to us and, thirdly, and practically, I shall ask, what is our business with regard to Him?
 
-First, then, WHY MAY OUR Lord BE SAID TO BE a GREAT ROCK IN a WEARY LAND CASTING a REFRESHING SHADOW?
+First, then, Why may our Lord be said to be a great rock in a weary land casting a refreshing shadow?
 
 We may remember concerning Him, in the first place, that, like a rock, He is always in the same place. There are some shadows which you can create artificially and carry with you. There have been shadows which have been cast by great trees, but those trees have been removed. And if the traveler, in passing over the same route, should expect to enjoy their cooling shade, he would be disappointed. But, the great rock remains just where it was when Abraham, Isaac and Jacob sheltered beneath it&mdash;and the traveler, today, may do the same. It is just so with our Lord Jesus Christ. Blessed be His name, He has not shifted His position! If any poor soul here wants to find Him, He is just where He used to be&mdash;that
 
@@ -47,7 +47,7 @@ I have just one more observation to make upon this part of our subject&mdash;our
 
 "The great transaction's done!" And beneath the shadow of that Rock your spirit is secure forever!
 
-But we must now pass on to notice that THERE ARE CERTAIN TIMES WHEN OUR Lord, LIKE THE SHADOW OF a GREAT ROCK, IS PECULIARLY REFRESHING.
+But we must now pass on to notice that there are certain times when our Lord, like the shadow of a great rock, is peculiarly refreshing.
 
 Unto them that believe, Jesus is always precious, but there are times when He is peculiarly so. This was the case with them when they were under conviction of sin. What memories that expression awakens in some of us&mdash;"conviction of
 
@@ -97,7 +97,7 @@ Then shall say, 'This God is mine!'
 
 Gracious Savor!
 
-Own me in that day for Thine!" III. Now lastly, if these things are so, and they are so, WHAT IS OUR BUSINESS?
+Own me in that day for Thine!" Now lastly, if these things are so, and they are so, what is our business?
 
 Our business is to get under this shadow if we are not already under it What is the use of a shadow to those who stand in the blazing sunshine? There is many a soul that stands in the sunshine longer than it needs and so feels faint and weary. And there are some who have thus got such a sunstroke as they will never lose this side of Heaven. I mean that they have to go doubting and fearing all their spiritual life because they were so long before they trusted in Christ. I know that only the Holy Spirit can bring a sinner under this blessed shadow, but how base must be the human heart when it will not come and take what Christ so freely provides! Why will you die? Why will you perish when you need not? There is a shadow&mdash;why will you stand in the fierce light of the sun? All the bells of Heaven are ringing out, "Come and welcome!" All the angels of God are singing, "Come and welcome! Come and welcome!" From this open Book, from the Gospel preached by one of God's ministers tonight, there sounds this message, "Come and trust in the Incarnate Son of God!" I wish I knew how to put it in more melting tones, but it needs the Holy Spirit to bring it home to your hearts. Dear trembler, waverer, halting between two opinions, you who have so long put off coming to Christ, come now! I ask again, why do you continue to stand beneath the wrath of God when you need not linger there a moment longer?
 
@@ -171,4 +171,4 @@ he did curse and swear. So he gave that as a pretty clear proof that he had not 
 
 46-48. For if you love them which love you, what reward have you? Do not even the publicans the same? And if you salute your brethren only, what do you more than others? Do not even the publicans so? Be you therefore perfect, even as your Father which is in Heaven is perfect Stretch towards the highest conceivable standard and be not satisfied till you reach it.
 
-HYMNS FROM "OUR OWN HYMN BOOK"&mdash;708, 808.
+Hymns from "Our Own Hymn Book"&mdash;708, 808.
