@@ -128,21 +128,21 @@ Lose all their guilty stains"&mdash; and let all who can sing it from the heart 
 > That, on the Cross, He shed His blood   
 > From sin to set me free!   
 
-Exposition by C. H. Spurgeon: Psalm 73.
+## Exposition by C. H. Spurgeon: Psalm 73.
 
 You may have noticed that the seventy-third Psalm and the thirty-seventh Psalm are on the same subject. It will help you to recall this fact if you remember that the figures are the same, only reversed.
 
-Verse 1. Truly God is good to Israel Settle that matter in your hearts. Whatever doubts may distress or disturb your mind, fix this point as certain&mdash; "Truly God is good to Israel."
+Truly God is good to Israel Settle that matter in your hearts. Whatever doubts may distress or disturb your mind, fix this point as certain&mdash; "Truly God is good to Israel."
 
 I, 2. Even to such as are of a clean heart But as for me, my feet were almost gone; my steps had well near slipped. He was a good man, one of the leaders in Israel, yet he had to make this confession, "My feet were almost gone; my steps had well near slipped."
 
-3, 4. For I was envious at the foolish, when Isaw the prosperity of the wicked. For there are no bands in their death: but their strength is firm. Many of them have so stifled conscience that it does not trouble them even in that last dread hour&mdash;and they pass into eternity with blinded eyes, self-deluded to the last.
+For I was envious at the foolish, when Isaw the prosperity of the wicked. For there are no bands in their death: but their strength is firm. Many of them have so stifled conscience that it does not trouble them even in that last dread hour&mdash;and they pass into eternity with blinded eyes, self-deluded to the last.
 
 They are not in trouble as other men; neither are they plagued like other men. They are not the children of God&mdash; and that is why they escape the rod of God. The rod is not for strangers, but for the children of the family. Yet the Psalmist began to envy these people because, said he, "they are not in trouble as other men; neither are they plagued like other men."
 
 Therefore pride compasses them about as a chain. They wear it gladly and think it to be an ornament.
 
-6-9. Violence covers them as a garment. Their eyes stand out with fatness: they have more than heart could wish. They are corrupt, and speak wickedly concerning oppression: they speak loftily. They set their mouth against the heavens. As though they would blow them down, as the wind blows the clouds that are full of rain.
+Violence covers them as a garment. Their eyes stand out with fatness: they have more than heart could wish. They are corrupt, and speak wickedly concerning oppression: they speak loftily. They set their mouth against the heavens. As though they would blow them down, as the wind blows the clouds that are full of rain.
 
 And their tongue walks through the earth. Like the ravening lion of the pit, seeking characters that they may destroy or devour. There is no end to the mischief that such people can do. If they are not in trouble, they make much trouble for other people and while they set themselves on so high a pinnacle, they are mean enough to slander the characters of the good.
 
@@ -150,7 +150,7 @@ Therefore his people return here: and waters of a full cup are wrung out to them
 
 And they say, How does God know? And is there knowledge in the Most High? They admit that there is a God, but they ask, "What does He know, and how does He know?"
 
-12-14. Behold, these are the ungodly who prosper in the world; they increase in riches. Verily I have cleansed my heart in vain, and washed my hands in innocence. For all day long have I been plagued, and chastened every morning. It was one of his greatest sorrows that the more holy he was, the more troubled he seemed to be&mdash;and the more closely he endeavored to follow his God, the more it seemed as if God only frowned upon him. Yet the Psalmist's was no exceptional case, of which there is only one in all history&mdash;there have been many such and there are many such to this day!
+Behold, these are the ungodly who prosper in the world; they increase in riches. Verily I have cleansed my heart in vain, and washed my hands in innocence. For all day long have I been plagued, and chastened every morning. It was one of his greatest sorrows that the more holy he was, the more troubled he seemed to be&mdash;and the more closely he endeavored to follow his God, the more it seemed as if God only frowned upon him. Yet the Psalmist's was no exceptional case, of which there is only one in all history&mdash;there have been many such and there are many such to this day!
 
 If I say, I will speak thus; behold, I should offend against the generation of your children. You know that some people have made up a kind of proverb like this, "If you think it, you may as well speak it." But it is not so. Bad thoughts should never be spoken! If a man has a bottle of whisky in his house, or in his pocket, that is bad enough, but if the cork is never taken out, it will do no very great hurt to anybody. So if a man has evil thoughts but does not utter them, the mischief will not be so great as if he were to make them known to others.
 
@@ -166,7 +166,7 @@ You cast them down into destruction. Down they go! If not in this life, yet in t
 
 then?
 
-19, 20. How they are brought into desolation, as in a moment! They are utterly consumed with terrors. As a dream when one awakes, so, O Lord, when You awake, You shall despise their image. When a man wakes up, the image that was before his mind, in his dream, is gone. And when God wakes up to judgment, these wicked men who were but as images in a night dream, shall pass away.
+How they are brought into desolation, as in a moment! They are utterly consumed with terrors. As a dream when one awakes, so, O Lord, when You awake, You shall despise their image. When a man wakes up, the image that was before his mind, in his dream, is gone. And when God wakes up to judgment, these wicked men who were but as images in a night dream, shall pass away.
 
 Thus my heart was grieved, and I was pricked in my reins. In the most tender and most vital parts of his being, he felt an inward and terrible pain.
 
@@ -180,6 +180,6 @@ You shall guide me with Your counsel, and afterward receive me to Glory. There i
 
 Whom have I in Heaven but You? And there is none upon earth that I desire beside You. Here is the Christian's heavenly and earthly portion and treasure. He has his God, both here and hereafter&mdash;and this is better than all that can fall to the lot of the worldling!
 
-27. My flesh and my heart fails; but God is the strength of my heart and my portion forever For, lo, they that are far from You shallperish: You have destroyed all them that go a whoring from You. That is, setting their hearts on unlovely things and forgetting to love God.
+My flesh and my heart fails; but God is the strength of my heart and my portion forever For, lo, they that are far from You shallperish: You have destroyed all them that go a whoring from You. That is, setting their hearts on unlovely things and forgetting to love God.
 
 But it is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works. The Psalm ends jubilantly, as it began, though part of it had been in a minor key.
