@@ -74,9 +74,9 @@ From his house no more to roam." And I thought I would say to you tonight&mdash;
 
 O Lord, do it, for You can! Come forth, O Jesus! Mount Your chariot! Hell shakes at Your majesty. Heaven adores Your Presence&mdash;earth cannot resist you! Gates of brass fly open and bars of iron are snapped. Come, Conqueror, and ride through the streets of this city and through the hearts of all of us, and they shall be Yours, "and i t shall be to the Lord for a name, for an everlasting sign that shall not be cut off." May God command His blessing on you, for Jesus' sake! Amen.
 
-Exposition by C. H. Spurgeon: Psalm84.
+## Exposition by C. H. Spurgeon: Psalm84.
 
-Verse 1. How amiable are Your tabernacles, O Lord of Hosts! "Though they are only tabernacles, temporary structures that are soon to be taken down and carried away, they are very dear to us. Your tabernacles are so lovely to us because You meet us there."
+How amiable are Your tabernacles, O Lord of Hosts! "Though they are only tabernacles, temporary structures that are soon to be taken down and carried away, they are very dear to us. Your tabernacles are so lovely to us because You meet us there."
 
 My soul longs, yes, even faints for the courts of the Lord: my heart and my flesh cries out for the living God. A little starving brings on an appetite for health-giving food&mdash;and a brief absence from the House of God through sickness, or by reason of distance, makes a Christian sigh and cry for the dainties of the Divine Table. Even the heavy flesh, which is so slow to move, at last joins the heart in crying out for the living God!
 
