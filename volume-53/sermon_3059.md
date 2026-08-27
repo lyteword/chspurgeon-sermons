@@ -13,7 +13,7 @@ workmen do, ask more than they ought&mdash;yet, on the other hand, let not the e
 
 Now, having thus given the literal meaning of my text, I am going to spiritualize it, which I should have no right to do if I had not first explained the primary reference of David's words, "The poor commits himself unto You."
 
-THERE ARE SPIRITUALLY POOR MEN and these do what other poor men have done in temporal things&mdash;
+There are spiritually poor men and these do what other poor men have done in temporal things&mdash;
 
 they commit their case into the hands of God.
 
@@ -23,7 +23,7 @@ Further, the poor people of whom I am speaking are not only totally without anyt
 
 Perhaps some of you say, "These must be very bad people." Well, they are no better that they should be, yet I may tell you another thing concerning them&mdash;they are no worse than many of those who think themselves a great deal better. They have this lowly opinion of themselves because the Grace of God has taught them to think rightly and truthfully about themselves in relation to God. They are, in outward appearance, and as far as we can judge, quite as good as others and better than some. In certain respects, they might be held up as examples to others. This is what we say of them, but they have not a good word to say of themselves. Rather, they put their finger upon their lips and blush at the remembrance of what they feel themselves to be. Or if they must speak of themselves at all, they say, "All we like sheep have gone astray, we have turned, every one, to his own way."
 
-That brings me to notice, secondly, WHAT THESE POOR PEOPLE DO. They commit themselves unto God. This is a very blessed description of what true faith does. The poor in spirit feel that their case is so desperate that they cannot keep it in their own charge and, therefore, they commit it to God. I will try to show you how they do that.
+That brings me to notice, secondly, what these poor people do. They commit themselves unto God. This is a very blessed description of what true faith does. The poor in spirit feel that their case is so desperate that they cannot keep it in their own charge and, therefore, they commit it to God. I will try to show you how they do that.
 
 First, they commit their case to God as a debtor commits his case to a surety. The man is so deeply in debt that he cannot pay his creditors even a farthing in the pound. But here is someone who can pay everything that the debtor owes and he says to him, "I will stand as security for you. I will be bondsman for you. I will give full satisfaction to all your creditors and discharge all your debts." There is no person who is deeply in debt who would not be glad to know of such a surety, both able and willing to stand in his place and to discharge all his responsibilities! If the surety said to this poor debtor, "Will you turn over all your liabilities to me? Will you sign this document, empowering me to take all your debts upon myself and to be responsible for you? Will you let me be your bondsman and surety?" "Ah," the poor man would reply, "that I will, most gladly!" That is just what spiritually poor men have done to the Lord Jesus Christ&mdash;committed their case with all their debts and liabilities into the hands of the Lord Jesus Christ&mdash;and He has undertaken all the responsibility for them!
 
@@ -129,4 +129,4 @@ Be of good courage, and He shall strengthen your heart, all you that hope in the
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
+Pray the Holy Spirit will use this sermon to bring many to a saving knowledge of Jesus Christ.
