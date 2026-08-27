@@ -3,11 +3,11 @@
 > As you have therefore received Christ Jesus the Lord, so walk in Him.
 > Colossians 2:6
 
-THOUGH the shepherd cares for the lambs and carries them in his arms, he does not cease his care when they become sheep. But, as long as they shall need to be tended, so long will he watch over them. Hence it is that our Apostle, though always quick of eye after newborn souls and abundantly anxious to bring sinners to a knowledge of the Truth of God as it is in Jesus, is equally in a conflict of soul for the spiritual healthfulness of those who have been born-again. Our text contains one of those loving admonitions. It is addressed, not to the ungodly, not to those who are strangers to our Lord and Master, but to those who have "received Christ Jesus the Lord." Longing for their spiritual good and anxious that they should be established in the faith, he admonishes them thus, "As you have received Christ Jesus the Lord, so walk in Him."
+Though the shepherd cares for the lambs and carries them in his arms, he does not cease his care when they become sheep. But, as long as they shall need to be tended, so long will he watch over them. Hence it is that our Apostle, though always quick of eye after newborn souls and abundantly anxious to bring sinners to a knowledge of the Truth of God as it is in Jesus, is equally in a conflict of soul for the spiritual healthfulness of those who have been born-again. Our text contains one of those loving admonitions. It is addressed, not to the ungodly, not to those who are strangers to our Lord and Master, but to those who have "received Christ Jesus the Lord." Longing for their spiritual good and anxious that they should be established in the faith, he admonishes them thus, "As you have received Christ Jesus the Lord, so walk in Him."
 
 In endeavoring, by God's help, to speak upon this subject, we shall have three points. There is here, first, a fact stated concerning Believers&mdash;they have "received Christ Jesus the Lord." Then there is an exhortation, or a counsel, offered to such&mdash;"walk in Him." Besides which we have a model held up for our imitation. How are we to walk in Him? Why, just in the same way as we at first received Him! Let our first coming to Christ be to us the mirror of how we shall walk in Him all our days.
 
-All true Christians are here described in the text as HAVING RECEIVED Christ Jesus THE Lord.
+All true Christians are here described in the text as having received Christ Jesus the Lord.
 
 The first point to which I would particularly direct your attention is the personality of this reception. Believers have, it is true, received Christ's words. They prize every precept, they value every Doctrine, but this is not all. They have received Christ Himself. While they have received Christ's ordinances and are not slow to walk in obedience to the things which He has commanded, they do not stay here. They have received Christ Himself&mdash;His Person, His Godhead and His Humanity. They have "received Christ Jesus the Lord." And, mark you, there is a very great distinction here&mdash;and also a great mystery. A great distinction, I say, for there are some who do, I think, wholly believe the doctrines which Christ has taught, and are profoundly orthodox, full of an earnest controversial spirit for the faith once delivered to the saints and yet, for all that, they do not seem to have received Him, the very Christ of God! And, truly, there are many who have received both Baptism and the Lord's Supper, yet, despite what any may say, we believe that they have not received Christ, but are still as great strangers to Him as though they had only passed through the rites common to mankind, or the rites in which heathens indulge! There is a vast difference between the outward reception of the Doctrine, or the ordinance, and the inward reception of Christ.
 
@@ -59,7 +59,7 @@ Beloved, you mayknow whether you are Christ's or not! I exhort you not to give s
 
 can give me joy and peace through believing! "You have received Christ the Lord." Just pass the question around the gallery there, and ask yourselves down below, "Have I received Christ Jesus the Lord?" Say, "Yes," or, "No," and God help you to give the answer solemnly as in His sight!
 
-As briefly as possible we turn to notice THE COUNSEL GIVEN&mdash;"As you have therefore received Christ Jesus the Lord, so walk in Him." There are three things suggested by the word, "walk"&mdash;continuance, progress, activity.
+As briefly as possible we turn to notice the counsel given&mdash;"As you have therefore received Christ Jesus the Lord, so walk in Him." There are three things suggested by the word, "walk"&mdash;continuance, progress, activity.
 
 To walk in a certain way means continuing in it. Now, Christian, you took Christ to be your All-in-All, did you not? Well, then, continueto take Him as your All-in-All. The true way for a Christian to live is to live entirely upon Christ. Living by frames and feelings is a dying form of life. "He lived by a feeling experience," said one&mdash;and a poor method of living, too! Christians have experiences and they have feelings, but, if they are wise, they never feed upon these things, but upon Christ, Himself. You took Christ to be your All-in-All at first. You did not, then, mix up your frames and feelings with Him&mdash;you looked entirely out of self to Him. Well now, continue in the same frame of mind! You sat down at the foot of the Cross and you said&mdash;
 
@@ -87,7 +87,7 @@ On Christ, the solid Rock, I stand!
 
 All other ground is sinking sand." Well, walk in Him just as you would walk in the Valley of the Shadow of Death, but walk on the mountaintops of life's activities!
 
-Let us now say a few words on our third point&mdash;THE MODEL WHICH IS PRESENTED TO US HERE. We are to walk in Him as we received Him.
+Let us now say a few words on our third point&mdash;the model which is presented to us here. We are to walk in Him as we received Him.
 
 And how did we receive Him? Let us remember. You will not have to strain your memories much, for, I think, though other days have mingled with their fellows and, like coins worn in the circulation, have lost their impression, yet the day when you first received Christ will be as fresh as though it were newly minted in time. Oh, that first day!&mdash;
 
