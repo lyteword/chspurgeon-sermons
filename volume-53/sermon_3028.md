@@ -1,9 +1,9 @@
 # Sermon 3028 | God's Glory Our Rereward
 
-> The glory of the LORRD shall be your rereward.
+> The glory of the Lord shall be your rereward.
 > Isaiah 58:8
 
-THE Church of God is an army marching through an enemy's territory. She can never reckon upon a moment's peace. If she were of the world, the world would love its own, but because true saints are not of the world, but Christ has chosen them out of the world, therefore the world hates them. As the Amalekites suddenly fell upon the children of Israel, unprovoked and without giving any warning of their hostile intention, so, not only in times of persecution, but in these apparently softer days when the world does not use the stake and the sword, at all seasons the world is ready to pounce upon the Church of God and to call in its grand ally, the devil, to overthrow and destroy, as far as possible, the militant hosts of Israel!
+The Church of God is an army marching through an enemy's territory. She can never reckon upon a moment's peace. If she were of the world, the world would love its own, but because true saints are not of the world, but Christ has chosen them out of the world, therefore the world hates them. As the Amalekites suddenly fell upon the children of Israel, unprovoked and without giving any warning of their hostile intention, so, not only in times of persecution, but in these apparently softer days when the world does not use the stake and the sword, at all seasons the world is ready to pounce upon the Church of God and to call in its grand ally, the devil, to overthrow and destroy, as far as possible, the militant hosts of Israel!
 
 Every Christian, then, must be a soldier and take his share in the battles of the Cross. We must not look upon our life as being a pleasure-journey through a friendly land, but as a march&mdash;a march through the very midst of foes who will dispute every foot of our way!
 
@@ -13,7 +13,7 @@ Our text, however, speaks not of the vanguard, but of the "rereward." There is a
 
 It is but little I have to say to you this evening, but may God make that little profitable to you! We will, first of all, dwell upon the rereward and enquire what it is which is here intended. And, secondly, we will try to show how the Glory of the Lord brings up the rear andprotects the saints on every side.
 
-In the first place, WHAT MAY WE UNDERSTAND by THE REREWARD?
+In the first place, what may we understand by the rereward?
 
 Taking the text to refer to the Church of God as a body, we remark that there are always some who bring up the rear. God has never left His Church without men to stand in the front. A few choice men have always been raised up by God and they have led the way, both in testimony and in suffering. The race of the Prophets will never be extinct. "The scepter," in this sense, will not depart from the members of the Church until Christ shall come a second time. The teacher shall not be taken out of his place, nor the candlestick be removed, nor the Bread of Life be taken away. But the mass of the Church are rather like the body of the army marching on and fighting well&mdash;but not attaining unto the first three mighties.
 
@@ -56,9 +56,9 @@ We long to be with Christ, for it shall be "far better" there, but that last pin
 
 "Sing when the death-dew lies cold on our brow, If ever we loved You, our Jesus, 'tis now." Perhaps our last day will be our best and brightest day and we shall be surprised to find what floods of Glory there are around and above the floods of death! I see before me many, very many veterans. Your gray hairs tell of your nearness to Heaven. I trust your locks are whitened with the sunlight of Glory! Oh, be not afraid! You shall find it a blessed thing to sleep in Jesus&mdash;and even as you go to that last bed, you shall not tremble, for He shall be so manifestly with you that you shall not be afraid! The Glory of the Lord shall be your rereward and what that Glory shall be, what heart can imagine, what tongue can tell? The Glory that excels the glory of perfection! The Glory of being made like unto the First-Born among many brethren! The Glory of the Well-Beloved which He had with His Father before the world was! "The glory which you gave Me, I have given them." Behold, then, your latter end! Oh, that our last days might be with the righteous and our last end be like theirs! The Glory of the Lord shall be the Christian's rereward.
 
-But now, only for a minute or two, let me show you HOW THE GLORY OF THE Lord thus, both in the case
+But now, only for a minute or two, let me show you how the glory of the Lord, thus, both in the case
 
-of the whole Church of Christ and of each separate Christian, BECOMES THE MEANS OF GRACIOUS PRESERVATION.
+of the whole Church of Christ and of each separate Christian, becomes the means of gracious preservation.
 
 What is this "Glory of the Lord" which shelters the weak and preserves the saints? May we not understand it to mean, first of all, the glorious attributes of God? God's mercy is one of His glories. It is His great glory, you know, that He is a God passing by iniquity, transgression, sin and remembering not the guilt of His people. Now, Brothers and Sisters, as to our past sins, our weaknesses and all those other senses in which we understand the rear of our spiritual host&mdash;as to all these, the mercy of God will glorify itself in them all! Notwithstanding our weakness, Mercy shall find a platform for the display of itself and where sin abounded, there shall Grace much more abound. When you think of the greatness of your sin, think also of the greatness of God's mercy at the same time. As Master Wilcox says, "If you cannot keep your eye on the Cross when you are repenting, away with your repenting!" A sense of sin which is not also attended with a belief in God's mercy, is not an evangelical sense of sin. Oh, to know the super abounding mercy of the loving God who delights in mercy, His last-born, but His best-beloved attribute! He will glorify Himself by His mercy in delivering you when you most need it.
 
