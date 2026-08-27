@@ -13,7 +13,7 @@ workmen do, ask more than they ought&mdash;yet, on the other hand, let not the e
 
 Now, having thus given the literal meaning of my text, I am going to spiritualize it, which I should have no right to do if I had not first explained the primary reference of David's words, "The poor commits himself unto You."
 
-THERE ARE SPIRITUALLY POOR MEN and these do what other poor men have done in temporal things&mdash;
+There are spiritually poor men and these do what other poor men have done in temporal things&mdash;
 
 they commit their case into the hands of God.
 
@@ -23,7 +23,7 @@ Further, the poor people of whom I am speaking are not only totally without anyt
 
 Perhaps some of you say, "These must be very bad people." Well, they are no better that they should be, yet I may tell you another thing concerning them&mdash;they are no worse than many of those who think themselves a great deal better. They have this lowly opinion of themselves because the Grace of God has taught them to think rightly and truthfully about themselves in relation to God. They are, in outward appearance, and as far as we can judge, quite as good as others and better than some. In certain respects, they might be held up as examples to others. This is what we say of them, but they have not a good word to say of themselves. Rather, they put their finger upon their lips and blush at the remembrance of what they feel themselves to be. Or if they must speak of themselves at all, they say, "All we like sheep have gone astray, we have turned, every one, to his own way."
 
-That brings me to notice, secondly, WHAT THESE POOR PEOPLE DO. They commit themselves unto God. This is a very blessed description of what true faith does. The poor in spirit feel that their case is so desperate that they cannot keep it in their own charge and, therefore, they commit it to God. I will try to show you how they do that.
+That brings me to notice, secondly, what these poor people do. They commit themselves unto God. This is a very blessed description of what true faith does. The poor in spirit feel that their case is so desperate that they cannot keep it in their own charge and, therefore, they commit it to God. I will try to show you how they do that.
 
 First, they commit their case to God as a debtor commits his case to a surety. The man is so deeply in debt that he cannot pay his creditors even a farthing in the pound. But here is someone who can pay everything that the debtor owes and he says to him, "I will stand as security for you. I will be bondsman for you. I will give full satisfaction to all your creditors and discharge all your debts." There is no person who is deeply in debt who would not be glad to know of such a surety, both able and willing to stand in his place and to discharge all his responsibilities! If the surety said to this poor debtor, "Will you turn over all your liabilities to me? Will you sign this document, empowering me to take all your debts upon myself and to be responsible for you? Will you let me be your bondsman and surety?" "Ah," the poor man would reply, "that I will, most gladly!" That is just what spiritually poor men have done to the Lord Jesus Christ&mdash;committed their case with all their debts and liabilities into the hands of the Lord Jesus Christ&mdash;and He has undertaken all the responsibility for them!
 
@@ -63,9 +63,9 @@ Jesus! Commit yourself to Him. As that young bride commits all her life's joys a
 
 Thus the poor soul commits itself unto Christ, is married unto Christ, gets the portion which Christ possesses, becomes Christ's own and then lives with Christ forever! Oh that this might be the time in which many a man and many a woman would commit themselves to Christ! I do not merely mean you who are poor in pocket, but you who are poor in spirit&mdash;I am asking you to commit yourselves to Christ. Do not put it off, but may this be the very hour in which you shall be committed to Christ and He shall take possession of you to be His forever and forever! Amen and Amen.
 
-Exposition by C. H. Spurgeon: Psalm31.
+## Exposition by C. H. Spurgeon: Psalm31.
 
-Verse 1. In You, O Lord, do I put my trust This is a good beginning. This is the fulcrum which will give us the necessary leverage for lifting any weight of sorrow or trouble that may be burdening us&mdash;"In You, O Jehovah, do I put my trust." Can each of us truthfully say that to begin with? If so, we may go on with David to the petitions that follow.
+In You, O Lord, do I put my trust This is a good beginning. This is the fulcrum which will give us the necessary leverage for lifting any weight of sorrow or trouble that may be burdening us&mdash;"In You, O Jehovah, do I put my trust." Can each of us truthfully say that to begin with? If so, we may go on with David to the petitions that follow.
 
 Let me never be ashamed: deliver me in Your righteousness. It would be to us the shame of shames if God, in whom we put our trust, could fail us. Then, indeed, might the scoffers say, "Where, now, is their God?" And what should we then be able to say of the righteousness of God? He has pledged Himself that He will never fail nor forsake any of His people. So, if He ever did fail them, what would become of His honor?
 
@@ -91,11 +91,11 @@ Him so dearly? Oh, no! None shall pluck them from His hands. This is a sound arg
 
 I have hated them that regard lying vanities. That is, those that trusted in their idol gods which he calls by this contemptuous name, "lying vanities." David was not very respectful to false religions. He called them vanities and lies, and said, "I have hated them that regard them."
 
-6, 7. But I trust in the Lord. I will be glad and rejoice in Your mercy: for You have consideredmy trouble; You have known my soul in adversities."'You have considered my trouble.' You have looked at it, weighed it, understood it." When a wise man gives his consideration to a thing, we respect his judgment, but what shall we say of the consideration of God? This is a wonderful expression&mdash;"You have considered my trouble; You have known my soul in adversities." "When I hardly knew myself, and could not make out what I was or where I was, You have known all about me. You have known me when I was in rags and tatters, when I was so down at the heel that nobody else would acknowledge me. You did not discard me&mdash;'You have known my soul in adversities.'"
+But I trust in the Lord. I will be glad and rejoice in Your mercy: for You have consideredmy trouble; You have known my soul in adversities."'You have considered my trouble.' You have looked at it, weighed it, understood it." When a wise man gives his consideration to a thing, we respect his judgment, but what shall we say of the consideration of God? This is a wonderful expression&mdash;"You have considered my trouble; You have known my soul in adversities." "When I hardly knew myself, and could not make out what I was or where I was, You have known all about me. You have known me when I was in rags and tatters, when I was so down at the heel that nobody else would acknowledge me. You did not discard me&mdash;'You have known my soul in adversities.'"
 
-8-10. Andhave not shut me up into the hand of the enemy: You have set my feet in a large room. Have mercy upon me, O Lord, for I am in trouble: my eyes are consumed with grief. Yes, my soul and my belly. For my life is spent with grief, and my years with sighing. That is better than spending our years in sinning! Yet it is a painful experience when every breath seems to be drawn with a pang and the effort to live is itself a struggle, as it is in certain trying diseases.
+Andhave not shut me up into the hand of the enemy: You have set my feet in a large room. Have mercy upon me, O Lord, for I am in trouble: my eyes are consumed with grief. Yes, my soul and my belly. For my life is spent with grief, and my years with sighing. That is better than spending our years in sinning! Yet it is a painful experience when every breath seems to be drawn with a pang and the effort to live is itself a struggle, as it is in certain trying diseases.
 
-11. My strength fails because of my iniquity, and my bones are consumed. I was a reproach among all my enemies, but especially among my neighbors. They were the nearest to him and, therefore, could smite him the most keenly.
+My strength fails because of my iniquity, and my bones are consumed. I was a reproach among all my enemies, but especially among my neighbors. They were the nearest to him and, therefore, could smite him the most keenly.
 
 And a fear to my acquaintance. They did not like to acknowledge him even as an acquaintance. They were afraid of him. Yet what a light this verse throws upon David's previous declaration, "You have known my soul in adversities"!
 
@@ -105,15 +105,15 @@ I am like a broken vessel. "Men think me of no more value than a piece of broken
 
 For I have heard the slander of many: fear was on every side. The very best of men have had to smart under the wounds caused by that cruel, accursed thing, slander! No quality of purity, no degree of piety can screen a man from the tongue of slander. In fact, as the birds peck most at the ripest fruit, it is often the best of men who are most slandered.
 
-13, 14. While they took counsel together against me, they devised to take away my life. But I trusted in You, O Lord: I said, You are my God. That is a grand utterance of the Psalmist! Now he is coming back to the point where he began&mdash;the Psalm is now in harmony with its keynote.
+While they took counsel together against me, they devised to take away my life. But I trusted in You, O Lord: I said, You are my God. That is a grand utterance of the Psalmist! Now he is coming back to the point where he began&mdash;the Psalm is now in harmony with its keynote.
 
 My times are in Your hands. My times are not in the hands of my enemies&mdash;they cannot hurt me without God's permission.
 
-15, 16. Deliver me from the hand of my enemies, and from them that persecute me. Make Your face to shine upon Your servant. Oh, for the shining of God's face! How blessed and glorious they are! It is Heaven on earth to dwell within the circle of that light&mdash;but if we get out of the range of those rays, what joy can we have?
+Deliver me from the hand of my enemies, and from them that persecute me. Make Your face to shine upon Your servant. Oh, for the shining of God's face! How blessed and glorious they are! It is Heaven on earth to dwell within the circle of that light&mdash;but if we get out of the range of those rays, what joy can we have?
 
 Save me for Your mercies' sake. That is a prayer for a sinner and a prayer for a saint&mdash;a prayer for every day of the year. "Save me for Your mercies' sake."
 
-17-19. Let me not be ashamed, O Lord; for Ihave called upon You: let the wicked be ashamed, and let them be silent in the grave. Let the lying lips be put to silence which speak grievous things proudly and contemptuously against the righteous. Oh, how great is Your goodness, which You have laid up for them that fear You. Then be of good courage, you tried ones! Think of all the good things that are laid up in store for you&mdash;the treasures that are put away for the present. Nor is this all&mdash;"How great is Your goodness."
+Let me not be ashamed, O Lord; for Ihave called upon You: let the wicked be ashamed, and let them be silent in the grave. Let the lying lips be put to silence which speak grievous things proudly and contemptuously against the righteous. Oh, how great is Your goodness, which You have laid up for them that fear You. Then be of good courage, you tried ones! Think of all the good things that are laid up in store for you&mdash;the treasures that are put away for the present. Nor is this all&mdash;"How great is Your goodness."
 
 Which You have worked for them that trust in You before the sons of men! So there is goodness in the present as well as goodness in the future&mdash;goodness worked out as well as goodness stored up!
 
@@ -121,7 +121,7 @@ You shall hide them in the secret of Your Presence from the pride of man: You sh
 
 Blessed be thee Lord; for He has showed me His marvelous kindness in a strong city. He has kept me in safety, and preserved me from every foe. Blessed be His holy name!
 
-23. For I said in my haste, I am cut off from before Your eyes: nevertheless You heard the voice of my supplications when I cried unto You. O love the Lord, all you His saints. It seems as if David felt that he could not love the Lord sufficiently by himself, so he calls upon all the saints to bring their hearts full of love and yield their treasure unto God.
+For I said in my haste, I am cut off from before Your eyes: nevertheless You heard the voice of my supplications when I cried unto You. O love the Lord, all you His saints. It seems as if David felt that he could not love the Lord sufficiently by himself, so he calls upon all the saints to bring their hearts full of love and yield their treasure unto God.
 
 For the Lord preserves the faithful, and plentifully rewards the proud doer. He gives him a sharp blow with the back of His hand, but He gives to the righteous a full-handed mercy!
 
@@ -129,4 +129,4 @@ Be of good courage, and He shall strengthen your heart, all you that hope in the
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE Holy Spirit WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
+Pray the Holy Spirit will use this sermon to bring many to a saving knowledge of Jesus Christ.
