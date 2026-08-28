@@ -1,7 +1,7 @@
 # Sermon 3040 | The Happy Beggar
 
-> But I am poor and needy; yet the Lord thinks upon me.
-> Psalm 40:17
+> But I am poor and needy; yet the Lord thinks upon me.  
+> Psalm 40:17  
 
 There is no crime and there is no credit in being poor. Everything depends upon the occasion of the poverty. Some men are poor and are greatly to be pitied, for their poverty has come upon them without any fault of their own. God has been pleased to lay this burden upon them and, therefore, they may expect to experience Divine help and ought to be tenderly considered by their Brothers and Sisters in Christ. Occasionally poverty has been the result of integrity or religion, and here the poor man is to be admired and honored. At the same time, it will be observed by all who watch with an impartial eye that very much of the poverty about us is the direct result of idleness, intemperance, improvidence and sin. There would probably not be one-tenth of the poverty there now is upon the face of the earth if the drinking shops were less frequented, if debauchery were less common, if idleness were banished and extravagance abandoned. Lovers of pleasure, (alas, that such a word should be so degraded), are great impoverishers of themselves. It is clear that there is not, of necessity, either vice or virtue in being poor and a man's poverty cannot be judged of by itself, its causes and circumstances must be taken into consideration.
 
@@ -77,14 +77,14 @@ I pray you to cast away all reliance upon your own works. Tear up, once and for 
 
 I would to God that all of us were poor and needy in ourselves and that we were rich in faith in Christ Jesus! Oh, that we had done both with sin and with self-righteousness, that we had laid both those traitors with their heads on the block for execution! Come, you penniless sinners, come and receive the bounty of Heaven! Come, you who mourn your need of penitence, come and receive repentance and every other heavenly gift from Him who is the sinner's Friend, exalted on high to give repentance and remission of sins! But you must come empty-handed and sue, as the lawyers say, in forma pauperis, for in no other form will the Lord give ear to you! "He has put down the mighty from their seats, and exalted them of low degree. He has filled the hungry with good things; and the rich He has sent away empty."
 
-> 'Tis perfect poverty alone 
-> That sets the soul at large! 
-> While we can call one mite our own, 
-> We have no full discharge. 
-> But let our debts be what they may, 
-> However great or small,
-> As soon as we have nothing to pay, 
-> Our Lord forgives us all! 
+> 'Tis perfect poverty alone  
+> That sets the soul at large!  
+> While we can call one mite our own,  
+> We have no full discharge.  
+> But let our debts be what they may,  
+> However great or small,  
+> As soon as we have nothing to pay,  
+> Our Lord forgives us all!  
 
 ## Exposition by C. H. Spurgeon: Psalm40.
 
@@ -94,14 +94,14 @@ I waited patiently for the Lord; and He inclined unto me, and heard my cry. He b
 
 And He has put a new song in my mouth. Such a song as I never sang before, for I had never been in such trouble before and, therefore, had never experienced such a deliverance as the Lord has now granted to me. "He has put a new song in my mouth." With that sweet songstress, Ann Letitia Waring, I can say:
 
-> My heart is resting, O my God, 
-> I will give thanks and sing. 
-> My heart is at the secret source 
-> Of every precious thing. 
-> And 'a new song' is in my mouth, 
-> To long-loved music set,
-> Glory to You for all the Grace 
-> I have not tasted yet. 
+> My heart is resting, O my God,  
+> I will give thanks and sing.  
+> My heart is at the secret source  
+> Of every precious thing.  
+> And 'a new song' is in my mouth,  
+> To long-loved music set,  
+> Glory to You for all the Grace  
+> I have not tasted yet.  
 
 Even praise unto our God: many shall see it, and fear, and shall trust in the Lord. Blessed is that man that makes the Lord his trust, and respects not the proud, nor such as turn aside to lies. You know that this Book of Psalms has many benedictions in it. It begins with a blessing upon "the man that walks not in the counsel of the ungodly, nor stands in the way of sinners, nor sits in the seat of the scornful." But here it has a blessing for the Believer: "Blessed is that man that makes Jehovah his trust." As for the proud and the false, may God preserve us from ever paying any regard to them for, if not, they will lead us into some such mischief as that into which they have themselves fallen.
 
