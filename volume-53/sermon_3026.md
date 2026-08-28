@@ -1,7 +1,7 @@
 # Sermon 3026 | Vanity Deprecated
 
-> Turn away my eyes from beholding vanity; and quicken me in Your way.
-> Psalm 119:37
+> Turn away my eyes from beholding vanity; and quicken me in Your way.  
+> Psalm 119:37  
 
 There are divers kinds of vanity. In the play of the frivolous and the sport of the idle, we see but one sort of vanity, light, open and undisguised. The cap and bells of the fool, the motley of the jester, the mirth of the world, the dance, the lyre and the cup of the dissolute; men know these to be vanities; they wear upon their forefront their proper name and title. Yet another species of vanity, and more deceitful, can be discovered in the cares of this world and the deceitfulness of riches. A man may follow vanity as truly in the counting-house as in the theater. If he is spending his life in amassing wealth, he is heaping vanity to himself quite as much as though he openly passed his days in vain show or empty pageant. All the fools do not dance or drink. All the fools do not make jests; full many there are of somber mood who spend money for that which is not bread, and their labor for that which satisfies not!
 
@@ -75,9 +75,9 @@ The Psalmist does not pray like a waverer who will receive nothing of the Lord. 
 
 And may I tell you what I think is the means which God often uses with his people to restore and quicken them, and take their eyes from vanity? I think it is a sight of Christ! At any rate, my personal witness is that I never know the vanity of this world so well as when I see the beauties and the perfections of the Lord, my Master. That true man of God, Dr. Hawker, I am told by a friend of mine who visited him one morning, was asked to go and see a military review that was then taking place at Plymouth. The doctor said, "No." My friend pressed him and said, "I know you are a loyal subject and you like to see your country's fleets, it is a noble spectacle." The doctor said, no, he could not go and, being pressed until he was ashamed, he made this remarkable answer, "There are times when I could go and enjoy it, but my eyes have seen the King in His beauty this morning, and I have had so sweet a sense of fellowship with the Lord Jesus that I dare not go to look upon any spectacle lest I should lose the present enjoyment which now engrosses my soul." I think you and I will have felt the same thing, in our measure, when Christ has manifested Himself to us. What? Look on vanity, my Lord, when Your pierced hand has touched my heart? What are the grandest buildings of this world, with all their pomp of architecture, compared with You, You Great Foundation Stone, you Chief Cornerstone, elect and precious? What is the music of this world, with all its swell and roll, compared with Your name, Immanuel, God With Us:
 
-> Sweeter sounds than music knows Charm me in Immanuel's name;
-> All her hopes my spirit owes
-> To His birth, and Cross, and shame.
+> Sweeter sounds than music knows Charm me in Immanuel's name;  
+> All her hopes my spirit owes  
+> To His birth, and Cross, and shame.  
 
 What are the world's feasts compared with You, O Christ? Its dainties are not sweet, for I have tasted of Your flesh. Its wines are no longer luscious, for I have sipped from the cup of Your blood. What are the world's choicest offers that she can make me of honor or of wealth? Have You not raised me up and made me to sit together in heavenly places with Yourself, and have You not made me a king and a priest unto God and shall I not reign with You forever and ever? Christian, you may carry on such musing as this by the hour together! You may boast yourself in God and your leviathan faith may swim in this boundless deep of Jesus' love! You surely, after this, can never wish to go back to the pool wherein the minnow of this world disports itself. Here you can bask yourself in the rays of a meridian sun, and will you afterwards cry for a farthing candle because you have lost its beams?
 
