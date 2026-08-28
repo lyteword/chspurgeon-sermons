@@ -1,7 +1,7 @@
 # Sermon 3025 | Fifteen Years After!
 
-> Thee Lord gave, and the Lord has taken away; blessed be the name of the Lord.
-> Job 1:21
+> Thee Lord gave, and the Lord has taken away; blessed be the name of the Lord.  
+> Job 1:21  
 
 Or, as some read it, "The Lord gives, and the Lord takes away; blessed be the name of the Lord." So that the text is not only concerning the past, but it may rightly be considered as relating also to the present. Some of the rarest pearls have been found in the deepest waters and some of the choicest utterances of Believers have come from them when God's waves and billows have been made to roll over them. The fire consumes nothing but the dross and leaves the gold all the purer. In Job's case, I may truly say with regard to his position before God, he had lost nothing by all his losses, for what could be purer and brighter gold than this which gleams before us from our text, revealing his triumphant patience, his complete resignation and his cheerful acquiescence in the Divine will? "The Lord gives, and the Lord takes away; blessed be the name of the Lord."
 
@@ -50,8 +50,8 @@ First, bless the name of the Lord when He reveals His hand in giving. "Ah," you 
 
 Do you remember a touching story, told some years ago, of a poor mother with her two little fatherless children? On a cold winter's night they discovered an empty house into which they went for shelter. There was an old door standing by itself, and the mother took it, placed it across a corner of the room, and told the children to creep behind it so as to get a little protection from the cold wind. One of the children said, "Oh Mother, what will those poor children do that haven't got any door to set up to keep out the wind?" That child was grateful even for such a poor shelter as that! Yet there are some who have thousands of greater blessings than that, and yet do not see God's hand in them, and do not praise Him for them. If that has been the case with any of us, let us turn over a new leaf and ask God to rule it with music lines and then let us put on them notes of thanksgiving, and say to the Lord, with David, "Every day will I bless You; and I will praise Your name forever and ever." Or say with one of our old poets:
 
-> My God, I'll praise You while I live, And praise You when I die, And praise You when I rise again,
-> And to eternity.
+> My God, I'll praise You while I live, And praise You when I die, And praise You when I rise again,  
+> And to eternity.  
 
 
 Thus are we to bless the name of the Lord for all that He gives us.
