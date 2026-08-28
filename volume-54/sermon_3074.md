@@ -1,7 +1,7 @@
 # Sermon 3074 | Danger. Safety. Gratitude.
 
-> Now unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and ever. Amen.
-> Jude 1:24,25
+> Now unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and ever. Amen.  
+> Jude 1:24,25  
 
 We may derive much evil or much good from the falls of others. We may derive much evil from their falls if we follow their bad example, or if our pride suggests to us that we are better than they are. It is an evil thing for a man to look upon his fallen brother and then to say, in the spirit of the Pharisee, "God, I thank You that I am not such a sinner as that man is." This kind of spirit would make it very probable that we should yet become even worse than the poor fallen one.
 
