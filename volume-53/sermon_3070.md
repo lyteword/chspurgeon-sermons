@@ -1,7 +1,7 @@
 # Sermon 3070 | A Visit to Christ's Hospital
 
-> Fools because of their transgression and because of their iniquities, are afflicted. Their soul abhors all manner of meat; and they draw near unto the gates of death. Then they cry unto the Lord in their trouble, and He saves them out of their distresses. He sent His Word and healed them, and delivered them from their destructions. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing.
-> Psalm 107:17-22
+> Fools because of their transgression and because of their iniquities, are afflicted. Their soul abhors all manner of meat; and they draw near unto the gates of death. Then they cry unto the Lord in their trouble, and He saves them out of their distresses. He sent His Word and healed them, and delivered them from their destructions. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing.  
+> Psalm 107:17-22  
 
 It is a very profitable thing to visit a hospital. The sight of others' sickness tends to make us grateful for our own health. And it is a great thing to be kept in a thankful frame of mind, for ingratitude is a spiritual disease, injurious to every power of the soul. A hospital inspection will also teach us compassion and that is of great service. Anything that softens the heart is valuable. Above all things, in these days we should strive against the petrifying influences which surround us. It is not easy for a man who has constantly enjoyed good health and prosperity, to sympathize with the poor and the suffering. Even our Great High Priest, who is full of compassion, learned it by carrying our sorrows in His own Person. To see the sufferings of the afflicted, in many cases, would be enough to move a stone. And if we visit a hospital and come back with a more tender heart, we shall have found it a sanatorium to ourselves.
 
@@ -15,10 +15,10 @@ You see in this hospital, written up over the head of every bed, the name of the
 
 Sin is foolish, clearly, because it is a setting up of our weakness in opposition to Omnipotence! Every wise man, if he must fight, will choose a combatant against whom he may have a chance of success. But he who wars with the Most High commits as gross a folly as when the moth contends with the flame, or the dry grass of the prairie challenges the fire! There is no hope for you, O sinful Man, of becoming a victor in the struggle! How unwise you are to take up the weapons of rebellion! And the folly is aggravated, because the One who is opposed is so infinitely good that opposition to Him is violence to everything that is just, beneficial and commendable! God is Love, shall I resist the Infinitely Loving One? He scatters blessings, should I therefore be His foe? If His Commandments were grievous, if His ways were ways of misery and His paths were paths of woe, I might have some pretense of an excuse for resisting His will. But O my God, so good, so kind, so boundless in Grace, 'tis folly, as well as wickedness, to be Your enemy!
 
-> To all that's good, averse and blind, 
-> But prone to all that's ill. 
-> What dreadful darkness veils our mind! 
-> How obstinate our will! 
+> To all that's good, averse and blind,  
+> But prone to all that's ill.  
+> What dreadful darkness veils our mind!  
+> How obstinate our will!  
 
 Besides this, the Laws of God are so supremely beneficial to us that we are our own enemies when we rebel. God's Laws are danger signals. As sometimes, on the ice, those who care for human life put up the warning sign, "Danger, " here and there, and leave the part that is safe for all who choose to traverse it, so God has left us free to enjoy everything that is safe for us, and has only forbidden us that which is to our own hurt. If there is a law which forbids me to put my hand into the fire, it is a pity that I should need such a law, but a thousand pities more if I think that law a hardship! The commands of God do but forbid us to injure ourselves. To keep them is to keep ourselves in holy happiness, to break them is to bring evil of all kinds upon ourselves in soul and body. Why should I violate a law, which, if I were perfect, I would myself have made, or myself have kept finding it in force? Why need I rebel against that which is never exacting, never oppressive, but always conducive to my own highest welfare? The sinner is a fool because he is told, in God's Word, that the path of evil will lead to destruction, and yet he pursues it with the secret hope that in his case the damage will not be very great. He has been warned that sin is like a cup frothing with a foam of sweetness, but concealing death and Hell in its dregs, yet each sinner, as he takes the cup, fascinated by the first drop, believes that to him the poisonous draught will not be fatal! How many have fondly hoped that God would lie unto men and would not fulfill His threats? Yet be assured, every sin shall have its recompense of reward! God is Just and will by no means spare the guilty. Even in this life many are feeling in their bones the consequences of their youthful lusts, they will carry to their graves the scars of their transgressions. In Hell, alas, there are millions who will forever prove that sin is an awful and an undying evil, an infinite curse which has destroyed them forever and ever!
 
@@ -48,10 +48,10 @@ These words may reach some whose disease of sin has developed itself into fearfu
 
 The text adds, "They draw near unto the gates of death." The soul is exceedingly sorrowful, even unto death, and feels that it cannot bear up much longer. I remember once, in the bitterness of my spirit, using those words of Job, "My soul chooses strangling and death rather than my life," for the wretchedness of a sin-burdened soul is intolerable. All do not suffer like strong convictions but in some it bows the spirit almost to the grave! Perhaps, my Friend, you see no hope whatever. You are ready to say, "There cannot be any hope for me. I have made a covenant with death and a league with Hell. I am past hope. There were, years ago, opportunities for me, and I was near the Kingdom of God, but like the man who put his hand to the plow and then looked back, I have proven myself unworthy of eternal life." Troubled Heart, I am sent with a message for you: "Thus says the Lord, your covenant with death shall be disannulled and your league with Hell shall not stand. The prey shall be taken from the mighty and the lawful captive shall be delivered." You may abhor the very meat that would restore you to strength, but He who understands the human heart knows how to give you better tastes and cure these evil whims! He knows how to bring you up from the gates of death to the gates of Heaven! Thus we see how terribly the mischief progresses.
 
-> Our beauty and our strength are fled, 
-> And we draw near to death, 
-> But Christ the Lord recalls the dead 
-> With His almighty breath. 
+> Our beauty and our strength are fled,  
+> And we draw near to death,  
+> But Christ the Lord recalls the dead  
+> With His almighty breath.  
 
 And now the disease takes a turn. Our fourth point is the interposition of the physician. "Then they cry unto the Lord in their trouble, and He saves them out of their distresses. He sent His Word and healed them, and delivered them from their destructions."
 
