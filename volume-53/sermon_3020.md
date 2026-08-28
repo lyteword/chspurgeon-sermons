@@ -1,10 +1,10 @@
 # Sermon 3020 | Good Cheer From Grace Received
 
-> And, behold, a woman, which was diseased with an issue of blood twelve years, came behind Him, and touched the hem of His garment: for she said within herself, If I may but touch His garment, I shall be whole. But Jesus turned Him about, and when He saw her, He said, Daughter, be of good comfort; your faith has made you whole. And the woman was made whole from that hour.
-> Matthew 9:20-22
+> And, behold, a woman, which was diseased with an issue of blood twelve years, came behind Him, and touched the hem of His garment: for she said within herself, If I may but touch His garment, I shall be whole. But Jesus turned Him about, and when He saw her, He said, Daughter, be of good comfort; your faith has made you whole. And the woman was made whole from that hour.  
+> Matthew 9:20-22  
 
-> But as He went the people thronged Him. And a woman having an issue of blood twelve years, which had spent all her living upon physicians, neither could be healed of any, came behind Him, and touched the border of His garment: and immediately her issue of blood stanched. And Jesus said, Who touched Me? When all denied, Peter and they that were with Him said, Master, the multitude throng You and press You, and You say, Who touched Me? And Jesus said, Somebody has touched Me: for I perceive that virtue is gone out of Me. And when the woman saw that she was not hid, she came trembling, and falling down before Him, she declared unto Him before all the people for what cause she had touched Him, and how she was healed immediately. And He said unto her, Daughter, be of good comfort: your faith has made you whole: go in peace.
-> Luke 8:42-48
+> But as He went the people thronged Him. And a woman having an issue of blood twelve years, which had spent all her living upon physicians, neither could be healed of any, came behind Him, and touched the border of His garment: and immediately her issue of blood stanched. And Jesus said, Who touched Me? When all denied, Peter and they that were with Him said, Master, the multitude throng You and press You, and You say, Who touched Me? And Jesus said, Somebody has touched Me: for I perceive that virtue is gone out of Me. And when the woman saw that she was not hid, she came trembling, and falling down before Him, she declared unto Him before all the people for what cause she had touched Him, and how she was healed immediately. And He said unto her, Daughter, be of good comfort: your faith has made you whole: go in peace.  
+> Luke 8:42-48  
 
 The words of good cheer which our Savior spoke to this woman were not given to her while she was coming to Him, for that would have been premature. She had not avowed her desire to be healed. She had uttered no prayer. She had actually as yet sought nothing at the Savior's hands and, therefore, she had not reached the stage at which comfort is fitting. She does not appear to have required comfort in taking her first step: she was resolved upon that and she took it without fail. It is one of the most unwise things under Heaven to comfort people who do not require it. When we are dealing with enquirers, our love may bring them loss if we offer them words of cheer when they need admonition or rebuke. Any comfort which keeps a soul short of Christ is dangerous. A sinner's main business is to get to Jesus, to exercise personal faith in the personal Savior, and we have no right to a gleam of comfort until we have heartily and honestly trusted in Christ. If encouragements to believe are used as a sort of halfway house to rest in before actually believing, they are mischievously used and may ruin our souls!
 
@@ -42,8 +42,8 @@ Yet it may be that after you have done so, and have obtained the blessing, you w
 
 Thus I set forth the woman's need of comfort. And if anyone else is in a similar case to hers, let him look up and be of good cheer, for her feet have trodden the way of fear before him. Let him say, as Augustus Toplady did:
 
-> If my Lord Himself reveals No other good I need! Only Christ my wounds can heal, Or silence my complaint.
-> He that suffered in my place Shall my Physician be; I will not be comforted Till Jesus comforts me.
+> If my Lord Himself reveals No other good I need! Only Christ my wounds can heal, Or silence my complaint.  
+> He that suffered in my place Shall my Physician be; I will not be comforted Till Jesus comforts me.  
 
 May the Holy Spirit rest upon us while we notice the comfort which Jesus gave her. He said to her, "Daughter, be of good comfort: your faith has made you whole."
 
