@@ -1,7 +1,7 @@
 # Sermon 3072 | An Observation of the Preacher
 
-> Better is the end of a thing than the beginning thereof.
-> Ecclesiastes 7:8
+> Better is the end of a thing than the beginning thereof.  
+> Ecclesiastes 7:8  
 
 Some translators read this passage, "Better is the end of a speech than the beginning thereof." And I doubt not that many of my hearers quite concur in that opinion. You endeavor to be patient when we begin, but as soon as we utter the word, "finally," your eyes begin to glisten, for the tedious exercise, you think, will soon be over! And if it is so to the hearers, I grant you it is sometimes so to the speaker! A speaker s ometimes finds it difficult to begin, more difficult to continue to edification, not difficult to come to a close, but often exceedingly pleasant to do so. Well, doubtless many a young preacher can remember when he first tried to speak, how much better he felt the end of the speech to be than the beginning! Like the young acrobat, walking upon a rope on high who tremblingly launches forth and timidly puts one foot after the other until he reaches the end of his dangerous task, he was relieved to sit down! Far better was the end of the speech than the beginning thereof.
 
@@ -56,10 +56,10 @@ Someone will doubtless say, "I am not like these men. I am neither debauched nor
 
 And it is so with this man. But why did he not lift up his eyes before? Because he got so accustomed to hear the Gospel that his soul went to sleep under it! He cannot sleep now, "being in torments." There is no sleep in Hell. Oh, what a blessing sleep would be if it could enter the habitation of the damned! Alas, if any of you should lift up your eyes there, what a sight you will behold! Here, if you drop off to sleep and wake up in the Tabernacle, you see the faces of attentive listeners hearing words of mercy, there, when first you lift up your eyes, you will gaze into visages more marred with pain than any you have ever seen before! And if you ask them the cause of their awful grief and why agony, as with a red-hot plowshare, has made such deep furrows in their cheeks, they will tell you that you need not ask them, for you will soon learn the reason yourself! I cannot picture it. Let the Savior's own Words tell you the terrible Truth of God: "The rich man cried and said, Father Abraham, have mercy on me and send Lazarus, that he may dip the tip of his finger in water and cool my tongue, for I am tormented in this flame." There is a frightful meaning in those words! May you never have to spell it out by the red light of Jehovah's wrath!
 
-> You sinners, seek His Grace,
-> Whose wrath you cannot bear! 
-> Fly to the shelter of His Cross, 
-> And find salvation there! 
+> You sinners, seek His Grace,  
+> Whose wrath you cannot bear!  
+> Fly to the shelter of His Cross,  
+> And find salvation there!  
 
 Before this last Sabbath of the year closes, I pray that the Lord may come down in mercy and visit those who have not yet received Christ, that of them it may be truly said, "Better i s the end of this year than the beginning thereof." God grant it for Jesus' sake! Amen.
 
