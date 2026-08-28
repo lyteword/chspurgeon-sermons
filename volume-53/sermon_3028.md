@@ -1,7 +1,7 @@
 # Sermon 3028 | God's Glory Our Rereward
 
-> The glory of the Lord shall be your rereward.
-> Isaiah 58:8
+> The glory of the Lord shall be your rereward.  
+> Isaiah 58:8  
 
 The Church of God is an army marching through an enemy's territory. She can never reckon upon a moment's peace. If she were of the world, the world would love its own, but because true saints are not of the world, but Christ has chosen them out of the world, therefore the world hates them. As the Amalekites suddenly fell upon the children of Israel, unprovoked and without giving any warning of their hostile intention, so, not only in times of persecution, but in these apparently softer days when the world does not use the stake and the sword, at all seasons the world is ready to pounce upon the Church of God and to call in its grand ally, the devil, to overthrow and destroy, as far as possible, the militant hosts of Israel!
 
@@ -19,12 +19,12 @@ Taking the text to refer to the Church of God as a body, we remark that there ar
 
 We have, moreover, in the Church of Christ, a considerable proportion of those who are always behind. Some of those are here tonight. You feel yourselves to belong to the rear because you are so weak in faith. It is a blessed thing to enjoy full assurance of faith and yet, no doubt, there are thousands in the fold of Jesus who never reach this attainment. It is a great pity that they should not reach it, for they miss much happiness and much usefulness. But still
 
-> Thousands in the fold of Jesus, 
-> This attainment never could boast. 
-> To His name eternal praises, 
-> None of these shall ever be lost. 
-> Deeply engraved 
-> On His hands, their names remain. 
+> Thousands in the fold of Jesus,  
+> This attainment never could boast.  
+> To His name eternal praises,  
+> None of these shall ever be lost.  
+> Deeply engraved  
+> On His hands, their names remain.  
 
 There are some who, from their natural constitution and other circumstances, are very apt to despond. Like Mr. Fearing, they not only go through the Slough of Despond, but, as Bunyan says, they carry a slough of despond about with them! They are little in faith, but they are great at foreseeing evil. They are always expecting some dreadful ill and they cower down before a shadow. I thank God that those of you who have faith but as a grain of mustard seed, shall not be left to fall away; the Glory of the Lord shall gather you up with the rest of the saints! The stragglers, the wounded, the halt, the lame, though these cannot march with the rest as we desire, though, like Mr. Ready-to-Halt, they have to go on crutches, yet the Glory of the Lord shall be their shelter and protection.
 
