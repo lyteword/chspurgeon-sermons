@@ -1,7 +1,7 @@
 # Sermon 3055 | Accomplices in Sin
 
-> Neither be partaker of other men's sins.
-> 1 Timothy 5:22
+> Neither be partaker of other men's sins.  
+> 1 Timothy 5:22  
 
 We have all abundant reason to look at home and see about our own sins. Nothing can be more absurd than for a man to take his hoe and weed everybody else's garden, and leave all the thorns and thistles to flourish on his own plot. The old parable of the man who carried two bags, one behind and one in front, and who put other people's faults into the one in front, and his own into the one at his back, is a very correct representation of the folly of those who have their eyes wide open to see the faults of their neighbors, but are totally blind to their own imperfections. If, as our proverb puts it, "Charity begins at home," so should criticism, and criticism concerning character had better stop there. There is so much dirty linen in our own house needing to be washed that none of us need to take in our neighbor's washing. "Mind your own business," is a command that might have been spoken by Solomon, himself, and the Apostle Paul was inspired to write to the Thessalonians, "Study to be quiet and to do your own business." And he and Peter very sternly condemned those who were "busybodies in other men's matters."
 
@@ -26,22 +26,22 @@ Plato, the philosopher, one day saw a boy in the street behaving in a very shame
 
 "Oh, but we are members of the Church," say some. Yes, I know you are, yet I speak to you as well as to others, for there are some of you who are bringing up your children in an improper manner. I do not see how they can be expected to love religion when they see your own household ordered so badly, or not ordered at all. The professor of religion who does not live consistently with his profession does more injury to the cause of Christ than a non-professor does! There are some who hang out the sign of, "The Angel," but the devil keeps the inn! Someone has truly said that many a man's house is like Noah's ark in that it is pitched within and without with pitch. There is pitch in the dining-room, gluttony and drunkenness. And pitch in the bed-chamber, lasciviousness and wantonness. Pitch in the drawing-room, talk which is not even fit for the stables. And pitch in the shop, for much that is "dirty" goes on there. How can anyone expect good children to come out of such a house as that? May none of us, like Eli, be accomplices in our children's sins through neglecting to rebuke them, or like David, through our evil example leading them into sin! On the contrary, let us pray for them, as Abraham cried to the Lord, "O that Ishmael might live before You!" I like to present to God the petitions and pleas which are so well worded in that hymn in "Our Own Hymn Book" which is attributed to Rowland Hill:
 
-> You, who a tender Parent are, 
-> Regard a parent's plea;
-> Our offspring, with an anxious heart, 
-> We now commend to Thee. 
-> Our children are our greatest care, 
-> A charge which You have given;
-> In all Your Graces let them share, 
-> And all the joys of Heaven. 
-> If a centurion could succeed, 
-> Who for his servant cried, 
-> Will You refuse to hear us plead 
-> For those so near allied? 
-> On us You have bestowed Your Grace, 
-> Be to our children kind;
-> Among Your saints give them a place, 
-> And leave not one behind. 
+> You, who a tender Parent are,  
+> Regard a parent's plea;  
+> Our offspring, with an anxious heart,  
+> We now commend to Thee.  
+> Our children are our greatest care,  
+> A charge which You have given;  
+> In all Your Graces let them share,  
+> And all the joys of Heaven.  
+> If a centurion could succeed,  
+> Who for his servant cried,  
+> Will You refuse to hear us plead  
+> For those so near allied?  
+> On us You have bestowed Your Grace,  
+> Be to our children kind;  
+> Among Your saints give them a place,  
+> And leave not one behind.  
 
 The injunction of the text of course applies, in a measure, to the teacher of a class as well as to the parent of a family. If the teacher is inconsistent and his scholars imitate him, the guilt of their wrong-doing will, at least in part, rest upon the teacher. The same principle applies to all persons who are in positions of influence in the land. If I were preaching to the House of Commons and the House of Lords, I would probably have to say some things which they would not wish to hear again. Certain "honorable gentlemen" and "noble lords" talk very glibly about the necessity for the nation to be religious, yet their lives are not remarkably religious, so their talk is all hypocritical and great sin lies at their door! God will certainly punish princes and so-called "nobles" if their example is not such as the common people can safely follow.
 
@@ -53,8 +53,8 @@ We may also be "partakers of other men's sins" by joining a church that holds un
 
 But supposing you have joined a church whose doctrines are Scriptural, you may be "partakers of other men's sins" if the discipline of the church is not carried out as it should be. If we know that members are living in gross sin and do not deal with them either by way of censure or excommunication in accordance with the teaching of Christ and His Apostles, we become accomplices in their sin. I often tremble about this matter, for it is no easy task where we count our members by the thousands. But may we never wink at sin, either in ourselves or in others! May you all, Beloved, exercise a jealous oversight over one another and so help to keep one another right! And let each one pray Charles Wesley's prayer which we have often sung:
 
-> Quick as the apple of an eye, 
-> God, my conscience make! Awake, my Soul, when sin is near, And keep it still awake. 
+> Quick as the apple of an eye,  
+> God, my conscience make! Awake, my Soul, when sin is near, And keep it still awake.  
 
 Further, we may be "partakers of other men's sins" by not rebuking them for sinning if it is our duty to do so, or by not doing all we can towards their conversion. For instance, by living in a certain neighborhood and never trying to bring the Gospel to the people in that neighborhood, or by not maintaining our consistent Christian walk as the separated people of God. In brief, let each one sing, from the heart, the rest of that hymn from which I began to quote just now:
 "I need a principle within Of jealous godly fear. A sensibility of sin, a pain to feel it near!
@@ -109,10 +109,10 @@ Drawn from Immanuel's veins;
 And sinners, plunged beneath that flood,
 Lose all their guilty stains", and let all who can sing it from the heart join in the well-known chorus:
 
-> Ido believe, I will believe, 
-> That Jesus died for me! 
-> That, on the Cross, He shed His blood 
-> From sin to set me free! 
+> Ido believe, I will believe,  
+> That Jesus died for me!  
+> That, on the Cross, He shed His blood  
+> From sin to set me free!  
 
 ## Exposition by C. H. Spurgeon: Psalm 73.
 
