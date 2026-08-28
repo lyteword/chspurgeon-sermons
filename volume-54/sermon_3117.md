@@ -1,7 +1,7 @@
 # Sermon 3117 | Eyes Opened
 
-> And Elisha prayed, and said, Lord, I pray you, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire round about Elisha.
-> 2 Kings 6:17
+> And Elisha prayed, and said, Lord, I pray you, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire round about Elisha.  
+> 2 Kings 6:17  
 
 The Believer in Christ sees much more than any other man sees. There is a proverb which says, "Seeing is believing," but that is not true, for there are many things that we see, which, if we are sensible persons, we shall not believe, since our eyes are very apt, indeed, to be deceived, and optical illusions are very common. If you turn the proverb around the other way and say, "Believing is seeing," you will often find it come true. The man who has believed has "the evidence of things not seen" as yet. He is like Moses who is described as "seeing Him who is invisible." Faith is to a man like new eyes, eyes with a far wider range of vision than natural eyes ever have, eyes which see the Truths of God, which natural eyes often do not, eyes which wax not dim, but which, as age increases, grow yet more bright and farseeing! Blessed is the man who has the eyesight of faith! Elisha had it and, therefore, when he saw the hosts of Syria, with their horses and chariots encompassing the city of Dothan, he also saw the angelic hosts with their horses and chariots of fire which God had sent to guard him from the Syrians.
 
