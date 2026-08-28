@@ -1,7 +1,7 @@
 # Sermon 3096 | The Second Time
 
-> And at the second time Joseph was made known to his brothers.
-> Acts 7:13
+> And at the second time Joseph was made known to his brothers.  
+> Acts 7:13  
 
 This did not happen on the first occasion when they went down into Egypt. Joseph knew them, then, but they did not recognize him. He filled their sacks with corn, put the purchase money into their sacks, gave them provision for the way and sent them home, but he gave them no token by which they were able to recognize him as their long-lost brother. And I want to show you that as it was with Joseph, so it is with Jesus. There are times when sinners do not know Him even when they are speaking to Him. And on the first occasion He does not manifest Himself to them, but it is a very delightful thought that, full often, at the second time, Jesus is made known unto His brethren even as Joseph was. I will tell you the gist of my discourse at once. It is this, if you have sought the Savior and have not yet found Him, seek Him again! If your first seeking has been a failure, let my text be a message of encouragement to you, "At the second time Joseph was made known to his brothers", let it encourage you to seek the Savior again in the hope that, at the second time, Jesus may make Himself known to you!
 
