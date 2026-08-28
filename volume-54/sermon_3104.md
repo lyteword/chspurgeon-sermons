@@ -1,7 +1,7 @@
 # Sermon 3104 | Binding Up Broken Hearts
 
-> He has sent Me to bind up the brokenhearted.
-> Isaiah 61:1
+> He has sent Me to bind up the brokenhearted.  
+> Isaiah 61:1  
 
 These are some of the words of the Lord Jesus, the Christ of God, the Messiah, which He read in the synagogue at Nazareth and then said, "This day is this Scripture fulfilled in your ears." One of the worst calamities that can happen to anyone is to have his spirit broken. "The spirit of a man will sustain his infirmity; but a wounded spirit, who can bear?" All the water in the sea will not hurt the vessel one thousandth part as much as that which comes into it. When trouble gets into the heart, every other trouble seems to be magnified and it is hard to bear up against even the ordinary trials of daily life. Save us, O God, if possible, from the terrible affliction of being entirely broken down in life's battle!
 
