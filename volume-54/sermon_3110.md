@@ -80,7 +80,7 @@ I leave these thoughts with those of you who know the way of the wilderness. Tho
 
 God bless every one of us, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm143.
+## Exposition by C. H. Spurgeon: Psalm 143
 
 Hear my prayer, O Lord, give ear to my supplications: in Your faithfulness answer me, and in Your righteousness. And enter not into judgment with Your servant for in Your sight shall no man living be justified. For the enemy has persecuted my soul; he has smitten my life down to the ground; he has made me to dwell in darkness, as those that have been long dead. This is a very graphic description of David's sorrow. And those who have ever come under the power of Satan so as to be crushed in spirit and see all their hopes blighted and withered know what David meant when he penned these words. Only think of a soul dwelling in darkness like a body that has been long dead and shut up in the grave.
 

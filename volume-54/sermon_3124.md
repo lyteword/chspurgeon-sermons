@@ -57,7 +57,7 @@ And you, Believers, when you come to the Lord's Table, if you draw near to Chris
 
 Whoever you may be, my dear Friend, though you may be nothing but a poor "somebody," yet if you have touched Christ, tell others about it in order that they may come and touch Him, too! And the Lord bless you, for Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: John3.1-21.
+## Exposition by C. H. Spurgeon: John 3:1-21
 
 Let us once more read together part of this blessed soul-saving chapter. I suppose that more souls have been saved through the reading of this chapter than through almost any other portion of Holy Writ.
 

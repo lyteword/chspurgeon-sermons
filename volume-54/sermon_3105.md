@@ -52,7 +52,7 @@ We will only note, in concluding our brief but instructive musings, that God's C
 
 "Turn, then, my Soul, unto your rest. The merits of your great High Priest Have bought your liberty. Trust in His efficacious blood, Nor fear your banishment from God, Since Jesus died for thee."
 
-## Exposition by C. H. Spurgeon: Psalm 66; Romans 8:1-9.
+## Exposition by C. H. Spurgeon: Psalm 66; Romans 8:1-9
 
 Psalm 66:1, 2. Make a joyful noise unto God all you lands: sing forth the honor of His name! Make His praise glorious. In a company of advanced saints, silence may be sometimes profitable. The first verse of the previous Psalm should read, according to the Hebrew, "Praise is silent for You, O God, in Zion." Full-grown saints may have their times of waiting in silence before the Lord, but when the heathen are to be brought in, and when new hearts are to be taught new songs, then there must be a noise! And not merely a noise, but a noise that is full of joy, "Make a joyful noise unto God all you lands." This should be the chief point about it, that it should be a joyful noise. Many of the newly invented tunes which have put the good old tunes out of favor appear to have been made to rattle through the hymn as quickly as possible, as though the composer had written, "Let us praise God at express speed and get it done. And the quicker, the better." But I prefer those tunes in which we can sometimes repeat the words and roll them under the tongue until our heart gets thoroughly saturated with the spirit of them.
 

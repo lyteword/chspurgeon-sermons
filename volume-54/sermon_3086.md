@@ -49,7 +49,7 @@ This is the lower part of the choir. Some of the singers are up in the galleries
 
 But whether you will rejoice or not, my soul does magnify the Lord and my spirit does rejoice in God my Savior! And so I will, by His help, till death suspends these mortal songs, or melts them into the immortal songs before the Throne of God! God bless you, Brothers and Sisters, for Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm 116.
+## Exposition by C. H. Spurgeon: Psalm 116
 
 I love the Lord because He has heard my voice and my supplications. Every answered prayer should make us love the Lord and especially those prayers that come up from our heart when it is overwhelmed within us. When we pray in deep trouble and God sends us help and deliverance, it is impossible for us not to love Him! Cannot each Believer here say, with great gratitude, "I love the Lord because He has heard my voice and my supplications"?
 

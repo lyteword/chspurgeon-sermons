@@ -61,7 +61,7 @@ All this I have spoken to Christians, but there would be plenty of room and oppo
 
 I leave you, then, with the prayer, "Help, Lord." May the Lord help you, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm 11.
+## Exposition by C. H. Spurgeon: Psalm 11
 
 I will love You, O Lord, my strength The Lord is my rock and my fortress, and my deliverer; my God, my strength in whom I will trust; my buckler, and my horn of my salvation, and my high tower I shall call upon the Lord, who is worthy to be praised: so shall I be saved from my enemies. At first he says, "I will love You," then, "I will trust You." Now he says "I will call upon You," and that calling upon God is especially in the sense of praising Him. And when you have just experienced a Divine deliverance, how full your spirit is of sacred gratitude!
 

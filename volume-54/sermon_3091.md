@@ -65,7 +65,7 @@ Oh, what a different tale we might have told tonight! Think of what a different 
 
 Is there a lost and ruined sinner here? "Yes," says one, "I am." Jesus Christ came to save sinners. I am hanging on Him and trusting Him. I would that each one of you could say, "So am I." Sinner, you have no hope but in Jesus. Trusting Him, His saints are safe. Will you trust Him? God help you to trust Him at this very moment! Cast yourself where millions have cast themselves before, upon the covenanted mercy of God in Christ, and as they leap up and cry, "We are saved," you, too, may stand up and say, "So am I." May the Lord bless us! May we be numbered with His Israel in the day when He comes to make up His jewels, for His name's sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm81.
+## Exposition by C. H. Spurgeon: Psalm 81
 
 Sing aloud unto God our strength: make a joyful noise unto the God of Jacob In these days, the Psalms would have to be altered if they are to suit the dogmas of modern thought, for "the God of Jacob" is altogether rejected by those wondrous thinkers who think they know so much! The God of the New Testament, they say, is a very different Being from the God of the Old Testament. According to them, the Old Testament God is too stern, the New Testament God is far softer, quite effeminate, indeed, if they rightly describe Him. But we do not hesitate to say, over and over again that the God of Abraham, of Isaac, and of Jacob, the Immutable and Unchangeable One, the God of Sinai, is as much our God as the God of Calvary! And so we delight "to make a joyful noise unto the God of Jacob."
 

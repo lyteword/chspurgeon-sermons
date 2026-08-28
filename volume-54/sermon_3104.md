@@ -49,7 +49,7 @@ And you, poor fallen woman, wherever you may be, though nobody gives you a good 
 
 Only believe in Him, the Son of Man, your Brother and yet the Son of the Highest. Fall at His feet, for they were pierced for you! Look up to His almighty hands, for they were once nailed to the Cross for you! Bring your poor broken heart to the heart that was once pierced by the soldier's spear and find sweetest rest in Jesus! I know what despair means. I knew something of its bitterness in my early days, when I was under conviction of sin, but since the day when I saw the star of Bethlehem amidst the black darkness and tempest of my soul, and especially since I looked to the Christ of Calvary, all has been well with me! So I say to you poor waifs and strays upon the dark and stormy sea of life, look up, for there shines "the bright and morning Star." "This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners," even the very chief of them! Look to Him, poor storm-tossed mariner, and He will guide you safely to the Port of Peace. God bless you, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Ezekiel 37.
+## Exposition by C. H. Spurgeon: Ezekiel 37
 
 The hand of the Lord was upon me, and carried me out in the Spirit of the Lord. God's servants learn nothing until they have an experience similar to that of Ezekiel. They must be led by the Spirit of the Lord and they must have their eyes and mouths opened by Him, and then they can both see the vision and tell the vision to others.
 

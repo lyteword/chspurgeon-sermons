@@ -65,7 +65,7 @@ And finally, this will be our judgment at the Last Great Day. We shall account t
 
 If you love not the Lord Jesus Christ, take heed that He should come against you with His rod of iron and utterly destroy you. May He, by His gracious Spirit, give to all of us faith in Him and loyalty to Him for His dear name's sake! Amen.
 
-## Exposition by C. H. Spurgeon: John 14.
+## Exposition by C. H. Spurgeon: John 14
 
 Let not your heart be troubled: you believe in God, believe also in Me. Here is a troubled company of disciples, very much cast down, so their Divine Master, full of infinite tenderness, talks to them in this gentle manner, "Let not your heart be troubled." He does not like to see them troubled, for when they are, He is also troubled. Our Lord here prescribes faith as the only remedy for heart trouble. If you, poor troubled soul, can believe, you will leave off fretting. Twice our Lord uses the word, "believe." He seems to say to His disciples, "Take another dose of faith, it will take away from you this faintness of heart from which you are suffering. 'You believe in God, believe also in Me." And then He seeks to make them forget their heart trouble by talking most sweetly to them about His Father and His Father's dwelling place. It is a great thing to divert the mind, when it is troubled, from that which bores into it and threatens to destroy it.
 

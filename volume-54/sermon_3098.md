@@ -61,7 +61,7 @@ Sinner, that is not true! But it is true that "light is sown for the righteous, 
 
 May God bless you, for Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: Isaiah 43:1-19.
+## Exposition by C. H. Spurgeon: Isaiah 43:1-19
 
 But now thus says the Lord that created you, O Jacob, and He that formed you, O Israel The Lord reminds us that He first created us, and that He afterwards molded us. We are like Jacob by nature, but He has made us Israel by Grace.
 

@@ -69,7 +69,7 @@ Let us close with the thought that there is the greatest wisdom in the workings 
 
 He who has faith is better than the stoic. The stoical philosopher bore trial because he believed it must be. The Christian bears it because he believes it is working for his good. The next time that trouble comes, or disease comes, or pestilence comes, smile at it and say: "He that has made his refuge God Shall find a most secure abode, Shall walk all day beneath His shade And there at night shall rest his head." Let this be your shield to keep off the thrusts of distress and this be your high rock against all the winds of sorrow! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm103.
+## Exposition by C. H. Spurgeon: Psalm 103
 
 Bless the Lord, O my Soul: and all that is within me, bless His holy name. Come, my Heart, be down in the dumps no longer! Take your harp from the willows, tune its strings and begin to pour forth its music to the praise of Divine Love!
 

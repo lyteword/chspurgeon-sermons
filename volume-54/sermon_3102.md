@@ -51,7 +51,7 @@ As He is there, can we not all trust Him? The dying thief trusted Him when His h
 
 With this assurance let us go our way, resolving to follow our Forerunner till we get where He is, "within the veil," and then forever to follow Him "wherever He goes." Amen.
 
-## Exposition by C. H. Spurgeon: Hebrews9:24-28; 10.
+## Exposition by C. H. Spurgeon: Hebrews 9:24-28; 10
 
 Hebrews 9:24. For Christ is not entered into the Holy Place made with hands, which are the figure of the true; but into Heaven itself now to appear in the Presence of God for us. He has gone within the veil, not the veil of "blue, and purple, and scarlet, and fine twined linen of cunning work," but within the veil that hides "Heaven itself from our eyes." And there He is, "in the Presence of God for us."
 

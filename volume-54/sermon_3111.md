@@ -59,7 +59,7 @@ Besides, it would be to His own Glory in Heaven above and down here among the so
 
 Again I quote Paul's words to the jailer at Philippi, "Believe on the Lord Jesus Christ, and you shall be saved." I do not know what more I can say. If I have been talking to sensible men who value their immortal souls, and God blesses my message. I have said enough. If I speak to those who are besotted with their sin and bent on committing spiritual suicide, I could not say enough though I spoke till your ears could no longer hear and my tongue could no longer speak. Eternal Spirit, arrest the elect of God this very hour and bring them to see themselves as they are, and then to see Christ as their Savior and force from each one of them this cry: "Bless me, even me also, O my Father." Amen.
 
-## Exposition by C. H. Spurgeon: Hebrews 12.
+## Exposition by C. H. Spurgeon: Hebrews 12
 
 The Apostle, having described the heroes of the faith, represents them as witnesses of the great race which Christians in all ages have to run. All through the chapter he keeps up the idea of the great Olympic games and represents the saints as occupied with spiritual athletics in the Presence of God, the angels and glorified men.
 

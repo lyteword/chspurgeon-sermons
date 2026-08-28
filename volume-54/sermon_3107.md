@@ -57,7 +57,7 @@ We finish with this word of deep regret, regret that many here cannot understand
 
 May the Holy Spirit so lead you, for Jesus sake! Amen.
 
-## Exposition by C. H. Spurgeon: Luke22:7-54.
+## Exposition by C. H. Spurgeon: Luke 22:7-54
 
 Then came the day of unleavened bread, when the Passover must be killed. And He sent Peter and John, saying, Go and prepare us the Passover, that we may eat And they said unto Him, Where will You that we prepare? And He said unto them, Behold, when you are entered into the city, there shall a man meet you, bearing a pitcher of water; follow him into the house where he enters in. And you shall say unto the good man of the house, the Master says unto you, Where is the guest chamber, where I shall eat the Passover with My disciples? And he shall show you a large upper room furnished: there make ready. And they went and found as He had said unto them: and they made ready the Passover The hour of Christ's humiliation was drawing near, but He was still "The Master." He had but to send His servants and His request was at once obeyed, just as He might have asked for more than 12 legions of angels and they would have been immediately placed at His disposal.
 

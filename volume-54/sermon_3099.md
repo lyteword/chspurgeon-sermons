@@ -53,7 +53,7 @@ Remember Him, I pray you, till your hearts grow warm and your love burns within 
 
 How sorry I am that there are many here who must not come to this Table, for they have never trusted in Christ! If it seems nothing to you now not to love and trust the Lord Jesus Christ, remember that if you die in that state, a day will come when it will seem to you to have been the most horrible thing that ever happened that you should have lived and died without love to Him and trust in Him! God save you! Believe in Jesus now and you shall be saved now. Cast yourselves upon Him and He will not cast you away. So may He bless you, for His dear name's sake! Amen and amen.
 
-## Exposition by C. H. Spurgeon: Mark 15:1-41; Luke 8:1-3.
+## Exposition by C. H. Spurgeon: Mark 15:1-41; Luke 8:1-3
 
 Let us read again what we have often read before, that saddest of all stories which, nevertheless, is the fountain of the highest gladness, the story of our Savior's death, as recorded by Mark.
 

@@ -59,7 +59,7 @@ Now, if you thus sow to the Spirit, you will "reap life everlasting." The Apostl
 
 May the Lord graciously give to all of us His Holy Spirit and may we all meet in Heaven to part no more forever, for our Lord Jesus Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm 80; Matthew 9:36-38; 10.
+## Exposition by C. H. Spurgeon: Psalm 80; Matthew 9:36-38; 10
 
 Psalm 80:1-3. Give ear, O Shepherd of Israel, You that lead Joseph like a flock; You that dwell between the cherubims, shine forth. Before Ephraim and Benjamin and Manasseh stir up Your strength and come and save us. Turn us again, O God, and cause Your face to shine; and we shall be saved. To whom could Israel go, in times of distress, but unto her God? It was well that her Psalmists should teach her thus to pray. Notice the form of this prayer, "Come and save us. Turn us again, O God." We cannot be saved except by being turned from the ways of sin into the path of holiness. But who shall turn us? What power can reverse the current of the human soul? As well might Niagara begin to ascend of its own accord as for man to turn to God except as God turns him!
 

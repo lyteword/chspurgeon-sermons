@@ -65,7 +65,7 @@ If I were you, I say again, I would run away from my master. I do not read that 
 
 "Well," says one, "I would gladly change my master, but would Christ have me?" Try Him! Try Him as the prodigal son tried his father. Go and put your head on your Father's bosom and weep out such a confession as this, "I have sinned against Heaven, and before You, and am no more worthy to be called Your son." And before you have finished your confession, you will hear Him saying in your soul, "I have blotted out, as a thick cloud, your transgressions and, as a cloud, your sins." God is far more ready to forgive you than you are to ask Him for pardon! Only acknowledge your sin, plead the blood of Jesus, put your trust in Him and my God, my Father, will delight to receive you! He will say, "This, My son, was dead, and is alive again. He was lost, and is found. "He will be glad! His angels will rejoice and His saints will make melody!
 
-## Exposition by C. H. Spurgeon: 1 Samuel 30:1-25.
+## Exposition by C. H. Spurgeon: 1 Samuel 30:1-25
 
 David had joined the army of the Philistines, but, as the Philistine lords suspected him, he was obliged to leave, so he went back to the little city of Ziklag, which King Achish had given him.
 
