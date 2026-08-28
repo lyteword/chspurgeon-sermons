@@ -1,7 +1,7 @@
 # Sermon 3097 | A Suitable Watchword
 
-> Help, Lord.
-> Psalm 12:1
+> Help, Lord.  
+> Psalm 12:1  
 
 This was a prayer of David. It was offered under peculiar circumstances. He had been treacherously betrayed again and again. He delivered the city of Keilah from the Philistines and then had to flee from the place, or the men of Keilah would have delivered him up to his enemy, Saul. He went to the wilderness of Ziph and the men of Ziph at once ran to Saul to betray him. Doeg was present when David received some help from Ahimelech the priest and he set off straightway to inform the king. Everyone seemed to act treacherously with David while he was in his state of wandering. He therefore turned away altogether from men in whom he could put no confidence, and he cried, "Help, Lord."
 
