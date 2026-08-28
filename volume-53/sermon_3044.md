@@ -1,7 +1,7 @@
 # Sermon 3044 | Spiritual Transformations
 
-> Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off
-> Isaiah 4:13
+> Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off  
+> Isaiah 4:13  
 
 For many centuries the Holy Land has been covered with thorns and briers. Travelers tell us it is so exceedingly barren that except upon the dreary desert of Sahara, you cannot find a more absolute sterility than in many parts of Judea and Israel. But the land will not remain forever thus unproductive. Even now, in spots where it can be cultivated, it flows with milk and honey, and the day is coming when the chosen people shall return to their own land which God has given to them and to their fathers by a Covenant of Salt, and when again they shall begin to irrigate the hills and to plant the valleys, to cultivate the vineyards and to scatter the seed broadcast into the well-plowed furrows! The Holy Land will again blossom: "Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree." When this is done, the whole world will ring with the fame thereof. They will say, "Is this the Zion whom no man sought after? Is this the land which was called desolate? Is this the city whose name was forsaken?" Then shall Mount Zion again be "beautiful for situation, the joy of the whole earth." And then shall the whole land flow with fertility: "and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off."
 
@@ -58,14 +58,14 @@ Once again a child confessed,
 From his house no more to roam."
 "Come and welcome, Sinner, come." Do not think that God is harsh. Think not that Christ is not tender. There is no breast so soft as His, no heart so deeply full of sympathy. He cries over the very worst of you, "How shall I give you up, Ephraim? How shall I deliver you, Israel? How shall I make you as Admah? How shall I set you as Zeboim? My heart is turned within Me. My repentings are kindled together. I cannot destroy you, for I am God, and not man." Oh, shall my Savior plead with you in vain? Shall the tears of Jesus fall to the ground? Shall the love of God have no attracting influence? Shall not Mercy, as it rings its silver bell, draw you to the feast of love? Oh, why will you die? Is sin so sweet that you will suffer for it forever? Are the trifles of this world so important in your estimation that you will lose Heaven and Eternal Life? I pray you "seek the Lord while He may be found: call you upon Him while He is near," and think not that He will reject you, for "He will abundantly pardon." Oh, may He do this tonight!
 
-> My God, I feel the mournful scene! 
-> My heart yearns over dying men 
-> And gladly my pity would reclaim 
-> And snatch the firebrands from the flame! 
-> But feeble my compassion proves, 
-> And can but weep where most it loves.
-> Your own all-saving arm employ, 
-> And turn these drops of grief to joy! 
+> My God, I feel the mournful scene!  
+> My heart yearns over dying men  
+> And gladly my pity would reclaim  
+> And snatch the firebrands from the flame!  
+> But feeble my compassion proves,  
+> And can but weep where most it loves.  
+> Your own all-saving arm employ,  
+> And turn these drops of grief to joy!  
 
 O Lord, do it, for You can! Come forth, O Jesus! Mount Your chariot! Hell shakes at Your majesty. Heaven adores Your Presence; earth cannot resist you! Gates of brass fly open and bars of ironon are snapped. Come, Conqueror, and ride through the streets of this city and through the hearts of all of us, and they shall be Yours, "and i t shall be to the Lord for a name, for an everlasting sign that shall not be cut off." May God command His blessing on you, for Jesus' sake! Amen.
 
@@ -103,13 +103,13 @@ You can also "be a blessing" in many other ways which I need not mention now. In
 "Rescue the perishing, care for the dying,
 Snatch them in pity from sin and the grave."" In such a city as this, with hundreds of thousands, I might truthfully say, millions, needing the Bread of Life and the Water of Life, and with many of them literally needing bread and water, all of you can do something to relieve them! And I beseech you, if you love your Lord and Master, do the first thing that comes to hand and "whatever your hand finds to do, do it with all your might." Well did Dr. Horatius Bonar write:
 
-> 'Tis not for man to trifle! 
-> Life is brief, 
-> And sin is here. 
-> Our age is but the falling of a leaf, a dropping tear. 
-> We have no time to sport away the hours, All must be earnest in a world like ours. Not many lives but only one have we, One, only one.
-> How sacred should that one life always be, That narrow span! 
-> Day after day filled up with blessed toil, Hour after hour still bringing in new spoil. 
+> 'Tis not for man to trifle!  
+> Life is brief,  
+> And sin is here.  
+> Our age is but the falling of a leaf, a dropping tear.  
+> We have no time to sport away the hours, All must be earnest in a world like ours. Not many lives but only one have we, One, only one.  
+> How sacred should that one life always be, That narrow span!  
+> Day after day filled up with blessed toil, Hour after hour still bringing in new spoil.  
 
 Now we must pass on to the third point which is that our text is also calculated to suggest endeavor. It has quickened regret and excited inquiry, now it suggests endeavor. But what endeavor?
 
