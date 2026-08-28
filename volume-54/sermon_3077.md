@@ -1,7 +1,7 @@
 # Sermon 3077 | Death: a Sleep
 
-> But I would not have you to be ignorant, brethren, concerning those who are asleep, that you sorrow not, even as others which have no hope.
-> 1 Thessalonians 4:13
+> But I would not have you to be ignorant, brethren, concerning those who are asleep, that you sorrow not, even as others which have no hope.  
+> 1 Thessalonians 4:13  
 
 There may be some few extraordinary cases "where ignorance is bliss" and where "'tis folly to be wise." But for the most part, ignorance is the mother of misery, and if we had more knowledge, we would find it a tower of strength against many fears and alarms which beget sadness and sorrows in dark untutored minds. True it is that the utmost diligence of the student cannot shield his body or his mind from fatigue and distress. In guarding against one class of ills, we may become exposed to another, as Solomon testifies that "much study is a weariness of the flesh," and again, "in much wisdom is much grief: and he that increases knowledge, increases sorrow." Still, let it be remembered that "wisdom is a defense, and money is a defense", in the increase of either we may augment our cares, yet in the increase of both we think there is a remunerative profit!
 
