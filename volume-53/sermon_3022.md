@@ -1,7 +1,7 @@
 # Sermon 3022 | God's Innumerable Mercies
 
-> I know not the numbers thereof.
-> Psalm 71:15
+> I know not the numbers thereof.  
+> Psalm 71:15  
 
 The writer of this Psalm describes all the dealings of God with him under the head, "righteousness" and, "salvation." That description is perfectly accurate, for all that God does for His people is, first of all, in faithfulness to His promise. As He has spoken, so He does. Never, even in the sharpest trial, can the heir of Heaven accuse God of being unfaithful to what He has promised. He told His disciples that they would have to endure tribulation, and when it came, they proved the truth of His prophecy, and everything that God does to us, whether little or great, whether sharp or kind, will prove to have been done in accordance with His faithful Word.
 
@@ -17,8 +17,8 @@ Let me now, not by way of attempting to help you to count the mercies of God, bu
 
 Think of the mercies of God in another form, namely, the many deliverances which have been vouchsafed to you. You have had deliverances when you knew nothing of your danger, when the Lord:
 
-> Watched over your path 
-> When, Satan's blind slave, you sported with death. 
+> Watched over your path  
+> When, Satan's blind slave, you sported with death.  
 
 You have had deliverances from sickness when, had death come to you, you would have died unforgiven. You had deliverances, perhaps, in childhood, from many temptations which would have been your lot had you been born under less happy auspices. Then came the great deliverance when your soul was released from the bondage of sin and Satan, and how many deliverances are wrapped up in that one? David says that God delivered him from all his fears, and that day when He delivered us from all our sins, He emancipated us from every yoke of bondage that had rested on us. O happy day of glorious liberty when Christ made us free indeed! Well may, each one of us, sing:
 "Oh happy day, that fixed my choice
