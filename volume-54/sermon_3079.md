@@ -1,7 +1,7 @@
 # Sermon 3079 | A Searching Question
 
-> To whom do you belong?
-> 1 Samuel 30:13
+> To whom do you belong?  
+> 1 Samuel 30:13  
 
 This question was addressed by David to a young man of Egypt who was servant to an Amalekite. He had fallen sick and his master, being in a hurry, had left him to perish alone in the field and had gone his way. Had the master taken his servant with him and nursed him, his own life might have been preserved, but God avenged this poor servant, who had been so neglected, by making him the means of revealing to David where his master was, and David's sharp and swift sword soon overtook him and his brother plunderers.
 
