@@ -1,7 +1,7 @@
 # Sermon 3110 | Faintness and Refreshing
 
-> And he arose, and did eat and drink, and went in the strength of that meat forty days and forty nights unto Horeb the mount of God.
-> 1 Kings 19:8
+> And he arose, and did eat and drink, and went in the strength of that meat forty days and forty nights unto Horeb the mount of God.  
+> 1 Kings 19:8  
 
 My first observation upon this passage is that the greatest believers are sometimes subject to fainting fits.
 
@@ -33,14 +33,14 @@ Now, my dear Brothers and Sisters in Christ, for I now speak only to you, have y
 
 It is amazing how this assurance acts in two ways. It is the great cure for us when we are soaring too high. When Christ's disciples had cast out devils, He said to them, "Notwithstanding in this rejoice not, that the spirits are subject unto you, but rather rejoice because your names are written in Heaven." And this, too, is the cure for us when we fall too low. Mourn not over this, but still "rejoice because your names are written in Heaven." Many an old saint, sitting in a chimney corner under an accumulation of aches, pains, weaknesses and sorrows, has sung
 
-> When I can read my title clear 
-> To mansions in the skies, 
-> I bid farewell to every fear 
-> And wipe my weeping eyes! 
-> Should earth against my soul engage, 
-> And hellish darts be hurled 
-> Then I can smile at Satan's rage, 
-> And face a frowning world. 
+> When I can read my title clear  
+> To mansions in the skies,  
+> I bid farewell to every fear  
+> And wipe my weeping eyes!  
+> Should earth against my soul engage,  
+> And hellish darts be hurled  
+> Then I can smile at Satan's rage,  
+> And face a frowning world.  
 
 Bless God for the full assurance of faith, for it will yield you food in the strength of which you may go on for 40 days and 40 nights. May God give us to feed on it constantly! But sometimes He gives us the richest meal of it just when we are in our weakest state and are ready to give up in despair.
 
