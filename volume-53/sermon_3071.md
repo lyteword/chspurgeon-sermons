@@ -1,7 +1,7 @@
 # Sermon 3071 | Idolatry Condemned
 
-> Little children, keep yourselves from idols. Amen.
-> 1 John 5:21
+> Little children, keep yourselves from idols. Amen.  
+> 1 John 5:21  
 
 This is the conclusion of one of the most mysterious, most simple and yet most sublime of all the Divinely inspired Books. And we may naturally expect that the closing verse of the Epistle will have great weight in it. This seems to be the practical conclusion of the whole matter upon which John had been writing, "Little children, keep yourselves from idols." This Epistle is specially perfumed with love. As you read it, you cannot help realizing that it was written by a very tender, gentle hand and yet, when this loving writer is giving has last words in this Epistle, the admonition with which he closes is this, "Little children, keep yourselves from idols." As love thus speaks in its fullness, let us be ready to give earnest attention to the message which it utters. John has, in this Epistle, written much concerning the love of Jesus, as well he might, for he knew more about that love than any other man knew. And yet, when he had written concerning love to Jesus, he was moved to an intense jealousy lest, by any means, the hearts of those to whom he wrote should be turned aside from that dear Lover of their souls who deserved their entire affection and, therefore, not only love to them, but also love to Jesus, made him wind up his letter with these significant words, "Little children, keep yourselves from idols."
 
@@ -63,14 +63,14 @@ Or thorns compose so rich a crown??" Can you give your heart's affection to any 
 
 He seek fame? Did He labor for earthly honor and glory? Did He hoard up wealth? Did He say to the man of the world, "Applaud mm?" Was He turned aside from His purpose by either the frowning or the fawning of men? You know that it was not so! Then you who have been washed in His blood, follow Him! O you who are called by His name, do not blaspheme that name among the Gentiles by idolatry of any kind! Bring out your idols if you have hidden them as Rachel hid her father's images in the camel's furniture, bring them all out and let them be broken in pieces at the foot of the Cross, or be ground to powder as Moses treated the golden calf that his brother Aaron had made! O Jesus, where You are, who can worship any but You? If He came and lodged in your house, that child of yours would not be adored as it now is. If He always dwelt there, you would not pamper yourself as you now do. If you could see Him as He is, you must admit Him to reign within your heart. Well, let it be so as you now, by faith, gaze upon Him. And as these dear memorials of His broken body and His blood are fed upon by you and you remember Him, do with all your idols as the Ephesians did with their magical books, bring them out and let them be burned, a blessed holocaust in honor of Him who "has loved us, and has given Himself an offering and a sacrifice to God for a sweet-smelling savor." Sing with Cowper, and let the prayer ascend to your Lord from the very depths of your heart:
 
-> The dearest idol I have known,
-> Whatever that idol be,
-> Help me to tear it from Your Throne, 
-> And worship only Thee! 
-> So shall my walk be close with God, 
-> Calm and serene my frame, 
-> So purer light shall mark the road 
-> That leads me to the Lamb. 
+> The dearest idol I have known,  
+> Whatever that idol be,  
+> Help me to tear it from Your Throne,  
+> And worship only Thee!  
+> So shall my walk be close with God,  
+> Calm and serene my frame,  
+> So purer light shall mark the road  
+> That leads me to the Lamb.  
 
 God bless you. And if any of you are living without Christ, perhaps it is some beloved idol that is keeping you from Him. If so, may you be delivered from its thralldom by coming to Jesus right now, for His dear name's sake! Amen.
 
