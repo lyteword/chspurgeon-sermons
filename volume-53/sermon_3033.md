@@ -1,7 +1,7 @@
 # Sermon 3033 | Why Christ Is Not Esteemed
 
-> We esteemed Him not.
-> Isaiah 53:3
+> We esteemed Him not.  
+> Isaiah 53:3  
 
 This must be the universal confession of the human race. From the highest monarch to the meanest peasant, from the loftiest intellect to the most degraded mind, from the admired of all men to the unknown and insignificant, this one confession must come: "We esteemed Him not." Whether we examine the sensualist rioting in the delights of the flesh or the formalist starving his body to fatten his pride, the merchant laboring to acquire wealth or the spendthrift recklessly scattering gold with both his hands, the profligate black with profanity, the moralist rejoicing in his goodness, or even the devoted Christian, we shall make them all acknowledge that either now or at some past period, they esteemed not Jesus! We make no exception, for even the holiest of God's saints, those who now are:
 "Foremost of the sons of light, Nearest the eternal Throne," those who have washed their robes and made them white in the blood of the Lamb, even they once "esteemed Him not." And the brightest saints still upon the earth, those who are most earnestly and faithfully serving the Savior, at one time "esteemed Him not." I am going, first, to prove that this was true. Next, to dive deeper and try to find out the reasons why we esteemednot Jesus. And, afterwards, I want to remind you of the emotions which this fact ought to create in our minds, the fact that at one time, and in the case of many of us it was true not many years ago that "we esteemed Him not."
