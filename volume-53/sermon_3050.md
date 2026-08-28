@@ -1,7 +1,7 @@
 # Sermon 3050 | The Errand of Mercy
 
-> For the Son of Mann is come to seek and to save that which was lost.
-> Luke 19:10
+> For the Son of Mann is come to seek and to save that which was lost.  
+> Luke 19:10  
 
 God came down from Heaven but once to be united with human flesh. On what errand did He come and who were the objectives of it? What messenger was sent on that errand? What method was pursued by Him? With what success was it attended? Our text gives us the information: "The Son of Man is come to seek and to save that which was lost." Let us speak briefly upon these four points.
 
