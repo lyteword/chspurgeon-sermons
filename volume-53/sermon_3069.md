@@ -1,7 +1,7 @@
 # Sermon 3069 | Cleansing, Wrong or Right?
 
-> If I wash myself with snow water, and make my hands ever so clean; yet shall You plunge me in the ditch, and my own clothes shall abhor me.
-> Job 9:30,31
+> If I wash myself with snow water, and make my hands ever so clean; yet shall You plunge me in the ditch, and my own clothes shall abhor me.  
+> Job 9:30,31  
 
 We are all, by nature and by practice, unclean in the sight of God. However excellent or virtuous we may seem before man, we have all broken God's Law, for that Law requires perfection and we have been far from it. The Law demands spotless holiness towards God and perfect rectitude towards man and, in some point or other, we have all transgressed that Law, and we have therefore become polluted before the thrice-holy Jehovah. The great question which ought to arise in the mind of every one of us is this, "How can I be cleansed before God?"
 
