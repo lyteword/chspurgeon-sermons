@@ -1,7 +1,7 @@
 # Sermon 3105 | The Search after Happiness
 
-> There aire many who say, Who will show us any good? Lord, lift up the light of Your Countenance upon us.
-> Psalm 4:6
+> There aire many who say, Who will show us any good? Lord, lift up the light of Your Countenance upon us.  
+> Psalm 4:6  
 
 This is a text which, by the rich assistance of the Holy Spirit, may serve as a touchstone to try our state. See, here are two classes of men, the many panting after the good of this world, and the few turning the eyes of faith to their God and begging that He would lift up the light of His Countenance upon them.
 
@@ -19,10 +19,10 @@ Take care, my Hearer, that you do not suffer under the same delusion! Always pra
 
 "Nor earth, nor all the sky. Can one delight afford. No, not a drop of real joy, Without Your Presence, Lord." Notice, next its indiscriminating nature. "Who will show us any good?" The unregenerate mind has no discernment in its choice. One good is to it as desirable as another. Men easily allow toleration here. The intoxicating cup is the "good" of the winebibber. The indulgence of lust is the object of the voluptuary. Gold is the miser's god and fame or power the choice of the ambitious. To most men, these are all "good" in their way, if not esteemed good morally, they are looked upon as forbidden fruits, only untasted because of the penalty and not abhorred because of a real distaste. O my Hearer, have you sufficient judgment to see that any good will not suit you? Have you made an election of "solid joys and lasting pleasures," and are the dainties of time tasteless to you? You are not like the bee, which can find her food in nettles and poisonous weeds. "The Rose of Sharon" is the flower of your choice and, "the Lily of the Valley" is to you the perfection of beauty. No longer can you ask for any good, for you have found the one, the only good and in Him is such a fullness, such an abundance, that your song will always be
 
-> God is my all-sufficient good, 
-> My portion and my choice. 
-> In Him my vast desires are filled 
-> And all my powers rejoice. 
+> God is my all-sufficient good,  
+> My portion and my choice.  
+> In Him my vast desires are filled  
+> And all my powers rejoice.  
 
 Remark attentively the selfish nature of the question, "Who will show us any good?" Here the poor man of this world is seeking for himself and his fellows, but not for God or the good of others. He has no fear of God, nor any love, nor reverence for Him. Let but his barn be stored, his purse filled, his body fed, his senses gratified and the great Maker and bounteous Giver may be forgotten! What does he care whether there is a God, or whether He is worshipped or not? To him Venus, Brahma, Woden and Jehovah are all alike gods! He cares not for the living and true God, he lets others have religion, to him it would be a weariness and a labor. Or, if he puts on the outward guise of religion, he is but a Gibeonite in the Temple, "a hewer of wood and drawer of water." He is selfish in his worship, selfish in his praises and his prayers.
 
