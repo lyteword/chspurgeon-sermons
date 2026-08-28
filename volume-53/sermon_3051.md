@@ -1,7 +1,7 @@
 # Sermon 3051 | Lessons From a Dovecot
 
-> Who are these that fly as a cloud, and as the doves to their windows?
-> Isaiah 60:8
+> Who are these that fly as a cloud, and as the doves to their windows?  
+> Isaiah 60:8  
 
 The chapter from which our text is taken predicts very glorious times for the true Church of God. The promises recorded in this chapter were, in a measure, fulfilled when Jews and Gentiles were gathered into the fold of Christ in great numbers in the days of the Apostles. But God's promises are not like man's. When a man has kept his promise once, it does not stand good any longer, but God's promises may be fulfilled a hundred times over and yet remain just as valid as when He first gave them. So what God did for His Church at Pentecost, He is prepared to do today, and He will do it on a yet larger scale in those happy times that are yet to come, the latter days for which we look and long with joyful expectation!
 
@@ -75,8 +75,8 @@ We must constantly try to lay hold of men who are outside all ordinary religious
 
 I have only to ask one more question and then I will close. Among these that are to fly as a cloud, and as doves to the dovecot, will you be one, my Hearer? "Do you want me to join this Church?" I did not say that! I did not say anything about your joining any church. You must be joined to Christbefore you can join His Church. That was the Apostolic way: "They first gave their own selves to the Lord and unto us by the will of God." I do not first ask if you are willing to be baptized. I do not want you to be baptized before you believe in Christ. That is useless, no, it is worse than that, it is wicked! There is no Scriptural warrant for the Baptism of an unbeliever. To sprinkle a baby, or to immerse an adult who does not believe in Jesus is a transgression of Christ's Law! He has laid down the order, "He that believes and is baptized shall be saved." Do you ask, "What do you want me to do?" I want you to be one of those who believe in the Lord Jesus Christ! Is the Spirit of God working in your heart and saying to you, "Turn you, turn you, for why will you die?" Is He saying to you, "Trust yourself to Christ?" Then, yield to that gracious influence now, and say:
 
-> Now to be Yours, yes, Yours alone, 
-> OLamb of God, I come! 
+> Now to be Yours, yes, Yours alone,  
+> OLamb of God, I come!  
 
 If that is your sincere utterance, you are a saved soul! Now be baptized, now join the Church! But first see to it that you believe in Jesus, for that is the first business. May God bring you to Christ and may the blessing of the Triune Jehovah be with you forevermore! Amen and amen!
 
