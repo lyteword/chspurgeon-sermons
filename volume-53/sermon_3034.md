@@ -1,7 +1,7 @@
 # Sermon 3034 | Reasons for Seeking God
 
-> Seek Him that makes the seven stars and Orion, and turns the shadow of death into the morning, and makes the day dark with night: that calls for the waters of the sea, and pours them out upon the face of the earth: The Lord is His name.
-> Amos 5:8
+> Seek Him that makes the seven stars and Orion, and turns the shadow of death into the morning, and makes the day dark with night: that calls for the waters of the sea, and pours them out upon the face of the earth: The Lord is His name.  
+> Amos 5:8  
 
 Idolatry has been, in every age, the besetting sin of mankind. In some form or another, the unregenerate are all given to it and even in God's people there remains in their old nature, a tendency towards it.
 
@@ -69,18 +69,18 @@ You know my sitting down and my rising up. You understand my thoughts afar off. 
 
 You comprehend my path andmylyingdown, andareacquainted with allmy ways. "You have put a ring around me both in my staying and my going. I go to sleep, but You do not sleep. I cannot think of You while I slumber, but You think of me and You 'are acquainted with all my ways.'"
 
-> Great God, Your penetrating eyes 
-> Pervade my inmost powers. 
-> With awe profound my wondering soul 
-> Falls prostrate and adores. 
-> To be encompassed around with God, 
-> The Holy and the Just. 
-> Armed with Omnipotence to save, 
-> Or crush me into dust! 
-> Oh, how tremendous is the thought! 
-> Deep may it be impressed! 
-> And may the Spirit firmly engrave, 
-> This Truth within my breast! 
+> Great God, Your penetrating eyes  
+> Pervade my inmost powers.  
+> With awe profound my wondering soul  
+> Falls prostrate and adores.  
+> To be encompassed around with God,  
+> The Holy and the Just.  
+> Armed with Omnipotence to save,  
+> Or crush me into dust!  
+> Oh, how tremendous is the thought!  
+> Deep may it be impressed!  
+> And may the Spirit firmly engrave,  
+> This Truth within my breast!  
 
 For there is not a word on my tongue, but, lo, O Lord, You know it altogether. "You not only know what it is, but You know all about it, even the word which I have not yet spoken, the word that is on my tongue, as well as the word that is not on my tongue, those seeds of speech that have as yet not grown into words, You know them altogether."
 
