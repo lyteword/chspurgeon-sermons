@@ -1,7 +1,7 @@
 # Sermon 3111 | Warning and Encouragement
 
-> And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept.
-> Genesis 27:38
+> And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept.  
+> Genesis 27:38  
 
 You know the story of Esau and Jacob. Esau Was the elder of the twin sons of Isaac and Rebekah. The birthright was his by right, but he despised it. He was a profane person who did not prize the hereditary privilege which was really his. He actually sold his right to it to his younger brother, Jacob, for a mess of "pottage of lentils." Time rolled on and Isaac, feeling the infirmities of age creeping upon him, determined to give to Esau the blessing to which, as his elder son, he was entitled. Rebekah wanted the blessing to be given to her younger son and, therefore, resorted to a stratagem in order to make the poor blind father believe that Jacob was Esau, and in that way Jacob gained the blessing by fraud. When Esau came in and found that the blessing was given to Jacob, and that it could not be revoked, he cried bitterly and besought his father to give him "but one blessing."
 
