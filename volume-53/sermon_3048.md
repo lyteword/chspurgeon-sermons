@@ -1,7 +1,7 @@
 # Sermon 3048 | The Holy Spirit in the Covenant
 
-> And I will put My Spirit within you.
-> Ezekiel 36:27
+> And I will put My Spirit within you.  
+> Ezekiel 36:27  
 
 The Holy Spirit is the third Person in the Covenant. We have considered "God in the Covenant" and "Christ in the
 
