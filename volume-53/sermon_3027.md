@@ -1,7 +1,7 @@
 # Sermon 3027 | God's Time for Comforting
 
-> My eyes fail from searching Your Word, saying, When will You comfort me?
-> Psalm 119:82
+> My eyes fail from searching Your Word, saying, When will You comfort me?  
+> Psalm 119:82  
 
 David, in his troubles, knew where to turn for consolation, and that is no small piece of wisdom. When a man is ill, he may not know to which physician he had better send, but if he knows of one who has had much experience with the disease from which he is suffering, he sends for him at once if he is a wise patient. David knew that the best place for a true Believer to find consolation was in God's Word, so he did not look in a thousand places, but his eyes were turned to God's Word, and though he did not immediately find the comfort that he sought, yet he continued to look even till his eyes seemed to fail him, till they ached with looking, till they wearied with watching, till his disappointed expectation made his heart sick! Yet the idea never entered into his mind that he had better knock at another door, or seek another friend, or try another fountain! He still continued in the attitude of expectancy and desire, his eyes still searching the Word of God to find the comfort that he so greatly needed.
 
@@ -47,14 +47,14 @@ Ah, my dear Friends, you must get rid of all this if you want God to comfort you
 
 Again, in some persons there is an absence of Divine Consolation because there is some sin which is tolerated within them. There might be very startling discoveries made here, this very hour, if every professing Christian were compelled, by his accusing conscience, to stand up and tell the congregation what his secret, besetting sin is. I fear that at least some of you would never dare to show your faces in the Tabernacle again; you would be ashamed to be seen among those who knew such things about you! Yet the smoke of these burning sins rises in clouds and shuts the face of God away from such inconsistent Christians. God loves His people, but He does not love their sins. Sin is hateful anywhere, but it is most hateful in the Lord's own people. You are, none of you, fond of loathsome diseases such as fevers, but I am sure that you loathe the fever most of all when it attacks your own dear child. So, sin is a disease which God hates everywhere, but He hates it most of all when He sees it upon one of His own children and, for this reason, He takes His rod into His hand and causes His sinning child to smart and to cry out with Job, "Show me why You contend with me." When the Lord's people are really in earnest about this matter, He points to their idol-gods, or to some other evil thing which they have harbored in their hearts and so awakened His anger. Then, if they arise and cast out these abominations, the rod is put away and God once more gives them the comforts of His Grace. Therefore, my Brothers and Sisters in Christ, if you lack comfort, search and see where the fault lies, for it is my firm conviction that in nine cases out of ten, it is owing to some sin that has been indulged! I quoted Job's question just now, and Eliphaz asked him, "Are the consolations of God small with you? Is there any secret thing with you? Why does your heart carry you away? And what do your eyes wink at, that you turn your spirit against God and let such words go out of your mouth?" I pass those searching questions on to anyone here to whom they may apply. And I trust that as the result of doing so, such a soul will be able to present the poet's petition with the poet's confidence:
 
-> The dearest idol I have known,
-> Whatever that idol be, 
-> Help me to tear it from Your Throne, 
-> And worship only Thee! 
-> So shall my walk be close with God, 
-> Calm and serene my frame, 
-> So purer light shall mark the road 
-> That leads me to the Lamb. 
+> The dearest idol I have known,  
+> Whatever that idol be,  
+> Help me to tear it from Your Throne,  
+> And worship only Thee!  
+> So shall my walk be close with God,  
+> Calm and serene my frame,  
+> So purer light shall mark the road  
+> That leads me to the Lamb.  
 
 Possibly the lack of comfort is owing to some other cause. Dear Christian Brother or Sister, you may be at this moment without comfort because you have neglected some duty. I believe that many of God's people who know their Lord's will, yet do it not, do get beaten with many stripes. They say that they do not understand why they are thus chastised and they do not know what it is that causes them to be so frequently and so sorely afflicted. It is because there is some precept, which they know to be their Lord's precept, yet they wink their eye at it and leave it neglected. Learn a lesson from Jonah's experience. If the Lord should bid any of us go to Nineveh and cry against it and, instead of doing so, we go down to Joppa and find a ship going to Tarshish, and get in it, we must not reckon upon having a smooth passage! Before long there will be "a mighty tempest in the sea." If we had not been God's servant, there might have been fair weather, but when a child of God runs away from his plain duty, God will send a tempest after him, and he may be very thankful if God also sends a whale, for although the whale may swallow him, yet it may bring him safely to land, but he will be sure to rue the day on which he turned away from his clear duty and sought out a more comfortable path.
 
