@@ -1,7 +1,7 @@
 # Sermon 3057 | Following Christ
 
-> What is that to you? You follow Me.
-> John 21:22
+> What is that to you? You follow Me.  
+> John 21:22  
 
 Only a moment or two before, our Lord had said to Peter, "Follow Me," yet He found it necessary to repeat that command from which it is clear that the Lord Jesus, Himself, might be here and might speak to us in the most plain terms and yet His words might not make the impression upon our hearts that we sometimes think they would. Yet even though Jesus Christ Himself should speak to us, we should not feel the full force of His words unless the Spirit of God applied them to our hearts. This reflection may teach us not to indulge in idle regrets that Jesus is not here now in bodily Presence, or to say, "I wish that I had been living on the earth in Christ's day." The fact is, if the Holy Spirit shall bless the word that is spoken to you by the humblest Christian alive, it may be quite as useful to your soul as though the Master, Himself, had been here and the Truth of God had fallen upon your ears direct from His own lips!
 
