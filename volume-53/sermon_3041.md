@@ -1,7 +1,7 @@
 # Sermon 3041 | The Sparrow and the Swallow
 
-> Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young, even Your altars, O Lord of Hosts, my King, and my God.
-> Psalm 84:3
+> Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young, even Your altars, O Lord of Hosts, my King, and my God.  
+> Psalm 84:3  
 
 When David was far away from the services of the Tabernacle, he envied the birds that had built their nests near the sacred shrine. And Christians, in like manner, when they are debarred from the holy associations of Christian fellowship and united worship, always sigh over the lost privilege of meeting with their Brothers and Sisters in Christ. With even greater emphasis we may say that when a Christian loses the realization of the Presence of the Lord Jesus Christ, who is the "Minister of the sanctuary and of the true Tabernacle, which the Lord pitched, and not man," then it is, above all other seasons, that he sighs and cries for a renewal of communion with Christ. We would envy any, however poor and insignificant they may be, who can maintain unbroken fellowship with their Lord. And when it falls to our lot, through our own sin or neglect, or in the inscrutable wisdom of Divine Sovereignty, to be, for awhile, spiritually in the dark, seeking our Savior and not finding Him, we would willingly take the place of the godly captive pining in the persecutors' dungeon, or of the dying yet enraptured saint, if we could but once again enjoy the Presence of our Master! This was David's state of heart when he languished for the ancient Tabernacle services or, more probably, when he longed for that communion with his Lord which, perhaps, had been suspended together with his attendance upon the public worship of God's House. It was then, as I believe, that he was inspired to pen this "Pearl of the Psalms," including the verse upon which I am going to try to speak, praying that the Holy Spirit may enable me to utter words which shall be to the profit of both hearers and readers.
 
@@ -68,15 +68,15 @@ And in the pleasure lose the smart." Cultivate more and more your love for the a
 
 The sparrow has found a house and we too have found a house, where God's people meet, and of that house we sing:
 
-> Here do I find a settled rest, 
-> While others go and come, No more a stranger or a guest, But like a child at home. 
+> Here do I find a settled rest,  
+> While others go and come, No more a stranger or a guest, But like a child at home.  
 
 After a man is himself saved, his first anxiety, if he is a father, will be concerning his children. The next clause of the text will be helpful to such parents: "The swallow (has found) a nest for herself, where she may lay her young, even Your altars, O Lord of Hosts, my King, and my God." Every Christian should think that what is good for himself is good for his children! He who does not labor and pray for the salvation of his own offspring has good reason to doubt whether he knows the Grace of God, himself. Believing parents cry, with Thomas Hastings:
 
-> God of mercy, hear our prayer 
-> For the children You have given! 
-> Let them all Your blessings share, 
-> Grace on earth, and bliss in Heaven. 
+> God of mercy, hear our prayer  
+> For the children You have given!  
+> Let them all Your blessings share,  
+> Grace on earth, and bliss in Heaven.  
 
 Children should early be brought to the House of God! To keep to the figure of the text, the assemblies of the saints should be a nest for our little ones.
 
