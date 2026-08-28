@@ -1,7 +1,7 @@
 # Sermon 3046 | One of the Master's Choice Sayings
 
-> But Jesus said unto them, They need not depart.
-> Matthew 14:16
+> But Jesus said unto them, They need not depart.  
+> Matthew 14:16  
 
 Of course the Master was right, but He appeared to speak unreasonably. It seemed self-evident that the people very much needed to depart. They had been all day long hearing the Preacher. The most of them had not broken their fast and they were ready to faint for hunger. The only chance of their being fed was to let them break up into small parties and forage for themselves among the surrounding villages. But our Lord declared that there was no necessity for them to go away from Him, even though they were hungry, famished and in a desert place. Now, if there was no necessity for hungry hearers to go away, much less will it ever be necessary for loving disciples to depart from Him! If these, who were hearers only, and the bulk of them were nothing more, a congregation collected by curiosity and held together by the charm of His eloquence and by the renown of His miracles, if these needed not to depart, much less need they depart who are His own friends and companions, His chosen and beloved. If the crowds needed not through hunger to depart bodily, much less need any of the saints depart spiritually from their Lord. There is no necessity that our communion with Christ should ever be suspended:
 " To walk with Christ from morn till eve, In Him to breathe, in Him to live;
@@ -66,14 +66,14 @@ Yes, but it may be that in addition to the world and to Satan, you are very cons
 
 Do you call to mind that there may be another force employed beside that of the world, or of Satan, or the corruption within, namely, the lamentable coldness of the Christian Church? Truly it is to be feared that more have departed from close walking with Christ through the chilliness of inconsistent professors than from almost any other cause! Newborn children of God too often feel the atmosphere of the church to be as freezing as that of an ice-well. Their holy warmth of zeal is frozen and their limbs are stiffened into a rigor of inactivity, so that it is a marvel that they do not die, and die they would were not the spiritual life immortal and eternal! But, Brothers and Sisters, even in the midst of the coldest church we "need not depart" from a near and elevated fellowship with the Lord. The church of Rome is a church defiled with error and debased with superstition, but was there ever a nobler Christian woman in this world than Madame de la Mothe Guyon? She did not depart from Christ, though in the midst of a pestilent atmosphere. Remember, too, the names of Jansenius, Arnold, Pascal, and Fenelon which are an honor to the universal Church of Christ, who ever walked in closer communion with Christ than those holy men did? In the midst of the darkest ages, there have shone forth the brightest stars! John wrote, by Inspiration, "You have a few names even in Sardis which have not defiled their garments." Often am I told, by some Brother in a country village where the minister seems to have gone to sleep 20 years ago and has never awakened since, that he finds it very hard to rejoice in the Lord, for his Sabbaths are a burden instead of a joy. My dear Brother, you need all the more Grace if this is your case! You must have more vitality within if you see so much death without. You "need not depart" from Christ; on the contrary, by becoming an example of living near to Christ, yourself, you may be the means of quickening others, for, thank God, Grace is contagious as well as sin! At any rate, it is certain that though many influences may seduce us, no force can compel us to depart from Jesus;
 
-> No power in earth or Hell 
-> Can force me to depart;
-> Christ is my unconquerable strength, 
-> He fortifies my heart! 
-> Fixed in His love I stand, 
-> And none shall drive me thence;
-> Enclosed I am within the hand 
-> Of Love's Omnipotence! 
+> No power in earth or Hell  
+> Can force me to depart;  
+> Christ is my unconquerable strength,  
+> He fortifies my heart!  
+> Fixed in His love I stand,  
+> And none shall drive me thence;  
+> Enclosed I am within the hand  
+> Of Love's Omnipotence!  
 
 Regarded from another point, our text may teach us that there is no impossibility in keeping close to the beloved.
 
