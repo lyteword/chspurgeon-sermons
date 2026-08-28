@@ -1,7 +1,7 @@
 # Sermon 3030 | A Consistent Walk for Time to Come
 
-> As you have therefore received Christ Jesus the Lord, so walk in Him.
-> Colossians 2:6
+> As you have therefore received Christ Jesus the Lord, so walk in Him.  
+> Colossians 2:6  
 
 Though the shepherd cares for the lambs and carries them in his arms, he does not cease his care when they become sheep. But, as long as they shall need to be tended, so long will he watch over them. Hence it is that our Apostle, though always quick of eye after newborn souls and abundantly anxious to bring sinners to a knowledge of the Truth of God as it is in Jesus, is equally in a conflict of soul for the spiritual healthfulness of those who have been born-again. Our text contains one of those loving admonitions. It is addressed, not to the ungodly, not to those who are strangers to our Lord and Master, but to those who have "received Christ Jesus the Lord." Longing for their spiritual good and anxious that they should be established in the faith, he admonishes them thus, "As you have received Christ Jesus the Lord, so walk in Him."
 
@@ -92,26 +92,26 @@ How did we receive Christ? I am sure we received Him very graciously. He stood a
 
 And I think, Brothers and Sisters, though the flesh struggles, we may pray tonight, "Lord, bind the sacrifice with cords, even with cords to the horns of the altar." We have received Christ and in that same way, unreservedly, we desire to walk in Him.
 
-> Have you counted the cost? Have you counted the cost 
-> You followers of the Cross? 
-> And are you prepared, for your Master's sake, 
-> To suffer all worldly loss? 
-> And can you endure with that virgin band, 
-> The lowly and pure in heart 
-> Who, where ever the Lamb does lead, 
-> From His footsteps never depart? 
-> Do you answer, 'We can'? Do you answer, 'We can, 
-> Through His love's constraining power'? 
-> But do you remember the flesh is weak, 
-> And will shrink in the trial-hour? 
-> Yet yield to His love who around you now 
-> The bands of a man would cast. 
-> The cords of His love who was given for you 
-> To His altar binding you fast 
-> You may count the cost, you may count the cost 
-> Of all Egypt's treasure, 
-> But the riches of Christ you can never count,
-> His love you can never measure. 
+> Have you counted the cost? Have you counted the cost  
+> You followers of the Cross?  
+> And are you prepared, for your Master's sake,  
+> To suffer all worldly loss?  
+> And can you endure with that virgin band,  
+> The lowly and pure in heart  
+> Who, where ever the Lamb does lead,  
+> From His footsteps never depart?  
+> Do you answer, 'We can'? Do you answer, 'We can,  
+> Through His love's constraining power'?  
+> But do you remember the flesh is weak,  
+> And will shrink in the trial-hour?  
+> Yet yield to His love who around you now  
+> The bands of a man would cast.  
+> The cords of His love who was given for you  
+> To His altar binding you fast  
+> You may count the cost, you may count the cost  
+> Of all Egypt's treasure,  
+> But the riches of Christ you can never count,  
+> His love you can never measure.  
 
 "As you have therefore received Christ Jesus the Lord, so walk in Him."
 
