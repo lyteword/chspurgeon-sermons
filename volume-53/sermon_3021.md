@@ -1,7 +1,7 @@
 # Sermon 3021 | Landlord and Tenant
 
-> Set your house in order; for you shall die, and not live.
-> Isaiah 38:1
+> Set your house in order; for you shall die, and not live.  
+> Isaiah 38:1  
 
 Notwithstanding that a thousand voices proclaim our mortality, we are all to apt to put aside the contemplation of it. Since we cannot escape from death, we endeavor to shut our eyes to it, although there is no subject whose consideration would be more beneficial to us. Altering one word of the poet's line, I may say:
 "'Tis greatly wise to talk with our last hours." To be familiar with the grave is prudence. To prepare for death it is well to commune with death. A thoughtful walk in the cemetery is good for our soul's health. As Jeremy Taylor well observes, "Since a man stands perpetually at the door of eternity and, as did John the Almoner, every day is building his sepulcher, and every night one day of our life is gone and passed into the possession of death, it will concern us to take care that the door leading to Hell does not open upon us, that we are not crushed to ruin by the stones of our grave and that our death become not a consignation of us to a sad eternity." The most of men prefer to cultivate less fruitful fields and turn their thoughts and meditations to subjects trivial for the present, and useless for the future. "O that they were wise, that they understood this, that they would consider their latter end!"
