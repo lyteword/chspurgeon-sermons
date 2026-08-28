@@ -1,6 +1,6 @@
 # Sermon 3053 | Jesus Christ's Idiom
 
-> Jesusanswered, Verily, verily.  
+> Jesus answered, Verily, verily.  
 > John 3:5  
 
 This expression, "Verily, verily," seems to me to have been the peculiar idiom of our Lord Jesus Christ. He has absolutely forbidden His people ever to take an oath. His command upon that matter is most explicit, "I say unto you, Swear not at all; neither by Heaven; for it is God's Throne: nor by the earth; for it is His footstool: neither by Jerusalem; for it is the city of the great King: neither shall you swear by your head, because you cannot make one hair white or black. But let your communication be, Yes, yes; No, no: for whatever is more than these comes of evil." My text was Jesus Christ's strongest form of affirmation, when He wished to speak most emphatically, He said, "Verily, verily, I say unto you." Every prominent public speaker has his own peculiar idioms and very much of the man's character will be found in the idioms that he uses. And I may add that the attention which the man deserves may sometimes be gauged by his idioms, for as his style of speaking will reveal to you the man, you will discover how far you ought to lend him your ears. If, from his speech, you judge that he is flippant, or insincere, or that there is something sinister in his motives, or that he is aiming at the display of himself rather than at the proclamation of the truth, you may straightway say, "Then there is no particular reason why I should listen to him." But if, from the very idiomatic force of the words which he uses, you feel that the man is true, sincere and earnest, then you say, "I shall be wise to give heed to his words and to let his thoughts operate upon my own."
@@ -55,7 +55,7 @@ This Gospel also concerns the never-ending eternity. We are not going into anoth
 
 I never go out of this pulpit feeling so utterly cast down as when I have been trying to deal with the consciences of the ungodly. I wish I could grip each one of you by the hand and look you in the face, and say, "Man, Woman, are you going to die without a Savior? Oh, be not so foolish, so mad!" I would tell every young man here how, when I was myself a young man, I was led to look by faith to the Savior and I have found it a blessed thing to rest in Him ever since. And I would say to him, "Brother, come with me to the Cross of Calvary and rest in Jesus, and begin to live a holy and useful life, and you shall find yourself truly blessed among men." I cannot come round and speak personally to you all, but will you let me follow you to your bedside and, if you think of getting into bed tonight without a prayer for your soul's salvation, just imagine that you feel my hand upon your shoulder and hear me say to you, "What? No offering of a prayer to God?" I was about to say, "Stepping into your bed," but I thought that it might become your sepulcher, for you may die there! As many have done who went to bed as thoughtlessly and prayerless as you have often done. But if you trust in Jesus and then fall asleep for the last time on earth, you will wake up amid the splendors of eternal bliss!
 
-## Exposition by C. H. Spurgeon: John3:1-18.
+## Exposition by C. H. Spurgeon: John 3:1-18
 
 If we were asked to read to a dying man who did not know the Gospel, we would probably select this chapter as the most suitable one for such an occasion. And what is good for dying men is good for us all, for that is what we are, and how soon we may actually be at the gates of death, none of us can tell.
 
@@ -92,5 +92,3 @@ For God so loved the world, that He gave His only begotten Son, that whoever bel
 But Jesus, second part. That is a grand Truth of God!
 
 But He that believes not is condemned already, because he has not believed in the name of the only begotten Son of God. His not believing is the master-sin, the surest evidence of his being, in his heart, an enemy to God. If he refuses to trust Christ, the matchless gift of the Father's love, he must be desperately set on mischief and he "is condemned already." These two Truths of the necessity of the new birth and of the fact that everyone who believes on Christ is saved, are quite consistent and in perfect harmony with each other. God grant to us the Grace to know them both by experience! Never talk about "reconciling" them, for they have never fallen out with one another!. God grant that we may find them both true in our own lives, for His dear Son's sake! Amen.
-
-on Him is not condemned 

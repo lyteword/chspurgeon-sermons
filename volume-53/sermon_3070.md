@@ -83,7 +83,7 @@ But, surely, if you are converted, you should not conceal the fact! It is an unk
 
 Above all, publish abroad the Lord's goodness for Jesus' sake. He deserves your honor. Will you receive His blessing and then, like the nine lepers, give Him no praise? Will you be like the woman in the crowd who was healed by touching the hem of His garment and then would gladly have slipped away? If so, I pray that the Master may say, "Somebody has touched Me," and may you be compelled to tell us all the truth and say, "I was sorely sick in soul, but I touched You, O my blessed Lord, and I am saved! And to the praise of the glory of Your Grace I will tell it! I will tell it though devils should hear me! I will tell it and make the world ring with it according to my ability, to the praise and Glory of Your saving Grace!"
 
-## Exposition by C. H. Spurgeon: Psalm107:1-22.
+## Exposition by C. H. Spurgeon: Psalm 107:1-22 
 
 O give thanks unto the Lord, for He is good: for His mercy endures forever In the heading of this Psalm we are reminded that the Psalmist here exhorts the redeemed, in praising God, to observe His manifold Providence over travelers, prisoners, sick men, seamen "and in divers varieties of life." But, inasmuch as the exhortation is especially addressed to the redeemed of the Lord, I shall endeavor to cast the red ray of redemption over it and to explain these various circumstances as relating to the spiritual experience of God's people and to their deliverance out of divers perils to which their souls are exposed.
 

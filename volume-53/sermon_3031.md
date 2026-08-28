@@ -15,14 +15,7 @@ First, then, Why may our Lord be said to be a great rock in a weary land casting
 
 We may remember concerning Him, in the first place, that, like a rock, He is always in the same place. There are some shadows which you can create artificially and carry with you. There have been shadows which have been cast by great trees, but those trees have been removed. And if the traveler, in passing over the same route, should expect to enjoy their cooling shade, he would be disappointed. But, the great rock remains just where it was when Abraham, Isaac and Jacob sheltered beneath it, and the traveler, today, may do the same. It is just so with our Lord Jesus Christ. Blessed be His name, He has not shifted His position! If any poor soul here wants to find Him, He is just where He used to be; that is, He is waiting at the Mercy Seat to receive every soul that will come and trust Him. Jesus Christ is not far away from any of you, He is so near that a prayer will reach Him, a sigh will find Him and a tear will get at His heart! Only turn your desires towards Him! Only say to Him, now, in the silence of your spirit, "Jesus, Master, cast Your shadow over my sin-burdened head. Protect my soul from the wrath of God and from the fierce heat of Hell!" Only ask this and it shall be given you, for Jesus is still waiting to be gracious and ready to bless you even now!
 
-He is like a rock, too, because His shadow is always there as well as Himself Wherever the sun and a rock are, there is sure to be a shadow. So, whenever God pours out the fierce beams of His wrath upon a sinner, let that sinner fly to Christ and he shall find a shelter from that wrath! Whenever conscience oppresses you and reminds you of your guilt, depend upon it that Christ has not lost His power to quiet conscience and to calm your fears. Sometimes a sinner fears that it is too late for him to find peace in Christ, or, possibly, he thinks it is too soon, or that he has sinned away his day of grace. Ah, poor Soul, all these suggestions are Satan's lies! If you really desire to have Christ's love shed abroad in your heart, that is a proof that Christ has already fixed His love upon you! If your head is now beaten upon by the fierce sunlight of God's wrath, you may come and find a shelter in the great rock of Christ's atoning Sacrifice! If you will trust in Jesus, you shall have the peace which only He can give, the peace which passes understanding. We rightly sing:
-"Dear dying Lamb, Your precious blood
-
-Shall never lose its power
-
-Till all the ransomed Church of God
-
-Is saved to sin no more", and they are not all saved yet; there are still some to be gathered and, therefore, Christ's blood has not yet lost its power to cleanse from sin! And Christ, as a rock, casts His welcome shade over all who come to Him to be thus refreshed!
+He is like a rock, too, because His shadow is always there as well as Himself Wherever the sun and a rock are, there is sure to be a shadow. So, whenever God pours out the fierce beams of His wrath upon a sinner, let that sinner fly to Christ and he shall find a shelter from that wrath! Whenever conscience oppresses you and reminds you of your guilt, depend upon it that Christ has not lost His power to quiet conscience and to calm your fears. Sometimes a sinner fears that it is too late for him to find peace in Christ, or, possibly, he thinks it is too soon, or that he has sinned away his day of grace. Ah, poor Soul, all these suggestions are Satan's lies! If you really desire to have Christ's love shed abroad in your heart, that is a proof that Christ has already fixed His love upon you! If your head is now beaten upon by the fierce sunlight of God's wrath, you may come and find a shelter in the great rock of Christ's atoning Sacrifice! If you will trust in Jesus, you shall have the peace which only He can give, the peace which passes understanding. We rightly sing: "Dear dying Lamb, Your precious blood Shall never lose its power Till all the ransomed Church of God Is saved to sin no more", and they are not all saved yet; there are still some to be gathered and, therefore, Christ's blood has not yet lost its power to cleanse from sin! And Christ, as a rock, casts His welcome shade over all who come to Him to be thus refreshed!
 
 Our Lord may also be compared to the shadow of a great rock because the shadow of a great rock is broad. I remember the time when, after a long, hot and dusty walk, I found myself at the top of a considerable elevation where there is neither shrub nor tree, but a huge cross which someone has erected there. And I remember well how my friend and I tried to get under the shelter of that cross, but there was only room enough in the shadow for one of us. We both tried to get under the shadow, for it was terribly hot in the sunshine, but the cross could not give shelter to the two of us, so we had to take turns as long as we waited on the hillside. But it is not so in the case of a great rock! The shadow there is sometimes so wide that if a whole caravan shall wish to rest there free from the sun's heat, they may all come and shelter under it, travelers, camels and all! So is it with my Master. He is no little Savior! He has already saved millions, but He is just as able to save unnumbered millions more! If the shadow of His Cross could only screen one sinner, what a scramble many of you would make in order to be that one. Yet I fear that the very freeness of the Divine Mercy makes many despise it, though it should not do so. If the whole of us felt the heat of the sun of God's wrath in our conscience and we were all to come crowding to Jesus, we would not hear Him say, "I cannot receive you all. I have not room for you all." If there were room in Christ for all but one, I should hear a cry from somewhere in this place, "O God, shut me not out, but receive me, even me!" Yet many of you are content not to get under the shadow of Christ though there is room there for you! There is room in Christ for the biggest sinner out of Hell! There is room for ten thousand times ten thousand sinners! There will be room for all of Adam's race who are ever led to come and put their trust in Him! It is the shadow of a Great Rock and, therefore, it is a broad shadow!
 
@@ -47,61 +40,39 @@ So too, dear Friends, in times of trial Believers find the shadow of this Great 
 Let me also remind you that we shall know more about the refreshing shade of Christ when we come to die. Not many weeks hence some of us must die. When there is such a large number of people gathered together, some of them must soon die. But all of us must, before long, gather up our feet in the bed and die:
 "Our fathers' God to meet."
 
-What must it be to die without a Savior? A shiver runs through my frame as I think of it. To die without a hope, how sad! But to die trusting in Christ, how blessed! I remember standing in the pulpit one sultry summer's afternoon, preaching of the joys of Heaven and there was one woman's eyes that specially caught mine as I was preaching. I knew not why it was, but it seemed to fascinate me. And as I spoke of Heaven, she seemed to drink in every word, and her eyes flashed back again the thoughts I uttered. She seemed to lead me on to speak more and more of the streets of gold and the gates of pearl till, suddenly, her eyes appeared to me to be too fixed, and at last it struck me that while I had been talking of Heaven, she had gone there. I paused and asked if someone in the pew would kindly see whether the friend sitting there was not dead and, in a moment, her husband said, "She is dead, Sir." I had known her long as a consistent Christian woman and, as I stood there, I half wished that I could have changed places with her! There was not a sigh, nor a tear. She seemed to drink in the thoughts of Heaven and then straightway to go and enjoy it! If such a sudden departure is not ours, it will be much like it; we shall close our eyes on earth and open them in Heaven beneath the shadow of that Great Rock! In Heaven, they sit beneath Christ's shadow, and on earth we will do the same. So we will still sing:
-"Where is the shadow of that Rock
+What must it be to die without a Savior? A shiver runs through my frame as I think of it. To die without a hope, how sad! But to die trusting in Christ, how blessed! I remember standing in the pulpit one sultry summer's afternoon, preaching of the joys of Heaven and there was one woman's eyes that specially caught mine as I was preaching. I knew not why it was, but it seemed to fascinate me. And as I spoke of Heaven, she seemed to drink in every word, and her eyes flashed back again the thoughts I uttered. She seemed to lead me on to speak more and more of the streets of gold and the gates of pearl till, suddenly, her eyes appeared to me to be too fixed, and at last it struck me that while I had been talking of Heaven, she had gone there. I paused and asked if someone in the pew would kindly see whether the friend sitting there was not dead and, in a moment, her husband said, "She is dead, Sir." I had known her long as a consistent Christian woman and, as I stood there, I half wished that I could have changed places with her! There was not a sigh, nor a tear. She seemed to drink in the thoughts of Heaven and then straightway to go and enjoy it! If such a sudden departure is not ours, it will be much like it; we shall close our eyes on earth and open them in Heaven beneath the shadow of that Great Rock! In Heaven, they sit beneath Christ's shadow, and on earth we will do the same. So we will still sing: "Where is the shadow of that Rock That from the sun defends Your flock? Gladly would I feed among Your sheep, Among them rest, among them sleep." But, my dear Hearers, what will it be to have the shelter of Christ in the Day of Judgment? We can never form right ideas of what that Day of Judgment will be: "That day of wrath, that dreadful day When Heaven and earth shall pass away", and weeping and wailing shall be the prelude to the sitting of the Judge upon the Great White Throne! Then, when every eye shall see Him and they, also, who pierced Him, it will be a blessed thing to have Him as the Rock of Ages to hide us from the wrath of that tremendous day:
 
-That from the sun defends Your flock?
+> Day of judgment, day of wonders!  
+> Hark, the trumpet's awful sound,  
+> Louder than a thousand thunders,  
+> Shakes the vast creation round!  
+> How the summons  
+> Will the sinner's heart confound!  
+> See the Judge our nature wearing,  
+> Clothed in majesty Divine!  
+> You who long for His appearing, 
+> Then shall say, 'This God is mine!'  
+> Gracious Savor!  
+> Own me in that day for Thine!  
 
-Gladly would I feed among Your sheep,
-
-Among them rest, among them sleep." But, my dear Hearers, what will it be to have the shelter of Christ in the Day of Judgment? We can never form right ideas of what that Day of Judgment will be:
-"That day of wrath, that dreadful day
-
-When Heaven and earth shall pass away", and weeping and wailing shall be the prelude to the sitting of the Judge upon the Great White Throne! Then, when every eye shall see Him and they, also, who pierced Him, it will be a blessed thing to have Him as the Rock of Ages to hide us from the wrath of that tremendous day:
-"Day of judgment, day of wonders!
-
-Hark, the trumpet's awful sound,
-
-Louder than a thousand thunders,
-
-Shakes the vast creation round!
-
-How the summons
-
-Will the sinner's heart confound!
-
-See the Judge our nature wearing,
-
-Clothed in majesty Divine!
-
-You who long for His appearing,
-
-Then shall say, 'This God is mine!'
-
-Gracious Savor!
-
-Own me in that day for Thine!" Now lastly, if these things are so, and they are so, what is our business?
+Now lastly, if these things are so, and they are so, what is our business?
 
 Our business is to get under this shadow if we are not already under it What is the use of a shadow to those who stand in the blazing sunshine? There is many a soul that stands in the sunshine longer than it needs and so feels faint and weary. And there are some who have thus got such a sunstroke as they will never lose this side of Heaven. I mean that they have to go doubting and fearing all their spiritual life because they were so long before they trusted in Christ. I know that only the Holy Spirit can bring a sinner under this blessed shadow, but how base must be the human heart when it will not come and take what Christ so freely provides! Why will you die? Why will you perish when you need not? There is a shadow, why will you stand in the fierce light of the sun? All the bells of Heaven are ringing out, "Come and welcome!" All the angels of God are singing, "Come and welcome! Come and welcome!" From this open Book, from the Gospel preached by one of God's ministers tonight, there sounds this message, "Come and trust in the Incarnate Son of God!" I wish I knew how to put it in more melting tones, but it needs the Holy Spirit to bring it home to your hearts. Dear trembler, waverer, halting between two opinions, you who have so long put off coming to Christ, come now! I ask again, why do you continue to stand beneath the wrath of God when you need not linger there a moment longer?
 
-"Come to Jesus,
+"Come to Jesus, Come to Jesus, Sinner, come!" And when you have come, take care to tell others what you have discovered. Do not let any poor soul be without the knowledge of the way of salvation so far as you can tell it. Tell to those who are round about you, your experience of the comforts of true religion! This is the way to gather jewels for the Redeemer's crown. If you find that Christ deceives you, let us know, for, as honest men, we would not like to go on telling an idle tale. But if you find Him true. If He comforts you, and blesses you, do bear your testimony to others, for then, perhaps your child, your wife, your brother, your neighbor may come and trust Him too! I will be bound for Him that He will reject none of you who come to Him and I will be a bondsman for Him for another thing, that if you once have Him as your Savior, you will never grow weary of Him! You will say that it was the best day that ever dawned upon you when you gave your heart to the Crucified Christ, who, on Calvary's Cross, made the one Sacrifice for sin forever! Oh, yield your heart to Him! I see Him standing there with those pierced hands of His! He knocks softly at your heart's door:
 
-Come to Jesus, Sinner, come!" And when you have come, take care to tell others what you have discovered. Do not let any poor soul be without the knowledge of the way of salvation so far as you can tell it. Tell to those who are round about you, your experience of the comforts of true religion! This is the way to gather jewels for the Redeemer's crown. If you find that Christ deceives you, let us know, for, as honest men, we would not like to go on telling an idle tale. But if you find Him true. If He comforts you, and blesses you, do bear your testimony to others, for then, perhaps your child, your wife, your brother, your neighbor may come and trust Him too! I will be bound for Him that He will reject none of you who come to Him and I will be a bondsman for Him for another thing, that if you once have Him as your Savior, you will never grow weary of Him! You will say that it was the best day that ever dawned upon you when you gave your heart to the Crucified Christ, who, on Calvary's Cross, made the one Sacrifice for sin forever! Oh, yield your heart to Him! I see Him standing there with those pierced hands of His! He knocks softly at your heart's door:
-"Admit Him, for the human breast
+> Admit Him, for the human breast  
+> Never entertained so kind a guest  
+> Admit Him, before His anger burns,  
+> His feet depart, and never returns!  
+> Admit Him, or the hour's at hand  
+> When at His door denied you'll stand.  
 
-Never entertained so kind a guest
-
-Admit Him, before His anger burns,
-
-His feet depart, and never returns!
-
-Admit Him, or the hour's at hand
-
-When at His door denied you'll stand." By the love of God in Christ Jesus, hold out no longer! Young man, I beseech you by the precious blood of Christ, give yourself to Him! Have you done it? Do you trust Him wholly? Then, rejoice and sing, you seraphs, and let Heaven be glad, for Christ sees the reward of His soul-travail, for a child is born in His House tonight that shall live to praise Him, both here and throughout eternity!
+By the love of God in Christ Jesus, hold out no longer! Young man, I beseech you by the precious blood of Christ, give yourself to Him! Have you done it? Do you trust Him wholly? Then, rejoice and sing, you seraphs, and let Heaven be glad, for Christ sees the reward of His soul-travail, for a child is born in His House tonight that shall live to praise Him, both here and throughout eternity!
 
 May the Lord bless everyone here, and His shall be the glory forever. Amen.
 
-## Exposition by C. H. Spurgeon: Matthew5:17-48.
+## Exposition by C. H. Spurgeon: Matthew 5:17-48
 
 Think not that I am came to destroy the Law, or the Prophets: I am not come to destroy, but to fulfill The life-work and words of Christ are not an improvement of the Old Testament, or a doing away of it. It stands fast and firm, fulfilled, carried to perfection, filled to the fullest in Christ!
 
@@ -119,11 +90,9 @@ Therefore if you bring your gift to the altar, and there remember that your brot
 
 Agree with your adversary quickly, while you are in the way with him; lest at any time the adversary deliver you to the judge, and the judge deliver you to the officer, and you be cast into prison. Verily I say unto you, You shall by no means come out till you have paid the uttermost farthing. There is nothing like ending disputes at once, before the rancor grows and your adversary becomes determined to push you to extremes. Oh, for more of that spirit of yielding! You know how people say, "If you tread on a worm: it will turn." But, Brothers and Sisters, a worm is not an example for a Christian, even if the poor wounded creature does turn toward you in its agony. If you turn, turn to kiss the hand that smites you, and to do good to them that evilly treat you!
 
-You have heard that it was said by them of old time, You shall not commit adultery: but I say unto you, That whoever looks on a woman to lust after her has committed adultery with her already in his heart So that the unholy desire, the lascivious glance, everything that approximates towards licentiousness is here condemned, and Christ is proved to be not the Destroyer of the Law, but the Confirmer of it! See how He shows that the commandment is exceedingly broad, wide as the canopy of Heaven, all-embracing. How sternly it condemns us all and how well it becomes us to fall down at the feet of the God of Infinite Mercy and seek His forgiveness:
-"'Tis mercy, mercy we implore,
-We would Your pity move;
-Your Grace is an exhaustless store,
-And You, Yourself, are Love." 29, 30. And if your right eye offends you, pluck it out, and cast it from you: for it is profitable for you that one of your members should perish, and not that your whole body should be cast into Hell And if your right hand offends you, cut it off, and cast it from you: for it is profitable for you that one of your members should perish, and not that your whole body should be cast into Hell Give up the dearest, choicest and apparently most necessary thing if it leads you into sin. The same rule that bids you avoid sin, bids you also avoid all that leads to sin. If adultery is forbidden, so also is that glance with which the sin usually begins. We are to turn away our eyes from beholding that which leads towards sin and we are not to touch or taste that which would readily lead us into iniquity. Oh, that we had sufficient decision of character to make short work of everything which tends towards evil! Many persons, when their right eye offends them, put a green shade over it. And when their right hand offends them, they tie it up in a sling. But that is not obeying the command of Christ. He charges you to get rid of everything that would lead you wrong. Make a clean sweep of it. You are wrong enough at your best, so do not permit anything to appertain to you which would lead you still further astray,
+You have heard that it was said by them of old time, You shall not commit adultery: but I say unto you, That whoever looks on a woman to lust after her has committed adultery with her already in his heart So that the unholy desire, the lascivious glance, everything that approximates towards licentiousness is here condemned, and Christ is proved to be not the Destroyer of the Law, but the Confirmer of it! See how He shows that the commandment is exceedingly broad, wide as the canopy of Heaven, all-embracing. How sternly it condemns us all and how well it becomes us to fall down at the feet of the God of Infinite Mercy and seek His forgiveness: "'Tis mercy, mercy we implore, We would Your pity move; Your Grace is an exhaustless store, And You, Yourself, are Love." 
+
+And if your right eye offends you, pluck it out, and cast it from you: for it is profitable for you that one of your members should perish, and not that your whole body should be cast into Hell And if your right hand offends you, cut it off, and cast it from you: for it is profitable for you that one of your members should perish, and not that your whole body should be cast into Hell Give up the dearest, choicest and apparently most necessary thing if it leads you into sin. The same rule that bids you avoid sin, bids you also avoid all that leads to sin. If adultery is forbidden, so also is that glance with which the sin usually begins. We are to turn away our eyes from beholding that which leads towards sin and we are not to touch or taste that which would readily lead us into iniquity. Oh, that we had sufficient decision of character to make short work of everything which tends towards evil! Many persons, when their right eye offends them, put a green shade over it. And when their right hand offends them, they tie it up in a sling. But that is not obeying the command of Christ. He charges you to get rid of everything that would lead you wrong. Make a clean sweep of it. You are wrong enough at your best, so do not permit anything to appertain to you which would lead you still further astray,
 
 It has been said, Whoever shall put away his wife, let him give her a writing of divorcement: but I say unto you, That whoever shall put away his wife, saving for the cause of fornication. Which is a sufficient and justifiable reason for divorce.
 
@@ -140,5 +109,3 @@ You have heard that it has been said, An eye for an eye, and a tooth for a tooth
 But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you; that you may be the children of your Father which is in Heaven: for He makes His sun to rise on the evil and on the good, and sends rain on the just and on the unjust God constantly does that which many people regard almost as a crime, namely, doing good to the undeserving. It is the very genius of Christianity to help those who are utterly unworthy, to be kind and generous even to those who are pretty certain to repay us with ingratitude and malice.
 
 For if you love them which love you, what reward have you? Do not even the publicans the same? And if you salute your brethren only, what do you more than others? Do not even the publicans so? Be you therefore perfect, even as your Father which is in Heaven is perfect Stretch towards the highest conceivable standard and be not satisfied till you reach it.
-
-Hymns from "Our Own Hymn Book," 708, 808.

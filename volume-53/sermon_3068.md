@@ -88,7 +88,7 @@ I have been talking to you in a very simple, homely way, for I have been afraid 
 
 The Lord bless you and bring you to trust in Jesus Christ, His Son, and He shall have all the praise and glory forever and forever! Amen.
 
-## Exposition by C. H. Spurgeon: Matthew5:13-26.
+## Exposition by C. H. Spurgeon: Matthew 5:13-26
 
 You are the salt of the earth. The earth would go putrid if there were no salt of Divine Grace to preserve it. So, dear Friends, if God's Grace is in you, there is a pungent savor about you which tends to preserve others from going as far into sin as otherwise they would have done. "You are the salt of the earth."
 

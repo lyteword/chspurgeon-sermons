@@ -56,36 +56,9 @@ But supposing you have joined a church whose doctrines are Scriptural, you may b
 > Quick as the apple of an eye,  
 > God, my conscience make! Awake, my Soul, when sin is near, And keep it still awake.  
 
-Further, we may be "partakers of other men's sins" by not rebuking them for sinning if it is our duty to do so, or by not doing all we can towards their conversion. For instance, by living in a certain neighborhood and never trying to bring the Gospel to the people in that neighborhood, or by not maintaining our consistent Christian walk as the separated people of God. In brief, let each one sing, from the heart, the rest of that hymn from which I began to quote just now:
-"I need a principle within Of jealous godly fear. A sensibility of sin, a pain to feel it near!
+Further, we may be "partakers of other men's sins" by not rebuking them for sinning if it is our duty to do so, or by not doing all we can towards their conversion. For instance, by living in a certain neighborhood and never trying to bring the Gospel to the people in that neighborhood, or by not maintaining our consistent Christian walk as the separated people of God. In brief, let each one sing, from the heart, the rest of that hymn from which I began to quote just now: "I need a principle within Of jealous godly fear. A sensibility of sin, a pain to feel it near! I need the first approach to feel Of pride, or fond desire To catch the wandering of my will, And quench the kindling fire. That I from You no more may part, No more Your goodness grieve; The filial awe, the fleshy heart, The tender conscience give. If to the right or left I stray, That moment, Lord, reprove And let me weep my life away, For having grieved Your love. Oh may the least omission pain My well-instructed soul And drive me to the blood again, Which makes the wounded whole!" 
 
-1 need the first approach to feel Of pride, or fond desire
-
-To catch the wandering of my will,
-
-And quench the kindling fire.
-
-That I from You no more may part,
-
-No more Your goodness grieve;
-The filial awe, the fleshy heart,
-The tender conscience give.
-
-If to the right or left I stray,
-
-That moment, Lord, reprove
-
-And let me weep my life away,
-
-For having grieved Your love.
-
-Oh may the least omission pain
-
-My well-instructed soul
-
-And drive me to the blood again,
-
-Which makes the wounded whole!" I must not say more upon this part of the subject lest I should weary you. So I pass on to ask, in the second place, why should we seek to avoid being partakers of other men's sins?
+I must not say more upon this part of the subject lest I should weary you. So I pass on to ask, in the second place, why should we seek to avoid being partakers of other men's sins?
 
 This will be a sufficient answer, because we have more than enough sins of our own and cannot also carry other people's. And also because if we are partakers in their sins, we shall also partake in their plagues. And because we do other men an injury by being accomplices with them, we steel and harden them in their sins. The weightiest reason of all is this, we should not be "partakers of other men's sins" because, by so doing, we should grieve our holy and gracious God, and no true lover of Christ ought ever to do that! Remember what Paul wrote to the saints at Ephesus, "Grieve not the Holy Spirit of God, whereby you are sealed unto the day of redemption."
 
@@ -103,24 +76,20 @@ I think I had better close by saying that I do not think we have, any of us, esc
 We are all stained with at least splashes from other men's sins as well as our own, so let us all go to the Fountain and wash. Let us renew our faith in the precious blood of Jesus, for if we never had any faith in it before, may God graciously grant it to us now! If we had rebelled against the Queen and had been at last subdued by force, and if there had been an Act of Oblivion passed for all who wished to claim an interest in it, perhaps some would say to themselves, "We do not know that we took any great part in the rebellion, yet it may be that we did, and the safest thing for us all to do is to put down our names and so secure the benefit of the Act of Oblivion." So I, as one of the guilty ones, confessing that it is so, desire to say to the great King, "My Lord, I am guilty of sins of my own, sins of my children, sins of my servants, sins of my neighbors, sins of my Church and sins of my congregation, but You have said, 'I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins.' You have promised to blot out all sin from those who believe in Jesus Christ, Your Son. Lord, I believe in Him, so I claim the benefit of that Act of Oblivion."
 
 Dear Hearer, will not you say the same? Will you not now obey that Divine command, "Look unto Me, and be you saved, all the ends of the earth?" Though you have gone to the ends of the earth, yet God says to you, "Look unto Me, and be you saved." Look! Look! look! It is little that you have to do! Indeed, it is nothing that you have to do, for God gives you Grace to do all that He requires of you. So trust in Him, rest in Him, the Lord help you to do so and then, whatever your sins may have been, though they may have been "as scarlet, they shall be as white as snow." Though they may have been "red like crimson, they shall be as wool." God bless you and save you, for His name's sake! Amen. Now let us all sing the verse that I quoted just now:
-"There is a Fountain filled with blood,
+"There is a Fountain filled with blood, Drawn from Immanuel's veins; And sinners, plunged beneath that flood, Lose all their guilty stains", and let all who can sing it from the heart join in the well-known chorus:
 
-Drawn from Immanuel's veins;
-And sinners, plunged beneath that flood,
-Lose all their guilty stains", and let all who can sing it from the heart join in the well-known chorus:
-
-> Ido believe, I will believe,  
+> I do believe, I will believe,  
 > That Jesus died for me!  
 > That, on the Cross, He shed His blood  
 > From sin to set me free!  
 
-## Exposition by C. H. Spurgeon: Psalm 73.
+## Exposition by C. H. Spurgeon: Psalm 73
 
 You may have noticed that the seventy-third Psalm and the thirty-seventh Psalm are on the same subject. It will help you to recall this fact if you remember that the figures are the same, only reversed.
 
 Truly God is good to Israel Settle that matter in your hearts. Whatever doubts may distress or disturb your mind, fix this point as certain, "Truly God is good to Israel."
 
-I, 2. Even to such as are of a clean heart But as for me, my feet were almost gone; my steps had well near slipped. He was a good man, one of the leaders in Israel, yet he had to make this confession, "My feet were almost gone; my steps had well near slipped."
+Even to such as are of a clean heart But as for me, my feet were almost gone; my steps had well near slipped. He was a good man, one of the leaders in Israel, yet he had to make this confession, "My feet were almost gone; my steps had well near slipped."
 
 For I was envious at the foolish, when I saw the prosperity of the wicked. For there are no bands in their death: but their strength is firm. Many of them have so stifled conscience that it does not trouble them even in that last dread hour, and they pass into eternity with blinded eyes, self-deluded to the last.
 

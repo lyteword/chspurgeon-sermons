@@ -72,7 +72,7 @@ And so, let me close these few words of address by entreating you always to fly 
 
 The Lord bless you, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Luke 12:1-44.
+## Exposition by C. H. Spurgeon: Luke 12:1-44
 
 In this chapter our Savior dispels the fears of His disciples concerning temporal things, and especially their fear of persecution and their fear of need.
 
@@ -82,7 +82,7 @@ Therefore whatever you have spoken in darkness shall be heard in the light; and 
 
 Are not five sparrows sold for two farthings, and not one of them is forgotten before God? But even the very hairs of your head are all numbered. So particular is the care of Divine Providence.
 
-7, Fear not, therefore, you are of more value than many sparrows. And if He counts the sparrows, and cares for them, He certainly will not forget you!
+Fear not, therefore, you are of more value than many sparrows. And if He counts the sparrows, and cares for them, He certainly will not forget you!
 
 Also I say unto you, Whoever shall confess Me before men, Him shall the Son of Man also confess before the angels of Go : but he that denies Me before men shall be denied before the angels of God. Mind what you are doing, then, you who never confess Christ before men, because, according to the context of this passage, you are set down as having denied Him. Christ first speaks of those who confess Him and then of those who do not confess Him, and He describes them as virtually denying Him. On another occasion, Christ said, "He that is not with Me is against Me. And he that gathers not with Me scatters abroad." Examine that attitude of yours, which you suppose to be neutral, and see how Christ regards it, and then ask yourself whether you can be satisfied to remain in it any longer.
 

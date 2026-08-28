@@ -58,7 +58,7 @@ It will be a dreadful thing, at the Last Great Day, to find the gentle Lamb beco
 
 Thus much to the unconverted. The people of God can think over the text in relation to themselves. It is rich in priceless instruction to them, but time forbids me to direct their meditations. Farewell.
 
-## Exposition by C. H. Spurgeon: Psalm 139.
+## Exposition by C. H. Spurgeon: Psalm 139
 
 In this Psalm David praises God by specially dwelling upon the one attribute of Omniscience. If we really wish to praise God, we must think of Him as He is, and it is the best praise that we can render to God to describe Him as He is. And any one of His many attributes is so full of His Glory that if we give due honor to it, we shall have much to say upon it.
 
@@ -94,11 +94,11 @@ If I ascend up into Heaven, You are there. The Hebrew is, "You there," as if the
 
 If I make my bed in Hell, behold You are there. This seemed even more amazing to the Psalmist than that God was in Heaven, so He put in a, "behold": "Behold, You."
 
-IfI take the wings of the morning, and dwell in the uttermost parts of the sea. "If I fly on the wings of light, which travels with inconceivable rapidity."
+If I take the wings of the morning, and dwell in the uttermost parts of the sea. "If I fly on the wings of light, which travels with inconceivable rapidity."
 
 Even there shall Your hand lead me, and Your right hand shall hold me."I cannot go there except by Your leading and I shall not be there except by Your uplifting. There is no way by which I can keep away from God even if I try to do so. If, instead of living in the light, I seek to hide myself in the darkness, what then?"
 
-IfIsay, Surely the darkness shall cover me; even the night shall be light about me. "The very night shall change its nature and turn from darkness into light!"
+If I say, Surely the darkness shall cover me; even the night shall be light about me. "The very night shall change its nature and turn from darkness into light!"
 
 Yes, the darkness hides not from You, but the night shines as the day: the darkness and the light are both alike to You. See, my dear Brothers and Sisters, how we dwell continually under the inspection of God? You have seen bees in a glass hive and watched all their movements, or you have put an insect under a powerful microscope and examined every part of it. Even so does the Omniscient God watch and examine you! Nothing is done by you that He does not observe. The poet speaks of the fierce light that beats about the throne of man, but you dwell in that far fiercer light which beats about the Throne of God!
 

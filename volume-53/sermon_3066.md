@@ -41,9 +41,7 @@ And the children of Israel were also guided in another way, when the priest inqu
 
 Do you ask me, "How does the Spirit of God guide us?" I answer, not by making fresh Revelations as the Swedenborgians pretend, but by shining upon the Word that has been revealed of old, and by shining in our hearts. So the Spirit witnesses with our spirits. So does He apply to us the promises. So does He open the Scriptures to our understanding and He opens our understanding to understand the Scriptures!
 
-The blessed Spirit also makes intercession for us on earth even as Christ makes intercession for us in Heaven. Then He takes of the things of Jesus and shows them unto us. And He guides us by the old paths where we see the footprints of
-
-Patriarchs and Prophets, Apostles and martyrs. Such is the Doctrine implied in the inquiry of my text, "Has your Counselor perished?"
+The blessed Spirit also makes intercession for us on earth even as Christ makes intercession for us in Heaven. Then He takes of the things of Jesus and shows them unto us. And He guides us by the old paths where we see the footprints of Patriarchs and Prophets, Apostles and martyrs. Such is the Doctrine implied in the inquiry of my text, "Has your Counselor perished?"
 
 Then, secondly, this question suggests a reproof: "Has your Counselor perished?"
 

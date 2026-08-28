@@ -14,21 +14,17 @@ There is nothing in your circumstances which compels you to cease from following
 "Gold and the Gospel seldom do agree, Religion always sides with poverty." So said John Bunyan and his saying is true. Too often the glitter of wealth has dazzled men's eyes so that they could not see the beauty of Christ Jesus. But O, you few wealthy saints, you need not depart! The camel can go through the needle's eye for, "with God, all things are possible." Men have worn coronets on earth and inherited crowns in Heaven! He who was the man after God's own heart swayed a scepter. To grow rich in substance does not make it inevitable that you should become poor in Divine Grace. Do riches bring you many responsibilities and burdens, and are you so much occupied with them that your fellowship with the Lord grows slack? It should not be so. You need not depart from Him. You can bring those responsibilities and the wealth to Jesus and communion with Him will prevent the gold from cankering and the responsibility from involving you in sin. Very often the servant of God who ministers to the Church of Christ finds so much to do in watching over the souls of others, and in caring for the various needs of the flock, that he is in danger of losing his own personal enjoyment of his Lord's Presence. But it need not be so. We can make all our many works subservient to our personal communion with our Lord and, as the bee flies to many flowers and gathers honey from each one, so may we, out of many forms of service, extract a sweet conformity to Him who was always about His Father's business. We need not be "cumbered" either with much serving or with much suffering. Our surroundings are not to be our sovereigns, but our subjects. We are, in all these things, to be "more than conquerors through Him that loved us."
 
 Brothers and Sisters, you need not depart because of anything in Christ Jesus. Those whom we love most would not desire us to be always with them and never out of their sight. A guest is very welcome, but the proverb says that after three days he is stale. A mother does not always want her child in her arms! Its face is the epitome of beauty, but at eventide she is glad that those dear blue eyes no longer shine upon her, she is happy to lay her treasure in its cradle basket. We do not always wish for the company of those whom we compassionate, if they will condense their requests and do their errands rapidly, we are best content. And Jesus Christ says to us, His poor dependents, His crying children, "You need not depart." When we are weeping, He will lay us in His bosom and give us rest. When we are famishing, He will entertain us at His royal table till we forget our misery. He is "a Friend that sticks closer than a brother" in this respect, for we need not, in this instance, heed the wise man's caution, "Go not into your brother's house in the day of your calamity," for we may, at all times and seasons, resort to our elder Brother! We may ask Him, "Where do You dwell?" and when we receive His answer, we may go forth and dwell with Him and make His house our home. Do you not remember His words, "Abide in Me?" Not merely "Abide with Me," but, "Abide in Me." The closest contact with Christ may be maintained with the utmost constancy:
-" You need not depart, you may tarry for, yes,
 
-Unchanged is His heart, He invites you to stay!
+> You need not depart, you may tarry for, yes,  
+> Unchanged is His heart, He invites you to stay!  
+> He does not despise nor grow weary of you,  
+> You're fair in His eyes and most comely to view.  
+> Then wish not to roam, but abide with your Lord  
+> Since He is your home, go no longer abroad!  
+> Lie down on His breast in unbroken repose,  
+> For there you may rest, though surrounded with foes.   
 
-He does not despise nor grow weary of you,
-
-You're fair in His eyes and most comely to view.
-
-Then wish not to roam, but abide with your Lord
-
-Since He is your home, go no longer abroad!
-
-Lie down on His breast in unbroken repose,
-
-For there you may rest, though surrounded with foes." Secondly, no future necessity will ever arise to compel you to depart from Jesus. It will always be true, "You need not depart."
+Secondly, no future necessity will ever arise to compel you to depart from Jesus. It will always be true, "You need not depart."
 
 You do not know what your needs will be and though you are no Prophet, your words will be true if you affirm that no need shall ever necessarily divide you from Jesus because your needs will, instead, bind you to Him. "It pleased the Father that in Him should all fullness dwell." "And of His fullness have we all received, and Grace for Grace." We will draw nearer to Him, in time of need, to obtain the Grace we need! We shall never be forced to go elsewhere to find supplies for our spiritual needs! There stands another trader over the way who gladly would have you deal with him, "his Infallible Holiness," as he styles himself, but, ah, if you need Infallibility, you need not wander from Him who is "the Truth!" And if you desire holiness, you need not withdraw from Him who was the "Holy Child Jesus." To gain all that the superstitious profess to find in Babylon, you need not depart from the Son of David who reigns in Zion! They tell us that we must confess our sins to a priest, we will stay at home and lay bare our hearts to the great High Priest who "sprang out of Judah" and who is "touched with the feeling of our infirmities." They teach that we must receive absolution from one chosen from among men to forgive sins, we go at once to Him who was raised from the dead "that repentance and remission of sins should be preached in His name among all nations, beginning at Jerusalem." They tell us that we should continue in morning and evening prayers, we do so, and offer our "matins" and our "vespers" where no bells call us except the bells upon our High Priest's garments! Our daily office may not be according to "the use of Sarum," but it is according to the use of those who "worship God in spirit and in truth." They cry up their daily sacrifice of the "mass", but in Him who "offered one Sacrifice for sins forever," we find our All-in-All! His "flesh is meat, indeed," and His "blood drink, indeed." You "need not depart" to pope or priest, church or altar, for you may rest assured that there dwells in the Man, Christ Jesus, the Mediator of the New Covenant, all that your spiritual needs shall need for their supply! And on no occasion, for any needs that can by any possibility arise, need you go down into Egypt for help, or trust yourself to Assyria or Babylon!
 
@@ -38,21 +34,17 @@ You will also encounter many difficulties between here and Heaven. Those who pai
 
 Death will probably befall us, but we "need not depart" from Jesus in the hour of our departure out of this world. On the contrary, when the death-dew lies cold on our brow we will sing:
 "If ever I loved You, my Jesus, 'tis now", and we will say with the Apostle Paul, "I am persuaded that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature shall be able to separate us from the love of God which is in Christ Jesus our Lord." Straight on into eternity, and on and on forever, that word, "depart," never need cross our path. As never in eternity will the great Judge pronounce the sentence, "Depart, you cursed," upon His saints, so never in His Providence, nor in the severest trial will He render it necessary that the saints should in any sense depart from Him:
-"Never, O time, in your darkest hour
 
-Shall I need depart from Him,
+> Never, O time, in your darkest hour  
+> Shall I need depart from Him,  
+> Though round me your blackest tempests lower  
+> And both sun and moon grow dim.  
+> Faster and faster each grief shall bind  
+> My soul to her Lord above  
+> And all the woes that assail my mind  
+> Shall drive me to rest in His love.  
 
-Though round me your blackest tempests lower
-
-And both sun and moon grow dim.
-
-Faster and faster each grief shall bind
-
-My soul to her Lord above
-
-And all the woes that assail my mind
-
-Shall drive me to rest in His love." There is no necessity, then, in the present, and there will be none in the future, for departing from communion with the Lord!
+There is no necessity, then, in the present, and there will be none in the future, for departing from communion with the Lord!
 
 Thirdly, "they need not depart." that is to say, no force can compel the Christian to depart from Jesus.
 
@@ -81,9 +73,7 @@ Many Believers think that if they have fellowship every now and then with Jesus,
 
 Brothers and Sisters, the way to maintain fellowship with Christ is very simple. If you desire to retain in your mouth all day the flavor of the "wines on the lees well refined," take care that you drink deeply of them by morning devotion. Do not waste those few minutes which you allot to morning prayer! Lay a text on your tongue and, like a wafer made with honey, it shall sweeten your soul till nightfall! During the day, when you can do so, think about your Redeemer, His Person, His work. Pray to Him and ask Him to speak to you. All day long lean on the Beloved. During the day, serve Him and constantly say, "Lord, how can I best serve You in my calling?" Consecrate the kitchen, consecrate the market-room, make every place holy by glorifying the Lord there. Converse much with Him and it will not be impossible for you to abide in Him from the year's beginning to its close! You "need not depart." There is no mental or spiritual impossibility in the maintenance of unbroken communion with Christ if the Holy Spirit is your Helper!
 
-Once more, we "need not depart." That is to say, there is no reason that can be imagined which would render it a wise, proper and good thing for a Christian to depart from
-
-Christ.
+Once more, we "need not depart." That is to say, there is no reason that can be imagined which would render it a wise, proper and good thing for a Christian to depart from Christ.
 
 Suppose that the search after happiness is the great drift of our life, as the old philosophers assert, then we "need not depart" from Jesus to win it, for He is Heavenn below! If you desire pleasure, forget not that the pleasures of God which are in Christ, His joy, the joy that fills His great heart, are more than enough to fill your heart! I sometimes hear people say, as an excuse for professors going to doubtful places of amusement, "You know, they must have some recreation." Yes, I know, but the re-creation which the Christian experienced when he was born-again has so completely made all things new to him, that the vile rubbish called recreation by the world is so dull to him that he might as well try to fill himself with fog as to satisfy his soul with such utter vanity! No, the Christian finds happiness in Christ Jesus, and when he needs pleasure, he does not depart from Jesus.
 
@@ -95,7 +85,7 @@ Perhaps it is said that we require a little excitement now and then, for excitem
 
 Now, if this is true, do not some of us feel very guilty? I could weep to think that I have so often departed from close fellowship with my Lord and Master when I need not have done it. I am cast down and weary, and occasionally cumbered with much serving. I know my faith is in Christ, but I have not the calm, unstaggering faith I desire to have. And I know that with a thousand cares, (and I have ten thousand), I need not for a moment lose serenity and peace of mind if I can reach the place which, by God's Grace, I will yet reach. Do you not feel ashamed that your family troubles and perhaps your family joys have taken you off from your Savior? Some of you have a great deal of leisure and yet you slide away from Christ. Let us be ashamed together, but let us remember that while this verse stands true, if we have departed from Christ and the enjoyment of His fellowship, we can offer no excuse by saying that we could not help it! We do it willfully, we do it sinfully! It is not to be thrust on the back of circumstances. It cannot be laid on the devil nor blamed to this, nor blamed to that, it is our own fault. We "need not depart!" There never was any need for it and there never will be. May God's Grace descend mightily upon us so that we may henceforth abide in our Lord! May those who know Him not, be led to seek Him by faith even now, and find Him, and then even they shall not need to depart from Him at the last.
 
-## Exposition by C. H. Spurgeon: Matthew 14:13-36.
+## Exposition by C. H. Spurgeon: Matthew 14:13-36
 
 When Jesus heard of it, He departed from there by a boat into a desert place apart It is well for us to get alone with God when He takes Home the best and most faithful of His servants. Neither the Church nor the world could afford to lose such a man as John the Baptist, so it was well for Christ's disciples to retire with Him to a desert place that He might teach them the lesson of that highly favored martyr's death.
 

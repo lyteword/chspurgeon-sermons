@@ -94,7 +94,7 @@ I wish that all of us here, constantly receiving, as we do, so many mercies, had
 
 May God bless you all, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm 71.
+## Exposition by C. H. Spurgeon: Psalm 71
 
 This Psalm, written by an old man, is especially suitable for an old man. It is numbered seventy-one and it may suit those who have reached that age, but it is also appropriate to us all in prospect of the days of feebleness that will come to us, sooner or later, if we are spared to grow old.
 

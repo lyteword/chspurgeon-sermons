@@ -17,22 +17,7 @@ This much, however, we may affirm. The Believer has received Christ into his kno
 
 Not only has he received Christ into his cognizance, but into his understanding. He understands, with all saints, the love of Jesus in its height, depth, length and breadth. He has so seen Christ as to understand of Him that He was before all time as the Ancient of Days and then had His delights with the sons of men in the great Covenant decree of electing love. He understands how He became made flesh with us, married to us, when He came on earth, the Son of Mary, "bone of our bone, and flesh of our flesh." He knows by experience what is the meaning of the Atonement. He can understand how Justice is satisfied and Grace magnified. Without confounding or making mistakes, he knows how God was always gracious and full of love and yet how Christ Jesus came that the love of God might be shed abroad in our hearts and we were reconciled unto God by His death. Hence the Christian does not read of Christ as though He were a mere historical personage, nor of His work as a great mystery which he cannot comprehend, but he has received Christ into his understanding!
 
-Ah, Beloved! This is a very poor and shallow sense compared with the next. I have received but one ounce of Christ into my understanding, but, bless His name, I have received the whole of Him into my affections. Good Rutherford used to pray for a larger heart, that he might hold more of Christ and, perhaps, you remember that strange extravaganza of prayer in which he says, "Oh, that I had a heart as deep, and wide, and high as Heaven, that I might hold Christ in it!" And then he said, "Since the Heaven of heavens cannot contain Him, oh, that I had a heart as vast as seven heavens, that I might get the whole of Christ into me and hold Him in my arms!" And truly, Christian, in one sense you have taken all of Christ into your soul, have you not? Do you not love Him, not a part of Him, but the whole of Him? I hope you can truly say to Christ:
-"Have You a lamb in all Your flock
-
-I would disdain to feed?
-
-Have You a foe, before whose face
-
-I fear Your cause to plead?
-
-You know I love You, dearest Lord
-
-But oh, I long to soar
-
-Far from the sphere of mortal joys,
-
-And learn to love You more!" We must not leave this part of the subject without adding that the Believer has received Christ into his trust, and this he did at his spiritual birth. He received Christ into the arms of his faith. He took Jesus Christ to be, henceforth, the unbuttressed pillar of his confidence, the one Rock of his salvation, his strong castle and high tower. And, in this sense, every soul that is saved has "received Christ Jesus the Lord."
+Ah, Beloved! This is a very poor and shallow sense compared with the next. I have received but one ounce of Christ into my understanding, but, bless His name, I have received the whole of Him into my affections. Good Rutherford used to pray for a larger heart, that he might hold more of Christ and, perhaps, you remember that strange extravaganza of prayer in which he says, "Oh, that I had a heart as deep, and wide, and high as Heaven, that I might hold Christ in it!" And then he said, "Since the Heaven of heavens cannot contain Him, oh, that I had a heart as vast as seven heavens, that I might get the whole of Christ into me and hold Him in my arms!" And truly, Christian, in one sense you have taken all of Christ into your soul, have you not? Do you not love Him, not a part of Him, but the whole of Him? I hope you can truly say to Christ "Have You a lamb in all Your flock I would disdain to feed? Have You a foe, before whose face I fear Your cause to plead? You know I love You, dearest Lord But oh, I long to soar Far from the sphere of mortal joys, And learn to love You more!" We must not leave this part of the subject without adding that the Believer has received Christ into his trust, and this he did at his spiritual birth. He received Christ into the arms of his faith. He took Jesus Christ to be, henceforth, the unbuttressed pillar of his confidence, the one Rock of his salvation, his strong castle and high tower. And, in this sense, every soul that is saved has "received Christ Jesus the Lord."
 
 Our text seems to point to a threefold character in which we have received Christ. We have received Him as the Christ. My Soul, have you ever seen Him as the Father's Anointed One, as the Chosen and Sent One, ordained of old, as One that is mighty, upon whom help should be laid? Have you seen Him as God's great High Priest, ordained as was Aaron, chosen of God from among men? Have you looked upon Him as David did, as One chosen out of the people? We must accept Christ as the Anointed One and the right way to thus receive Him is to receive Him as the garments of Aaron received the oil that flowed from his head. Christ is the Anointed One and then you and I become anointed ones through the Holy Spirit which distils from Him to us, and so we receive Him as Christ.
 
@@ -64,18 +49,7 @@ In walking, there is not only continuance, but also progress. After a man become
 
 "As you have therefore received Christ Jesus the Lord, so walk in Him," also implies activity. Christians are not to be lie-a-beds, nor forever to sit still. There is an activityin religion without which it is of little worth. Feed the hungry. Clothe the naked. Help the poor. Teach the ignorant. Comfort the miserable. But take care that when you do all this, you do it in Christ, and for Christ, and let no thought of merit stain the act! Let no reflection of getting salvation for yourself come in to mar it all, but in Christ Jesus walk day by day. Ah, Brothers and Sisters, if a thunderstorm were to come on just now while we are sitting here, and if the lightning should come flashing in at these windows and run with its blue flame down these columns, you and I might begin to feel some alarm! And if one were struck dead in our presence, in what kind of state would you and I likely to be amidst such confusion and alarm? If I were to choose the words which I would like to say at such a moment, they would be these:
 "Nothing in my hands I bring;
-Simply to Your Cross I cling." You are on board ship in a storm just now. There goes a mast into the water! The lifeboats have all drifted away. The ship is pretty sure to be dashed on yonder rock! Pallor is on every cheek and turmoil every side. What is your prayer as you kneel down? What are your thoughts? Do you think, now, about your sermons, about your visiting the sick, about your prayers and your experiences? No! I tell you that they will seem to you to be nothing better than dross and dung when you are in such a state of apprehension! But you will cling to Christ's Cross and be conveyed to Heaven, let the stormy winds blow as they will! And if everything were silent, tonight, could we hear nothing but the ticking of the clock were we, ourselves, reclining on our death pillow? While loving friends wiped the clammy sweat from our brow, surely we would, each one, wish to say:
-"My hope is built on nothing less
-
-Than Jesus' blood and righteousness!
-
-I dare not trust the sweetest frame
-
-But wholly lean on Jesus' name.
-
-On Christ, the solid Rock, I stand!
-
-All other ground is sinking sand." Well, walk in Him just as you would walk in the Valley of the Shadow of Death, but walk on the mountaintops of life's activities!
+Simply to Your Cross I cling." You are on board ship in a storm just now. There goes a mast into the water! The lifeboats have all drifted away. The ship is pretty sure to be dashed on yonder rock! Pallor is on every cheek and turmoil every side. What is your prayer as you kneel down? What are your thoughts? Do you think, now, about your sermons, about your visiting the sick, about your prayers and your experiences? No! I tell you that they will seem to you to be nothing better than dross and dung when you are in such a state of apprehension! But you will cling to Christ's Cross and be conveyed to Heaven, let the stormy winds blow as they will! And if everything were silent, tonight, could we hear nothing but the ticking of the clock were we, ourselves, reclining on our death pillow? While loving friends wiped the clammy sweat from our brow, surely we would, each one, wish to say: "My hope is built on nothing less Than Jesus' blood and righteousness! I dare not trust the sweetest frame But wholly lean on Jesus' name. On Christ, the solid Rock, I stand! All other ground is sinking sand." Well, walk in Him just as you would walk in the Valley of the Shadow of Death, but walk on the mountaintops of life's activities!
 
 Let us now say a few words on our third point, the model which is presented to us here. We are to walk in Him, as we received Him.
 
@@ -117,7 +91,7 @@ And I think, Brothers and Sisters, though the flesh struggles, we may pray tonig
 
 But oh, some of you have never received Him, so my last word is to them. Do you ask, "What is the way of salvation?" It is by receiving Christ. Oh, then come and receive Him! May the Holy Spirit's power lead sinners to Christ! You need not bring anything to Him. You need not bring a soft heart to Him. You need not bring tears of repentance to Him. But just come and take Christ. Remember, it is not what you are, but it is what Christ is that saves you! Never look at yourself, but look at the wounds of Jesus! There is life there. God help you to look, to look tonight! And if you shall find Him, our prayer shall be that from this day forth, you shall walk in Him and He shall have the glory!
 
-## Exposition by C. H. Spurgeon: Psalm90.
+## Exposition by C. H. Spurgeon: Psalm 90
 
 A Prayer of Moses, the Man of God.
 

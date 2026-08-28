@@ -69,7 +69,7 @@ From his house no more to roam."
 
 O Lord, do it, for You can! Come forth, O Jesus! Mount Your chariot! Hell shakes at Your majesty. Heaven adores Your Presence; earth cannot resist you! Gates of brass fly open and bars of ironon are snapped. Come, Conqueror, and ride through the streets of this city and through the hearts of all of us, and they shall be Yours, "and i t shall be to the Lord for a name, for an everlasting sign that shall not be cut off." May God command His blessing on you, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Psalm84.
+## Exposition by C. H. Spurgeon: Psalm 84
 
 How amiable are Your tabernacles, O Lord of Hosts! "Though they are only tabernacles, temporary structures that are soon to be taken down and carried away, they are very dear to us. Your tabernacles are so lovely to us because You meet us there."
 

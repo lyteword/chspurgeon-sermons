@@ -67,7 +67,7 @@ As for believing in Jesus, I know that there are some of you who, when you have 
 There are some who go to Heaven rejoicing all the way. I hope you may be of that happy number. But there are others, like those who are mentioned in the fourth verse of this very chapter, who go "weeping." There are tears at every step: "going and weeping." Yet, when they get to Heaven, they will not be asked whether they came weeping or laughing. It is better to go weeping to Heaven than to go laughing to Hell! There are some who go weeping to Heaven; they seem every day as if they must surely perish on the road, yet they get there at last, and, dear Friend, if your face is set Zionward, if you can truly say, "There is none but Jesus for me. He is all my hope and all my trust," you may rest content that you also will get to Heaven at last! If you are really trusting in Christ, you are sure of Heaven, even if you have but one single grain of living faith in the Crucified Savior:
 "The feeblest saint shall win the day,
 
-## Exposition by C. H. Spurgeon: Psalm32.
+## Exposition by C. H. Spurgeon: Psalm 32
 
 In this Psalm we have the Gospel of the peace of God as David knew it for himself and wrote it for the benefit of others.
 

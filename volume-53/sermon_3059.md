@@ -11,9 +11,7 @@ For many years the Negro slaves cried to God to deliver them and, at last, deliv
 
 Now, having thus given the literal meaning of my text, I am going to spiritualize it, which I should have no right to do if I had not first explained the primary reference of David's words, "The poor commits himself unto You."
 
-There are spiritually poor men and these do what other poor men have done in temporal things.
-
-they commit their case into the hands of God.
+There are spiritually poor men and these do what other poor men have done in temporal things. They commit their case into the hands of God.
 
 Let me try to define the spiritually poor. They are, first, those who have no merits of their own. There are some people in the world who are, according to their own estimate, very rich in good works. They think that they began well and that they have gone on well, they hope to continue to do well right to the end of their lives. They do confess, sometimes, that they are miserable sinners, but that is merely because that expression is in the Prayer Book. They are half sorry it is there, but they suppose that it must have been meant for other people, not for themselves. So far as they know, they have kept all the Commandments from their youth up. They have been just in their dealings with their fellow men and they do not feel that they are under any very serious obligations even to God, Himself. I have nothing to say to such people except to remind them that the Lord Jesus Christ said, "They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance." Christ came to bring healing to those who are spiritually sick, you say that you are perfectly well, so you must go your own way and Christ will go in another direction, towards sinners.
 
@@ -52,7 +50,7 @@ Jesus! Commit yourself to Him. As that young bride commits all her life's joys a
 
 Thus the poor soul commits itself unto Christ, is married unto Christ, gets the portion which Christ possesses, becomes Christ's own and then lives with Christ forever! Oh that this might be the time in which many a man and many a woman would commit themselves to Christ! I do not merely mean you who are poor in pocket, but you who are poor in spirit, I am asking you to commit yourselves to Christ. Do not put it off, but may this be the very hour in which you shall be committed to Christ and He shall take possession of you to be His forever and forever! Amen and Amen.
 
-## Exposition by C. H. Spurgeon: Psalm31.
+## Exposition by C. H. Spurgeon: Psalm 31
 
 In You, O Lord, do I put my trust This is a good beginning. This is the fulcrum which will give us the necessary leverage for lifting any weight of sorrow or trouble that may be burdening us: "In You, O Jehovah, do I put my trust." Can each of us truthfully say that to begin with? If so, we may go on with David to the petitions that follow.
 
@@ -115,6 +113,5 @@ For I said in my haste, I am cut off from before Your eyes: nevertheless You hea
 For the Lord preserves the faithful, and plentifully rewards the proud doer. He gives him a sharp blow with the back of His hand, but He gives to the righteous a full-handed mercy!
 
 Be of good courage, and He shall strengthen your heart, all you that hope in the Lord. Your heart is faint, but the Lord will put strength where there now is weakness. Therefore "be of good courage." Cowardice weakens, fear saps a man's strength, so "be of good courage," for your strength shall be equal to your day, and you shall yet win the victory, "all you that hope in the Lord."
-
 
 Pray the Holy Spirit will use this sermon to bring many to a saving knowledge of Jesus Christ.

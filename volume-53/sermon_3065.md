@@ -49,7 +49,7 @@ And then, dear Friends, the text means yet more than that, we shall inherit this
 
 But this must be the work of Grace. We must be born-again, or else our proud spirits will never be meek. And if we have been born-again, let it be our joy, as long as we live, to show that we are the followers of the meek and lowly Jesus with whom gracious words I close my discourse: "Come unto Me, all you that labor and are heavy laden, and I will give you rest. Take My yoke upon you, and learn of Me; for I am meek and lowly in heart, and you shall find rest unto your souls. For My yoke is easy, and My burden is light." So may it be, for Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: Matthew5:1-12.
+## Exposition by C. H. Spurgeon: Matthew 5:1-12
 
 And seeing the multitudes, He went up into a mountain. For convenience and quietude and to be out of the way of traffic He went up into a mountain. Elevated Doctrines would seem most at home on the high places of the earth.
 

@@ -11,10 +11,7 @@ We see in our text, first, a blessed combination. When we have spoken of that, w
 
 First, here is a blessed combination: "going and weeping." The two things certify each other, supplement each other and stimulate each other.
 
-First, they certify each other. I mean that when a man is going away from his past sins, away from his old habits, away from self-righteousness, if that reformation is a work of Divine Grace, it will have a watermark upon it, there will be "weeping" with the "going." If the prodigal had only said, "I will arise and go to my father," we might have doubted the reality of his repentance. But when he added, "and will say unto him, Father, I have sinned against Heaven and before you, and am no more worthy to be called your son," then the tears of penitence, which must have accompanied such a confession, verified the reformation. Beware, Beloved, of all dry-eyed reformations! Certain preachers disparage and run down repentance, they say that it is simply "a change of mind." That is true in a sense, but what a change of mind it is, not such a change of mind as a man makes when, instead of buying one hat, he buys another or, instead of spending a shilling, he saves nine pence out of it! I have heard preachers refer to repentance as if it were a trifling, insignificant alteration of opinion, but if that is all the repentance we have had, it is a repentance of which we need to repent! The old-fashioned repentance is the only one that will bring you to Heaven! If you do not leave:
-"The sins you loved before, And show that you in earnest grieve,
-
-By doing so no more."
+First, they certify each other. I mean that when a man is going away from his past sins, away from his old habits, away from self-righteousness, if that reformation is a work of Divine Grace, it will have a watermark upon it, there will be "weeping" with the "going." If the prodigal had only said, "I will arise and go to my father," we might have doubted the reality of his repentance. But when he added, "and will say unto him, Father, I have sinned against Heaven and before you, and am no more worthy to be called your son," then the tears of penitence, which must have accompanied such a confession, verified the reformation. Beware, Beloved, of all dry-eyed reformations! Certain preachers disparage and run down repentance, they say that it is simply "a change of mind." That is true in a sense, but what a change of mind it is, not such a change of mind as a man makes when, instead of buying one hat, he buys another or, instead of spending a shilling, he saves nine pence out of it! I have heard preachers refer to repentance as if it were a trifling, insignificant alteration of opinion, but if that is all the repentance we have had, it is a repentance of which we need to repent! The old-fashioned repentance is the only one that will bring you to Heaven! If you do not leave: "The sins you loved before, And show that you in earnest grieve, By doing so no more."
 
 you will come short of the repentance which the Holy Spirit works in the souls of the Lord's own chosen people! There must be, as John the Baptist told the Pharisees and Sadducees, "fruits meet for repentance." Or, as the marginal reading puts it, "answerable to amendment of life." There must be true godly sorrow over your past evil conduct. There must be a loathing of yourself in the sight of God. And all the "going" that is not attended by "weeping" will be a bad going after all.
 
@@ -33,45 +30,29 @@ So that the "weeping" stimulates the "going" and I am sure that the "going" stim
 Now I leave the explanation of this strange combination of "going and weeping" to point out when and where it should be most conspicuous.
 
 And here, Brothers and Sisters in Christ, I begin with myself and with my Brothers engaged in the same holy office. Scripture teaches us that with the sower of the Good Seed of the Kingdom, there should always be a "going" and a "weeping." Here is a passage to prove my assertion to be true, "He that goes forth and weeps, bearing precious seed, shall doubtless come again with rejoicing, bringing his sheaves with him." We have a Christ-like task if our "going" is what it should be, to "preach the Word," to "make full proof of our ministry," to "keep back nothing that is profitable unto you," to bring forth, as scribes instructed unto the Kingdom of Heaven, "things new and old" out of the Divine Treasury, to go after the outlying masses and "compel them to come in," that our Master's great House may be filled for the great Gospel feast to care for the sick, the sad and the dying, all this is included in the "going" of "a good minister of Jesus Christ." But it will be a poor "going" if there is no "weeping" with it! Think of the Prince of Preachers, what a wonderful "going" was His! Ah, and what wonderful "weeping" was His, at the grave of Lazarus and over the Jerusalem sinners! How deeply He loved even those who rejected Him! Oh, that we who profess to be His servants had more tender hearts! Then we would say with the weeping Prophet Jeremiah, "Oh that my head were waters, and my eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people!" Paul was indeed a "going" preacher, "in journeying often" and, "in labors more abundant." But what a "weeping" preacher he was also! You know how he said to the elders of the Church at Ephesus, in his farewell address at Miletus, "Remember that by the space of three years I ceased not to warn everyone night and day with tears." And to the Church at Philippi he wrote, "For many walk, of whom I have told you often and now tell you even weeping, that they are the enemies of the Cross of Christ." So these two things, "going and weeping," ought to be characteristic of every true preacher of the Word, and of all teachers and other servants of the Lord Jesus Christ whose office is of the like kind. I often feel that I can adopt Doddridge's language and say:
-"Arise, my most tender thoughts, arise!
 
-To torrents melt my streaming eyes
+> Arise, my most tender thoughts, arise!  
+> To torrents melt my streaming eyes  
+> And you, my heart, with anguish feel  
+> Those evils which you cannot heal!  
+> See human nature sunk in shame.  
+> See scandals poured on Jesus' name!  
+> The Father wounded through the Son;  
+> The world abused and souls undone.  
+> See the short course of vain delight  
+> Closing in everlasting night;  
+> In flames that no abatement know  
+> Though briny tears forever flow.  
+> My God, I feel the mournful scene.  
+> My heart yearns over dying men  
+> And gladly my pity would reclaim  
+> And snatch the firebrands from the flame!  
+> But feeble my compassion proves,  
+> And can but weep where most it loves!  
+> Your own all-saving arms employ,  
+> And turn these drops of grief to joy.   
 
-And you, my heart, with anguish feel
-
-Those evils which you cannot heal!
-
-See human nature sunk in shame.
-
-See scandals poured on Jesus' name!
-
-The Father wounded through the Son;
-
-The world abused and souls undone.
-
-See the short course of vain delight
-
-Closing in everlasting night;
-
-In flames that no abatement know
-
-Though briny tears forever flow.
-
-My God, I feel the mournful scene.
-
-My heart yearns over dying men
-
-And gladly my pity would reclaim
-
-And snatch the firebrands from the flame!
-
-But feeble my compassion proves,
-
-And can but weep where most it loves!
-
-Your own all-saving arms employ,
-
-And turn these drops of grief to joy." This combination, "going and weeping," should be conspicuous, not only in those who plead with men for God, but also in those who plead with God for men. The best praying consists in "going" "boldly unto the Throne of Grace" and pleading there, yet they who win most from God are those whose hearts are most deeply affected, those in whom there is the "weeping" as well as the "going." Such was the prayer of Jacob in that great night of wrestling concerning which the Prophet Hosea says, "He had power over the Angel and prevailed. He wept and made supplication unto Him." Weeping is a wondrous help to those who would find their way to the heart of God! So, dear Brothers and Sisters in Christ, pour out your hearts before Him, pour them out like water before the Lord and when your heart is breaking for the longing that it has, even if you shed no outward tears, you have learned the sacred art of praying and you shall receive what you have asked in so far as it is according to the will of God!
+This combination, "going and weeping," should be conspicuous, not only in those who plead with men for God, but also in those who plead with God for men. The best praying consists in "going" "boldly unto the Throne of Grace" and pleading there, yet they who win most from God are those whose hearts are most deeply affected, those in whom there is the "weeping" as well as the "going." Such was the prayer of Jacob in that great night of wrestling concerning which the Prophet Hosea says, "He had power over the Angel and prevailed. He wept and made supplication unto Him." Weeping is a wondrous help to those who would find their way to the heart of God! So, dear Brothers and Sisters in Christ, pour out your hearts before Him, pour them out like water before the Lord and when your heart is breaking for the longing that it has, even if you shed no outward tears, you have learned the sacred art of praying and you shall receive what you have asked in so far as it is according to the will of God!
 
 Beloved, it is a sad thing to have to say, yet it is true, that this "going and weeping" ought to be very conspicuous in backsliders. I am always glad to see backsliders returning to their first love and restored to fellowship with the Lord Jesus Christ. But there are one or two things that I always like to see about such people, the absence of all arrogance and self-justification and the presence of deep humility both towards God and towards His Church, for their offense has been against God's people as well as against God, Himself. When a Church member falls into sin, all the members have to suffer in their repute among men and they also have to suffer in their power with God and, therefore, the returning of a backslider should always be accompanied by manifest signs of the deepest contrition. Many speak of David's sin, but say nothing of David's penitence. Nathan rebuked him in a fashion that very few kings would have endured, yet there was no anger in David's heart against him for the stern way in which he told him of his faults. The fifty-first and other penitential Psalms show how melted by contrition David's soul was, groans, sobs and sighs escaped from his heart instead of his former joyous music. There was a "going" and a "weeping" on the part of the repenting backslider! If he had known George Herbert's quaint lines, he might have said:
 "O who will give me tears? Come all you springs, Dwell in my head and eyes, come, clouds and rain! My grief has need of all the watery things That Nature has produced. Let every vein Suck up a river to supply my eyes! My weary weeping eyes are too dry for me Unless they get new conduits, new supplies, To bear them out and with my state agree. What are two shallow fords, two little spouts Of a lesser world? The greater is but small, a narrow cupboard for my griefs and doubts, Which need provision in the midst of all. Verses, you are too fine a thing, too wise For my rough sorrows. Cease, be dumb and mute! Give up your feet and running to my eyes, And keep your measures for some lover's lute, Whose grief allows him music and a rhyme, for mine excludes both measure, tune and time. Alas, my God!"
@@ -98,7 +79,7 @@ If nothing else will make us weep, there is one other reflection that should bri
 
 Oh, how could I ever offend such a God as this? Shame on my heart! Gladly would I smite you that you could ever be an enemy to One who loved you before the day-star knew its place. And O base spirit that does not now serve God better, more ardently, more passionately, more perfectly, seeing that all this love has been spent on you! Beloved, God grant that we may realize, in all its sweetness, the meaning of our text, "going and weeping," and unto Him shall be glory forever and ever. Amen.
 
-## Exposition by C. H. Spurgeon: Ephesians 1:1-14.
+## Exposition by C. H. Spurgeon: Ephesians 1:1-14
 
 In this chapter we see what Paul, writing under the Inspiration of the Holy Spirit, has to say about the possessions and privileges of Believers in the Lord Jesus Christ.
 
