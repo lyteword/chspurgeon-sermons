@@ -1,7 +1,7 @@
 # Sermon 3039 | The King's Sharp Arrows
 
-> Your arrows are sharp in the heart of the King's enemies; whereby the people fall under You.
-> Psalm 45:5
+> Your arrows are sharp in the heart of the King's enemies; whereby the people fall under You.  
+> Psalm 45:5  
 
 When our Lord Jesus Christ is represented as a King, we delight to think of Him as the Prince of Peace whose dominion shall put an end to all war and make it unnecessary for the nations of the earth to learn the arts of war any longer. Meanwhile, however, in this present state, evil is in the world, sin is all around us and thus sin is the curse of mankind. Christ, therefore, for our good, is a fighting King, combating evil and contending against sin in every shape and form and, in that aspect, we regard Him as standing in His glorious war chariot, riding through the world in the power of His Gospel, smiting right and left with the great sword of the Spirit and, at the same time, shooting His sharp arrows of Gospel Truth to the very ends of the earth! The Truth of God is the weapon that Christ uses. The weapons of His warfare are not carnal any more than are ours. The Truth of God is His sword and the Truth of God is His arrow!
 
@@ -15,8 +15,8 @@ There are many of them, but I shall only mention such as are most usually felt w
 
 This Truth of God is, indeed, a sharp arrow, and well do I remember when first it pierced my heart and conscience. I felt that I could not stand the test of such a Law for a single moment and that if called to stand before God's bar to be tried on such grounds, I would not require a trial, but must plead guilty at once, or stand there in silence to hear His righteous sentence of condemnation.
 
-> How long beneath the Law I lay In bondage and distress! I toiled the precepts to obey, But toiled without success. 
-> Then, to abstain from outward sin, Was more than I could do. Now, ifI feel its power within, I feel I hate it too. 
+> How long beneath the Law I lay In bondage and distress! I toiled the precepts to obey, But toiled without success.  
+> Then, to abstain from outward sin, Was more than I could do. Now, ifI feel its power within, I feel I hate it too.  
 
 Another of the Truths connected with Christ's Gospel that is like a sharp arrow is this: the utter impossibility of self-justification. This is one of the Truths of the Gospel that we must never fail to proclaim: "By the deeds of the Law there shall no flesh be justified in His sight." Having offended against God, you cannot expiate the past by any actions of yours. If you should henceforth keep the Law without a single breach or slip, the fact remains that the sentence of condemnation has already gone forth against you! It is often said that this life is a life of probation, but that is not true. We have passed our probation! We have been proved guilty and we are already condemned! And we shall abide under that sentence of condemnation unless we have help outside of ourselves to rescue us from it. Lost, lost, lost, utterly lost is the entire human race apart from the Divine and supreme power which has been put forth in the Person of Jesus Christ! Well do I remember when I first learned that no works of mine, no repentance, no prayers, and no tears could deliver me from the horrible pit into which I was cast through sin! Then was I pierced, indeed, as with a barbed shaft that went right through my soul to the killing of all my proud hopes and boasts! May such an arrow from the King now pierce to the heart anyone here who still cherishes any hope of self-justification!
 
@@ -29,14 +29,14 @@ Christ's words are clear and positive, "You must be born-again." Some perhaps as
 
 Another arrow from the bow of King Jesus is the Sovereignty of God. God has the right to bestow His mercy where He wills, or to withhold it if He so pleases. His Grace is in no sense the discharge of a debt which He owes to us. If He had determined to destroy the whole race of men, we must admit that they had deserved such a doom. As He has chosen to save some, it is His Grace that has done it, so let Him be forever adored for it! The Apostle Paul, writing under Inspiration, quotes God's words to Moses, "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion," and adds, "So then it is not of him that wills, nor of him that runs, but of God that shows mercy." What humbling words are these! They make the sinner lie all broken and helpless at the feet of the God whom he has offended. They tell him that he cannot save himself, and that now his only hope lies absolutely in the Sovereign will of that God who can destroy him in a moment if He so wills! Men do not like this sharp arrow and will do anything to get rid of it. They will try to deny the truth of it if they can, but let the Lord once drive this arrow right home through the heart and conscience and I do not know any shaft out of the Divine quiver that is more killing to human pride and more deadly to self-righteousness than this eternal Truth of God which has already brought many to Christ and will bring many more, God blessing it.
 
-> Praise the God of all creation, 
-> Praise the Father's boundless love! 
-> Praise the Lamb, our expiation, 
-> Priest and King enthroned above! 
-> Praise the Fountain of salvation, 
-> Him by whom our spirits live.
-> Undivided adoration 
-> To the one Jehovah give. 
+> Praise the God of all creation,  
+> Praise the Father's boundless love!  
+> Praise the Lamb, our expiation,  
+> Priest and King enthroned above!  
+> Praise the Fountain of salvation,  
+> Him by whom our spirits live.  
+> Undivided adoration  
+> To the one Jehovah give.  
 
 Further, the Lord Jesus Christ often drives the arrow of conviction home in this form: the aggravation of the sin of men when they sin against light and against love. It is no little evil to break God's Law at all, but to do it knowingly is far worse than to do it ignorantly. To do it after many admonitions to the contrary, to continue to offend God after being frequently rebuked, to refuse all the invitations of His mercy, to resist the strivings of His Spirit, to be resolved to be lost, to be resolute upon damnation, this is the very worst form of sin! There are some of you in whose hearts this arrow might well find a place, for you were brought up by godly parents, you were dandled upon the knees of piety, you heard the name of Jesus among the first sounds that saluted your infant ears. You were carried to the House of God before you were old enough to walk there, and your mother's tears have fallen upon your infant brow as she has wept out her prayers to God that the soul of her child might be precious in His sight.
 
