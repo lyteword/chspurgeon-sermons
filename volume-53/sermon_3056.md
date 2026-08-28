@@ -1,7 +1,7 @@
 # Sermon 3056 | The Guilt and the Cleansing
 
-> Purge me with hyssop, and/shall be clean: wash me, and/shall be whiter than snow.
-> Psalm 51:7
+> Purge me with hyssop, and/shall be clean: wash me, and/shall be whiter than snow.  
+> Psalm 51:7  
 
 You know how David had sinned. To the sin of adultery he had added that of murder. David felt like one who was shut out from God and was unworthy to approach Him. He could not be content to remain in such a condition. He longed to be reconciled to God and he remembered that he had sometimes seen a man who had the leprosy put out of the city as an unclean person, or he had seen one who had defiled himself by touching a corpse shut out for a time from all communion with those who drew near to worship God. "Ah," he thought, "that is just as I am, I am unworthy to appear before God, for I am spiritually unclean."
 
@@ -52,10 +52,10 @@ Once more, in what way is Christ able thus to cleanse? I answer, in a perfect an
 
 "Oh!" says one, "but, simple as it is, it seems too hard for me, I cannot believe!" Sinner, what can you not believe? Can you not believe that if Jesus Christ took human sin and was punished for it, God can be just in forgiving it? Why, you can surely believe that! You say that you cannot believe, that is, you cannot trustChrist! Why, poor Soul, I should find it the hardest work in the world if I were to try not to trust Him, for He is such a precious Savior, such a mighty Savior that I can say with John Hyatt that I would not only trust Him with my one soul, but with a million souls if I had them! Yet it may be that you do not understand what believing is. It is not doinganything! It is leaving off doing. It is just believing that Christ did it all.
 
-> Nothing, either great or small, 
-> Nothing, Sinner, no;
-> Jesus did it, did it all 
-> Long, long ago! 
+> Nothing, either great or small,  
+> Nothing, Sinner, no;  
+> Jesus did it, did it all  
+> Long, long ago!  
 
 Christ is worthy of being trusted. Rely upon Him! God give you the Grace to do so and you are saved! Remember what we said the other night, there is all the difference in the world between the religion that is made up of, "Do, do," and that other religion that is spelt "D-o-n-e, done." He who has the religion of, "It is all done," loves God out of gratitude and serves Him because he is saved. But he who has the religion of "Do" is always a slave, never gets salvation, but perishes in his doings, as they deserve to do who will look to themselves instead of looking to Christ! May the Lord now command His own blessing for Jesus' sake! Amen.
 
