@@ -68,6 +68,7 @@ A loving Father waits with outstretched arms to welcome the returning prodigal t
 Hymns from "Our Own Hymn Book",509, 473, 514.
 
 ## Exposition by C. H. Spurgeon: 2 Thessalonians 1; 2:1-4
+
 Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians in God our Father and the Lord Jesus Christ Grace unto you, and peace, from God our Father and the Lord Jesus Christ. All nations have their special forms of salutation and this is the Christian's greeting to his fellow Christians: "Grace unto you, and peace." How much there is in this prayer! "Grace," the free favor of God, the active energy of the Divine Power. And, "peace," reconciliation to God, peace of conscience, peace with all men! My Brothers and Sisters, what better things could I desire for you, and what better things could you wish for your best beloved friends than these, "Grace unto you, and peace from God our Father and the Lord Jesus Christ"?
 
 We are bound to thank God always for you, brethren. We do not feel this bond as much as we ought. We often feel ourselves bound to grumble and complain, but I question whether we think enough about being bound to praise God. And if we do not thank God as we ought for ourselves, it is little marvel if we are very slack in the duty of thanking Him for others. Herein, then, let us imitate this devout Apostle and let us consider ourselves bound to always thank God for our Brothers and Sisters in Christ.
