@@ -52,6 +52,7 @@ And when the Lord will bring out any that shall really fear Him and do anything 
 Oh, how great your sin has been, my Hearers! But Jesus Christ is still greater! You have gone deeply into sin, but the arm of Mercy can reach you! You have wandered far, but the eyes of Love can see you and the voice of Love calls to you now, "Come, come, come and welcome, come and welcome!" Come just as you are and you will not be cast away, but be accepted in the Beloved! "There is forgiveness with You, that You may be feared," and none fear, and love, and bless, and praise God as much as those who know that there is forgiveness with Him!
 
 ## Exposition by C. H. Spurgeon: Psalm 145
+
 When you get to the one hundred and forty-fifth Psalm, you enter the Beulah Land of the Psalms. Henceforth the time of the singing of birds is come and you go from one Hallelujah to another! In the Hebrew, this is one of the alphabetical Psalms, but one letter (nun) is omitted, perhaps, as Dr. Bonar suggests, "we must be kept from putting stress on the mere form of the composition." Those ancient singers sang their way through the alphabet from a to Z, and it is also well for us to begin to praise the Lord while we are yet children, and to keep on praising Him till we get to the "Z" in the very hour of death, gasping His praises till we get into eternity:
 > My God, I'll praise You while I live, 
 > And praise You when I die! 
