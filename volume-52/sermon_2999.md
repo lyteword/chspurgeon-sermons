@@ -72,6 +72,7 @@ Once more, remember the love of God in Christ Jesus. I heard, the other day, of 
 God bless you, and help you to trust in Jesus, and His shall be the praise! Amen.
 
 ## Exposition by C. H. Spurgeon: John 6:1-14; 30-45
+
 After these things Jesus went over the Sea of Galilee, which is the sea of Tiberias. And a great multitude followed Him, because they saw His miracles which He did on them that were diseased. And Jesus went up into a mountain, and there He sat with His disciples. And the Passover, a feast of the Jews, was near. When Jesus then lifted up
 
 His eyes and saw a great company come unto Him, He said unto Philip, Where shall we buy bread, that these may eat? And this He said to test him: for He Himself knew what He would do. That verse is worth thinking over. How often does Christ seem to ask us riddles and place us in difficulties, so that we begin to say, "What will come of this? How shall we escape from this temptation, or how shall we stand under this trial?" He Himself knows what He will do and it is a very blessed thing when our faith, being tried, shows itself to be strong enough to leave the burden with Him who can bear it, and to leave the difficulty with Him who can meet it! "He Himself knew what He would do."
