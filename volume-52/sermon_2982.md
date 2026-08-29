@@ -102,6 +102,7 @@ When you know this and feel it to be true, then come to the Lord's Table and joi
 Hymns from "Our Own Hymn Book",421, 439, 300.
 
 ## Exposition by C. H. Spurgeon: Matthew 26:20-30; 1 Corinthians 11:20-26
+
 Now when the evening was come, He sat down with the twelve. Why so many people celebrate the Lord's Supper in the morning, I cannot imagine, unless it is that they desire to do everything contrary to their Lord's command and example! "When the evening was come, He sat down with the twelve." I do not think there is any binding ordinance making the evening the only time for the observance of this ordinance, but to make the morning the only time is certainly not according to the Word of God!
 
 And as they did eat, He said, Verily I say unto you, that one of you shall betray Me. And they were exceedingly sorrowful. There was enough to make them sorrowful in the fact that their Lord had just told them that one of the 12 who were His bodyguard, His closest companions, His nearest and dearest friends, would betray Him. "They were exceedingly sorrowful."
