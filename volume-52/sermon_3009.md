@@ -71,6 +71,7 @@ Once more and I am through. Is not this an incentive for us, who profess to be s
 And now, as we come to the Lord's Table, let us have before us this vision of our glorious Samson achieving His mighty victory! And while we weep for sin, let us praise His superlative power and love that have worked such marvels for us. The Lord give us to enjoy His Presence at His table, and He shall have the praise! Amen.
 
 ## Exposition by C. H. Spurgeon: Psalm 51
+
 A Psalm of David, when Nathan the Prophet came to him and rebuked him, in the name of God, for his great sin with Bathsheba.
 
 Have mercy upon me, O God, according to Your loving kindness: according unto the multitude of Your tender mercies blot out my transgressions. This is not a Psalm to be sung to the joyous music of the harp and the viol, but rather to the minor music of sighs, groans and tears. You must have the picture of weeping David before your mind's eye if you would really get to the heart and soul of his language here. There is only one thing on the Psalmist's heart, and that is the consciousness of his great sin which seemed to swallow up everything else. He feels that he must have that sin forgiven, he cannot rest until he knows that it is pardoned.
