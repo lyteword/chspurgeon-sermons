@@ -60,6 +60,7 @@ The first moment of thus trusting God is the beginning of a new life, a life whi
 While I am away, listen with all earnestness to other heralds of the Cross, and pray the Lord to bless their messages to your salvation, if mine have not been so blest. I pray that by some instrumentality, you may all be saved in the Lord with an everlasting salvation. Amen.
 
 ## Exposition by C. H. Spurgeon: The General Epistle of Jude
+
 Jude. That is to say Judas, not Iscariot.
 
 The servant of Jesus Christ, and brother of James. He does not say, "and brother of our Lord," for we know that James and Judas were, both of them, among the Lord's kinsman according to the flesh. But now, after the flesh, knows he Christ no more, but is content and happy to be known as "the servant of Jesus Christ, and brother of James."
