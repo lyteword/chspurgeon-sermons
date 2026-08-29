@@ -60,6 +60,7 @@ O Sinner, nothing is impossible with God! If you are sick and near death, Jesus 
 Oh, that He would bless this word to you! Christ is God as well as Man. He suffered on the Cross in the place of sinners, but He lives after the suffering has been accomplished! He lives as the Savior who is mighty to save and whoever will take Him as his or her own Savior shall find it to be so this very hour!
 
 ## Exposition by C. H. Spurgeon: Mark 1:14-35
+
 Now after John was put in prison, Jesus came into Galilee, preaching the Gospel of the Kingdom of God. When one servant of God is laid aside, it is a call to the rest to be the more earnest. So after John the Baptist was put into prison, "Jesus came into Galilee." Sometimes a loss may be a gain, and if the loss of John was the means of bringing out Jesus, certainly both the Church and the world were the gainers! "Jesus came into Galilee, preaching the Gospel of the Kingdom of God."
 
 And saying, The time is fulfilled, and the Kingdom of God is at hand: repent you, and believe the Gospel It is clear, from this passage, that our Lord exhorted men to repent and to believe the Gospel. There are some who profess to be His followers who will not allow us to do this. We may teach men, and warn them, they say, but we must not exhort them to repent and believe! Well, as the contention of these people is not in accordance with the Scriptures, we are content to follow the Scriptures and to do as Jesus did, so we shall say to sinners, "Repent you, and believe the Gospel."
