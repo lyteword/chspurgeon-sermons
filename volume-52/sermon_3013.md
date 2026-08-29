@@ -56,6 +56,7 @@ Perhaps we, as a Church, have been brought to our present state for a great purp
 This Church cries tonight, "I sleep." But she can also say, "my heart wakes." The heart of the Church is still awake! I think my voice to you tonight is an echo of the voice of your Beloved. Sisters, Brothers, bestir yourselves! Let us cry mightily unto God! Let us labor for the winning of souls! Let us pant and pray for a great increase to our membership and God will save sinners, in answer to our prayer, and His name shall be glorified forever and ever! Amen.
 
 ## Exposition by C. H. Spurgeon: Exodus 12:1-27
+
 And the Lord spoke unto Moses and Aaron in the land of Egypt, saying, This month shall be unto you the beginning of months: it shall be the first month of the year to you. And for this reason that, now, as a nation, they were to begin their separate history, separate in existence from all the rest of mankind!
 
 Speak you unto all the congregation of Israel, saying, In the tenth day of this month they shall take to them every man a lamb, according to the house of their fathers, a lamb for a house: and if the household is too little for the lamb, let him and his neighbor next unto his house take it according to the number of the souls; every man according to his eating shall make your count for the lamb. The separation of the lamb was to take place some four days before the time of its slaughter. Probably it was kept in the house, according to the Jewish tradition it was so, and they would hear it bleating and be reminded of the purpose for which it was to be slain.
