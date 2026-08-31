@@ -1,7 +1,7 @@
 # Sermon 2993 | "That King Ahaz"
 
-> And in the time of his distress did he trespass yet more against the Lord: this is that king Ahaz.
-> 2 Chronicles 28:22
+> And in the time of his distress did he trespass yet more against the Lord: this is that king Ahaz.  
+> 2 Chronicles 28:22  
 
 It is absolutely certain, dear Friends, that whatever our personal characters may be, we shall have to know, by practical experience, the meaning of the word, "trouble." Saint or sinner, "man is born unto trouble, as the sparks fly upward." The road to Heaven is rough and the path to Hell is not always smooth. There are some tribulations which belong especially to the people of God, yet it is also true that "many sorrows shall be to the wicked." If a man, trying to escape from sorrow, should take the wings of the morning and fly to the uttermost parts of the sea, he would find that sorrow was even there upon the sea! Should he go to the frozen regions of the North, he would find sorrow there, for there have some of the fondest human hopes been wrecked. Let him journey to the sultry South and trouble shall pursue him there, for plagues, fevers and disease haunt that region and the gates of death are near. Until we mount to Heaven, we shall never be able to escape from sorrow and sighing, only there shall we obtain joy and gladness, when our somber companions shall have fled away forever.
 
@@ -58,12 +58,12 @@ I am resolved to try For if I stay away I know, I must forever die.
 Dear Friend, give me your hand! I feel that I may rejoice over you, for if God the Holy Spirit has put it into your heart to say, "I am resolved to try," or, better still, "I am resolved to trust Jesus Christ as my Savior, though He slays me, I will trust in Him," depend upon it, He will not slay you! He would not do so even if you were the blackest of sinners, one who had sinned till you had become the vilest of all offenders! Jesus casts out none who come to Him by faith. Do, I pray you, now say in your soul, "God helping me, I will now come to Him, and who can tell whether there may not be a harp in Heaven even for me, and a crown of glory for me? I trust that I may yet stand with all the blood-washed host before the Throne of God above and join in singing the everlasting song of praise to Father, Son, and Holy Spirit. And even here on earth, I may be among the children of God, I may be forgiven, I may be saved, I may be accepted in the Beloved." If you talk thus, and mean all that you say, I say unto you, not only that this may be the case with you, but that it may be the case with you this very hour: "Oh, believe the promise true, God to you His Son has given!"
 
 A loving Father waits with outstretched arms to welcome the returning prodigal to His heart. Jesus waits by the fountain filled with His precious blood to wash you from all your sinful stains. The Holy Spirit is working in you even now: 'tis He who bids you come! Let not Satan persuade you that it is too late for you to come to Jesus, it is never too late while the Messenger of Mercy continues to speak to you! Let not the devil convince you that you are too sinful to be saved, often the greatest sinners are the first to be saved! If the devil tells you that you are an extraordinary sinner, tell him that Christ is such an extraordinary Savior that He can save all sorts of sinners, ordinary and extraordinary, too! Say not in your heart that you cannot be saved, for, high as the heavens are above the earth, so high are God's thoughts above your thoughts and His ways above your ways! My poor Friend, if you feel your need of a Savior, join with me and with all the people of God here in singing this verse! Sing it from your heart and the great transaction's done:
-> Nothing in my hands I bring: 
-> Simply to Your Cross I cling! 
-> Naked, come to You for dress:
-> Helpless, look to You for Grace! 
-> Foul, I to the Fountain fly:
-> Wash me, Savior, or I die! 
+> Nothing in my hands I bring:  
+> Simply to Your Cross I cling!  
+> Naked, come to You for dress:  
+> Helpless, look to You for Grace!  
+> Foul, I to the Fountain fly:  
+> Wash me, Savior, or I die!  
 
 Hymns from "Our Own Hymn Book",509, 473, 514.
 

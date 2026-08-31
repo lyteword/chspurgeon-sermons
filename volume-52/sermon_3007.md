@@ -45,10 +45,10 @@ I am at a loss to give any answer. I can suppose that without beating about the 
 I will ask you a few questions, not so much by way of answering the enquiry, as to show how difficult it is to answer it. "Why do you gad about so much?" Has your Lord given you any cause of offense? Has He been unkind to you? Has the Lord Jesus spoken to you like a tyrant and played the despot over you? Must you not confess that in all His dealings with you in the past, love, unmingled love has been His rule? He has borne patiently with your ill-manners when you have been foolish. He has given you wisdom and He has not upbraided you, though He might have availed Himself of the opportunity of that gift, as men so often do, to give a word of upbraiding at the same time. He has not turned against you, or been your enemy. Why, then, are you so cold to Him? Is this the way to deal with One so tender and so good? Let me ask you, has your Savior changed? Will you dare to think He is untrue to you? Is He not, "the same yesterday, and today, and forever?" That cannot, then, be an excuse for your unfaithfulness! Has He been unmindful of His promise? He has told you to call upon Him in the day of trouble and He will deliver you, has He failed to do so? It is written, "No good thing will He withhold from them that walk uprightly." Has He withheld a really good thing from you when you have walked uprightly? If, indeed, He had played you falsely, your excuse for deserting Him might claim a hearing, but you dare not say this! You know that He is faithful and true.
 
 "Why do you gad about so much?" Have you found any happiness in gadding about. I confess, sorrowfully, to wandering often and wandering much, but I am ready enough to acknowledge that I get no peace, no comfort by my wanderings, but, like a forlorn spirit, I traverse dry places, seeking rest and finding none. If, for a day, or a part of a day, my thoughts are not upon my Lord, the hour is dreary and my time hangs heavily. And if my thought is spent upon other topics even connected with my work in the Church of God, if I do not soon come back to Him, if I have no dealings with Him in prayer and praise. I find the wheels of my chariot taken off and it drags along heavily, while I cry to my Lord:
-> The day is dark, the night is long, 
-> Unblessed with thoughts of You 
-> And dull to me the sweetest song, 
-> Unless its theme is You. 
+> The day is dark, the night is long,  
+> Unblessed with thoughts of You  
+> And dull to me the sweetest song,  
+> Unless its theme is You.  
 
 The soul that has once learned to swim in the river of Christ, will, when His Presence is withdrawn, be like a fish laid by the fisherman on the sandy shore, it begins to palpitate in dire distress and, before long, it will die, if not again restored to its vital element. You cannot get the flavor of the Bread of Heaven in your mouth and afterwards contentedly feed on ashes! He who has never tasted anything but the brown, gritty cakes of this world may be very well satisfied with them, but he who has once tasted the pure white Bread of Heaven can never be content with the old diet. It spoils a man for satisfaction with this world to have had heart-ravishing dealings with the world to come. I mean not that it spoils him for practical activity in it, for the heavenly life is the truest life even for earth, but it spoils him for the sinful pleasures of this world, it prevents his feeding his soul upon anything but the Lord Jesus Christ's sweet love. Jesus is the chief ingredient of all his joy and he finds that no other enjoyment beneath the sky is worth a moment's comparison with the King's wines on the lees, well refined!
 
@@ -79,15 +79,15 @@ Well, then, what does he do? He resolves to find another shelter to exchange Ass
 You may gad about as long as you will, but you will never gain peace except by simple faith in Jesus! All the while you are roaming so far, the Gospel is near you, where you now are, in your present state, available to you in your present condition, now, for, "now is the accepted time; behold, now is the day of salvation." O Sinner, you are thinking to bring something to the Most High God and yet He bids you come "without money and without price." Your Father says to you, "Come now, and let us reason together: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." He declares to you the way of salvation, "Believe on the Lord Jesus Christ, and you shall be saved." He calls to you in His gracious Word and says, "Whoever will, let him take the water of life freely." He bids you trust in His Son, who is the appointed Savior, for He has laid help upon One that is mighty! He thus addresses you, "Incline your ears and come unto Me: hear, and your soul shall live; and I will make an Everlasting Covenant with you, even the sure mercies of David." You want pardon and Jesus cries from the Cross, "Look unto Me, and be you saved, all the ends of the earth." You want justification and the Father points you to His Son, and says, "By His knowledge shall my righteous Servant justify many, for He shall bear their iniquities." You want salvation and He directs you to Him who is exalted on high to give repentance and remission of sins. The God of Heaven bids you look to His dear Son and trust Him!
 
 Though I preach this Gospel almost every day of the week, and scarcely a day passes without my telling the old, old story, yet it is always new. If you who hear me so often, grow weary of it, it is the fault of my style of putting it, for, to myself, it seems fresher every day! To think that the tender Father should say to the prodigal son, "I ask nothing of you. I am willing to receive you, sinful, guilty, vile as you are, though you have injured Me and spent My substance with harlots. Though you have fed swine and though you are fit to be nothing but a swine-feeder all your days, yet come, just as you are, to My loving bosom. I will rejoice over you and kiss you, and say, 'Bring forth the best robe, and put it on him; and put a ring on his hand, and shoes on his feet!'" Sinner, God grant you Grace to end all your roamings in your Father's bosom! "Why do you gad about so much?" Renounce all other hopes and fly away to the wounds of Jesus. "Why do you gad about so much to change your way?" Listen and obey these closing lines:
-> Wearysouls who wander wide 
-> From the central point of bliss 
-> Turn to Jesus crucified, 
-> Fly to those dear wounds of His! 
-> Sink into the purple flood 
-> Rise into the life of God. 
-> Find in Christ the way of peace, 
-> Peace unspeakable, unknown! 
-> By His pain He gives you ease, 
-> Life by His expiring groan. 
-> Rise, exalted by His fall:
-> Find in Christ your All in All.
+> Wearysouls who wander wide  
+> From the central point of bliss  
+> Turn to Jesus crucified,  
+> Fly to those dear wounds of His!  
+> Sink into the purple flood  
+> Rise into the life of God.  
+> Find in Christ the way of peace,  
+> Peace unspeakable, unknown!  
+> By His pain He gives you ease,  
+> Life by His expiring groan.  
+> Rise, exalted by His fall:  
+> Find in Christ your All in All.  

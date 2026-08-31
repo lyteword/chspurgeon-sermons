@@ -1,7 +1,7 @@
 # Sermon 3015 | The Two Debtors
 
-> There was a certain creditor who had two debtors: the one owed one hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. Tell me therefore, which of them will love him more?
-> Luke 7:41,42
+> There was a certain creditor who had two debtors: the one owed one hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. Tell me therefore, which of them will love him more?  
+> Luke 7:41,42  
 
 It is not wise to compare ourselves with our fellow men. It is comparing one incorrect standard with another and is very apt to mislead. Still, as men will do this, as they will sail upon this tack, we will, for the moment, do the same with the view of correcting some of their mistakes.
 

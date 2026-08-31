@@ -1,7 +1,7 @@
 # Sermon 2991 | What We Have, and Are to Have
 
-> Now our Lord Jesus Christ Himself, and God, our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work.
-> 2 Thessalonians 2:16,17
+> Now our Lord Jesus Christ Himself, and God, our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work.  
+> 2 Thessalonians 2:16,17  
 
 Every man who is engaged in a good work desires that it may be lasting. "Establish You the work of our hands upon us; yes, the work of our hands establish You it," was not only a very appropriate prayer from the mouth of Moses, who had led the children of Israel through the wilderness, but it is also a very appropriate prayer to be presented by every minister of Jesus Christ. We desire to build that which will endure the fire of the great testing day, not wood, hay and stubble, but gold, silver and precious stones.
 
@@ -36,10 +36,10 @@ There must be thoughts of love to man in the heart of God since His only begotte
 But look at His Person, not merely as Man, but as the God-Man who has offered a complete Atonement for His people's guilt. Up yonder, enthroned in Glory, is your Savior, not merely as Man, but as the Mediator between God and men, who has completed His great Sacrifice, accomplished all His Father's purposes and fulfilled His Father's will so that He could truly say, "It is finished." Look at Him, by faith, as the glorified Man, glorified because, having descended into the grave bearing His people's sin, He came up out of the grave without sin. He "was delivered for our offenses, and was raised again for our justification." And His Resurrection was the proof that He had: "To the utmost farthing paid Whatever His people owed."
 
 Surely it should bring the sweetest consolation to you to think of Jesus Christ as the Representative of His people, gone up into Glory and soon to come to this earth again to reign "before His ancients gloriously," when the bodies of all His saints shall be fashioned like unto His glorious body, and so shall be "forever with the Lord." Brothers and Sisters, may "our Lord Jesus Christ Himself manifest Himself unto you with those dear upraised hands of His, with the scars still visible! And as you gaze upon Him, may you realize that He is giving to you "everlasting consolation and good hope through Grace" and, therefore, may your hearts be comforted and may you be established in every good word and work! How can you be moved from your steadfastness so long as you can see Him? How can you ever depart from Him who has won your affection and holds your soul fast with cords of a man, and bands of love? Surely you must cling to Him forever and ever! I feel that I must say with the poet:
-> A very wretch, Lord! I should prove, 
-> Had I no love for Thee:
-> Rather than not my Savior love, 
-> Oh, may I cease to be! 
+> A very wretch, Lord! I should prove,  
+> Had I no love for Thee:  
+> Rather than not my Savior love,  
+> Oh, may I cease to be!  
 
 The Apostle, however, does not let us forget that in union with our dear Redeemer, at one with Him in every purpose of Divine Grace, is "God, our Father, who has loved us." And he bids us think not so much of His Person which we cannot comprehend, as of His love. So, Beloved, let us try to view God our Father in the attitude of loving us. Truly, this is a boundless and unfathomable sea! We can neither fly across it, nor dive into its depths. Remember, Believer, that the Lord loved you long before the foundation of the world. You are so insignificant in the scale of being that if He had quite forgotten you, you might not have wondered. And yet, before the mountains were created, or He had kindled the morning star, in the glass of His decrees He beheld you and even then He loved you! Recollect how Jeremiah was inspired to write, "The Lord has appeared of old unto me, saying, Yes, I have loved you with an everlasting love: therefore with loving kindness have I drawn you." Dwell on that wondrous Truth of God, that God has loved you with an everlasting love. Suck the honey of consolation out of that glorious fact! Surely if your faith is at all in exercise, you will find much sacred sweetness there.
 

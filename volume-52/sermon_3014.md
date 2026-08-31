@@ -1,29 +1,29 @@
 # Sermon 3014 | A Sermon From a Sick Preacher
 
-> Therefore, to you who believe, He is precious.
-> 1 Peter 2:7
+> Therefore, to you who believe, He is precious.  
+> 1 Peter 2:7  
 
 My Brothers and Sisters, I am quite out of order for addressing you tonight. I feel extremely unwell, excessively heavy and exceedingly depressed, and yet I could not deny myself the pleasure of trying to say a few words to you. I have taken a text upon which I think I could preach in my sleep and I believe that if I were dying, and were graciously led into the old track, I could, with my last expiring breath, pour out a heartfelt of utterance upon the delightful verse which I have selected. It happens to be the passage from which I first essayed to speak in public when I was but a boy of sixteen years of age and I am sure it contains the marrow of what I have always taught in the pulpit from that day until now. The words are in the Second Chapter of the First Epistle of Peter, and the seventh verse: " Therefore, to you who believe, He is precious."
 
 We might find "ample room and verge enough" if we were to enlarge upon the preciousness of Christ in His Person as God and perfect Man, His preciousness to His Father, His preciousness to the Holy Spirit, His preciousness to angels and glorified men. We might next speak of Him in the preciousness of His work, showing His preciousness as the Mediator of the New Covenant and at the Incarnate Messenger of that Covenant on earth, His preciseness as working out a perfect righteousness and as rendering a complete expiation. We might dwell upon His preciousness in all His offices, whether as Prophet, Priest, or King, and in all His relationships as Friend, Brother, as Bridegroom. Indeed, we have before us a subject as inexhaustible as the river of God, and as bright as the sapphire Throne! If we should endeavor to show how precious the Well-Beloved is in all respects, we would need eternity in which to complete the task:
-> Precious is the name of Jesus, 
-> Who can half its worth unfold? 
-> Far beyond angelic praises 
-> Sweetly sung to harps of gold. 
-> Precious when to Calvary groaning, 
-> He sustained the cursed tree. 
-> Precious when His death atoning 
-> Made an end of sin for me. 
-> Precious when the bloody scourges 
-> Caused the sacred drops to roll. 
-> Precious when of wrath the surges 
-> Overwhelmed His holy soul! 
-> Precious in His death victorious, 
-> He the host of Hell overthrows, 
-> In His Resurrection glorious, 
-> Victor crowned over all His foes. 
-> Precious, Lord! Beyond expressing, 
-> Are Your beauties all Divine! Glory, honor, power and blessing Be henceforth forever Thine. 
+> Precious is the name of Jesus,  
+> Who can half its worth unfold?  
+> Far beyond angelic praises  
+> Sweetly sung to harps of gold.  
+> Precious when to Calvary groaning,  
+> He sustained the cursed tree.  
+> Precious when His death atoning  
+> Made an end of sin for me.  
+> Precious when the bloody scourges  
+> Caused the sacred drops to roll.  
+> Precious when of wrath the surges  
+> Overwhelmed His holy soul!  
+> Precious in His death victorious,  
+> He the host of Hell overthrows,  
+> In His Resurrection glorious,  
+> Victor crowned over all His foes.  
+> Precious, Lord! Beyond expressing,  
+> Are Your beauties all Divine! Glory, honor, power and blessing Be henceforth forever Thine.  
 
 The wording of the text binds our thoughts to one point. "Therefore, to you who believe, He is precious." It is not so much how precious He is, as how precious He is to you! If you are a Believer, the text affirms that Jesus Christ is, without any adverb to limit the extent of the descriptive word, precious to you!
 
@@ -34,10 +34,10 @@ Notice, attentively, how personally precious Jesus is. There are two persons in 
 Notice, too, that while the text gleams with this vividness of Personality to which the most of professors are blind, it is weighted with a most solid positiveness: "Therefore, to you who believe, He is precious." It does not speak as though He might be or might not be, but "He is precious." There are some things about myself as a Christian which are frequently matters of question. I may gravely question whether I am growing in Grace and under such a doubt I may search my heart to see whether I love my Lord better, or whether I have more fully conquered my sins. But one thing I do not question, namely, that being a Believer in Him, Jesus Christ is unutterably precious to my soul! If you doubt your faith, you may doubt whether Christ is precious to you, but if your faith is certain, the preciousness of Christ to your heart is quite as certain. "He is precious." If the new life is in you, you are as sure to love the Savior as fish love the stream, or the birds the air, or as brave men love liberty, or as all men love their lives! Tolerate no questions here! Allow no debate upon this vital point of your religion! Jesus must be precious to you. Cleanse your eyes if any dust has dimmed your sight of Jesus' preciousness and be not satisfied till, in the language of the spouse, you can say, "My Beloved is the chief among ten thousand." "Yes, He is altogether lovely."
 
 Mark, further, the absoluteness of the text: "Therefore, to you who believe, He is precious." It is not written how precious He is. The text does not attempt, by any form of computation, to measure the price which the regenerate soul sets upon her bosom's Lord. There is no hint that He is moderately precious. It does not even say positively or comparatively precious. I infer, therefore, that I may, if I choose, insert the word, "superlatively." And, certainly, if I did so, there would be no exaggeration, for more dear than light to the eyes, or life to the body, is Jesus to the sanctified heart! Each saint can truthfully sing:
-> Yes, You are precious to my soul, 
-> My transport and my trust! 
-> Jewels to You are gaudy toys 
-> And gold is sordid dust Since no sparkling gems or precious metals, no royal regalia, or caskets of rare jewels can ever equal the value of Jesus, the comparison is vain. We therefore place Him by Himself, alone, and say that He is absolutely precious to Believers. Gold is precious, but the diamond is more so and, in comparison with the diamond, the gold is of small account. The diamond is precious, but give a man a bagful of diamonds of the first water and put him down in a desert, or let him be out on the wild waste of ocean, he would give all his diamonds for a draught of pure water to drink, or a crust of bread to eat, so that, in certain cases, even the excellent crystal would lose its value. In fact, mineral substances are merely arbitrary signs of value, they have but little worth in themselves. Gold in itself is less useful than iron and a diamond of little more account than a piece of glass. They have no absolute intrinsic value which would remain the same under all contingencies. But Christ is absolutely precious! That is to say, nothing can ever match Him, much less excel Him, and He is precious under all circumstances! There never can arrive a time when we shall be compelled to confess His lack of value, or lower our estimate of Him. He is infinitely precious! O my Soul, do you esteem Him so? My Heart, are you sure of this, that unto you He is precious beyond compare? Positively precious? Comparatively precious, though Heaven itself were compared? Superlatively precious beyond all things that can be dreamed of, or imagined? Is He to you essential preciousness, the very standard of all value? Thus it should be, for the text means no less: "Therefore, to you who believe, He is precious."
+> Yes, You are precious to my soul,  
+> My transport and my trust!  
+> Jewels to You are gaudy toys  
+> And gold is sordid dust Since no sparkling gems or precious metals, no royal regalia, or caskets of rare jewels can ever equal the value of Jesus, the comparison is vain. We therefore place Him by Himself, alone, and say that He is absolutely precious to Believers. Gold is precious, but the diamond is more so and, in comparison with the diamond, the gold is of small account. The diamond is precious, but give a man a bagful of diamonds of the first water and put him down in a desert, or let him be out on the wild waste of ocean, he would give all his diamonds for a draught of pure water to drink, or a crust of bread to eat, so that, in certain cases, even the excellent crystal would lose its value. In fact, mineral substances are merely arbitrary signs of value, they have but little worth in themselves. Gold in itself is less useful than iron and a diamond of little more account than a piece of glass. They have no absolute intrinsic value which would remain the same under all contingencies. But Christ is absolutely precious! That is to say, nothing can ever match Him, much less excel Him, and He is precious under all circumstances! There never can arrive a time when we shall be compelled to confess His lack of value, or lower our estimate of Him. He is infinitely precious! O my Soul, do you esteem Him so? My Heart, are you sure of this, that unto you He is precious beyond compare? Positively precious? Comparatively precious, though Heaven itself were compared? Superlatively precious beyond all things that can be dreamed of, or imagined? Is He to you essential preciousness, the very standard of all value? Thus it should be, for the text means no less: "Therefore, to you who believe, He is precious."  
 
 The thought which I desire to bring out into fullest relief is this, that Jesus Christ is, today, continually precious to His people. The moment a soul believes in Jesus, his sins are forgiven. Well, then, the precious blood that washes all sin away, is not that done with? Oh, no! Unto you that believe, though you have believed to the saving of your soul, He is still precious, for your guilt will return to your conscience and you will yet sin, being still in the body, but there is a fountain still filled with blood and thus unto you, experimentally, the cleansing Atonement is as precious as when you first relied upon its expiating power! No, Jesus is more precious to you, now, than when first you were washed in His blood and were made white as snow, for you know your own needs more fully, have proved more often the adaptation of His saving Grace and have received a thousand more gifts at His blessed hands! I fear that some Christians imagine that after believing, all is done, but my Lord Jesus Christ is no old Almanac, used up and of no further service! He is not like the medicine which I took months ago, which then healed me of my disease, so that now I can afford to put the rest of it on the shelf and laugh at it, oh, no! He is still my Divine Medicine! I still need Him and I still have Him. If I believe in Him, I feel I need Him more than I ever did and He is dearer to me than ever He was. If I needed Him before, as a poor guilty sinner, I need Him just as much as a poor needy saint, hanging upon His daily bounty, deriving life perpetually from His life, peace from the virtue of His precious blood and joy from the flowing out of His love to me! Instead of Christ's losing value to the Believer, the pith of the text is this, that you, Believer, when you get Christ and get what Christ brings to you, instead of esteeming Him as though He were an empty vessel out of which you had drained the last drop, prize Him more highly than you ever did before! He is not a gold mine worked out and exhausted, a field reaped of its harvest, or a vineyard where the grape gleaning is done. He still has the dew of His youth, the fullness of His strength, the infinity of His wealth, the perfection of His power!
 

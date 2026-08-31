@@ -1,7 +1,7 @@
 # Sermon 2982 | The Memorable Hymn
 
-> And when they had sung a hymn, they went out to the Mount of Olives.
-> Matthew 26:30
+> And when they had sung a hymn, they went out to the Mount of Olives.  
+> Matthew 26:30  
 
 The occasion on which these words were spoken was the last meal of which Jesus partook in company with His disciples before He went from them to His shameful trial and His ignominious death. It was His farewell supper before a bitter parting, and yet they must sing. He was on the brink of that great depth of misery into which He was about to plunge, and yet He would have them sing "a hymn." It is amazing that He sang and, in a second degree, it is remarkable that they sang. We will consider both these singular facts.
 
@@ -18,8 +18,8 @@ Because, then, it was the settled custom of Israel to recite or sing these Psalm
 May we not venture to suggest another and deeper reason? Did not the singing of "a hymn" at the supper show the holy absorption of the Savior's soul in His Father's will If, Beloved, you knew that at, say, ten o'clock tonight, you would be led away to be mocked, despised and scourged, and that tomorrow's sun would see you falsely accused, hanging, a convicted criminal, to die upon a cross, do you think that you could sing tonight, after your last meal? I am sure you could not unless with more than earth-born courage and resignation your soul could say, "bind the sacrifice with cords, even unto the horns of the altar." You would sing if your spirit were like the Savior's spirit, if, like He, you could exclaim, "Not as I will, but as You will." But if there should remain in you any selfishness, any desire to be spared the bitterness of death, you would not be able to chant the "Hallel" with the Master! Blessed Jesus, how wholly were You given up! How perfectly consecrated! So that, whereas other men sing when they are marching to their joys, You sang on Your way to death! Whereas other men lift up their cheerful voices when honor awaits them, You had a brave and holy sonnet on Your lips when shame, spitting and death were to be Your portion!
 
 This singing of the Savior also teaches us the whole-heartedness of the Master in the work which He was about to do. The patriot warrior sings as he hastens to battle to the strains of martial music He advances to meet the enemy and even thus the heart of our all-glorious Champion supplies Him with song even in the dreadful hour of His solitary agony! He views the battle, but He dreads it not, though in the contest His soul will be "exceedingly sorrowful even unto death." Before it He is like Job's warhorse, "He says among the trumpets, Ha, ha and He smells the battle afar off." He has a baptism to be baptized with and He is straitened until it is accomplished. The Master does not go forth to the agony in the garden with a cowed and trembling spirit, all bowed and crushed in the dust, but He advances to the conflict like a Man who has His full strength about Him, taken out to be a Victim, (if I may use such a figure), not as a worn-out ox that has long borne the yoke, but as the firstling of the bullock, in the fullness of His strength! He goes forth to the slaughter with His glorious undaunted spirit fast and firm within Him, glad to suffer for His people's sake and for His Father's Glory!:
-> For as at first Your all-pervading look Saw from your Father's bosom to the abyss, Measuring in calm presage The infinite descent. 
-> So to the end, though now of mortal pangs Made heir, and emptied of Your Glory a while, With unaverted eyes You meet all the storm. 
+> For as at first Your all-pervading look Saw from your Father's bosom to the abyss, Measuring in calm presage The infinite descent.  
+> So to the end, though now of mortal pangs Made heir, and emptied of Your Glory a while, With unaverted eyes You meet all the storm.  
 
 Let us, O fellow-heirs of salvation, learn to sing when our suffering time comes, when our season for stern labor approaches! Yes, let us pour forth a canticle of deep, mysterious melody of bliss when our dying hour is near at hand! Courage, Brothers and Sisters! The waters are chilly, but fear will not by any means diminish the terrors of the river! Courage, Brothers and Sisters! Death is solemn work, but playing the coward will not make it less so! Bring out the silver trumpet, let your lips remember the long-loved music, and let the notes be clear and shrill as you dip your feet in the Jordan! "Yes, though I walk through the valley of the shadow of death, I will fear no evil: for You are with me; Your rod and Your staff they comfort me."
 
@@ -70,10 +70,10 @@ Come, then, let us have a tune in which we can all unite, but ah, we cannot make
 We should not choose a tune for the Communion Table which is not very soft. These are no boisterous themes with which we have to deal when we tarry here. A bleeding Savior, robed in a vesture dyed with blood, this is a theme which you must treat with loving gentleness, for everything that is coarse is out of place. While the tune is soft, it must also be sweet. Silence, you doubts! Be dumb, you fears! Be hushed, you cares! Why do you come here? My music must be sweet and soft when I sing of Him. But oh, it must also be strong! There must be a full swell in my praise. Draw out the stops, and let the organ swell the diapason! In fullness let its roll of thundering harmony go up to Heaven! Let every note be sounded at its loudest. "Praise you Him upon the cymbals, upon the high-sounding cymbals; upon the harp with a solemn sound." Let the music be soft, sweet and strong.
 
 Alas, you complain that your soul is out of tune. Then ask the Master to tune the heart-strings. Those "Selahs" which we find so often in the Psalms are supposed by many scholars to mean, "Put the harp-strings in tune." Truly we require many "Selahs," for our hearts are constantly unstrung. Oh, that tonight the Master would enable each one of us to offer that tuneful prayer which we so often sing:
-> Teach me some melodious sonnet, 
-> Sung by flaming tongues above! 
-> Frame the mount, oh, fix me on it, 
-> Mount of God's unchanging love! 
+> Teach me some melodious sonnet,  
+> Sung by flaming tongues above!  
+> Frame the mount, oh, fix me on it,  
+> Mount of God's unchanging love!  
 
 We close by enquiring, who shall sing this hymn?
 
@@ -82,10 +82,10 @@ Sitting around the Father's board, we will raise a joyful song, but who shall do
 What? A Christian silent when others are praising His Master? No! He must join in the song. Satan tries to make God's people dumb, but he cannot, for the Lord has not a tongue-tied child in all His family! They can all speak and they can all cry, even if they cannot all sing, but I think there are times when they can all sing, yes, they must, for you know the promise, "Then shall the tongue of the dumb sing." Surely, when Jesus leads the tune, if there should be any silent ones in the Lord's family, they must begin to praise the name of the Lord! After Giant Despair's head had been cut off, Christians and Mr. Greatheart and all the rest of them brought out the best of the provisions and made a feast. And Mr. Bunyan says that after they had feasted, they danced. In the dance there was one remarkable dancer, namely, Mr. Ready-to-Halt. Now, Mr. Ready-to-Halt usually went upon crutches, but for once he laid them aside. "And," says Bunyan, "I guarantee you he footed it well!" This is quaintly showing us that the very sorrowful ones, the Ready-to-Halts, when they see Giant Despair's head cut off, when they see death, Hell, and sin led in triumphant captivity at the wheels of Christ's victorious chariot. I say they feel that even theymust for once indulge in a song of gladness! So, when I put the question tonight, "Who will sing?" I trust that Ready-to-Halt will promise, "I will!"
 
 You have not much comfort at home, perhaps. By very hard work you earn that little. Sunday is to you a day of true rest, for you are worked very cruelly all the week. Those cheeks of yours, poor girl, are getting very pale and who knows but what Hood's pathetic line may be true of you?:
-> Stitch, stitch, stitch 
-> In poverty, hunger, and dirt. 
-> Sewing at once, with a double thread, 
-> A shroud as well as a shirt. 
+> Stitch, stitch, stitch  
+> In poverty, hunger, and dirt.  
+> Sewing at once, with a double thread,  
+> A shroud as well as a shirt.  
 
 But, my Sister, you may surely rejoice tonight in spite of all this! There may be little on earth, but there is much in Heaven. There may be but small comfort for you here apart from Christ but oh when, by faith, you mount into His Glory, your soul is glad! You shall be as rich as the richest tonight if the Holy Spirit shall but bring you to the Table and enable you to feed upon your Lord and Master! Perhaps you have come here tonight when you ought not to have done so. The physician would have told you to stay in your bed, but you persisted in coming up to the House where the Lord has so often met with you. I trust that we shall hear your voice in the song. There appears to have been, in David's day, many things to silence the praise of God, but David was one who would sing. I like that expression of his where the devil seems to come up and put his hand on his mouth and say, "Be quiet!" "No," said David, "I will sing!" Again the devil tries to quiet him, but David is not to be silenced, for three times he puts it, "I will sing, yes, I will sing praises unto the Lord!" May the Lord make you resolve, this night, that you will praise the Lord Jesus with all your heart!
 
@@ -94,10 +94,10 @@ Alas, there are many of you here whom I cannot invite to this feast of song and 
 "Oh," says one, "would God I could believe!" Poor Soul, may God help you to believe now! God took upon Himself our flesh. Christ was born among men and suffered on account of human guilt, being made to suffer "the Just for the unjust, that He might bring us to God." Christ was punished in the place of every man and woman who will believe on Him. If you believe on Him, He was punished for you, and you will never be punished! Your debts are paid, your sins are forgiven. God cannot punish you, for He has punished Christ instead of you, and He will never punish twice for one offense. To believe is to trust. If you will now trust your soul entirely with Him, you are saved, for He loved you and gave Himself for you.
 
 When you know this and feel it to be true, then come to the Lord's Table and join with us, when, after supper we sing our hymn:
-> 'It is finished!'. Oh what pleasure, Do these charming words afford! Heavenly blessings without measure Flow to us from Christ the Lord:
-> 'It is finished!' 
-> Saints, the dying words record. Tune your harps anew, you seraphs, Join to sing the pleasing theme! All on earth, and all in Heaven, Join to praise Immanuel's name! Hallelujah! 
-> Glory to the bleeding Lamb! 
+> 'It is finished!'. Oh what pleasure, Do these charming words afford! Heavenly blessings without measure Flow to us from Christ the Lord:  
+> 'It is finished!'  
+> Saints, the dying words record. Tune your harps anew, you seraphs, Join to sing the pleasing theme! All on earth, and all in Heaven, Join to praise Immanuel's name! Hallelujah!  
+> Glory to the bleeding Lamb!  
 
 Hymns from "Our Own Hymn Book",421, 439, 300.
 

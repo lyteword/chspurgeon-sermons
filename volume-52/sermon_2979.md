@@ -1,7 +1,7 @@
 # Sermon 2979 | Our Banner
 
-> You have given a banner to those who fear You, that it may be displayed because of the truth.
-> Psalm 60:4
+> You have given a banner to those who fear You, that it may be displayed because of the truth.  
+> Psalm 60:4  
 
 Most writers upon this Psalm, after having referred the banner to the Kingdom of David, say that there is here a reference to the Messiah. We believe there is. Nor is that reference an obscure allusion. In the Lord Jesus we find the clue to the history and the solution of the prophecy. He is the banner. He is the ensign that is lifted up before the people. He is Jehovah-Nissi, "the Lord My Banner," whom it is our joy to follow and around whom it is our delight to rally. We shall not stay to prove, though we might readily do so, that the banner here intended is no other than the Lord Jesus Christ in the majesty of His Person, in the efficacy of His merit, in the completeness of His righteousness, in the success of His triumph, in the glory of His advent. If you read it with an eye to Him, you have the meaning at once: "You have given Christ as a banner to those who fear You, to be displayed because of the truth." So let us consider our Lord Jesus Christ, first, as He is compared to a banner. Secondly, by whom He is given. Thirdly, to whom He is given. And fourthly, for what purpose.
 
@@ -68,8 +68,8 @@ And Jacob went on his way, and the angels of God met him. What an encouragement 
 And when Jacob saw them, he said, This is God's host: and he called the name of that place Mahanaim. He gave it a name to commemorate God's having sent the angels and called it, "two camps" or, "two hosts."
 
 And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom. He is out of one trouble with Laban, now he is into another with Esau. Well did John Bunyan say:
-> A Christian man is seldom long at ease; 
-> When one trouble's gone, another does him seize. 
+> A Christian man is seldom long at ease;  
+> When one trouble's gone, another does him seize.  
 
 And he commanded them, saying, Thus shall you speak unto my lord Esau, Your servant Jacob says thus, I have sojourned with Laban, and stayed there until now: and I have oxen, and asses, flocks, and menservants, and women servants: and I have sent to tell my lord, that I may find favor in your sight This is very respectful language, and rather submissive, too. But when a man knows that he has done wrong to another, he ought to be prepared to humble himself to the injured individual and, though it happened long ago, yet Jacob really had injured his brother Esau. So it was but right that in meeting him again, he should put himself into a humble position before him. There are some proud people who, when they know that they have done wrong, yet will not admit it. And it is very hard to end a quarrel when one will not yield and the other feels that he will not, either. But there is good hope of things going right when Jacob, who is the better of the two brothers, is also the humbler of the two.
 

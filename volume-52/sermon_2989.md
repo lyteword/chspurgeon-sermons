@@ -1,7 +1,7 @@
 # Sermon 2989 | Near the Kingdom, or in It?
 
-> You are not far from the Kingdom of God.
-> Mark 12:34
+> You are not far from the Kingdom of God.  
+> Mark 12:34  
 
 In certain respects, all men are alike, alike fallen and alike needing the Savior. Hence we have not 20 gospels, but only one, and we have not the Gospel graduated to scale to suit different classes of society, or different conditions of morality. We have the same Christ to set before sinners of every sort as their only hope, and the same message to proclaim to everyone of them, "Believe on the Lord Jesus Christ and you shall be saved."
 
@@ -22,10 +22,10 @@ He showed his candor, not only by his diligent search for the Truth, but also by
 Another favorable point in this scribe's character was that he evidently had some degree of spiritual perception, not much, perhaps, but still, as things went, a good deal for that time. He had found out, through reading the Law of God, that God attached more importance to matters of moral practice than to mere matters of ceremony, and much more importance to that which concerned the heart than so many outward actions. "To love the Lord with all one's heart, and soul, and strength, and to love one's neighbor as one's self," said this scribe, "is more than all whole burnt offerings and sacrifices." He had advanced further than many a Romanist has, for the Romanist would hardly say as much as he did. "The outward ceremonies of the church are so exceedingly important," he would say, "that, I could not put anything else before them." But this man had been taught to feel that real heart-work and true love to God were more important than all the ceremonies of the Law, even though they were ordained by God, Himself He had advanced further than some of our very doctrinal friends, to whom orthodoxy seems to be both the first thing and the last thing, though, as you very well know, what they call orthodoxy is simply their own doxy! But if people only hold that doxy, that is about all they care for, all the rest is a very secondary matter to them. This scribe, however, had advanced further than that and he would, doubtless, have said that to love God with the whole of one's heart was more important than believing all the dogmas that were ever formulated by all the doctors of divinity in the world!
 
 This scribe had also advanced further than the mere moralist, who teaches that if you do what you think is right, that is all you need trouble yourselves about. But this scribe expressly spoke of loving the Lord "with all the heart, and with all the understanding, and with all the soul, and with all the strength." He could see that the entire man must be given up to love God, for, if he were not, all the outward profession of living according to the letter of the Law would not suffice. Now, dear Friend, if you have been enabled to break through your former attachment to mere external ceremonies, if you have fully comprehended that true religion is not a matter of mere externals, you are "not far from the Kingdom of God." You are one of those who are learning that "God is a Spirit and they that worship Him must worship Him in spirit and in truth, for the Father seeks such to worship Him." I hope He is seeking you and that, before long, you will not only be near the Kingdom, but actually in it! It is a grand thing when a man is brought so far as to be able, from deep inward conviction, to say with Dr. Watts:
-> Not all the outward forms of earth, 
-> Nor rites that God has given, 
-> Nor will of man, nor blood, nor birth, 
-> Can raise a soul to Heaven. 
+> Not all the outward forms of earth,  
+> Nor rites that God has given,  
+> Nor will of man, nor blood, nor birth,  
+> Can raise a soul to Heaven.  
 
 If we are to be saved there must be the regenerating work of the Holy Spirit within the soul to make it spiritual and capable of spiritual worship! And he who really knows this is "not far from the Kingdom of God."
 

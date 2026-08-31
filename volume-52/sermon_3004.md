@@ -1,7 +1,7 @@
 # Sermon 3004 | The Christian's Manifestation
 
-> Beloved, now are we the sons of God, and it does not yet appear what we shall be; but we know that when He shall appear, we shall be like Him; for we shall see Him as He is.
-> 1 John 3:2
+> Beloved, now are we the sons of God, and it does not yet appear what we shall be; but we know that when He shall appear, we shall be like Him; for we shall see Him as He is.  
+> 1 John 3:2  
 
 The text mentions, "now," and then passes on to the future and speaks of, "yet." It does, however, speak of, "now" and, after all, despite our trials, there is much to make us happy in our present condition. "Beloved, now are we the sons of God." Our manifold temptations and infirmities cannot make us lose the blessings that come to us through our adoption into the family of God! "Happy are you, O Israel: who is like unto you, O people saved by the Lord?" Today, even today, we are the blessed of the Lord and we find in godliness the blessing of "the life that now is."
 
@@ -78,8 +78,8 @@ But, Brothers and Sisters, if there is such a sanctifying influence about the ve
 In some of the houses not far from here, I noticed some finches in cages in which there were tufts of grass, or small branches of trees as perches for the poor prisoners, yet they were singing away right merrily. I suppose that grass and those fragments of trees were meant to remind them, in this great, dirty, smoky Babylon, that there are green fields and wide forests somewhere. I thought, as I looked upon them, "Ah, you poor birds are like what I myself am! My Master has put me in a little cage and bid me bide here for a while, and He has given me my little tuft of grass as an earnest of my inheritance in the: "Sweet fields beyond the swelling flood."
 
 He graciously sends me a few comforts on the way. Ah, but that poor little tuft of grass, what is it in comparison with the fields and the hedges which are the proper home of the singing birds which have their liberty? And, Christian, you do not know what it will be for you to have your cage door opened that you may fly away to that blessed land where the true birds of Paradise forever warble, from their joyful throats, the loudest praises to the great King who has set them free forever! Let us begin the music here! Let us try, even now, to anticipate that happy day as we sing of: "Jerusalem the golden, With milk and honey blest, where: "The daylight is serene.". And where:
-> The pastures of the blessed 
-> Are decked in glorious sheen. 
+> The pastures of the blessed  
+> Are decked in glorious sheen.  
 
 I leave my text with you who love the Lord. As for you who do not love Him, I dare not give it to you. Oh, that you did love Him and that you did trust Him! He waits to be gracious. Seek His face and He will be found of you. Fly to Him and He will not reject you. Trust in Him and He will wash you from all your sins and bring you to His Presence in eternal Glory, to go no more out forever! May He give you this unspeakable blessing, for His love's sake! Amen.
 

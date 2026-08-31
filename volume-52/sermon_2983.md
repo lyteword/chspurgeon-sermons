@@ -1,7 +1,7 @@
 # Sermon 2983 | A Wonderful Transformation
 
-> Your sorrow shall be turned into joy.
-> John 16:20
+> Your sorrow shall be turned into joy.  
+> John 16:20  
 
 You all know that at that time, our Lord was speaking of His death which would cause the deepest grief to His own people, while the ungodly world would rejoice and laugh them to scorn. So He bade them look beyond the immediate present into the future and believe that, ultimately, the cause of their sorrow would become a fountain of perpetual joy to them. It is always well to look a little ahead. Instead of deploring the dark clouds, let us anticipate the fruits and the flowers that will follow the descent of the needed showers. We might be always wretched if we lived only in the present, for our brightest time is yet to come. We are now, as Believers in the Lord Jesus Christ, only in the twilight of our day, the high noon shall come to us by-and-by.
 
@@ -44,10 +44,10 @@ And once again, dear Friends, not only is it so with the persecutions and opposi
 Now, lastly, to come down from those high themes to minor matters, our own personal sorrow shall be turned into joy.
 
 When I think of the sorrows of Christ and the sorrows of His Church as a whole, I say to myself, "What pin pricks are our griefs compared with the great gash in the Savior's side, and the many scars that adorn His Church today!" But, dear Friends, whatever our sorrows may be, they will be turned into joy. Sometimes we witness this wonderful transformation. Poor old Jacob sorrowed greatly when he thought that he had lost his favorite son, Joseph. "An evil beast has devoured him," he said. "Joseph is without doubt torn in pieces." And he wrung his hands and wept bitterly for many a day over his lost Joseph. Then came the famine and the poor old man was dreadfully alarmed concerning his large family. He must send some of his sons into Egypt to buy corn, and when he sends them there, they do not all come back, for Simeon is detained as a hostage, and the lord of the land says that they shall not see his face again unless they bring Benjamin with them. Benjamin, the dear and only remaining child of the beloved Rachel! Jacob cannot bear the thought of parting with him, so he says to his sons, "You have bereaved me of my children; Joseph is not, and Simeon is not, and you will take Benjamin away: all these things are against me." Poor old soul, what a mistake he made! Why, everything was as much for him as it could possibly be! There was his dear Joseph, down in Egypt, next to Pharaoh on the throne and ready to provide for his poor old father and all the family during the time of famine! Then there was the famine to make him send down to Egypt and find out where Joseph was, so that he might go and see his face again, and confess that the Lord had dealt graciously with him. You dear children of God who get to fretting and are troubled should carry out Cowper's good advice:
-> Judge not the Lord by feeble sense, 
-> But trust Him for His Grace:
-> Behind a frowning Providence 
-> He hides a smiling face! 
+> Judge not the Lord by feeble sense,  
+> But trust Him for His Grace:  
+> Behind a frowning Providence  
+> He hides a smiling face!  
 
 You have quite enough to cry over without fretting concerning things that, some day, you will rejoice over! The Lord will put your tears into His bottle and when He shows them to you, by-and-by, I think you will say, "How foolish I was ever to shed them, because the very thing I wept over was really a cause for rejoicing if I could but have seen a little way ahead." It is so sometimes, in Providence, as you will find over and over again between here and Heaven!
 
@@ -62,10 +62,10 @@ Sorrow also gives us fellowship with our Lord in another way, when we feel as if
 I must not fail to remind you that there is a time coming when "the sorrows of death" will get hold upon us and I want you, Brothers and Sisters, to understand that unless the Lord shall come first, we shall not escape the sorrow of dying, but it will be turned into joy. It has been my great joy to see many Christians in their last moments an earth and I am sure that the merriest people I have ever seen have been dying saints! I have been to wedding feasts. I have seen the joy of young people in their youth. I have seen the joy of the merchant when he has made a prosperous venture and I have, myself, experienced joys of various kinds, but I have never seen any joy that I have so envied as that which has sparkled in the eyes of departing Believers! There rises up before me now a vision of the two eyes of a poor consumptive girl, oh, how bright they were! I heard that she must soon die, so I went to try to comfort her. To comfort her? Oh, dear, she needed no comforting from me! Every now and then she would burst forth into a verse of sacred song and when she stopped, she would tell me how precious Jesus was to her, what love visits He had already paid her, and how soon she expected to be with Him forever! There was not, in all the palaces of Europe, or in all the mansions of the wealthy, or in all the ballrooms of the happy, such a merry and joyous spirit as I saw shining through the bright eyes of that poor consumptive girl who had very little here below, but who had so much laid up for her in Heaven that it did not matter what she had here!
 
 Yes, Beloved, your sorrow will be turned into joy! Many of you will not even know that you are dying, you will shut your eyes on earth and open them in Heaven! Some of you may be dreading death, for there is still a measure of unbelief remaining in you, but also in your case, death will be swallowed up in victory! Just as when some people have to take medicine which is very bitter, it is put into some sweet liquid and they drink it down without tasting the bitterness, so will it be with all of us who are trusting in the Lord Jesus Christ when we have to drink our last potion. In a few more days, or weeks, or months, or years, it does not matter which, for it will be a very short time at the longest, all of us who love the Lord will be with Him where He is, to behold His Glory and to share it with Him forever! Have any of you any sorrows that you still wish to talk about? Some of you are very poor and others of you are very much tried and troubled in many ways, but, my dear Friends, when you and I get up there, and we shall do so before long. I think you will have the best of it! If there is any truth in that line: "The deeper their sorrows, the louder they'll sing," the more sorrows you have had, the more will you sing! Nobody enjoys wealth like a man who has been poor. Nobody enjoys health like a man who has been sick. I think that the most pleasant days I ever spend are they that follow a long illness when I, at last, begin to creep outside and drink in the sweet fresh air again. And, oh, what joy it will be to you poor ones and you sick ones and you tried ones to get into the land where all is plentiful, where all is peaceful, where all is gladsome, where all is holy! You will be there soon, some of you will be there very soon. Dr. Watts says that:
-> There, on a green and flowery mount, 
-> Our weary souls shall sit. 
-> And with transporting joys recount 
-> The labors of our feet. 
+> There, on a green and flowery mount,  
+> Our weary souls shall sit.  
+> And with transporting joys recount  
+> The labors of our feet.  
 
 That is to say, the very sorrows that we pass through in our earthly pilgrimage will constitute topics for joyful conversations in Heaven. I do not doubt that it will be so.
 

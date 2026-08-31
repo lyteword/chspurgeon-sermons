@@ -1,7 +1,7 @@
 # Sermon 2978 | Power With God
 
-> As a prince have you power with God.
-> Genesis 32:28
+> As a prince have you power with God.  
+> Genesis 32:28  
 
 Men think a great deal of anyone who has power with royalty. If it were said, concerning somebody in this place, "That individual has very great power with the Queen," there are a great many of you who would turn at once to look at that person. He who has great power with an earthly prince is sure to have many flatterers around him who will pay him homage for the sake of the advantage which they hope to gain through his mediation. But, dear Friends, what a far greater honor it is to have power with the King of kings! Power with men may be an evil thing, but what blessing must come from power with God! How it ennobles the soul of the man who possesses it! This man, Jacob, who has power with God, is called Israel, a prince, for so he is, but princes have no such dignity as his unless they, too, have power with God, for he is "a prince of God."
 
