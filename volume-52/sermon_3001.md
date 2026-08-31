@@ -1,7 +1,7 @@
 # Sermon 3001 | The Vision of the Field
 
-> For behold, I am for you, and I will turn to you, and you shall be tilled and sown.
-> Ezekiel 36:9
+> For behold, I am for you, and I will turn to you, and you shall be tilled and sown.  
+> Ezekiel 36:9  
 
 These words were addressed to the mountains of Palestine. Albeit that they are now waste and barren, they are yet to be as fruitful and luxuriant as in the days of Israel's grandeur. God will turn to them, the vines shall then crown the summits and there shall be harvests again upon the mountaintops.
 

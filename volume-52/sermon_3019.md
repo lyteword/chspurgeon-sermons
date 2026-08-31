@@ -1,7 +1,7 @@
 # Sermon 3019 | The Hungry Filled, the Rich Emptied
 
-> He has filled the hungry with good things; and the rich He has sent away empty.
-> Luke 1:53
+> He has filled the hungry with good things; and the rich He has sent away empty.  
+> Luke 1:53  
 
 Divine Providence is like a wheel and as the wheel revolves, that spoke which was highest becomes the lowest, and that which was lowest is elevated to the highest place. It seems to be one of the works in which God delights to cast down the lofty and to lift up the lowly. He hurls down princes from their thrones and lifts up beggars from the dunghill! "Every valley shall be exalted, and every mountain and hill shall be made low." Like the woodman with his axe, the Providence of God is cutting down the high and goodly cedars while making trees that were dry and withered, fruitful. That which is full, God empties. And that which is empty, God fills. That which is something, He makes to be nothing, and that which is nothing, He makes to be something. That which is reckoned the wisdom of this world, God makes to be utter folly, but base things of the world, and things which are despised, has God chosen that He may elevate them and crown them with His Glory.
 
@@ -46,10 +46,10 @@ Of all the sins that can happen to us, perhaps the deadliest of all is that of n
 Now, what becomes of these sinners who think themselves so rich that they have no need of the good things with which God fills the hungry? The text does not simply say that they are not fed. It does not say that the door of Mercy is shut in their faces, but it says that they are sent right away from Mercy's door because they have no right to stand there! Why should a man be allowed to pray when he has nothing to pray for? These rich people are sent away from Mercy's table because they do not want to feed on Mercy's fare. Why should they sit there and uselessly occupy places where hungry ones might sit and feast? So they are sent away.
 
 And, mark you, it is an awful thing to be sent away from the Gospel. And it is a remarkable thing that the only people who are sent away from the Gospel are those who consider themselves spiritually rich. You who think yourselves so excellent, moral and amiable. You who cannot see any fault in yourselves. You who think you are going to Heaven because of your good deeds, the Gospel not only does not open its door to you, but it even sends you away from its door! And how does it send you away? The text says, "The rich he has sent away empty." Empty even of what you once thought you had! I only hope that the gracious meaning of the text may be fulfilled to some of you and that while listening to the Gospel, you may be made to feel that, after all, you are not spiritually rich, but that you are "wretched, and miserable, and poor, and blind, and naked." It will be the best day's work that was ever done for you if you are brought to realize your true position and come to Christ confessing your abject poverty! For, as Joseph Hartwell says:
-> 'Tis perfect poverty alone 
-> That sets the soul at large. 
-> While we can call one mite our own, 
-> We have no full discharge. 
+> 'Tis perfect poverty alone  
+> That sets the soul at large.  
+> While we can call one mite our own,  
+> We have no full discharge.  
 
 We know what happened to the two debtors. "When they had nothing to pay, he frankly forgave them both." But if they had had anything with which they could pay, there would have been no forgiveness vouchsafed to them. Oh, for such an emptying that you may afterwards be filled with good things!
 

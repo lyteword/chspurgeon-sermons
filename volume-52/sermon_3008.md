@@ -1,7 +1,7 @@
 # Sermon 3008 | An All-important Question
 
-> Do you believe in the Son of God?
-> John 9:35
+> Do you believe in the Son of God?  
+> John 9:35  
 
 The man to whom our Savior addressed this question had been born blind, but he had been the subject of one of the Master's mightiest miracles and was rejoicing in the possession of his newly found sight! Our Lord is not accustomed to doing things by halves, so, having given to this poor man natural sight, He intended to also give him spiritual sight. Having delivered him from the misery of living in this world in darkness, He would also deliver him from the dense darkness that brooded within his soul. "Blessed be the name of the Lord, we are never straitened in Him, but only in ourselves; and when we receive not, it is either because we ask not, or because we ask amiss." Our Lord had given to this man His left hand full of minor mercies and now He finds him out with His right hand full of yet richer treasures, giving to him exceeding abundantly above what he had asked or even thought!
 
@@ -64,10 +64,10 @@ I did not put into "Our Own Hymn Book" the hymn which begins: "'Tis a point I lo
 I deliberated a good deal about it and I left it out, not because I doubt whether a Christian may sing it, not because I have not sung it myself, but because I am not quite clear that I ought to ask any congregation to sing it, for I hope that most of those in any ordinary congregation will not be in such a state of mind as that. It is a suitable hymn for one to sing sometimes in private, when one cannot sing anything better, but it would scarcely suit a company of true Believers in the Lord Jesus Christ! A man may be and I think sometimes will be in doubt as to whether he really believes in Jesus, but chronic doubt is a sin that is not to be tolerated! Constant questioning as to whether you are saved, or not, is an unhealthy state for any of you to be in. You can tell and you ought to tell whether you believe in Christ, or whether you do not believe in Him. Faith is, in one sense, the gift of God, but, in another sense, it is a mental act for which we are responsible. God gives us faith, but He does not believe for us. He does not give us faith as we give our children bread, but He, by the gracious operation of His Holy Spirit, makes us willing in the day of His power, and then we will to believe in Jesus and we do believe in Him. Well, then, this being the case, I should think that you can, each one, tell whether you have ever believed in God's Son as readily as you can tell whether you have ever trembled at God's Word. One mental act must surely be as much under the cognizance of your inner consciousness as another mental act is.
 
 Besides, you can judge whether you have faith by seeing whether you have its fruits. If you have believed on the Son of God, you have a care about spiritual things which you never had while you were an unbeliever. You are living in a world that is new to you, in the spiritual realm where God rules by His Spirit, and you are no longer confined to that which you can see with your eyes and touch with your fingers. You now see, and hear, and feel, and know a thousand things of which you were formerly utterly unaware. If you have truly trusted in the Lord Jesus Christ, you are "a new creature; old things are passed away; behold, all things are become new." You love what once you hated and you hate what once you loved. You have altogether new tastes, you would not now find pleasure where once you reveled in it! And the weariness which you formerly felt in the services of God's House is now all gone and you find the Sabbath to be a delight, and the company of God's people to be a foretaste of Heaven! Are you, dear Friends at this moment desirous to be obedient to all the Lord's Commandments? Obedience to God is a flower that never grew on nature's dunghill! It grows only where the Spirit of God has tilled the soil and planted the root from which it springs. Surely you know whether you believe in Christ or not! At any rate, go not to your bed this night till you know the truth about your case. Fall not asleep with even the possibility that you may awake in Hell! Rest not, Man, till you are forever safe! Sleep not till you know that God is your Friend and that Christ is your Savior, lest, in the watches of the night, the hair of your head should stand on end with horror as you are awakened to find that your last hour has come and you are not prepared to stand before your Judge!:
-> How will your heart endure 
-> The terrors of that day 
-> When earth and Heaven, before your face 
-> Astonished shrink away? 
+> How will your heart endure  
+> The terrors of that day  
+> When earth and Heaven, before your face  
+> Astonished shrink away?  
 
 Now I must come to the conclusion of my discourse and I do so by saying that this question demands an immediate reply: "Do you believe in the Son of God?"
 

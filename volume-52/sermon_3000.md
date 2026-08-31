@@ -1,7 +1,7 @@
 # Sermon 3000 | Come and Welcome
 
-> Him that comes to Me, I will in no wise cast out.
-> John 6:37
+> Him that comes to Me, I will in no wise cast out.  
+> John 6:37  
 
 While I was trying to prepare a sermon for this evening, someone called at my door. I daresay the friend is here tonight, (I hope so), and left this little note: "I entreat you to pray, especially this evening, for a most unhappy case, for one who is in great agony of mind, that God, in His Infinite Mercy, would send one ray of light into the dark soul. Please ask all the converted ones in your congregation to pray for me, that Grace may be restored to a most unhappy soul." Well, I am sure that all Christians here will earnestly pray that the light may break into the thick darkness and that the troubled spirit may find rest, but, after all, there is a very strong temptation to a heart in trouble to rest in the prayers of others rather than to go immediately to Christ for relief. Yet all the prayers in the world cannot, by themselves, help a man who is in despair. The light can never come into that dungeon except through one window, and that is a window through which the tearful eyes may always look, the window of everlasting love as revealed in the atoning Sacrifice of Jesus Christ!
 

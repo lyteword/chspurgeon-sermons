@@ -1,7 +1,7 @@
 # Sermon 2992 | God's Writing Upon Man's Heart
 
-> I will put My law in their minds, and write it on their hearts.
-> Jeremiah 31:33
+> I will put My law in their minds, and write it on their hearts.  
+> Jeremiah 31:33  
 
 This is not the language of the Old Covenant, but of the New Covenant. The prospects of life held out in the Law have all dissolved into a ministration of death as the penalty of disobedience. Its voice might have once captivated hearts that knew not their own weakness. How did it speak? "Do this, and live; keep My commandments, and you shall receive in return for your obedience singular blessings upon earth and rest in Heaven." But that Old Covenant, since the Fall, no man has kept, or can keep. Surely if any persons could have kept it, those to whom it was originally given were the most likely to do so. They were a separated people. They were removed into the wilderness, far from evil associations. They were miraculously fed out of the granaries of Heaven. They received their drink in an equally marvelous manner out of the smitten Rock. They had God, Himself, in the midst of them. They had His pillar of cloud to cover them by day and His pillar of fire to lead them by night. In all their difficulties they could appeal to Moses. If there had been an inadvertence or mistake, they could turn to Aaron and he, by the offering of the appointed sacrifice, could set them right again. They were placed where they had not the trials and the temptations of the rest of mankind. They were so cut off and separated that I may well compare them to: "A garden walled around, Chosen and made peculiar ground." And yet, even in that favored soil, which was so well tilled and so well kept by God, it was utterly impossible that perfect holiness could grow and, therefore, the Law of God was broken. Even the seed of Israel, circumcised and blessed with covenants and promises, and having the immediate Presence of God in their sanctuary could not keep the Law, a clear lesson to us that "by the deeds of the Law there shall no flesh be justified." You cannot perfectly obey God! You cannot work out a righteousness of your own! You cannot do that which God commands you to do. Look to the flames which Moses saw, and sink, and tremble, and despair if you wish to be saved by your own works!
 
@@ -46,13 +46,13 @@ I cannot conceive of a better place to put it than in the new heart. A certain m
 Putting the Law of the Lord into the heart signifies that it is put where it will be loved and where it will control the whole man. If you can put a thing into a man's heart, you have put it at the very center of his being. We have heard of a certain shepherd who had a flock of sheep in a meadow. A stream of water that ran through the meadow was very foul and muddy, so the shepherd dug some new channels. But after he had dug them, the water was still not very clear. He cleared out the channels again and again, but still, after a little while, the water was again impure. It was better than it had been before, when flowing through the muddy channel, but still it was not such as he wished it to be. At last, someone said to him, "Why do you not clear the water up upon the hill? There is a mass of mud and filth there and the water comes down the hillside laden with all this impurity. Purify it there, purify it near the fountainhead." So, when man gets purified at the fountain, when he gets the Law of the Lord in his heart, then it is that he is sure to be all right as to the streams of his actions. You cannot put the Law of God, then, in a better place than in the heart, because there it will be preserved, and there it will influence the entire man. Lord, grant to me and to mine, that we may have Your Law thus safely locked up in the golden casket of a renewed heart.
 
 Still, it must be admitted that it is very hard to write on hearts. That same old poet whom I quoted just now, Quarles, pictures God as saying:
-> What I indite 'Tis I alone can write 
-> And write in books that I Myself have made. 
-> 'Tis not an easy trade 
-> To read or write in hearts. 
-> They that are skillful in all other arts 
-> When they take this in hand 
-> Are at a stand. 
+> What I indite 'Tis I alone can write  
+> And write in books that I Myself have made.  
+> 'Tis not an easy trade  
+> To read or write in hearts.  
+> They that are skillful in all other arts  
+> When they take this in hand  
+> Are at a stand.  
 
 It is not easy to read hearts and it is still harder work to write on hearts. We can sometimes write on people's heads, that is comparatively easy. You may get a thing into the intellect. you may get it into the brains by sheer dunning and argument, but to get things into the heart is not so very easy: "He that's convinced against his will Is of the same opinion still," and, though convinced, he still goes on in the same path, pursuing the thing which he knows to be his own worst enemy. There are no slaves like those who serve their enemies and those are the greatest slaves who are slaves to their own soul-destroying lusts. It is not an easy thing to write on hearts. When there are many conversions, certain simpletons are apt to think that there is something in the preacher to account for them. Suppose someone had gone to that ancient battlefield and had picked up the stone with which David smote Goliath's head, and said, "Well, it must be a very wonderful stone that could have killed a giant?" And then, after turning it round, and looking at it a little while, he would say that it was very much like any other smooth stone that might be put in a sling. And very likely he would throw it down in contempt and think nothing of it.
 

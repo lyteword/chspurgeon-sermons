@@ -1,7 +1,7 @@
 # Sermon 2972 | Forgiveness
 
-> But there is forgiveness with You, that You may be feared.
-> Psalm 130:4
+> But there is forgiveness with You, that You may be feared.  
+> Psalm 130:4  
 
 How significant is that word, "but," in our text! It is as if you heard Justice clamoring, "Let the sinner die," and the fiends in Hell howling, "Cast him down into the fires," and Conscience shrieking, "Let him perish," and Nature, itself, groaning beneath his weight, the earth weary with carrying him, the sun tired with shining upon the traitor, the very air sick with finding breath for one who only spends it in disobedience to God! The man is about to be destroyed, to be swallowed up, when suddenly there comes this thrice-blessed, "but," which stops the reckless course of ruin, puts its strong hand, bearing a golden shield, between the sinner and destruction and pronounces these words, "But there is forgiveness with God, that He may be feared."
 
@@ -54,10 +54,10 @@ Oh, how great your sin has been, my Hearers! But Jesus Christ is still greater! 
 ## Exposition by C. H. Spurgeon: Psalm 145
 
 When you get to the one hundred and forty-fifth Psalm, you enter the Beulah Land of the Psalms. Henceforth the time of the singing of birds is come and you go from one Hallelujah to another! In the Hebrew, this is one of the alphabetical Psalms, but one letter (nun) is omitted, perhaps, as Dr. Bonar suggests, "we must be kept from putting stress on the mere form of the composition." Those ancient singers sang their way through the alphabet from a to Z, and it is also well for us to begin to praise the Lord while we are yet children, and to keep on praising Him till we get to the "Z" in the very hour of death, gasping His praises till we get into eternity:
-> My God, I'll praise You while I live, 
-> And praise You when I die! 
-> And praise You when I rise again, 
-> And to eternity! 
+> My God, I'll praise You while I live,  
+> And praise You when I die!  
+> And praise You when I rise again,  
+> And to eternity!  
 
 I will extol You, my God, O King, and I will bless Your name forever and ever Every day will I bless You, and I will praise Your name forever and ever. Great is the Lord, and greatly to be praised; and His greatness is unsearchable. Such as the Lord is, such should His worship be. If He were a little God, He would deserve little praise, but the great God is "greatly to be praised." There is no fear of going to any excess in our praises, we will never laud Him too highly, however lofty our expressions may be.
 

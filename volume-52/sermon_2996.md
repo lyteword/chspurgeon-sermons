@@ -1,7 +1,7 @@
 # Sermon 2996 | Enquiring of God
 
-> And it came to pass after this, that David enquired of the LORD, saying, Shall I go up to any of the cities of Judah?
-> 2 Samuel 2:1
+> And it came to pass after this, that David enquired of the LORD, saying, Shall I go up to any of the cities of Judah?  
+> 2 Samuel 2:1  
 
 You perceive, dear Friends, that, although David knew that he was anointed to be king over Israel, yet he would not take a step towards his rightful position without first asking guidance from God and, moreover, he was not content with a general direction, but wanted to have a particular and special indication as to where he was to go. It was not enough for God to say to him, "Go up," he wants to know precisely to which town of Judah he shall go!
 

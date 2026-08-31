@@ -1,7 +1,7 @@
 # Sermon 3016 | Good Cheer From Forgiven Sin
 
-> And, behold they brought to Him a man sick of the palsy lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; your sins are forgiven you.
-> Matthew 9:2
+> And, behold they brought to Him a man sick of the palsy lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; your sins are forgiven you.  
+> Matthew 9:2  
 
 "And they come unto Him, bringing one sick of the palsy, which was borne of four. And when they could not come near unto Him for the press, they uncovered the roof where He was: and when they had broken it up, they let down the bed wherein the sick of the palsy lay. When Jesus saw their faith, He said unto the sick of the palsy, Son, your sins are forgiven you."
 
@@ -27,10 +27,10 @@ We have before us, first, a doctrine, the doctrine that it is one of the grandes
 Dear Hearer, let us give our hearts at once to the doctrine. It is plainly taught us here that the pardon of sin is one of the richest comforts which the Lord can give to a man.
 
 It is so, first, because the pardon of sin removes the heaviest sorrow which a man can feel Some know little about this grief. May the Lord cause them to mourn with broken hearts or they will perish in their sins! Those of us who have known the burden of sin can tell you that it is a crushing load. Thoughtful persons who have seen things in their true light, honest persons who refuse to be flattered, pure-minded people who long to be right with God, all these will tell you that a sense of sin is, of all miseries, the most sharp and disquieting. To know that you have sinned against light and knowledge with special aggravations is as a hot iron to the flesh and as a serpent's venom in the blood. There is no rest day or night to a soul which carries this Hell within it:
-> Sin, like a venomous disease 
-> Infests our vital blood! 
-> The only balm is Sovereign Grace, 
-> And the Physician God. 
+> Sin, like a venomous disease  
+> Infests our vital blood!  
+> The only balm is Sovereign Grace,  
+> And the Physician God.  
 
 I speak what I know from personal experience and I only say what many a hearer knows, too, within his own soul. Once let conviction flash in upon the soul and the world loses its fascinations, the music hall, the ballroom and the theater are robbed of their enchantments, even business wearies and domestic joys are deprived of sweetness. A sense of sin spoils all. Guilt on the conscience hangs over everything like a funeral pall. It drowns all music with its prophetic knell and withers every green herb beneath its burning feet.
 

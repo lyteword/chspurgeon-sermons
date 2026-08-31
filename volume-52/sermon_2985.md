@@ -1,7 +1,7 @@
 # Sermon 2985 | Messages to Sinners and Saints
 
-> For thus says the Lord GOD, the Holy One of Israel, In returning and rest shall you be saved; in quietness and in confidence shall be your strength. But you would not.
-> Isaiah 30:15
+> For thus says the Lord GOD, the Holy One of Israel, In returning and rest shall you be saved; in quietness and in confidence shall be your strength. But you would not.  
+> Isaiah 30:15  
 
 This message related to the invasion of the land of Judah by Sennacherib. The approach of the enormous hosts of the Assyrian king put almost the whole nation into a state of great alarm. They wanted to make an immediate alliance with the king of Egypt and to ask that mighty monarch to send his forces to drive back the army of Sennacherib. But Isaiah the Prophet was sent to warn them of the folly and sin of such an alliance and to tell them that their strength was to sit still. They were to confide alone in the Most High and not to look for any other helper, but to cast themselves upon the faithfulness of the God who had never failed them. If they did so, they would suffer no harm, but just in proportion as they turned away from the unseen Jehovah and began to rely upon an army of flesh, they would be sure to find trouble.
 
@@ -22,18 +22,18 @@ Possibly you say to me, "But how am I to return? How can I come back to God?" Th
 "Yes," says one, "but that is my difficulty, for I observe that I am to forsake my sin as well as to confess it." It is truly so, my Hearer. If you will come back to God through Jesus Christ, who is the only way to the Father, He will enable you to forsake your sin. Before our Savior's birth, the angel said to Joseph, "You shall call His name, Jesus: for He shall save His people from their sins." The salvation which Jesus gives is salvation from unbelief, salvation from a seared conscience, salvation from pride, from lust, from malice, from envy, from evil of every kind! Which of your sins do you wish to keep? Is there one so fair that you have the desire to spare it? Come, Brother, let us take these sins of yours, one by one, and let us ask the Lord to lend us the sword of Divine Justice that we may slay them and hang them up before the Lord, for they are accursed things! Be not tender of heart concerning any one of them, even though, like another Agag, it comes to you delicately and says, "Surely the bitterness of death is past." Put the sword to the throat of every sin! Though each one should be like a prince, yet slay it and hang it up upon the Cross. There stands the gallows whereon they hanged your Lord, so hang up the traitor sins there and let them all die. I think I hear you say, with good Dr.
 
 Watts:
-> 'Twas for my sins my dearest 
-> Lord hung on the cursed tree, 
-> And groaned away a dying life 
-> For thee, my Soul, for thee! 
-> Oh, how I hate those lusts of nine 
-> That crucified my God! 
-> Those sins that pierced and nailed His flesh 
-> Fast to the fatal wood! 
-> Yes, my Redeemer, they shall die:
-> My heart has so decreed! 
-> Nor will I spare the guilty things 
-> That made my Savior bleed. 
+> 'Twas for my sins my dearest  
+> Lord hung on the cursed tree,  
+> And groaned away a dying life  
+> For thee, my Soul, for thee!  
+> Oh, how I hate those lusts of nine  
+> That crucified my God!  
+> Those sins that pierced and nailed His flesh  
+> Fast to the fatal wood!  
+> Yes, my Redeemer, they shall die:  
+> My heart has so decreed!  
+> Nor will I spare the guilty things  
+> That made my Savior bleed.  
 
 Remember that if you do not kill them, they will kill you! Returning to God includes turning from sin. Do you think that the prodigal, when he came back to his father, brought his dice in one hand and some other implement of sin in the other? He may come foul with the filth of the wine. He may come wretched through hunger and famine. But he must leave his riotous living, his wine-cup, his debauchery in the far country, these cannot be tolerated in his father's house!
 
@@ -78,8 +78,8 @@ Many years ago, the Emperor of China insisted that all ambassadors who approache
 Life's labor will soon be over and life's warfare, too. In due season we shall die unless our Lord shall first return. The appointed hour for each of us is drawing near, what shall we do then? Why, then, Beloved, trusting in Jesus, quietness and confidence will still be our strength! We shall not send our friends running to fetch a "priest" to perform some mysterious ceremony over us. Christ is all we need and as we have Him, we can die any day with perfect serenity! I love to see a Christian die a calm serene death. The idea of Bengel, the expositor, the author of "The Gnomon," concerning death, always strikes me as being very beautiful. He said, "I do not think there ought to be any scare-making about death. We ought to so live and to so die daily, that when death comes, it will be only a part of life, not a flourish of trumpets at the finish, but just a natural closing of the whole scene." He also said, "I should like to die just as I might retire from this room when, being engaged with company, a message is brought to me saying that I am needed and I go out quietly and say nothing about it, and my friends presently discover that I have gone." That was precisely how he died. Finishing the proof sheets of the last page that he wrote of his exposition, he was suddenly gone from earth and present with the Lord whom he loved. Oh, blessed way of dying!
 
 I have often told you what my dear old grandfather said, not long before he died. My uncle James began quoting to him that hymn by Dr. Watts: "Firm as the earth Your Gospel stands, My Lord, my hope, my trust" "Ah, James!" he said, "that verse won't do for me now, for the earth is not firm at all! I find it slipping away from beneath my feet. And now that I am about to depart and to meet my God, I need something firmer than the earth to rest upon. Yes, James," he added, "I like the good old doctor better when he says:
-> Firm as His Throne His promise stands, 
-> And He can well secure 
-> What I've committed to His hands, Till the decisive hour. 
+> Firm as His Throne His promise stands,  
+> And He can well secure  
+> What I've committed to His hands, Till the decisive hour.  
 
 "That is it, James," he said, "there you have Divine Sovereignty and Sovereign Grace! That kind of doctrine will do to rest your soul upon, my son, both in life and in death." Calmly uttering such words as those, full of restful confidence in the faithful, Immutable God he had so long served, he closed his eyes and went Home, like a laboring man does when his day's work is done, just as you and I, Beloved, will soon go home. I do not know how long we may remain here, some of you may go very soon, and so may I, it does not much matter when we do go so long as we are ready. When I said, the other day, "So-and-So has gone Home," a dear old friend said to me, "Where could he go better?" Ah, just so! Where could he go better than go Home to his father and his God? Well, I trust that in those last days we shall neither fret, nor worry, nor trouble, nor question, nor doubt, nor fear, but in quietness and confidence shall be our strength! The Lord grant that it may be so, for Jesus Christ's sake! Amen.
