@@ -1,7 +1,7 @@
 # Sermon 3294 | The Lord's Eternal Rest
 
-> This is My rest forever: here will I dwell; for I have desired it.
-> Psalm 132:14
+> This is My rest forever: here will I dwell; for I have desired it.  
+> Psalm 132:14  
 
 These are the words of Jehovah Himself concerning the hill of Zion, but it is clear that He did not intend us to understand them merely in their literal reference to Zion, because Zion could not be a fitting place for His eternal rest. Nor has He made it literally His rest forever, for Zion has been trodden down of the Gentiles for all these centuries. I have no doubt that the Lord had in His mind the greater Zion, "the city of the living God, the heavenly Jerusalem...the general assembly and church of the first-born, which are written in Heaven." The eternal God, looking down from His Throne of Glory upon all the creatures He has made, selects His Church, elect, blood-bought, called, preserved and sanctified, and He says concerning this Church: "This is my rest forever: here will I dwell; for I have desired it."
 
@@ -14,14 +14,14 @@ First, then, let us think of God finding rest in his church.
 He does this, in the first place, because in His Church all the three Divine Persons of the Trinity are honored. A man does not find rest in anything which gratifies only one part of his nature. Therefore it can truly be said to Christians concerning this world, "This is not your rest," for whatever gratification it may yield to the body, it can never satisfy our soul. If there were in the Church of God honor only for God the Father, but none for God the Son and God the Holy Spirit, it could never be the Lord's eternal rest. But, Beloved, when the Father looks upon the Church, He views with delight His own chosen children and sees His eternal purposes accomplished in them! He thinks of the Covenant into which He entered with His dear Son on their behalf, and of the Atonement which He gave for them when He gave His only begotten Son to die as their Substitute and Surety. As for God the Son, when He looks upon the Church, He beholds those for whom He paid the ransom price on Calvary, every member of that Church He has purchased with His own blood and, therefore, He looks upon them with peculiar complacency. As for God the Holy Spirit, He: "Takes delight to view the holy souls He formed anew." As He gazes upon them, He sees the gracious results of His regenerating energy and He rests in holy contemplation. I hope, Beloved, you will never exalt one member of the ever-blessed Trinity above either of the rest: it is quite a mistake to ascribe the work of salvation entirely to the Father, or to the Son, or to the Holy Spirit. In the first Creation, it is most emphatically true that God said, "Let Us make man in Our image, after Our likeness." The first Creation was the work of Deity as a whole, and so is the new Creation! And for both we may most justly sing: "Praise Father, Son, and Holy Spirit."
 
 All are equally concerned in perfecting the Church, the true Zion, and therefore God, in the Trinity in Unity. Father, Son, and Spirit, says concerning the Church, "This is My rest forever: here will I dwell; for I have desired it.".
-> Arise, O King of Grace, arise,
-> And enter to Your rest!
-> Lo, Your Church waits with longing eyes,
-> Thus to be owned and blest.
-> Enter with all Your glorious train,
-> Your Spirit and your Word
-> All that the Ark did once contain
-> Could no such Grace afford.
+> Arise, O King of Grace, arise,  
+> And enter to Your rest!  
+> Lo, Your Church waits with longing eyes,  
+> Thus to be owned and blest.  
+> Enter with all Your glorious train,  
+> Your Spirit and your Word  
+> All that the Ark did once contain  
+> Could no such Grace afford.  
 
 Just think for a minute or two what this rest of God is. Is it the entire cessation from toil? When we do nothing, but sit still in listless inactivity, that cessation from toil may yield us a measure of rest, but it is not rest of a kind that we could long love, certainly it is not such rest as we should wish to enjoy forever! We would be in a most restless state if we had nothing to do! We would soon be worn out with the weariness of living an aimless, purposeless life. I believe the truest state of rest is when a man has just as much to do as he can perform with ease. If your mind does not think at all, it is in a coma or in a sort of fainting fit. But when it is occupied with pleasing themes, not working out difficult problems, but meditating upon simple themes which you can easily understand, then it is at rest! Perhaps you sit down quietly by the fire and indulge in what we call day-dreams, your mind is active all the while, yet its activity does not prevent it from resting. Heaven is a place and state of perfect rest, yet it is not the rest of silence and stagnation! In one sense, they rest not day nor night, yet they serve God continually, and that is perfect rest!
 
@@ -38,22 +38,22 @@ Then do you not think that God finds rest in His Church because of the relations
 Now I am to speak briefly concerning the duration of God's rest in his church. "This is My rest forever."
 
 Then this proves that there will always be a Church of God. There are certain persons who are constantly subject to great fear and their fears make them quiver and shake, and then they imagine that God's Church is quivering and shaking, which is a very different matter! They hold up their hands, and cry, "Alas! Alas! The Church is in danger!" Well, some particular church, designed by men, may be in danger, but I do not believe that the Church of God is, or ever was, or ever will be in danger! It is thought by some that Popery will swallow the Church of Christ just as the whale swallowed Jonah. But if it should do so, the Church would come back again as surely as Jonah was cast up upon the dry land! There is no sword fashioned that can smite the Church of God, nor will there ever be one! There will be a Church as long as there is a world, and when this world is burned up, the Church shall shine more brightly than ever, and it shall keep on shining to all eternity, and be a rest for God forever.
-> Glorious things of you are spoken,
-> Zion, city of our God!
-> He whose word cannot be broken,
-> Formed you for His own abode:
-> On the Rock of Ages founded,
-> What cam shake your sure repose?
-> With salvation's walls surrounded,
-> You may smile at all your foes.
+> Glorious things of you are spoken,  
+> Zion, city of our God!  
+> He whose word cannot be broken,  
+> Formed you for His own abode:  
+> On the Rock of Ages founded,  
+> What cam shake your sure repose?  
+> With salvation's walls surrounded,  
+> You may smile at all your foes.  
 
 Further, there will always be a Church with God in it, and such a Church as God can rest in. Some people think that there is no church of which they can comfortably be members. But, dear Friends, there is a Church of which Jesus Christ is a member, for He is the Head of it! And if you cannot be members of any visible church, be not content unless you are members of that Church in which God rests forever, for that is always a pure Church! You sometimes hear a great deal about Apostolic succession: it is a gross lie as it is generally understood, but in itself it is a great Truth of God. The Apostolic succession may be very clearly traced through the Novatians, Donatists, Lollards, Albigenses, Waldenses, Anabaptists and Huguenots, right down to the Christians of various denominations that exist today. There is a true line that never entered the Stygian bog of Rome! A pure silver stream which has flowed down to us right from the times of the Apostles! There always has been a Church in which God could dwell and there always will be a Church that shall be His dwelling place! You know that Christ prayed, "Holy Father, keep through Your own name those whom You have given Me, that they may be one, as We are." And I do not believe that Christ prayed any prayer that will not be answered in due time! More than that, I believe that the Church of Christ is one now. "Oh, but!" says someone, "look at the many divisions and denominations that there are!" Yes, I know about them, but the only true unity is that of the spiritually quickened souls that form the Mystical Body of Christ. Whatever division there may be among them at present is only external, if we could see beneath the surface and judge as God judges: we should perceive that in the truly vital matters, they are one. Being one with Christ, they are also one with each other. We must look less and less to mere externals, and think more and more of that which is spiritual, for it is only in the invisible and spiritual Church of Christ that God finds rest. I do not believe that He finds rest in the Baptist denomination, or in the Independent, or in the Church of England, as such. He finds His rest in all the saved to whatever denomination they may belong! His rest is not in great human organizations, but in those whom His Grace has called, who are already one in Christ Jesus!
 
 Another inference that I draw from the text is that the Church of God will always be secure. "Here will I dwell," says the Lord. And there would be no rest for Him if the enemy could be continually scaling the ramparts, damaging the walls and carrying away His people as captives. A king within his capital could not rest if one suburb after another fell into the hands of his foes. The rest of a shepherd would be effectually broken if he heard a lion scrunching the bones of any of his sheep, or if a wolf seized even one of the lambs of his flock. When the Lord says, "This is My rest forever," He seems to me to guarantee the eternal security of every soul that is in the true Church of Christ. All who are in the Church which Jesus bought with His precious blood must be perfectly safe forever.
-> The soul that on Jesus has leaned for repose,
-> He will not, He will not desert to His foes!
-> That soul, though all Hell should endeavor to shake,
-> He'll never, no never, no never forsake!
+> The soul that on Jesus has leaned for repose,  
+> He will not, He will not desert to His foes!  
+> That soul, though all Hell should endeavor to shake,  
+> He'll never, no never, no never forsake!  
 
 There may be many in any part of the visible church who will perish, but there shall never be one who is truly a member of the Church of the living God who shall be lost! I started a little, the other night, when a Brother said that once we are brought into the Church, we are safe forever. But when he went on to show that by the expression, "the Church," he meant what God means by those words, I fully agreed with him! This is the Zion of which Jehovah says, "This is My rest forever: here will I dwell; for I have desired it." And it is His rest because He knows that all who are within it are safe forever! At the last, Jesus will be able to say to His Father, "Of all whom You gave Me have I lost none."
 
@@ -66,10 +66,10 @@ God finds His rest in His Church. Is that where we find our rest? I wonder how m
 Do you, dear Friends find rest in the company of God's chosen people? The ungodly do not. If some gracious person should go to their house and begin talking about the mysteries of the Cross, their impatient glances at the clock would soon show that such a theme was a weariness to them. When they go up to the place where God's people meet, to worship Him, the shorter the service is the better they like it! And the reason is that they do not savingly know the Lord. A man without sight would not be likely to be very much charmed in a picture gallery. And a man who was stone-deaf would not be very delighted with the grandest oratorio that was ever performed! In like manner, we cannot expect that those who have no spiritual sense can find delight in the company of God's people. But how different it is with the man who is really saved! He can say, with David, of the saints that are in the earth, that they are "the excellent, in whom is all my delight." A good old saint, whom I went to see on her dying bed, said to me, "It always gives me comfort, Sir, to think that God is not likely to send me to dwell with the wicked, for I never liked their society here. I believe He will let me go with my own company and I have always kept company with His people since I have learned to know Him." I assured her that I believed it would be so. It is a sign of Grace when we find rest with those who are really spiritual because they are spiritual. You may love some saints of God, yet it may be no sign of Grace on your part: there may be something specially lovable about them so that you cannot help loving them or you may have received some temporal kindness from them and, therefore, love them for purely natural reasons. But it is a very different matter when we can say, with John: "We know that we have passed from death unto life, because we love the brethren." Some of us can truthfully declare that our happiest hours are those that we expound with the saints of God! And we can fully sympathize with Dr. Watts when he says: "My soul shall pray for Zion still, While life or breath remains; There my best Friends, my kindred dwell, There God my Savior reigns.
 
 God says of His Church, "This is My rest forever," and we can say the same. I cannot say that concerning any visible church. I should not like to have to rest forever in any portion of the church on earth! But in union with the redeemed in Glory, I can rest! When I think of Abraham, Isaac and Jacob. When I read the lives of Prophets and Apostles. When I turn to more modern times and think of Calvin, and Luther, and Zwingli, and Berridge, and Wesley, and Whitefield, and a host of others, I can say, "Ah, let me once get into their company and then I shall feel, 'This is my rest forever.' I do not need anything more than this except to be in the Master's own company!" Oh, what rest it will be to be with Him! This is our rest even now, to be with Him! And to be forever with Him will be the perfection of rest.
-> Let me be with You, where You are,
-> My Savior, my eternal rest!
-> Then only will this longing heart
-> Be fully and forever blest
+> Let me be with You, where You are,  
+> My Savior, my eternal rest!  
+> Then only will this longing heart  
+> Be fully and forever blest  
 
 Do you not think that Abel must have felt very strange when he went to Heaven? How startled the angels must have been when they saw the first soul redeemed by blood in Glory all by himself! I think they must have hushed their songs awhile to ask all about him. Here was a man come to sing in Heaven, to chant before the Eternal Throne the praises of a Sacrifice greater than any that he had offered! Yes, but Abel could not have felt perfectly at rest, for Paul tells us that the Church in Heaven will not be made perfect without us. When another and yet another joined Abel in Heaven, I think it must have increased his happiness. And now, as others keep on going Home, the glorified saints welcome them with exceeding joy, for they all feel that their bliss will not be perfect until every redeemed soul is gathered there with them and the whole of the shining ranks are filled! Then, when all shall be there, each one of them will say, as God Himself now says, "This is my rest forever: here will I dwell; for I have desired it."
 
