@@ -1,7 +1,7 @@
 # Sermon 3242 | Unparalleled Loving Kindnesses
 
 > Lord, where are Your former loving kindnesses, which You swore unto David in Your truth?  
-> Psalm 89:49
+> Psalm 89:49  
 
 The Lord had made an Everlasting Covenant with David, ordered in all things and sure, yet that Covenant was not intended to preserve him from trouble. When this Psalm was written, he had been brought very low. His crown had been cast down to the ground, his enemies had rejoiced over him and he had become a reproach to his neighbors. Then his thoughts flew back to the happier days of the past and the Covenant which the Lord had made with him, and either David, himself, or Ethan, writing on his behalf, enquired, in the words of our text, "Lord, where are Your former loving kindnesses, which You swore unto David in Your truth?"
 
