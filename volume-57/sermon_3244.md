@@ -1,7 +1,7 @@
 # Sermon 3244 | "Our Light Affliction"
 
 > Our light affliction.  
-> 2 Corinthians 4:17
+> 2 Corinthians 4:17  
 
 Perhaps someone here thoughtlessly says, "Well, whoever calls affliction, 'light,' must have been a person who knew very little about what affliction really is! If he had suffered as I have done, he would not have written about 'our light affliction.' He must have been in robust health and known nothing of sickness and pain." "Just so," says another, "and if he had been as poor as I am and had to work as hard as I do to maintain a sickly wife, and a large family, he would not have written about 'our light affliction.' I expect the gentleman who used that expression lived very much at his ease and had all that his heart could wish." "Yes," says another, "and if he had stood by an open grave and had to lament the loss of loved ones, as I have done. And if he had known what it was to be desolate and forsaken, as I have known it, he would not have written about 'our light affliction.'"
 
@@ -21,14 +21,14 @@ Still speaking to Christian workers, I have next to say that our affliction is l
 
 Saved by His almighty Grace, cleansed by His ever-precious blood, living because we have been made partners of His life, how can we help loving Him who has made us what we are? When that sacred passion burns vehemently within our hearts, we feel that any affliction that we have to endure in order to glorify Christ is too light to be even worth mentioning! O you devoted lovers of the Savior, have you not known hours when you have envied the martyrs and wished that you, too, might be allowed to wear the ruby crown? When you have read about how they had to lie for years in cold, damp dungeons, and then at last were dragged forth to die at the block, the stake, or the scaffold, have you not felt that your lives were poor and mean compared with theirs and that you would gladly sacrifice all the comfort you now enjoy if you might be permitted to die for Christ as they did? I hope that many of you could truthfully say to your dear Lord and Savior:
 
-> Would not my ardent spirit vie   
-> With angels round the Throne,   
-> To execute Your sacred will,   
-> And make Your Glory known?   
-> Would not my heart pour forth its blood   
-> In honor of Your name,   
-> And challenge the old hand of death   
-> To dampen the immortal flame?   
+> Would not my ardent spirit vie  
+> With angels round the Throne,  
+> To execute Your sacred will,  
+> And make Your Glory known?  
+> Would not my heart pour forth its blood  
+> In honor of Your name,  
+> And challenge the old hand of death  
+> To dampen the immortal flame?  
 
 It was such a spirit as this that must have possessed the Apostle Paul when he wrote concerning "our light affliction." Let us, also, as workers for Christ, reckon as light affliction anything we have to endure by which we may glorify Him who bore such a terrible weight of suffering and sorrow for us!
 
@@ -42,12 +42,12 @@ Then next, our affliction is very light compared with that of our Lord. Do you, 
 
 I think there is no consolation for an afflicted child of God so rich as that which arises from the contemplation of the sufferings of Jesus. The remembrance of the agony and bloody sweat of Gethsemane has often dried up the sweat of terror upon the anguished brow of the Believer. The stripes of Jesus have often brought healing to his wounded followers. The thirst, the desertion and the death on Golgotha, all the incidents of our Savior's suffering and the terrible climax of it all, have been most helpful in comforting the sorrows of stricken saints! Brothers and Sisters in Christ, your sufferings are not worth a moment's thought when compared with the immeasurable agonies of Jesus, your Redeemer! My soul would prostrate herself at His dear pierced feet, and say, "I have never seen any other affliction like Your affliction. I have beheld and seen, but I have never seen any sorrow like Your sorrow. You are, indeed, the incomparable Monarch of Misery, the unapproachable King of the whole realm of grief! Of old, You were the 'Man of Sorrows and acquainted with grief,' and no man has ever been able to rob You of Your peculiar title." I think that such reflections as these will help us to realize that however heavy our affliction appears to be to us, it is very light compared with that of our dear Lord and Master:
 
-> Sons of God, in tribulation, Let your eyes the Savior view, He's the Rock of our salvation, He was tried and tempted, too. All to succor   
-> Every tempted, burdened son.   
+> Sons of God, in tribulation, Let your eyes the Savior view, He's the Rock of our salvation, He was tried and tempted, too. All to succor  
+> Every tempted, burdened son.  
 
 And further, Beloved, our affliction is very light compared with the blessing which we enjoy. Many of us have had our sins forgiven for Christ's sake, and the blessing of full and free forgiveness must far outweigh any affliction that we ever have to endure! When we were lying in the gloomy dungeon of conviction and had not a single ray of hope to lighten the darkness, we thought that even though we had to be kept in prison all our days and to be fed only upon bread and water, we could be quite joyous if we could but be assured that God's righteous anger was turned away from us and that our sins and iniquities He would remember against us no more forever! Well, that is just what many of us have expe-rienced, our transgressions have been forgiven and our sin has been covered by the great atoning Sacrifice of Jesus Christ, our Lord and Savior! Then let us rejoice and be glad all our days! But this is not all the blessing that we have received, for we have been clothed in the righteousness of Christ and adopted into the family of God! Now we are heirs of God, and joint-heirs with Jesus Christ. We even now share in all the privileges of the children of God and there are still greater favors and honors reserved for us in the future, as the Apostle John says, "Beloved, now are we the sons of God, and it does not yet appear what we shall be; but we know that when He shall appear, we shall be like Him, for we shall see Him as He is." We already have a foretaste of the bliss that is laid up in store for us, for:
 
-> The men of Grace have found   
+> The men of Grace have found  
 > Glory begun below!  
 > Celestial fruits on earthly ground  
 > From faith and hope do grow!  
@@ -56,14 +56,14 @@ So it is quite true that in comparison with our blessings and privileges, our af
 
 And, dear Friends, we specially realize that our affliction is light as we prove the power of the Lord's sustaining Grace. Some of you have never personally proved its power, but many of you know by practical experience what I mean. There are times when through acute physical pain or great mental anguish, the soul is at first utterly prostrate. But at last it falls back in sheer helplessness upon the bosom of Jesus, gives up struggling and resigns itself absolutely to His will. And then. I speak what I know and testify what I have felt, there comes into the soul a great calm, a quiet joy so deep and so pure as never is experienced at any other time! I have sometimes looked back upon nights of pain, pain so excruciating that it has forced the tears from my eyes, and I have almost asked to have such suffering repeated if I might but have a repetition of the seraphic bliss that I have often enjoyed under such circumstances! I made a mistake when I said, "seraphic" bliss, for seraphs have not the capacity for suffering that we have and, therefore, they can never experience that deep, intense, indescribable bliss that is our portion when, by Grace, we are enabled to glorify God even in the furnace of affliction:
 
-> Let me but hear my Savior say,   
-> 'strength shall be equal to your day!'   
-> Then I rejoice in deep distress,   
-> Leaning on all-sufficient Grace.   
-> I can do all things, or can bear   
+> Let me but hear my Savior say,  
+> 'strength shall be equal to your day!'  
+> Then I rejoice in deep distress,  
+> Leaning on all-sufficient Grace.  
+> I can do all things, or can bear  
 > All sufferings, if my Lord is there  
-> Sweet pleasures mingle with the pains,    
-> While His left hand my head sustains.   
+> Sweet pleasures mingle with the pains,  
+> While His left hand my head sustains.  
 
 We may well say that no affliction weighs more than a gnat resting upon an elephant when the Lord's upholding Grace is sweetly manifested to our soul in times of perplexity, anxiety and pain. It is just then that Jesus often so graciously reveals Himself to us that we even come to love the cross that brings Him specially near to us. I can understand that strange speech of Rutherford, as some have regarded it when he said that he sometimes feared lest he should make his cross into an idol by loving affliction too much because of the blessed results that flowed from it! The bark of the tree of affliction may be bitter as gall, but if you get to the pith of it, you will find that it is as sweet as honey!
 
@@ -71,13 +71,13 @@ Once more, affliction, sanctified affliction, becomes very light when we see to 
 
 Now, lastly, our affliction is light compared with the Glory which is so soon to be revealed to us and in us. Some of us are much nearer to our heavenly Home than we have ever imaged. Possibly we are reckoning upon another 20 or even 40 years service, yet the shadows of our life's day are already lengthening although we are unaware that it is so. Perhaps we are anticipating long periods of fighting without and fears within, but those anticipations will never be realized, for the day of our final victory is close at hand and there doubts and fears shall never again be able to assail our spirits. In this House, tonight, there may be some who are sitting on the very banks of the Jordan, and just across the river lies the land that flows with milk and honey, the land which is reserved as the inheritance of the true children of God! Their eyes are so dimmed with tears that they cannot see:
 
-> Canaan's fair and happy land,   
-> Where their possessions lie.   
+> Canaan's fair and happy land,  
+> Where their possessions lie.  
 
 They even imagine that they are captives by the waters of Babylon and they hang their harps upon the willows, for they fear there are many years of banishment still before them. Yet the King's messenger is already on the way with the summons to bid them to appear before Him very soon! Even if the call does not come to some of us at once, if the Master has need of us in this world a little longer, how soon our mortal life must end! What is our life? "It is even a vapor, that appears for a little time and then vanishes away." "As for man, his days are as grass; as a flower of the field, so he flourishes. For the wind passes over it and it is gone; and the place thereof shall know it no more." But does the brevity of life cause us any anxiety? Oh, no! "For we know that if our earthly house of this tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens"! And when once we reach that blest abode of all the saints and look back upon our earthly experiences, we shall feel that any affliction we had to endure was light, indeed, compared with the unutterable bliss that shall then be our eternal portion! We are pilgrims bound to Zion's city and we necessarily have certain privations and difficulties, but when our journey is at an end:
 
-> One hour with our God   
-> Will make up for it all.   
+> One hour with our God  
+> Will make up for it all.  
 
 If we have not this good hope through Divine Grace, we may well say that our affliction is not light. I cannot imagine how any of you, my Hearers, can go on living without a Savior. You poor people, you hard-working people, you sickly, consumptive people, how can you live without a Savior? I wonder how those who are rich and who have an abundance of earthly comforts can live on, year after year, without any hope (except a false one) of comfort and blessing in the life that is to come? But as for you who have so few earthly comforts, you whose life is one long struggle for bare existence, you who scarcely know what it is to have a day without pain, how can you live without a Savior? Remember that "godliness is profitable unto all things, having promise of the life that now is, and of that which is to some." So, "seek you the Lord while He may be found, call you upon Him while He is near: let the wicked forsake his way, and the unrighteous man his thoughts: and let him return unto the Lord, and He will have mercy upon him; and to our God, for He will abundantly pardon." May the Lord give you the Grace to come to Him this very moment! And to Him shall be all the Glory forever, for Jesus Christ's sake. Amen.
 
