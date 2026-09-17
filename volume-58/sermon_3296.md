@@ -1,7 +1,7 @@
 # Sermon 3296 | Praise for Jesus
 
-> Judah, you are he whom your brothers shall praise.
-> Genesis 49:8
+> Judah, you are he whom your brothers shall praise.  
+> Genesis 49:8  
 
 These words were spoken by the Patriarch Jacob when he blessed his sons as he lay a-dying. But before he finished Judah's blessing, the good old man seemed to forget his son and to turn his thoughts to Jesus, our Lord, of whom Judah was a very significant type. Jacob compared Judah to a lion and a lion's whelp, and in the Revelation we read that one of the elders said to John, "The Lion of the tribe of Judah, the Root of David, has prevailed to open the book, and to loosen the seven seals thereof." In the tenth verse of this Chapter we have Jacob's notable prophecy concerning the coming of Christ, "The scepter shall not depart from Judah, nor a lawgiver from between his feet, until Shiloh comes and unto Him shall the gathering of the people be."
 
@@ -24,10 +24,10 @@ Further, the tribe of Judah had precedence in presenting offerings unto the Lord
 Yet again, Judah had the singular precedence of always leading the van when the tribes were on the march. In Numbers 10:14 we read that, when the fiery-cloudy pillar moved, "in the first place went the standard of the camp of the children of Judah according to their armies." First in the encampment, first on the march, first everywhere was Judah's lion! The tribe of Dan brought up the rear, but the tribe of Judah always went in front. And here again let Jesus Christ be praised, for He always leads the way! If I descend into the Valley of Humiliation, I shall see His footprints all down the slippery steeps. If I pass through the Enchanted Ground where so many fall asleep, I shall see the track of the Wakeful One all along that dangerous way. If up the Hill Difficulty I have to scramble on my hands and knees, I shall see the marks of the blood drops where His hands were torn by the thorns and His feet were cut by the flints as He, too, climbed there! And when I go down to the river, I shall still see His footprints, and up the other side I shall see the track of my risen Lord! All up the eternal hills I shall but follow where He leads the way! Yes, and up to the very Throne of God He has gone before us, clearing a way for His people and leading them along it.
 
 Yet once more, Judah afterwards attained to the sovereignty, for David, of the tribe of Judah, was in due time proclaimed king over all Israel. We also have a King of the line of Judah, one who is mightier than David, and wiser than Solomon, and happy are we in having such a King to reign over us! Who among us that loves Christ would not set Him up upon a high throne? Oh, that we could continually exalt Him yet more and more! Let your sweetest songs be all in His praise! Let your most daring deeds be done for Him. Give Him, you gracious women, your alabaster boxes full of precious ointment! Prepare your feasts, you wealthy men, and invite Him to preside at the table! Come, you children, and strew branches in the way while He rides along triumphantly! Let, "Hosanna! Hosanna! Hosanna!" be the joyful strain which comes from every lip and heart because Jesus reigns over us, the King of kings and Lord of lords! Do praise Him, do extol Him this very moment, lift up your hearts and your voices while we sing this familiar strain.
-> Jesus is worthy to receive
-> Honor and power Divine.
-> And blessings more than we can give
-> Be, Lord, forever Thine.
+> Jesus is worthy to receive  
+> Honor and power Divine.  
+> And blessings more than we can give  
+> Be, Lord, forever Thine.  
 
 The second part of our subject was to be the glories of Judah as setting forth the glories of Jesus. They are illustrated in the sentence concerning Judah that follow our text.
 
