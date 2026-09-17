@@ -1,7 +1,7 @@
 # Sermon 3277 | Good Cheer From Christ's Call and From Himself
 
 > And they came to Jericho: and as Jesus went out of Jericho with His disciples and a great number of people, blind Bartimaeus, the son of Timaeus, sat by the highway side begging. And when he heard that it was Jesus of Nazareth, he began to cry out, and say, Jesus, You Son of David, have mercy on me! And many charged him that he should hold his peace: but he cried the more a great deal, You Son of David, have mercy on me! And Jesus stoodstill, and commanded him to be called. And they called the blind man, saying unto him, Be of good comfort, rise, He calls you. And he, casting away his garment, rose, and came to Jesus. And Jesus answered and said unto him, What will you that I should do unto you? The blind man said unto Him, Lord, that I might receive my sight. And Jesus said unto him, Go your way; your faith has made you whole. And immediately he received his sight, and followed Jesus in the way.  
-> Mark 10:46-52
+> Mark 10:46-52  
 
 The blind man described in this narrative is a picture of what I earnestly desire that every hearer and reader of my sermons may become. In his first condition, Bartimaeus was a type of what the sinner is by nature, blind, hopelessly blind, unless the healing Savior shall interfere and pour in upon him the light of day. It is not, however, to this point that we shall now turn our thoughts, but to his conduct while seeking sight. This man, by God's great mercy, so acted that he may be held up as an example to all who feel their spiritual blindness, and earnestly desire to see the Light of Grace!
 
@@ -39,10 +39,10 @@ At this time, I wish to give to all anxious souls who are trying to find their S
 
 First, it is true that Jesus calls each one of us by the universal call of the Gospel, for its message is unto all people. Ministers are bid to go into all the world and preach the Gospel to every creature. You, my Friend, are a creature and, consequently, the Gospel has a call for you, "Believe on the Lord Jesus Christ, and you shall be saved." We are bid to preach the Gospel of the Kingdom throughout all nations, and to cry, "Whoever will, let him take the water of life freely." "Whoever." There is no limit to it and it would be a violation of our commission if we would attempt to enclose what God has made as free as the air, and as universal as manhood! "The times of this ignorance God winked at, but now commands all men everywhere to repent." This is the universal call. "Repent, you, and believe the Gospel." In this there is comfort of hope for all who desire to come to God:
 
-> None are excluded hence but those   
-> Who do themselves exclude!   
-> Welcome, the learned and polite,   
-> The ignorant and rude.   
+> None are excluded hence but those  
+> Who do themselves exclude!  
+> Welcome, the learned and polite,  
+> The ignorant and rude.  
 
 But there is still more comfort in what, for distinction's sake, we will name the character call. Many promises in the Word of God are directed to persons of a certain character. For instance, "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Do you labor? Are you heavy laden? Then Christ especially calls you and promises rest to you if you come to Him. Here is another, "Ho, everyone that thirsts, come you to the waters." Are you thirsting after something better than this world can give? Then the Lord bids you come to the waters of His Grace. "And he that has no money, let him come." Is that you? Are you destitute of merit, destitute of everything that could purchase the favor of God? Then you are the person whom He specially invites! We find a very large number of invitations, both in the Old and New Testament, addressed to persons in certain conditions and positions. And when we meet with a person whose case is thus anticipated, we are bound to bid him be of good cheer because the Lord is plainly calling him.
 
