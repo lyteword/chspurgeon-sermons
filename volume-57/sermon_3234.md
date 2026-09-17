@@ -1,7 +1,7 @@
 # Sermon 3234 | Strangers and Sojourners
 
 > For I am a stranger with You, and a sojourner, as all my fathers were.  
-> Psalm 39:12
+> Psalm 39:12  
 
 If you read the whole verse, you will see that David used these words as an argument in prayer, "Hear my prayer, O Lord, and give ear unto my cry; hold not Your peace at my tears: for I am a stranger with You, and a sojourner, as all my fathers were." It is a grand thing to be able to argue with God in prayer! Faith grips the Angel of the Covenant, but it is by well-grounded arguments that we will wrestle with Him until we prevail. Expectancy puts in the wedge, but it is solid argument that drives it home. When we want to obtain any mercy from the Lord, we must support our plea by reasons drawn from His Nature, His promises and the experiences of His children as recorded in His Word. Martin Luther was a great master of this holy art of arguing with God in prayer, as was the Apostle Paul and, therefore, their supplications were not presented in vain. Let it be so with you, also, Beloved, besiege the Throne of Grace with the most powerful arguments you can find in the heavenly armory! Lay hold upon the arm of Omnipotence and say to the Lord, as wrestling Jacob did, "I will not let You go, unless You bless me."
 
@@ -35,14 +35,14 @@ Further, that sentence means that although we are strangers in the world, we enj
 
 The sentence "I am a stranger with You," also means that, although we are strangers in the world, God, too, is a stranger. It is passing strange, yet is it strangely true that God is a stranger in His own world! Here is His handiwork all around us, most fair and beautiful, yet the fool says in his heart, "There is no God," and proves himself to be a fool by saying it! Here are signs on every hand of the working of God's gracious Providence, mysterious but wondrously wise, yet worldlings cannot see any traces of the finger or mind or heart of God, for He is a stranger to them! And as God is a stranger here, we need not marvel that we, who are His children, are also strangers on the earth:
 
-> Behold what wondrous Grace   
-> The Father has bestowed   
-> On sinners of a mortal race,   
-> To call them sons of God!   
-> ' Tis no surprising thing   
-> That we should be unknown:
-> The Jewish world knew not their King,   
-> God's everlasting Son.   
+> Behold what wondrous Grace  
+> The Father has bestowed  
+> On sinners of a mortal race,  
+> To call them sons of God!  
+> ' Tis no surprising thing  
+> That we should be unknown:  
+> The Jewish world knew not their King,  
+> God's everlasting Son.  
 
 I think I see my gracious Lord and Master wandering through this world as a Stranger, "despised and rejected of men; a Man of Sorrows, and acquainted with grief, spit upon, scourged, hounded out from among men and, at last crucified "outside the gate." Then, when we "go forth unto Him outside the camp, bearing His reproach," we are strangers with Him and what higher honor than that can any of us ever desire? "The disciple is not above his Master, nor the servant above his Lord. It is enough for the disciple that he is as his Master, and the servant as his Lord."
 
@@ -56,10 +56,10 @@ Do you think God would make us so dissatisfied with this world if He did not mea
 
 This being the case, it is not surprising that we sometimes long to get Home. We ought not to long for Heaven from any lazy motives. A good workman may be so tired with heavy toil that he eagerly looks forward to Saturday night so that he may enjoy his Sabbath rest and renew his strength for fresh service on the morrow. And you and I, Beloved, though we are not tired of our Master's work, are often tired in it, and we shall be glad when our rest day comes. Thank God, it is not to be six days' work, and then one day's rest, but it is to be a rest that shall know no end, a rest in untiring service! "There remains therefore a rest (a Sabbatismos, an eternal keeping of Sabbath) to the people of God." I said that it is not surprising that we sometimes long to get Home. You would not think that a boy loved his home if he never longed for the holidays to come. I recollect that when I was at boarding-school, I made an Almanac with a square for every day and I blotted out each one as it went by, and sometimes I blotted it out the night before so that I might seem to have fewer days at school! And, Christian, you, also, may rejoice as the days of your school training here pass, for, as each one flits by, you are "a day's march nearer Home.":
 
-> Though in a foreign land,   
-> We are not far from home.   
-> And nearer to our Home above   
-> We every moment come.   
+> Though in a foreign land,  
+> We are not far from home.  
+> And nearer to our Home above  
+> We every moment come.  
 
 Do you not also think, dear Friends, that the fact that we are strangers here should make us treat one another well? And surely, if the worldling knew Christians better, he would treat them better. They are strangers to you, Man, but they are God's strangers! They are royal personages incognito, princes of the blood imperial travelling through this world to their wondrous palaces above! But let us who are fellow pilgrims and strangers help one another all we can. If you are in Switzerland, or up the Rhine, and have got into some difficulty or trouble, if you see an Englishman coming, you feel pretty sure that your fellow countryman will do what he can to help you. It should be so with Christians! We are strangers in this world, so let us aid one another all we can. We are soldiers in an enemy's country, so back to back and shoulder to shoulder let us face the foes that are all around us! Though we are strangers to the world, we are not strangers to God, so let us not be strangers to one another, but let us be of one heart and mind, walking in love, even as Christ loved us and gave Himself for us.
 
