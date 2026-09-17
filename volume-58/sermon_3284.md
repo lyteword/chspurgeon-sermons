@@ -1,26 +1,26 @@
 # Sermon 3284 | The Sequel to Divine Sovereignty
 
-> The Lord reigns; let the people tremble.
-> Psalm 99:1
+> The Lord reigns; let the people tremble.  
+> Psalm 99:1  
 
-> The Lord reigns; let the earth rejoice.
-> Psalm 97:1
+> The Lord reigns; let the earth rejoice.  
+> Psalm 97:1  
 
 No Doctrine in the whole Word of God has more excited the hatred of mankind than the truth of the absolute Sovereignty of God. The fact that "the Lord reigns" is indisputable, and it is this fact that arouses the utmost opposition in the unrenewed human heart. "The kings of the earth set themselves, and the rulers take counsel together against the Lord and against His Anointed, saying, Let us break their bands asunder, and cast away their cords from us." We know what the Lord thinks of their rebellion against Him: "He that sits in the heavens shall laugh: the Lord shall have them in derision. Then shall He speak unto them in His wrath and vex them in His sore displeasure." Let us, Beloved, not be among those who refuse to believe this great Truth of God, but may we humbly bow before that dread Sovereign who does as He wills among the armies of Heaven and among the inhabitants of this lower world.
-> God is a King of power unknown;
-> Firm are the orders of His Throne!
-> If He resolves, who dare oppose,
-> Or ask Him why, or what He does?
+> God is a King of power unknown;  
+> Firm are the orders of His Throne!  
+> If He resolves, who dare oppose,  
+> Or ask Him why, or what He does?  
 
 God has the right to act thus, first, because He is the source of all created existence. "In the beginning God created the heavens and the earth," and everything else that exists is the product of His creative power! As the writer of the one hundredth Psalm says, "It is He that has made us, and not we ourselves." So He has the absolute right to do with us whatever He pleases. It rested with Him to make us or not to make us. And when He determined to create, it was according to His own will that He made one creature a worm and another an eagle, one an ant crawling upon its little hill and another a leviathan making the deep to boil. It was by His decree that there were almost boundless variations among the great family of mankind. In constitution, disposition and temperament, in the very appearance of our bodies, in the strange diversities of our mental capacities, in our position upon the globe or our place and circumstances in any particular country and nation: we see traces of the Sovereign purpose and will of God. It is true that our ancestors, parents and surroundings have exerted certain influences upon us, but there are peculiarities about each one of us which can only be ascribed to the Sovereign good pleasure of God. That one should be a silent and unobtrusive traveler through life's pilgrimage, and that another should be so eloquent as to speak in words that find an echo the wide world over: that one should sweat and toil all his days, and that another should be dandled upon the knee of luxury: we may say what we will about all this, but whether we agree with it or not, we cannot deny that it is according to Divine appointment and order and, therefore, we must submit to it.
-> The Lord is King; who them shall dare
-> Resist His will, distrust His care,
-> Or murmur at His wise decrees,
-> Or doubt His royal promises?
-> The Lord is King, child of the dust,
-> The Judge of all the earth is just
-> Holy and true are all His ways,
-> Let every creature speak His praise.
+> The Lord is King; who them shall dare  
+> Resist His will, distrust His care,  
+> Or murmur at His wise decrees,  
+> Or doubt His royal promises?  
+> The Lord is King, child of the dust,  
+> The Judge of all the earth is just  
+> Holy and true are all His ways,  
+> Let every creature speak His praise.  
 
 Not only do we believe that God being the Creator, has the right to make His creatures according to His own will, but we also believe that He has another right over us acquired from our sinful nature. We may say, though we speak it with bated breath in the Presence of His awful Majesty, that even creatures have their rights at their Creator's hand. For instance, every creature may claim from its Creator that it should not be punished if it does not offend, and that it should be made happy if it is obedient to His commands. Such rights Jehovah has always acknowledged and has never violated. But you and I, dear Friends, have lost all the rights of creatureship, for we have all sinned! A subject of this realm has the right of freedom to go where he pleases and do what he pleases as long as he does not offend against the law of the land. But if he commits high treason, or robbery, or some other crime and so is brought under the condemnation of the law, he immediately loses all right to his freedom and is put in prison with other criminals.
 
@@ -43,14 +43,14 @@ There are many in this place who may well thank the King for His Sovereign Mercy
 Let me also remind those of you who are unconverted that you have a further proof of Divine Sovereignty in the fact that God has promised to hear prayer. There are many promises like these, "Ask, and it shall be given you; seek, and you shall find: knock, and it shall be opened unto you: for everyone that asks, receives; and he that seeks, finds, and to him that knocks, it shall be opened." God in mercy invites you to come to Him, and this is a subject for heartfelt rejoicing, but it is also a cause of trembling, for the door of His mercy will not always remain open and, "when once the Master of the house is risen up and has shut the door and you begin to stand outside and to knock at the door, saying, Lord, Lord, open unto us! He shall answer and say unto you, I know not who you are." Tonight Jesus is lifted up in the preaching of the Gospel as once He was lifted up upon the Cross, and He bids us cry to you, "Look and live! Look and live," for it is still true that: "There is life for a look at the Crucified One! There is life at this moment for thee. Then look, Sinner, look unto Him and be saved, Unto Him who was nailed to the tree."
 
 But if you refuse to obey the Gospel invitation, what must become of you? Surely Captain Execution, with the sharp axe in his hand, will come forth and take you to your well-deserved doom! If God were to deal with you according to your deserts, what hope would there be for you? Yet He bids you repent and He speaks to us as He said to Ezekiel, "Say unto them, As I live, says the Lord God, I have no pleasure in the death of the wicked: but that the wicked turn from his way and live: turn you, turn you from your evil ways; for why will you die, O house of Israel?" Isaiah's message is still true: "Seek you the Lord while He may be found, call you upon Him while He is near: let the wicked forsake his way and the unrighteous man his thoughts: and let him turn unto the Lord, and He will have mercy upon him; and to our God, for He will abundantly pardon." Sinner, I am happy in standing here as the ambassador of my King, and yet while I rejoice, I tremble lest you should reject the message that He has sent to you in the greatness of His Grace, for my King is not to be trifled with. He deals severely with those who spurn His mercy! Nothing provokes Him more than slights cast upon His dear Son! To turn away from the blood of His atoning Sacrifice will bring down upon you the indignation of the Most High! Oh, venture not upon such a perilous course, but with those trembling lips of yours kiss the Son, trust in Him, depend upon Him and you shall find salvation now to the praise and Glory of God's good Grace!
-> Long the Gospel you have spurned,
-> Long delayed to love your God,
-> Stifled conscience, nor have turned
-> Wooed though by a Savior's blood!
-> Wretched, ruined, helpless soul,
-> To a Savior's blood apply
-> He alone can make you whole,
-> Fly to Jesus, Sinner, fly
+> Long the Gospel you have spurned,  
+> Long delayed to love your God,  
+> Stifled conscience, nor have turned  
+> Wooed though by a Savior's blood!  
+> Wretched, ruined, helpless soul,  
+> To a Savior's blood apply  
+> He alone can make you whole,  
+> Fly to Jesus, Sinner, fly  
 
 Thus have I spoken to sinners. Now I am briefly to speak to the people of God.
 
