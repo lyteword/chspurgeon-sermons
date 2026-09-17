@@ -1,7 +1,7 @@
 # Sermon 3279 | "Ever This Our War Cry, victory, Victory!"
 
 > Therefore will I divide Him a portion with the great, and He shall divide the spoil with the strong; because He has poured out His soul onto death: and He was numbered with the transgressors: and He bore the sin of many, and made intercession for the transgressors"  
-> Isaiah 53:12
+> Isaiah 53:12  
 
 Our great concern is concerning Christ. "For Him shall constant prayer be made." It does not much matter what becomes of us, the common soldiers, so long as our great Captain is to the front. As the men of Napoleon's Old Guard could defy death for themselves, but were always anxious about the emperor, so every loyal soldier of Christ feels that the one question in the present conflict is, "How goes it with the King?" Is He crowned? Is He exalted? Is He winning His way among the sons of men? Brothers and Sisters, it may be that our star is waning. Does it matter if his sun is reaching its noon? It may happen that the company with which we are associated is not so much to the front as it used to be, and the regimental flag is in the rear, but what of that? Let us do the best we can to retrieve its honor but, after all, the main consideration is the royal standard. Where is that? "Let my name perish," said Whitefield, "but let Christ's name last forever." Such a feeling should actuate us all! What are we, my Brothers and Sisters, and what is our father's house? What if ten thousand of us should fall merely to fill a ditch for Him to march over? What if He took the whole of us and crushed us to the dust, if He were lifted an inch higher, it were none too costly for such an One as He is who has redeemed us unto God by His precious blood!
 
