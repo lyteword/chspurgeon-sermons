@@ -1,7 +1,7 @@
 # Sermon 3313 | A Practical Discourse
 
-> A month they were in Lebanon, and two months at home.
-> 1 Kings 5:14
+> A month they were in Lebanon, and two months at home.  
+> 1 Kings 5:14  
 
 It was right that when a Te a levy was made and a certain number of men were chosen to work in Lebanon. It was, however, most fitting that work for a gracious God should be joyful work, not the bondage of slaves, but the delight of sons. Solomon did not demand that any Israelite should toil in the mountains and queries for years together and leave his own fields to lie waste, but he decreed that the workers should have one month in Lebanon at work on the Temple and two months at home for their own affairs. Our God is not a taskmaster, and sacred service should not sour into forced labor! Self-sacrifice is the soul of true religion, but we must not demand of others that which would turn religion into slavery. Solomon knew that the common people would grow weary of working even for Jehovah, Himself, if they were taken away from their own families and inheritance altogether and, therefore, in his wisdom he put it so: "One month in Lebanon, and two months at home."
 
@@ -50,8 +50,8 @@ As for communion with God, oh, that we lived in it always! But we do not get tim
 ## Exposition by C. H. Spurgeon: 1 Kings 5, Psalms 48 and 95
 
 And Hiram king of Tyre sent his servants unto Solomon; for he had heard that they had anointed him king in the place of his father: for Hiram had always loved David. And Solomon sent to Hiram saying, You know how that David, my father could not build an house unto the name of the Lord his God for the wars which were about him on every side, until the Lord put them under the soles of his feet. But now the Lord my God has given me rest on every side, so that there is neither adversary nor evil occurrence. And, behold, I purpose to buildan house unto the name of the Lord my God, as the Lord spoke unto David my father, saying, Your son, whom I will set upon your throne in your place, he shall build an house unto My name. When God intends a man to do any special work for Him, He will find him all the helpers he needs. Sometimes those helpers may seem to be very unlikely persons, but.
-> Remember that Omnipotence
-> Has servants everywhere.
+> Remember that Omnipotence  
+> Has servants everywhere.  
 
 See, dear Friends, when the Lord had given rest to Solomon, he proceeded with the building of the Temple which David had planned. Whenever God blesses you, show your gratitude to Him by undertaking some special service for Him. Now that you are out of your recent trouble, bring your sacrifice of thanksgiving and do all that you can for your Lord, your time of rest may not last as long as you could wish, therefore use it while you have it to God's Glory.
 
