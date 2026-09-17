@@ -1,7 +1,7 @@
 # Sermon 3255 | The Pearl of Patience
 
 > You have heard of the patience of Job, and have seen the end of the Lord, that the Lord is full of pity and of tender mercy.  
-> James 5:11
+> James 5:11  
 
 We need to be reminded of what we have heard, for we are far too ready to forget. We are also so slow to consider and meditate upon what we have heard that is profitable to have our memories refreshed. At this time we are called upon to recollect that we have heard of the patience of Job. We have, however, I trust, gone beyond mere hearing, for we have also seen in the story of Job that which it was intended to set vividly before our mind's eye. "You have heard of the patience of Job, and have seen the end of the Lord." The Romish priest professes to make men hear the voice of the Gospel by seeing, but the Scriptural way is to make men see the Truth of God by hearing. Faith, which is the soul's sight, comes by hearing. The design of the preaching of the Gospel to the ear is "to make all men see what is the fellowship of the mystery which from the beginning of the world has been hid in God, who created all things by Jesus Christ." Inward sight is the result of all fruitful hearing!
 
