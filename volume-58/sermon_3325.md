@@ -1,15 +1,15 @@
 # Sermon 3325 | Solace for Sad Hearts
 
-> To console them that mourn in Zion.
-> Isaiah 61:3
+> To console them that mourn in Zion.  
+> Isaiah 61:3  
 
 It is no small advantage to know beyond mistake of whom this is declared. Our gracious Master has appropriated this as His very own and we can be under no possible delusion now when we see in this Servant of the Lord, the Son of God, Himself. When in the synagogue at Nazareth on the Sabbath, He read before the astonished congregation this marvelous passage from the Scripture roll and then handed it back to the leader of the synagogue. He began to interpret it by saying, "This day is this Scripture fulfilled in your ears." It is no surprise for us to find that His hearers fastened their eyes upon Him in admiring wonder because of "the gracious words that proceeded out of His mouth."
 
 Think what was the burden of this unique discourse! It was concerning Himself as the preacher of good tidings, as the binder up of the brokenhearted and the liberator of the enslaved!
 
 No doubt there was an allusion here to the ancient Jewish Jubilee. When the silver trumpet sounded in the morning because the fiftieth year had come, that moment every captive throughout Judaea's land was free and none could hold him in bondage.
-> The year of Jubilee is come,
-> Return, you ransomed captives, home.
+> The year of Jubilee is come,  
+> Return, you ransomed captives, home.  
 
 That is the song I want my hearers to sing now. Jesus Christ proclaims it, proclaims it. Do you notice that! A proclamation is a message which all loyal subjects are sure to attend to. It is not headed V. R. Vivat Rex! But Vivat Rex Jehovah! Long live Jehovah the King! He issues the proclamation from His Throne and bids His Son tell captive souls that Christ Jesus sets them free! Let them but believe Him and they shall rise to instant liberty! The Lord grant that many may accept this good news! We may expect it, for the Spirit of God rests upon the preaching of Christ.
 
