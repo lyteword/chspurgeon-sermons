@@ -1,7 +1,7 @@
 # Sermon 3319 | The Well-beloved's Vineyard
 
-> My Well-Beloved has a vineyard on a very fruitful hill.
-> Isaiah 5:1
+> My Well-Beloved has a vineyard on a very fruitful hill.  
+> Isaiah 5:1  
 
 We recognize at once that Jesus is here. Who but He can be meant by, "My Well-Beloved?" Here is a word of possession and a word of affection. He is mine, and my Well-Beloved. He is loveliness, itself, the most loving and lovable of beings, and we personally love Him with all our heart, mind, soul and strength. He is ours, our Beloved, our Well-Beloved! We can say no less.
 
