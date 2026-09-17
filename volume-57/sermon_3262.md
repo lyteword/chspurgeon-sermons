@@ -1,7 +1,7 @@
 # Sermon 3262 | Satan's Arrows and God's
 
 > He has bent His bow and set me as a mark for the arrow. He has caused the arrows of His quiver to pierce my soul.  
-> Lamentations 3:12,13
+> Lamentations 3:12,13  
 
 Jeremiah did not intend these verses to be a description of a sinner under conviction of sin. He was sorrowing over the woes of Jerusalem and the nation that had been so heavily punished for its sin, yet we may rightly apply his words to the most bitter of all human griefs. I mean, of all human griefs except that ruinous remorse which sometimes comes at the prelude of eternal destruction!
 
