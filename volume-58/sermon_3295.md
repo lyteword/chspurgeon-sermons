@@ -1,7 +1,7 @@
 # Sermon 3295 | Communion With Christ and His People
 
-> The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ? For we being many are one bread, and one body: for we are all partakers of that one bread.
-> 1 Corinthians 10:16,17
+> The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ? For we being many are one bread, and one body: for we are all partakers of that one bread.  
+> 1 Corinthians 10:16,17  
 
 I will read you the text as it is given in the Revised Version: "The cup of blessing which we bless, is it not a communion of the blood of Christ?" That is to say, is it not one form of expressing the communion of the blood of Christ? "The bread," or as it is in the margin, "the loaf which we break, is it not a communion of the body of Christ seeing that we, who are many, are one loaf, one body: for we all partake of the one loaf." The word, "loaf," helps to bring out more clearly the idea of unity intended to be set forth by the Apostle.
 
