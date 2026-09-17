@@ -1,7 +1,7 @@
 # Sermon 3238 | A Vision of the King
 
 > Your eyes shall see the King in His beauty: they shall behold the land that is very far off.  
-> Isaiah 33:17
+> Isaiah 33:17  
 
 This morning I spoke to you concerning the visit of the Queen of Sheba to King Solomon and tried to use it as illustration of the spirit in which sinners should come to Him who is far wiser and greater than Solomon. This evening I am going to continue in much the same strain while I try to speak to you, under the guidance of the Holy Spirit, from the well-known words which I have just read in your hearing. This passage is a rather difficult one to explain, at least certain expositors have done their best to make it appear to be so! They imagine that we have here a threat that the Jews should be carried away to Nineveh as captives and that in that far-off land they should see the Assyrian "king in his beauty." But I venture to say that if you read our text in its context, you will see that a threat would be altogether out of place here in the midst of so many precious promises to the people of God! There is nothing but love and kindness for them, where there are threats, they are for their enemies!
 
@@ -15,12 +15,12 @@ I am speaking to those who know the Lord and, therefore, I say to them. You know
 
 You remember too, Beloved, that our Lord Jesus Christ was a King even when He was upon the earth as a Man. He ruled over all the forces of Nature. Stormy winds were hushed to sleep by His commanding word, "Peace! Be still." All diseases fled at His approach and the very demons proved that they, too, were under the control of His Sovereign Power! Even the king of terrors, Death, himself, had to openly acknowledge the sway of the far mightier King of kings and to yield up at His bidding those who had passed beneath the grim portals of his dread domains! Yet how shamefully wicked men maltreated this mighty Monarch, before whom the holy angels had bowed in lowly obeisance, or waited on poised wings ready to fly on any errand on which He might deign to send them! You know the sad, sad story of the shameful indignities to which our King was subjected. They hung a soldier's coat around His shoulders in mockery of the imperial purple. They thrust a reed into His hand as a sham scepter. And for a crown, they twisted cruel thorns that pierced His blessed brow as they smote Him again and yet again, and bowed the knee before Him in the mere semblance of adoration. Yet there was a regal majesty about Him even when He was thus crowned King of Grief. When Pilate asked Him the direct question, "Are you the King of the Jews?" He did not deny it. And even when He hung upon the Cross as a condemned criminal, the official title set up above His head in Hebrew, Greek and Latin was, "This is Jesus, the King of the Jews." He was much more than that, for He was Lord of all men and all angels, too, and He could, in an instant, have summoned all the shining legions above to come to His relief! But He resolved to go through to the bitter end with the great work He had undertaken, and to be both Prince and Savior to give repentance and remission of sins to all for whom, as the great Kingly Substitute, He was laying down His life:
 
-> To the shameful Cross they nailed Him,   
-> And that Cross became His throne.   
-> Li the tomb they laid and sealed Him;   
-> Lo the Savior bursts the stone   
-> And ascending,   
-> Claims all empire as His own!   
+> To the shameful Cross they nailed Him,  
+> And that Cross became His throne.  
+> Li the tomb they laid and sealed Him;  
+> Lo the Savior bursts the stone  
+> And ascending,  
+> Claims all empire as His own!  
 
 This same Jesus is now King in Heaven. After His degradation came His exaltation. When He ascended up on high, leading captivity captive, He was welcomed back to His Throne with royal honors. The twenty-fourth Psalm gives a graphic and poetic description of the royal reception accorded to Him, "Lift up your heads, O you gates; and be you lifted up, you everlasting doors; and the King of Glory shall come in. Who is this King of Glory? The Lord strong and mighty, the Lord mighty in battle. Lift up your heads, O you gates; even lift them up, you everlasting doors; and the King of Glory shall come in. Who is this King Glory? The Lord of Hosts, He is the King of Glory." This glorious King and Lord is also the Ruler in Providence, nothing can happen without His knowledge and permission! It is true that His universal Sovereignty is not yet recognized and that this Divine King is still "despised and rejected of men." But the day is coming when He shall appear again upon this earth. And at the hour decreed from all eternity, He shall be acclaimed as "King of kings, and Lord of lords," when "the kingdoms of this world are become the kingdoms of our Lord and of His Christ: and He shall reign forever and ever." What "His beauty" is now, and ever shall be, mortal mind cannot conceive and mortal tongue can never tell. When John saw Him, as the "Alpha and Omega, the First and the Last," he fell at His feet as dead! And when Paul "was caught up into Paradise," he "heard unspeakable words, which it is not lawful (or possible) for a man to utter." Probably we can best express our anticipation of seeing our "King in His beauty" by singing, with Dr. Watts, "There, where my blessed Jesus reigns, In Heaven's unmeasured space, I'll spend a long eternity In pleasure and in praise! Millions of years my wondering eyes Shall over Your beauties rove; And endless ages I'll adore The glories of Your love."
 
@@ -49,10 +49,10 @@ I must not omit to remind you that this will be an assimilating sight. I don't l
 
 I will add only one more characteristic of this vision of Christ. It will be an everlasting sight When our Sabbath services are over, some of you go out of the Tabernacle with heavy hearts. You have to go home to a sick household, perhaps to a persecuting husband or an ungodly wife. You are coming with us to the Communion Table and when you leave the assembly of the saints, you will have to go where you will cry with the Psalmist, "Woe is me, that I sojourn in Mesech, that I dwell in the tents of Kedar!" I do not wonder that you sang with such heartiness just now:
 
-> Oh when, you city of my God,   
-> Shall I, your courts ascend   
-> Where congregations never break up,   
-> And Sabbaths have no end?   
+> Oh when, you city of my God,  
+> Shall I, your courts ascend  
+> Where congregations never break up,  
+> And Sabbaths have no end?  
 
 Ah, well, that everlasting Sabbatismos, that eternal keeping of Sabbath may be nearer than you think! And when once you enter into that blessed state, you will remain in it forever. "Your eyes," my poor Brother or Sister, "shall see the King in His beauty," and you shall never lose that rapturous vision! Time fails me, so I must go on to the third point, a peculiar beauty, "Your eyes shall see the King in His beauty."
 
@@ -82,10 +82,10 @@ Sometimes, Heaven is "the land that is very far off' from the doubting Christian
 
 Do not fret about tomorrow! You may be in Heaven before tomorrow. Even if we have to abide here a while:
 
-> Though in a foreign land,   
-> We are not far from home;   
-> And nearer to our house above   
-> We every moment come.   
+> Though in a foreign land,  
+> We are not far from home;  
+> And nearer to our house above  
+> We every moment come.  
 
 I find that the marginal reading is "the land of far distances." Heaven is a land of magnificent distances where there shall be abundant room for the multitude that no man can number and where in all things, even in the number of the saved, Christ shall have the pre-eminence. Shall Satan capture the most of men? I do not believe that he will, if he could do so, he would have the pre-eminence, but that can never be! Christ "shall see of the travail of His soul, and shall be satisfied." But do you think that a small number of souls saved would satisfy Him? Would that be a fitting sequel to His soul-travail? Oh, no! I believe in a great Heaven and a great multitude of great sinners saved by the great Sacrifice of the great Savior, who shall bring great Glory to His great name and the great Grace of the great Father, Son and Spirit forever and ever! But, my dear Hearer, however great it all is, of what use will it be to you if you do not have a share in it? My text says, "Your eyes shall see the King in His beauty: they shall behold the land that is very far off." That applies to every Believer in the Lord Jesus Christ! Is that what you are? If so, my text is a promise to you as surely as if your own name had been mentioned in it! If you will now believe in Jesus, if you will trust Him, if you will rely upon Him. It all means the same thing, this promise is for you and it shall be fulfilled in your experience in God's own time! May God the Holy Spirit give you the Grace to turn your eyes by faith to the Lamb of God who died for sinners upon the Cross of Calvary! And then to you, even to you, I can repeat the promise of the text, "Your eyes shall see the King in His beauty: they shall behold the land of far distances." The Lord grant it, for Jesus' sake! Amen.
 
