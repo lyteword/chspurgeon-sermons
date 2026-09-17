@@ -1,7 +1,7 @@
 # Sermon 3253 | Faith Hand in Hand With Fear
 
 > What time I am afraid, I will trust in You.  
-> Psalm 56:3
+> Psalm 56:3  
 
 It must be a very difficult thing to be the first traveler through an unknown country, but it is a much more simple matter to travel where others have preceded us. However difficult may be the road, we discover our path by certain marks which they have left for us, and as we turn to the record of their journey, we say, "Yes, they said that here they came to a forest, and here is the forest. Here they spoke of a broad river and here they forded it. Here is exactly the spot which is marked. We are on the right road, for we are following in the tracks of those who have gone before." Now God in His Providence has placed us in "the ends of the world" as to time, a long caravan of pilgrims has preceded us, and they have left us marks on the way and records of their journey.
 
@@ -43,9 +43,9 @@ The man of God may be afraid, too, because he sees need surrounding him. The Chr
 
 If, in addition to all this, there comes upon him the remembrance of past sin, and with especial vividness some transgression into which he has lately fallen, he is afraid because of the memory of the past. Though he may look to Jesus, and he will do so. Though he may see his sin laid on Christ, yet, even while he is looking, he will often be amazed with a sore amazement and an agony of soul will come over him, not so much the fear of being finally cast away if, indeed, he is a child of God, but a fear lest, after all, he should turn out not to be what he hoped he was! If you are never afraid about the condition of your soul, I am afraid for you! If you never had a fear about your state, I think I may remind you of Cowper's lines:
 
-> He has no hope who never had a fear   
-> And he that never doubted of his state,   
-> He may perhaps, perhaps he may, too late.   
+> He has no hope who never had a fear  
+> And he that never doubted of his state,  
+> He may perhaps, perhaps he may, too late.  
 
 Under a sense of sin, it is but natural, no, I will add, it is but right that a trembling should come over the soul and that we should fall down in the Presence of God humbled before Him!
 
