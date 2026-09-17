@@ -1,7 +1,7 @@
 # Sermon 3299 | Ho! Ho!
 
-> Ho, everyone who thirsts, come to the waters.
-> Isaiah 55:1
+> Ho, everyone who thirsts, come to the waters.  
+> Isaiah 55:1  
 
 There is a thirst which is peculiar to the Believer. He can say with David, "As the hart pants after the water brooks, so pants my soul after You, O God." Delightful thirst! Would God we had more of it! May we be longing and panting after our God in that sense until we shall be filled with His Spirit and shall dwell in His Presence to go no more out forever!
 
@@ -14,14 +14,14 @@ Learn from my text that God has made plenteous soul-provision and that to every 
 In the first place, God has made an abundant soul-provision.
 
 We read here of "water." Water has been pronounced the simplest, purest, fittest drink for all persons of all ages and temperaments. Now, there is a thirst in man's body which makes him require drink. He drinks and that thirst is removed. There is a similar thirst in man's spiritual'nature. He needs something and he feels uneasy until he gets it. The Grace of God, which is proclaimed to us in Christ Jesus, is that which meets the longing of man. That is the spiritual water for man's spiritual thirst. In the text, the word is put in the plural, "Come you to the waters," I suppose to show the abundance thereof, as though there were many rivers of it, so that none might fear that they should require more than was provided.
-> Rivers of love and mercy here
-> In a rich ocean join.
-> Salvation in abundance flows,
-> Like floods of milk and wine.
-> Great God, the treasures of Your love
-> Are everlasting mines.
-> Deep as our helpless miseries are,
-> And boundless as our sins.
+> Rivers of love and mercy here  
+> In a rich ocean join.  
+> Salvation in abundance flows,  
+> Like floods of milk and wine.  
+> Great God, the treasures of Your love  
+> Are everlasting mines.  
+> Deep as our helpless miseries are,  
+> And boundless as our sins.  
 
 The mercy of God is not a little brook which can be almost drained up by a passing ox, but it is a vast river: it is many rivers, rivers to swim in! "Ho, everyone that thirsts!" Stand not back because you think there is not enough, but come you to the waters!
 
@@ -33,10 +33,10 @@ Now, are you thirsting? It surely is not the mere play of imagination, but the s
 I think I hear another say, "I desire that same blessing, but I need something more. I want to conquer the sin that dwells in me. I want to be pure and holy! I cannot bear to be in the future what I have been in the past! I feel the chains of habit that bind me. I need to snap them off. I would no longer be an example of vice. I want to be a pattern of everything that is lovely and of good repute. But I have struggled against sin and it gets the mastery over me. I do for a time escape, but still I bear my fetters upon me and am dragged back to my prison. I cannot be what I would, oh, that I could escape from the power of sin!" Ah, you thirsty one, it is a blessed thing to desire as you desire! And let me tell you that God will give you the desire of your heart, for Jesus died that He might deliver His people from the power of Satan! He came on purpose that He might destroy the power of sin in His people and make them so free that they should not serve sin, but become a people zealous for good works. If you will come to Jesus and simply believe in Him: that is, rely upon Him, trust Him. His Grace will come and refine you, implanting a new nature, taking away the heart of stone and giving a heart of flesh, and you shall yet put your foot upon the neck of all your corruptions! You shall cast them out little by little, and you shall be made meet to be a partaker of the inheritance of the saints in light! Ho, everyone that thirsts for purity and virtue and for victory over indwelling sin, let him come to the waters that flowed with the blood from Jesus' side, and let him taste and his thirst shall be appeased forever!
 
 In some persons this soul-thirst takes the shape of an anxious desire for perseverance and security. "I would like," says one, "oh, how I would like to know myself saved, and so saved that I never can be lost! Would that I could get on the Rock and feel the steadfastness of my refuge, that I might be able to sing.
-> My name from the palms of His hands
-> Eternity will not erase!
-> Impressed on His heart it remains
-> In marks of indelible Grace!
+> My name from the palms of His hands  
+> Eternity will not erase!  
+> Impressed on His heart it remains  
+> In marks of indelible Grace!  
 
 I recollect how I longed and panted after this, for no salvation ever seemed to me to be worth the having that would not last me to the end. No sign of Grace within seemed worth the having, but a sign that could never be cut off. The dread, "perhaps," haunted me lest the enterprise should be, after all, a failure, and the prospect of final deliverance should be defeated by some superior power of evil. I wanted the indwelling of Eternal Life, of that incorruptible life which lives and abides forever! Now, such a life as this it is that we read of in the Bible. Jesus said to the woman of Samaria, "Whoever drinks of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life." You who want security, who wish to know that you are saved and to rejoice in it, may well listen to these words: "Ho, everyone that thirsts, come you to the waters." If you come to Christ for this blessed satisfaction, you shall have it! Give yourselves up to Christ and you shall sing, in the words of our song: "I know that safe with Him remains Protected by His power, What I've committed to His hands Till the decisive hour."
 
