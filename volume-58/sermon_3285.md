@@ -1,7 +1,7 @@
 # Sermon 3285 | Good Cheer From Christ's Victory Over the World
 
-> These things I have spoken unto you, that in Me you night have peace. In the world you shall have tribulation: but be of good cheer, I have overcome the world.
-> John 16:33
+> These things I have spoken unto you, that in Me you night have peace. In the world you shall have tribulation: but be of good cheer, I have overcome the world.  
+> John 16:33  
 
 The Believer is in two places, and he lives two lives. In the text there are two places spoken of: "in Me" and, "in the world."
 
@@ -20,27 +20,27 @@ It includes the afflictions which come upon us because we are men living among m
 Nor may we forget that we endure a second set of tribulation because we are Christians. Ishmael was not mocked, but Isaac was, for he was born after the promise. Esau's posterity never suffered bondage in Egypt, but Israel must be trained by hard service. Persecution is for the righteous, wicked men are in honor among their ungodly associates. Slander shoots her poisoned arrows, not at the vicious, but at the virtuous. Birds do not peck at sour fruit, but they wage war upon the sweet and ripe. Holy men must expect to be misrepresented, misinterpreted and often willfully maligned, while hypocrites have their reward in undeserved homage. Carry what load you choose upon your shoulders and no one will notice it unless, indeed, they obey the good old rule and "respect the burden." But if you take up Christ's Cross and bravely bear it, few will respect the burden, or praise the bearer! Graceless men will add weight to your load, for the offense of the Cross has not ceased. The seed of the serpent still has enmity against the Seed of the woman, and one and another will commence biting at the heel which treads the sacred way of Christ. It is the nature of the wicked to hate the righteous, even as the wolf rages against the sheep. This world cannot be the friend of the friend of God unless, indeed, Belial can have concord with Christ, and this we know is impossible! In one form or another, the Egyptian will oppress the Israelite till the day of the bringing out with a high hand and an outstretched arm. If today the enmity is restrained in its manifestation, it is because the law of the land, by the good Providence of God, does not now allow the rack, the stake, or the dungeon. Our Lord said to His first disciples, "In the world you shall have tribulation," and He explained it to mean that men would put them out of the synagogues. Yes, that the time would come when those that killed them would think that they did God service! Tribulation of that sort remains up to the measure in which it is not hindered by Divine Power. The spirit out of which it sprang cannot die till men are renewed. A man's foes are still they of his own household. "All that will live godly in Christ Jesus shall suffer persecution."
 
 Nor is the opposition of the world confined to persecution. It sometimes takes the far more dangerous form of flattery, pleasing baits are held out and allurements are used to decoy the Believer from his Lord. Many have been grievously wounded by the world when it has met them with the kiss of Judas on its lips and a dagger in its right hand wherewith to slay the soul! Woe unto those who are ignorant of its devices! This is a sore trouble under the sun, that men are false, their words are softer than butter, but inwardly they are drawn swords! This has often surprised young Christians. They imagined that since the godly were charmed at the sight of their early graces, all others would be equally pleased. They are dumbfounded when they find that their good is evilly spoken of. Is any hearer of mine one of these raw recruits? Let him learn that to be a soldier of the Cross means real war, not a sham fight! He is in an enemy's country and the time will yet come when, as a veteran warrior, he will be surprised if he lives a day without a conflict, or is able for an hour to sheathe his sword.
-> Must I be carried to the skies,
-> On flowery beds of ease,
-> While others fought to win the prize
-> And sailed through bloody seas?
-> Are there no foes for me to face?
-> Must I not stem the flood
-> To help me on to God?
-> Surely I must fight if I would reign
-> Increase my courage, Lord!
-> I'll bear the toil, endure the pains,
-> Supported by Your Word
+> Must I be carried to the skies,  
+> On flowery beds of ease,  
+> While others fought to win the prize  
+> And sailed through bloody seas?  
+> Are there no foes for me to face?  
+> Must I not stem the flood  
+> To help me on to God?  
+> Surely I must fight if I would reign  
+> Increase my courage, Lord!  
+> I'll bear the toil, endure the pains,  
+> Supported by Your Word  
 
 Certain tender hearts are not only surprised, but they are daunted and grieved by the world's opposition. Gentle, loving spirits who would not oppose anybody if they could help it, keenly feel the wanton assaults of those whom they would rather please than provoke. The sensitiveness of love renders the choicest characters the most susceptible of pain under cruel opposition, especially when it comes from beloved kinsfolk. To those who love God and man, it is at times an agony to be compelled to appear as the cause of strife, even for Christ's sake. We would gladly follow peace with all men, yet are we often forced to cry.
-> My soul with him that hates peace
-> Has long a dweller been!
-> I am for peace, but when I speak,
-> For battle they are keen.
-> My soul distracted mourns and pines
-> To reach that peaceful shore
-> Where all the weary are at rest,
-> And troubles vex no more.
+> My soul with him that hates peace  
+> Has long a dweller been!  
+> I am for peace, but when I speak,  
+> For battle they are keen.  
+> My soul distracted mourns and pines  
+> To reach that peaceful shore  
+> Where all the weary are at rest,  
+> And troubles vex no more.  
 
 We are sent forth as sheep among wolves, and this jars upon our gentleness which loves far better to lie down in the green pastures near the Shepherd and in the midst of flock.
 
