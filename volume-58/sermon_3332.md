@@ -1,7 +1,7 @@
 # Sermon 3332 | The Dumb Become Singers
 
-> Then shall the lame man leap as an hart, and the tongue of the dumb sing, for in the wilderness shall waters break out, and streams in the desert.
-> Isaiah 35:6
+> Then shall the lame man leap as an hart, and the tongue of the dumb sing, for in the wilderness shall waters break out, and streams in the desert.  
+> Isaiah 35:6  
 
 What a difference Divine Grace makes whenever it enters the heart! We find here the blind, but they are not blind in one sense. Grace has touched their eyes and the eyes of the blind are opened! Men are said to be deaf, but they are not deaf after Grace has operated upon them, the ears of the deaf are unstopped! They have been lame before, but when once the Omnipotent influence has come upon them, they leap like a hart! And the dumb, so far from being dumb, have a change that must be radical, for its effects are surprising, the tongue of the dumb not simply speaks, but it sings! Grace makes a great difference in man when it enters into him. How vain, then, are the boasts and professions of some persons who assert themselves to be the children of God and yet live in sin! There is no perceivable difference in their conduct, they are just what they used to be before their pretended conversion. They are not changed in their actions, even in the least degree, and yet they do most positively affirm that they are the called and living children of God! Let such know that their professions are lies, that falsehood is the only groundwork that they have for their hopes, for wherever the Grace of God is, it makes a difference! A graceless man is not like a gracious man and a gracious man is not like a graceless one: we are "new creatures in Christ Jesus." When God looks upon us with the eyes of love in Conversion and Regeneration, He makes us as opposite from what we were before as light is from darkness, as Heaven, itself, is from Hell! God works in man a change so great that no reformation can even so much as thoroughly imitate it. It is an entire change, a change of the will, of the being, of the desires, of the hates, of the dislikes and of the likes. In every respect the man becomes new when Divine Grace enters into his heart. And yet you say of yourself, "I am converted," and remain what you were! I tell you once again to your face: you say an empty thing: you have no grounds for saying it! If Grace permits you to sin as you were known to do, then that grace is no Grace at all! That grace were not worth the having which permits a man to be, after he receives it, what he was before! No, we must always hold fast to the great Doctrine of Sanctification. Where God really justifies, He really sanctifies, too! And where there is a remission of sin, there is also the forsaking of it. Where God has blotted out transgression, He also removes the love of it, and makes us seek after holiness and walk in the ways of the Lord. We think we might fairly infer this from the text as a prelude to the observations we have to make concerning it.
 
@@ -46,14 +46,14 @@ The old woman was quite right. We must not say to the sinner, "Now, Sinner, if y
 And after that, do God's people sing? Yes, they have sweet singing times in their hours of communion. Oh, the music of that word, "communion," when it is heard in the soul, communion with Jesus, fellowship with Jesus, whether in His sufferings or in His glories! Those are singing times, when the heart is lifted up to feel its oneness to Christ and its vital union with Him, and is enabled to "rejoice in hope of the Glory of God."
 
 Have you not had some precious singing times, too, at the Lord's Table? Ah, when the bread has been broken and the wine poured out, how often have I had a song when the people have all joined in singing.
-> Gethsemane, can I forget,
-> Or there the conflict see,
-> Your agony and bloody sweet,
-> And not remember Thee?
-> When to the Cross
-> I turn my eyes,
-> And rest on Calvary,
-> Oh, Lamb of God, my Sacrifice,
-> I must remember Thee.
+> Gethsemane, can I forget,  
+> Or there the conflict see,  
+> Your agony and bloody sweet,  
+> And not remember Thee?  
+> When to the Cross  
+> I turn my eyes,  
+> And rest on Calvary,  
+> Oh, Lamb of God, my Sacrifice,  
+> I must remember Thee.  
 
 But lastly, my dear Friends, the best singing time we shall have will be when you and I come to die. Ah, there are some of you that are like what is fabled of the swan. The ancients said the swan never sang in his lifetime, but always sang just when he died. Now, there are many of God's desponding children who seem to go all their life under a cloud, but they get a swan's song before they die. The river of your life comes running down, perhaps black and miry with troubles, and when it begins to touch the white foam of the sea, there comes a little glistening in its waters. So, Beloved, though we may have been very much dispirited by reason of the burden of the way, when we get to the last, we shall find swan songs! Are you afraid of dying? Oh, never be afraid of that, be afraid of living! Living is the only thing that can do any mischief! Dying never can hurt a Christian! Afraid of the grave? It is like the bath of Esther in which she lay for a time, to purify herself with spices that she might be fit for her lord. You are afraid of dying, you say, because of the pains of death. No, they are the pains of life, of life struggling to continue! Death has no pain, death itself is but one gentle sigh, the fetter is broken and the spirit fled. The best moment of a Christian's life is his last one, because it is the one that is nearest Heaven! And then it is that he begins to strike the keynote of the song which he shall sing to all eternity. Oh, what a song will that be! It is a poor song we make now. When we join the song, perhaps we are almost ashamed to sing, but up there our voices shall be clear and good! And there: "Loudest of the crowd we'll sing while Heaven's resounding mansions ring with shouts of Sovereign Grace!" The thought struck me the other day that the Lord will have in Heaven some of those very big sinners that have gone further astray than anybody that ever lived, the most extraordinary extravaganzas of vice, just to make the melody complete by singing some of those soprano notes which you and I, because we have not gone so far astray, will never be able to utter. I wonder whether one has stepped in here who God has selected to take some of those alto notes in the scale of praise? Perhaps there is one such here! Oh, how will such a one sing, if Grace, Free Grace, shall have mercy upon him! May there be many such. Amen!
