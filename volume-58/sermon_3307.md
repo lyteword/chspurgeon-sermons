@@ -1,7 +1,7 @@
 # Sermon 3307 | Over the Mountains
 
-> My beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether.
-> Solomon's Song 2:16,17
+> My beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether.  
+> Solomon's Song 2:16,17  
 
 It may be that there are saints who are always at their best and are happy enough never to lose the light of their Father's Countenance. I am not sure that there are such persons, for those Believers with whom I have been most intimate have had varied experiences and those whom I have known who have boasted of their constant perfectness, have not been the most reliable of individuals. I hope there is a spiritual region attainable where there are no clouds to hide the Sun of our soul, but I cannot speak positively, for I have not traversed that happy land. Every year of my life has had a winter as well as a summer, and every day its night. I have hitherto seen bright days and heavy rains, and felt warm breezes and fierce winds. Speaking for the many of my Brothers and Sisters, I confess that though the substance is in us, as in the olive tree and the oak, yet we do lose our leaves and the sap within us does not flow with equal vigor at all seasons. We have our downs as well as our ups, our valleys as well as our hills! We are not always rejoicing: we are sometimes in heaviness through manifold trials. Alas, we are grieved to confess that our fellowship with the Well-Beloved is not always that of rapturous delight, but we have at times to seek Him and cry, "Oh, that I knew where I might find Him!" This appears to me to have been in a measure the condition of the spouse when she cried, "Until the day breaks and the shadows flee away, turn, my Beloved."
 
