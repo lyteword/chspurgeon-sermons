@@ -1,7 +1,7 @@
 # Sermon 3237 | Our Lord's Preaching
 
 > The Lord has anointed Me to preach good tidings unto the meek; He has sent Me to bind up the brokenhearted.  
-> Isaiah 61:1
+> Isaiah 61:1  
 
 Our Lord's anointing was with a special view to His preaching. Such honor does the Lord of Heaven and Earth put upon the ministry of the Word that, as one of the old Puritans said, "God had only one Son, and He made a Preacher of Him." It should greatly encourage the weakest among us, who are preachers of righteousness, to think that the Son of God, the blessed and eternal Word, came into this world that He might preach the same glad tidings which we are called to proclaim!
 
@@ -36,7 +36,7 @@ It is a beautiful figure, this binding up, as though the Crucified One took the 
 ## "Do not sin against the child" - An Address Delivered by C. H. Spurgeon
 
 > And Reuben answered them, saying, Spoke I not unto you, saying, Do not sin against the child, and you would not hear? Therefore, behold, his blood is now required of us.  
-> Genesis 42:22
+> Genesis 42:22  
 
 You know how Joseph's brothers, through envy, sold him into Egypt and how ultimately they were, themselves, compelled to go down into Egypt to buy corn. When they were treated roughly by the governor of that country, whom they did not know to be their brother, their consciences smote them and they said one, to another, "We are verily guilty concerning our brother, in that we saw the anguish of his soul when he besought us, and we would not hear. Therefore is this distress come upon us." While their consciences were thus accusing them, the voice of their elder brother chimed in, saying, "Said I not unto you, Do not sin against the child?" From which I gather that if we commit sin after being warned, the voice of conscience will be all the more condemning, for it will be supported by the memory of disregarded admonitions which will revive again, and with solemn voices say to us, "Said we not unto you, Do not sin against the child?" We who know what is due to children will be far more guilty than others if we sin against their souls. Wiser views as to the needs and hopes of the little ones are now abroad in this world than those which ruled the public mind 50 years ago, and we shall be doubly criminal if we now bring evil upon the little ones!
 
