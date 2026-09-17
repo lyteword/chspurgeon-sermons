@@ -1,7 +1,7 @@
 # Sermon 3288 | Why the Gospel Is Hidden
 
-> But if our Gospel is hidden, it is hidden to those who aire lost.
-> 2 Corinthians 4:3
+> But if our Gospel is hidden, it is hidden to those who aire lost.  
+> 2 Corinthians 4:3  
 
 In this verse and the following one we have a very brief yet very full description of what every minister of the Gospel ought to preach. In the first place, he is to preach the Gospel, not metaphysics, not politics, not mere morality, not simply doctrines as such. He is to preach the Gospel, which signifies good news, something new and something good, so good that nothing else can equal it, the glad tidings of mercy for the guilty, the blessed tidings of God coming down to man that man may go up to God, the welcome tidings of atonement made for human guilt! It is also new as well as good: it comes as a strange novelty to the attentive ear. Mythology never dreamed it, human wit could never have invented it, even angelic intellect could not have devised a scheme: "So just to God, so safe for man." The business of the Christian minister is to preach this Good News, to publish to the sinners the glad tidings that there is a Savior, to point the guilty to Christ and to be constantly saying to each individual sinner, "Believe on the Lord Jesus Christ, and you shall be saved." I care not what may be the learning or eloquence of the minister, though he may speak with the tongue of men and angles, if he does not preach Christ and bid sinners trust in Him, he has mistaken his mission and missed the grand objective for which he was sent!
 
@@ -14,24 +14,24 @@ Gospel which comes to men in poverty, in slavery, in the degradation of supersti
 Paul further calls it "the glorious Gospel of Christ" And well he might, for it is all about Christ from beginning to end! Give me a true preacher of the glorious Gospel of Christ and I will gladly listen to him. I would like him to be an educated minister if that is possible, for there is no need for my ears to be tortured by mistakes in grammar, but I do not care so much about that as about the other matter! I would sooner hear Christ's Gospel preached ungrammatically than I would hear the best philosophy set forth in the most orderly sentences, but with the Gospel of Christ left out. When the table is spread for dinner, it is well to have a clean tablecloth, china, glass and cutlery of all the right sort and in their proper places, but if there is no food on the dishes, all those other things are a mere mockery to the hungry ones who are waiting to be fed! Sooner, by far, would I go to a bare table and eat from a wooden bowl something that would appease my appetite, than I would go to a well-spread table on which there was nothing to eat! Yes, it is Christ, Christ, Christ whom we have to preach! And if we leave Him out, we leave out the very soul of the Gospel! Christless sermons make merriment for Hell. Christless preachers, Christless Sunday school teachers, Christless class leaders, Christless tract distributors, what are all these doing? They are simply setting the mill to grind without putting any grist into the hopper, all their labor is in vain! If you leave Jesus Christ out, you are simply beating the air, or going to war without any weapon with which you can smite the foe!
 
 Dear Friend, if you are unconverted, let me pause here for a few moments to remind you that this is not a Gospel of self, nor a Gospel of works, nor a Gospel of baptism, nor a Gospel of priests, nor a Gospel of ministers, but it is "the glorious Gospel of Christ!" Forget the men who preach it if you will, but, oh, forget not the bleeding, dying Savior to whom they bid you look. Your hope must be in Him and in Him, alone! To Him would we affectionately point you and we pray the Holy Spirit to shut your eyes to everything but Him whom God has set forth to be a Propitiation for sin.
-> There is life for a look at the Crucified One!
-> There is life at this moment for thee!
-> Then look, Sinner, look unto Him and be saved
-> Unto Him who was nailed to the tree!
-> It is not the tears of repentance or prayers,
-> But the blood that atones for the soul
-> On Him, then, who shed it, believing at once
-> Your weight of iniquities roll!
+> There is life for a look at the Crucified One!  
+> There is life at this moment for thee!  
+> Then look, Sinner, look unto Him and be saved  
+> Unto Him who was nailed to the tree!  
+> It is not the tears of repentance or prayers,  
+> But the blood that atones for the soul  
+> On Him, then, who shed it, believing at once  
+> Your weight of iniquities roll!  
 
 We are healed by His stripes, would you add to the Word?
 
-> And He is our righteousness made
-> The best robe of Heaven He bids you put on,
-> Oh, could you be better arrayed?
-> Then doubt not your welcome, since God has declared
-> There remains no more to be done!
-> That once in the end of the world He appeared
-> And completed the work He begun.
+> And He is our righteousness made  
+> The best robe of Heaven He bids you put on,  
+> Oh, could you be better arrayed?  
+> Then doubt not your welcome, since God has declared  
+> There remains no more to be done!  
+> That once in the end of the world He appeared  
+> And completed the work He begun.  
 
 With this rather long introduction, I now come to the three points upon which I am going to briefly speak, but very solemnly, for I think they concern many of you who are here, tonight. So, firstly, I ask, why is this Gospel hidden from some people? Secondly, what is the state of those from whom it is hidden?'And, thirdly, what is to be feared concerning them in the future?
 
