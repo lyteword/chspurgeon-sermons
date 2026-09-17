@@ -1,7 +1,7 @@
 # Sermon 3315 | Joy in Harvest
 
-> They joy before You according to the joy in harvest.
-> Isaiah 9:3
+> They joy before You according to the joy in harvest.  
+> Isaiah 9:3  
 
 The other day I was one of a glad company who kept the feast with great rejoicing, and together we shouted, "Harvest Home." It was a deep delight to see the rich and poor rejoicing together, and when the cheerful meal was ended, I was greatly glad to turn one of the tables into a temporary pulpit, and in the fine large barn be privileged to preach to an earnest, eager audience, the glorious Gospel of the ever-blessed God!
 
@@ -52,9 +52,9 @@ Pray much for them with earnest faith and you shall yet have the joy in harvest 
 But possibly you, my Hearer, have not much to do with such joy, for you are, yourself, unsaved. Yet it is a grand thing for an unconverted person to be under a ministry that God blesses and with a people that constantly pray for conversions.
 
 It is a happy thing for you, young man, to have a Christian mother! It is a great gift for you, O unconverted woman, that you have a godly sister! These make us hopeful for you. While your relations are prayerful, we are hopeful for you. May the Lord Jesus be yet yours. But, ah, if you remain unbelieving, however rich a blessing comes to others, it will leave you none the better for it! "If you are willing and obedient, you shall eat the good of the land." But there are some who may cry in piteous accents, "The harvest is past, the summer is ended, and we are not saved!" It has been remarked that those who pass through a season of revival and remain unconverted are more hardened and unimpressed than before. I believe it to be so and I therefore pray the Divine Spirit to come with such energy that none of you may escape His power! May you be led to pray.
-> Pass me not, O mighty Spirit! You can make the blind to see.
-> Witness of Jesus'merit, Speak the word of power to me. Even me!
-> Have I long in an been sleeping, Long been slighting, grieving Thee? Has the world my heart been keeping? Oh forgive and rescue me! Even me.
+> Pass me not, O mighty Spirit! You can make the blind to see.  
+> Witness of Jesus'merit, Speak the word of power to me. Even me!  
+> Have I long in an been sleeping, Long been slighting, grieving Thee? Has the world my heart been keeping? Oh forgive and rescue me! Even me.  
 
 Oh, for earnest, importunate prayer from all Believers throughout the world! If our Churches could be stirred up to incessant vehement crying to God, so as to give Him no rest till He makes Zion a praise in the earth, we might expect to see God's Kingdom come and the power of Satan fall! As many of you as love Christ, I charge you by His dear name to be much in prayer! As many of you as love the Church of God and desire her prosperity, I beseech you to keep not back in this time of supplication! The Lord grant that you may be led to plead till the harvest joy is granted!
 
@@ -81,17 +81,17 @@ For every warrior's sandal from the noisy battle, and garments rolled in blood w
 For unto us a Child is born, unto us a Son is given: and the government shall be upon His shoulder: and His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace. Now is it that the Lord Jesus becomes glorious in our eyes! And He whose name is Immanuel is now crowned in our heart with many crowns and honored with many titles. What a list of glories we have here! What a burst of song it makes when we sing of the Messiah: "His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace!" Each work sounds like a salvo of artillery. It is all very well to hear players on instruments and sweet singers rehearse these words, but to believethem and realize them in your own soul is far better! When every fear, every hope and every power and every passion of our nature fills the orchestra of our heart, and all unite in one inward song unto the glorious Immanuel, what music it is!
 
 Of the increase of His government and peace there shall be no end, upon the throne of David, and upon His Kingdom, to order it, and to establish it with judgment and with justice from henceforth even forever. The zeal of the Lord of Hosts will perform this. If Christ is your Savior He must be your King.
-> But know, nor of the terms complain,
-> Where Jesus comes He comes to reign!
-> To reign, and with no partial sway
-> Lusts must be slain that disobey.
+> But know, nor of the terms complain,  
+> Where Jesus comes He comes to reign!  
+> To reign, and with no partial sway  
+> Lusts must be slain that disobey.  
 
 The moment we really believe in Jesus as our Salvation, we fall before Him and call Him Master and Lord. We serve when He saves. He has redeemed us unto Himself and we acknowledge that we are His. A generous man once bought a slave girl. She was put upon the brook for auction and he pitied her and purchased her. But when he had bought her, he said to her, "I have bought you to set you free. Here are your papers, you are a free woman." The grateful creature fell at his feet and cried, "I will never leave you! If you have made me free, I will be your servant as long as you live and serve you better than any slave could do." This is how we feel towards Jesus. He sets us free from the dominion of Satan and then, as we need a Ruler, we say, "And the government shall be upon His shoulder." We are glad to be ruled by "Immanuel, God With Us." This also is a door of hope to us! That Jesus shall be the monarch of our hearts is our exceeding joy. To us He shall always be "Wonderful." When we think of Him, or speak about Him, it shall be with reverent awe. When we need advice and comfort, we will fly to Him, for He shall be our Counselor. When we need strength, we will look to Him as our Mighty God. Born-again by His Spirit, we will be His children and He shall be The Everlasting Father! Full of joy and rest, we will call Him Prince of Peace!
 
 Are you willing to have Christ to govern you? Will you spend your lives in praising Him? You are willing to have Christ to pardon you, but we cannot divide Him and, therefore, you must also have Him to sanctify you! You must not take the crown from His head, but accept Him as the Monarch of your soul! If you would have His hand to help you, you must obey the scepter which it grasps. Blessed Immanuel, we are right glad to obey You! In You our darkness ends, and from the shadow of death we rise to the Light of Life! It is salvation to be obedient to You. It is the end of gloom to her who was in anguish to bow herself before You!
 
 May God the Holy Spirit take of the things of Christ and show them unto us, and then we shall all cry.
-> Go worship at Immanuel's feet!
-> See in His face what wonders meet!
-> Earth is too narrow to express
-> His worth, His Grace, His righteousness!
+> Go worship at Immanuel's feet!  
+> See in His face what wonders meet!  
+> Earth is too narrow to express  
+> His worth, His Grace, His righteousness!  
