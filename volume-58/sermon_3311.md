@@ -1,7 +1,7 @@
 # Sermon 3311 | The Water and the Blood
 
-> But one of the soldiers with a spear pierced His side, and forthwith came there out blood and water.
-> John 19:34
+> But one of the soldiers with a spear pierced His side, and forthwith came there out blood and water.  
+> John 19:34  
 
 It is with much fear and trembling that I usually stand upon this platform, not that I shrink before the face of the multitude however large, but the weight of the subject which I have continually to bring before your minds fills my own soul with awe. And yet it is with more than usual anxiety I approach my subject this evening, because although it is full of tender interest and touching pathos, I feel that without the unction of the Holy Spirit, it would be insipid and unprofitable. And yet, on the other hand, with that Divine anointing, it is one of the richest topics that can possibly engage our meditation!
 
@@ -10,16 +10,16 @@ Readers of old theology will have remarked how constantly the fathers were accus
 One of these old Divines says that Jesus Christ was typified by our first father, Adam. As Adam fell asleep, and out of his side Eve was taken, so Jesus slept upon the Cross, the sleep of death, and from His side, where the spear was thrust, His Church was taken. He who redeemed us unto God by His blood, formed us as a peculiar people for Himself. The Church is one with Him: she came out of His side, and as He looks upon her, He can say: "You are bone of My bone, and flesh of My flesh. With My blood have I redeemed you." Others have been pleased to compare Christ to the Rock in the wilderness, which was smitten, and this spear-thrust is the great cleft in the Rock. You may remember how Toplady puts it: "Rock of Ages, cleft for me! Let me hide myself in Thee."
 
 And he clearly has this in view, for the next lines are.
-> Let the water and the blood
-> From Your riven side which flowed,
-> Be of sin the double cure,
-> Cleanse me from its guilt and power
+> Let the water and the blood  
+> From Your riven side which flowed,  
+> Be of sin the double cure,  
+> Cleanse me from its guilt and power  
 
 I do not consider this allusion fanciful, nor can I think it distorts the type. Moses hidden in the cleft of the rock, that he might see God's Glory, had not a standing place one-half so glorious as you and I have when, sheltered in the wounds of the Savior slain, we see the glorious Justice and the Infinite Love of God reconciled in the Person of the dying Lamb.
 
 In the course of reading, I have met with some remarkable expressions in regard to this great wound of Christ. Some have called it, "a gate of Heaven." Why should I object to the title? Do we not enter into Heaven through the wounds of Jesus? It is, of course, a metaphorical expression, yet quite allowable. If the teaching is that there is no other way of access to God except through the torn veil of Christ's body, and that veil was torn in two, indeed, when the soldier with the spear pierced His side: we may, without straining the thought, call that wound one of the gates of Heaven. Another calls it "a celestial window, a window of Paradise," and we have versified that idea in one of our own familiar sonnets.
-> Look through Jesus' wounds on me;
-> Him, and then the sinner see.
+> Look through Jesus' wounds on me;  
+> Him, and then the sinner see.  
 
 Another writer, carried away by the consideration of this spear-thrust, calls it "a palace of refuge." A palace! Surely, never kings had such an one! Solomon's palace of ivory was nothing like it! And what a refuge it is! When the poor heart, like the dove hunted by the hawk, needs a shelter, if it can fly to Jesus' wounds, it is sheltered from all its sins. Well does our song put it: "Come, guilty souls, and flee away Like doves to Jesus' wounds! This is the welcome Gospel Day, Wherein free Grace abounds."
 
@@ -80,8 +80,8 @@ When Jesus therefore saw His mother. Here was another pang for Him. He could not
 After this, Jesus knowing that all things were now accomplished, that the Scripture might be fulfilled, said, I thirst. There was yet a little more to be done, all the great things were accomplished, but He would keep even the least particles of prophecy, so He cried, "I thirst."
 
 Now there was set a vessel full of vinegar: and they filled a sponge with vinegar, and put it upon hyssop, and put it to His mouth. When Jesus therefore had received the vinegar. He did receive that. He had refused the drugged draught which they had first offered to Him to lull His pain, but He accepted this, which was simply weak wine, no doubt a little sour, possibly bitter. When He "had received the vinegar". He said, It is finished: and He bowed His head, and gave up the ghost. Incarnate Love has fulfilled its self-imposed task! Jesus, as the Substitute for sinners, was condemned to die and He died that He might finish the work of our Redemption.
-> 'It is Finished.'
-> Hear the dying Savior cry.
+> 'It is Finished.'  
+> Hear the dying Savior cry.  
 
 The Jews therefore, because it was the preparation, that the bodies should not remain upon the cross on the Sabbath day, (for that Sabbath day was an high day,) besought Pilate that their legs might be broken, and that they might be taken away. To prevent a ceremonial error, they are willing to commit brutal cruelty! Indeed, they had already committed the more brutal cruelty of putting Christ to death. How particular some men are about some merely human rubric, yet the Divine precepts of the Law they violate with impunity! God save us from a conscience which will stick at some minute point which is of no consequence, but will allow us to commit great sin! We have heard of a Spanish bandit who confessed to his priest, after having murdered a great many persons, not his robberies and his murders, but the fact that a drop of blood had spurted on his lips on a Friday, and thus he had defiled the feast day by taking animal food! Ah me, conscience is a strange thing, yet some call it "the vicegerent of God." I believe it is no such thing, but that it very soon becomes as depraved as any other power of the human mind! We have need of far more than conscience to keep us right.
 
