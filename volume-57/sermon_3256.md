@@ -1,7 +1,7 @@
 # Sermon 3256 | Beggars Becoming Princes
 
 > He raises up the poor out of the dust, and lifts up the beggar from the dunghill, to set them among princes, and to make them inherit the throne of glory.  
-> 1 Samuel 2:8
+> 1 Samuel 2:8  
 
 God sometimes does this in Providence. History records several very remarkable instances of persons who have sprung from the lowest ranks of society, or from the depths of poverty, yet who have mounted to a throne. When a certain king, in the olden days, was led in chains behind the chariot of his conqueror, he was constantly observed to look at the wheel and smile. And when he was asked why he did so, he said that it was because he noticed that those spokes of the wheel which were uppermost, at one time became the lowest not long after, while those which were lowest, in their turn took their place on high, and he would not wonder if it should be the same with him, and that he would again become a king and that his conqueror would be a captive. So strange are the workings of Providence that, however low anyone may be in temporal circumstances, he need not give way to despair, but he may cherish hopes of better times coming to him.
 
@@ -49,8 +49,8 @@ As deeply as they fell, so high are they raised! No, they are raised still highe
 
 We lost much through Adam's transgression, but we get all that back and much more through Christ's obedience and death, so that where sin abounded, Grace does much more abound, and:
 
-> In Christ the tribes of Adam boast   
-> More blessings than their father lost.   
+> In Christ the tribes of Adam boast  
+> More blessings than their father lost.  
 
 Our text tells us what is done for the poor beggar upon the dunghill. He is set among princes and made to inherit the Throne of Glory. So, first, he is clothed as princes are clothed. The glorious robe of Christ's righteousness is thrown around this naked beggar and now he is clad as well as the best of the princes by whom he is surrounded! And he, also, fares as well as they do! Manna from Heaven is his daily portion and water from the Rock constantly supplies his needs! And, like all the saints, in a spiritual fashion he feeds upon the flesh and blood of Christ, who is now his life!
 
