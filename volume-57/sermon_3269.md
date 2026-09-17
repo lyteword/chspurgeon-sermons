@@ -1,7 +1,7 @@
 # Sermon 3269 | A Frail Leaf
 
 > Will You break a leaf driven to and fro?  
-> Job 13:25
+> Job 13:25  
 
 Poor Job! Who could have been brought lower than he? He had lost his possessions, his children, his health. He was covered with sore boils, and he was aggravated by the unkind speeches of his friends. In his deep distress he turns to God and finding no other plea so near at hand, he makes a plea out of his own distress. He compares himself to the weakest thing he could think of and then he says to God, the Great and the Merciful, "Will You, so glorious in power and so matchless in goodness, will You break me, who am like a poor leaf fallen from the tree, sere and dry, and driven to and fro in the wind?" Thus he draws an argument out of his own weakness. Because he is so low and insignificant and powerless, he lays hold upon the Divine strength and pleads for pity.
 
@@ -23,8 +23,8 @@ O my Brothers and Sisters, what a great blessing it is to be made to know our ow
 
 While it is a confession of weakness, it is also an acknowledgment of God's power to push that weakness to a direful conclusion. "Will You break me?" says the text:"Lord, You can do it. In one minute You could take away hope from every one of us now in this House of Prayer." Some there are who are in the house of doom, where prayer can never be answered, and where Mercy's proclamation can never be heard! God could break us. It is an easy thing for Him to destroy! And more, He is not only able, but He has the right to do it if He will, for we are such worthless creatures through our disobedience that we may say, in the words of the hymn, "If my soul were sent to Hell, your righteous Law approves it well." When we feel this, then let us make a proper use of our own consciousness, not to despond and faint, but to arise and go to our Father! So we shall come to God and say, "You can destroy me. You may destroy me justly and I cannot resist You. I cannot save myself from Your vengeance, nor can I merit anything at Your hand. I am as weak as water and altogether as perishing a thing as a poor withered leaf, but will You destroy me? I plead for pity. Oh, have pity upon me! O God, let Your heart yearn towards me and show me Your great compassion! I have heard that You delight in mercy and as Ben-Hadad of old, with the rope about his neck, went in unto the king and confessed that he deserved to die, so do I confess! And as the king forgave him, even so do You with me, a guilty culprit trembling in Your Presence:
 
-> Show pity, Lord! O Lord, forgive!   
-> Let a repenting rebel live.   
+> Show pity, Lord! O Lord, forgive!  
+> Let a repenting rebel live.  
 
 This is also a plea full of pity. Though there is weakness, yet there is also power, for weakness is, for the most part, a prevalent plea with those who are strong and good. I trust you could not see on your road home tonight a poor fainting woman, and pass her by. You could not have brought in before your presence a half-starved child who could not drag its weary limbs along without feeling that you must give relief. The mere sight of weakness draws pity. As a certain town was being sacked, one of the rough soldiers is said to have spared a little child, because it said, "Please, Sir, don't kill me, I am so little." The rough warrior felt the urgency of the plea. You may yourselves plead thus with God. "O God, do not destroy me! I deserve it, but oh, I am so little! Turn Your power upon some greater thing and let Your heart move with compassion towards me!"
 
