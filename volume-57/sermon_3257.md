@@ -1,7 +1,7 @@
 # Sermon 3257 | Thoughts and Their Fruit
 
 > The fruit of their thoughts.  
-> Jeremiah 6:19
+> Jeremiah 6:19  
 
 Do you observe here, my Brothers and Sisters, how God declares that He would not only punish Israel for gross overt acts of sin, but that He would also bring upon the nation terrible chastisements for their thoughts? A solemn warning, full of instruction to us.
 
