@@ -1,5 +1,5 @@
 > And another angel came and stood at the altar, having a golden censer; and then was given unto him much incense, that he should offer it with the prayers of all saints upon the golden altar which was before the throne. And the smoke of the incense which came with the prayers of the saints, ascended up before God out of the angel's hand.  
-> Revelation 8:3,4
+> Revelation 8:3,4  
 
 I suppose that there will be very little doubt among you that the "Angel" mentioned here was either our Lord Jesus Christ, Himself, or a special angelic messenger sent to represent Him. You remember that under the Mosaic dispensation, there was to be an altar of shittim wood, overlaid with pure gold, and that Aaron was to burn sweet incense thereon every morning and every evening. In like manner, our Great High Priest is here represented as standing at the golden altar which is before the Throne of God, having in His hand a golden censer full of incense, the fragrance of which would give acceptance to the prayers of the saints for His sake, "Great Advocate, almighty Friend, On Him our humble hopes depend. Our cause can never, never fail, For Jesus pleads and must prevail."
 
@@ -15,9 +15,9 @@ It is interesting, too, to notice the subjects that have been selected as themes
 
 Now when the Church comes before God with such large requests as these, I do earnestly trust that the united supplication will be the means of bringing down one of the greatest and richest blessings that the world has ever received! God grant that it may be so:
 
-> Who but You, Almighty Spirit, Can the heathen world reclaim? Men may preach, but till You favor, Heathens will be still the same. Mighty Spirit,   
-> Witness to the Savior's name! All our hopes, and prayers, and labors, Must be vain without Your aid, But You will not disappoint us. All is true that you have said: Gracious Spirit,   
-> O'er the world Your influence spread.   
+> Who but You, Almighty Spirit, Can the heathen world reclaim? Men may preach, but till You favor, Heathens will be still the same. Mighty Spirit,  
+> Witness to the Savior's name! All our hopes, and prayers, and labors, Must be vain without Your aid, But You will not disappoint us. All is true that you have said: Gracious Spirit,  
+> O'er the world Your influence spread.  
 
 But turning away from that aspect of the Church's prayers which will be presented during the coming week, I want you to notice some points suggested by the text concerning the prayer of the saints. The first is the communion of all prayer. What does the angel do with the prayers of all saints? Does he put one of them here and another there? Does he put one on the altar and another under the altar? No, no. He puts them all into the golden censer! Here comes a prayer full of faith from a warm and loving heart filled with ardent desires for God's Glory! And behind it comes another, a poor starveling prayer. It is sincere, but it comes from the lips of Mr. Little Faith. There is not much fervor about it, but it is as much as that feeble Brother could pray. Both these prayers are put into the same golden censer. Some of you Christian people have believing friends in Australia. They pray, and their prayers get into the censer. You pray, and your prayers get there, too. Our fathers prayed, and their prayers were put into the golden censer. We pray, and our children will pray after us, but our prayers and theirs and our fathers' shall all go into the same censer! What communion there is here, then, among all Believers in Jesus! When you really draw near to God and other saints draw near to Him, you also draw near to them. No, more, since Jesus Christ, Himself, prays when you pray, you have fellowship with Him! And as the Holy Spirit inspires your prayers if they were according to the mind of God, you also have fellowship with the Spirit and through Him with the Father! Thus prayer becomes a glorious bond which binds God and all His people together in one sacred bundle of life! And to be without prayer is to be outside that blessed bundle.
 
@@ -71,10 +71,10 @@ The saints will then be able to bear that eternal noontide, for the sun shall no
 
 And they shall bring the glory and honor of the nations into it. And there shall in no wise enter into it anything that defiles, neither whatever works abomination, or makes a lie: but they which are written in the Lamb's Book of Life. That holy city would itself be defiled if anything that defiles could enter into it. Only they who are written in the Lamb's Book of Life shall be found in the glorious city of which He is the light:
 
-> Those holy gates forever bar   
-> Pollution, sin, and shame.   
-> None can obtain admittance there   
-> But followers of the Lamb.   
+> Those holy gates forever bar  
+> Pollution, sin, and shame.  
+> None can obtain admittance there  
+> But followers of the Lamb.  
 
 And he showed me a pure river of water of life, clear as crystal, proceeding out of the Throne of God and of the Lamb. Here again we have God and the Lamb uniting in giving that "water of life" which flows down to us by God's Grace through the atoning Sacrifice of Jesus, the Lamb of God.
 
