@@ -1,7 +1,7 @@
 # Sermon 3287 | The Only Door
 
-> I am the door: if anyone enters by Me, he shall be saved, and shall go in and out, and find pasture.
-> John 10:9
+> I am the door: if anyone enters by Me, he shall be saved, and shall go in and out, and find pasture.  
+> John 10:9  
 
 The Word of God tells us that in the midst of the great mass of men there are to be found a special people, a people who were chosen of God out of the common race before the stars began to shine, a people who were dear to God's heart before the foundation of the world, a people who were redeemed by the precious blood of Jesus beyond and above the rest of mankind, a people who are the special property of Christ, the flock of His pasture, the sheep of His hand, a people over whom Providence watches, shaping their course amid the tangled maze of life, a people who are to be produced at the last, every one of them faultless before the Eternal Throne and fitted for the exalted destiny which, in the ages to come, He shall reveal! All through Scripture you read about this particular and special people. Sometimes they are called "a seed," at other times "a garden," at other times "a treasure," and sometimes, as in the Chapter we have read, "a flock." The common name in the New Testament for them is "the Church": "the Church of God which He has purchased with His own blood." "Christ loved the Church and gave Himself for it, that He might sanctify and cleanse it with the washing of water by the Word."
 
@@ -66,10 +66,10 @@ To him the doorkeeper opens and the sheep hear his voice: and he calls his own s
 And when heputs forth his own sheep, he goes before them, and the sheep follow him: for they know his voice. And a stranger will they not follow, but will flee from him: for they know not the voice of strangers. Christ is the great Leader of His people and they will never go astray as long as they follow Him. The sheep of Christ recognize their Shepherd' s voice and come at His call. But "strangers" call to them in vain.
 
 This parable spoke Jesus unto them: but they understood not what things they were which He spoke unto them. Then said Jesus unto them again, Verily, verily, I say unto you, I am the door of the sheep. No one metaphor can fully describe our glorious Lord, for He is both Shepherd and Door to the sheep, and all else that they need.
-> O my Savior! Shield and Sun,
-> Shepherd, Brother, Husband, Friend
-> Every precious name in one,
-> I will love You without end!
+> O my Savior! Shield and Sun,  
+> Shepherd, Brother, Husband, Friend  
+> Every precious name in one,  
+> I will love You without end!  
 
 All that ever came before Me are thieves and robbers: but the sheep did not hear them. I am the door: by Me if any man enter in, he shall be saved, and shall go in and out, and find pasture. The thief comes not but to steal, and to kill, and to destroy: I am come that they might have life, and that they might have it more abundantly.
 
