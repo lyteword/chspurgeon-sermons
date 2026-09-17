@@ -1,7 +1,7 @@
 # Sermon 3281 | The Broad Wall
 
 > The broad wall."  
-> Nehemiah 3:8
+> Nehemiah 3:8  
 
 It seems that around Jerusalem of old, in the time of her splendor, there was a broad wall which was her defense and her glory. Jerusalem is a type of the Church of God. It is always well when we can see clearly, distinctly and plainly that around the Church to which we belong there runs a broad wall.
 
@@ -27,10 +27,10 @@ Remember again, that our Lord Jesus Christ had a broad wall between Him and the 
 
 Moreover, dear Friends, you will find that a broad wall of separation is abundantly good for yourselves. I do not think any Christian in the world will tell you that when he has given way to the world's customs, he has ever been profited thereby. If you can go and find an evening's amusement in a suspicious place and feel profited by it, I am sure you are not a Christian, for, if you were really a Christian, it would pain your conscience and unfit you for more devout exercises of the heart! Ask a fish to spend an hour on dry land and I think, did it comply, the fish would find that it was not much to its benefit, for it would be out of its element, and it will be so with you in communion with sinners. When you are compelled to associate with worldly people in the ordinary course of business, you find much that grates upon the ear, that troubles the heart and annoys the soul. You will be often like righteous Lot, vexed with the conversation of the wicked, and you will say with David:
 
-> Woe's me that I in Mesech am   
-> A sojourner so long!   
-> That I in tabernacles dwell   
-> To Kedar that belong.   
+> Woe's me that I in Mesech am  
+> A sojourner so long!  
+> That I in tabernacles dwell  
+> To Kedar that belong.  
 
 Your soul will pine and sigh to come forth and wash your hands of everything that is impure and unclean. As you find no comfort there, you will long to get away to the chaste, the holy, the devout, the edifying fellowship of the saints! Make a broad wall, dear Friends, in your daily life! If you begin to give way a little to the world, you will soon give way a great deal. Give sin an inch and it will take a mile. "Take care of the pence, and the pounds will take care of themselves," is an apt motto of economy. So, too, guard against little sins if you would be clear of "the great transgression." Look after the little approaches to worldliness, the little giving in towards the things of ungodliness, and then you will not make provision for the flesh to fulfill the lusts thereof.
 
