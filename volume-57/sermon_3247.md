@@ -1,7 +1,7 @@
 # Sermon 3247 | Unreasonable Reasons
 
 > O you of little faith, why did you doubt?"  
-> Matthew 14:31
+> Matthew 14:31  
 
 Our Savior did not ask Peter that question for His own information. He could have told Peter much more about his unbelieving heart than Peter knew! The Savior was well acquainted with those springs from which the unbelief of Peter arose. He asked it, therefore, rather that Peter might make the enquiry of himself, that he might look into the matter and see how groundless his unbelief was, so that on the next occasion he might not fall into the same error. I believe it is sometimes a very great cure for unbelief to look it in the face even while we are under it, and after we have escaped from it, it is still a preventive for the future if we look back upon it and reason concerning it. Remember how David, in the forty-second Psalm, twice asked himself, "Why are you cast down, O my Soul? And why are you disquieted within me?" He was persuaded that the questioning of his unbelief would convict him of its folly. It only needs to be looked at closely to lose all its terror, to be robbed of its seeming foundation and to be overcome!
 
@@ -61,10 +61,10 @@ If one is saying, "I cannot be saved because of the greatness of my sins," you c
 
 But the other says, "My trouble is not that I feel I am a great sinner, but that I do not feel that I am a great sinner" The nation has been entertained by some that there is a certain amount of feeling required before we are fit for Christ, and a good deal of preaching has gone to show that the sinner is to fit himself for Christ. I have read descriptions of the sinner's fitness that really were true enough about those who were saved, but were most discouraging and un-Gospel-like if they had reference to them who were not saved! Jesus Christ has come to seek and to save that which was lost. If you are lost, He has come to save you! It is not merely those who feel that they are lost, there are special promises for them, but those who are so lost that they do not even feel it! He even comes to give a sense of being lost to those who have no sense of it. And mark you, if Jesus waited till sinners of themselves felt their need of Him, He would never save one! It is as much His work to make us feel our need as it is to supply our need! Hart has well put it:
 
-> True belief and true repentance   
-> Every Grace that brings us nigh,   
-> Without money,   
-> Come to Jesus Christ, and buy.   
+> True belief and true repentance  
+> Every Grace that brings us nigh,  
+> Without money,  
+> Come to Jesus Christ, and buy.  
 
 If you cannot come with a broken heart, come for a broken heart! If you are all bad and there is no good about you, not even a good feeling, yet still the Gospel says to you, and to every creature under Heaven, "Believe on the Lord Jesus Christ, and you shall be saved." "Still I must feel," says one. Yes, you will feel, and feel as you never felt before if you listen to this message. "Incline your ear, and come unto Me. Hear, and your soul shall live." Believe in the crucified Savior! Trust yourself with Him, for there is no salvation in any other! Salvation is not in your feelings, but in His work Salvation is not in looking at the bites of the serpent, but in looking at the bronze serpent on the pole! Salvation is not in studying your leprosy, but in looking to the great High Priest who puts His hand on you and says, "I will, be you clean." Salvation is not in poring over your blindness, but in lifting up your face to Him who puts His finger on your sightless eyeballs and says, "See, for I have given you sight." Salvation is not in trying to untwist the grave clothes, but in obeying that glorious Voice that says, "Lazarus, come forth," even to one who has already lain three days in his grave! It is not you that are to do the saving. It is Christ who is the Savior!
 
