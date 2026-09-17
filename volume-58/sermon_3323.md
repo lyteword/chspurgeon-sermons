@@ -1,7 +1,7 @@
 # Sermon 3323 | The Believer's Glad Prospects
 
-> Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether.
-> Solomon's Song 2:17
+> Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether.  
+> Solomon's Song 2:17  
 
 Without a sentence of introduction, I invite you, Beloved, to see herein, a blessed season here anticipated!, a time when the day shall break and the shadows shall flee away.
 
@@ -10,8 +10,8 @@ It is not every man who can count upon such a time as that, for to some there is
 Let us take each expression and muse on it. " Until the day breaks." In a certain sense the Christian is now in the light, for he is a child of light and he walks in the light. And he may walk in the light as God is in the light, and so have fellowship with the Father and feel that the blood of Jesus Christ, His Son, cleanses him from all sin. But Paul, in some pages, calls this present estate darkness. "For," he says, "the night is far spent, the day is at hand," meaning thereby this present state of life to the Believer, which is far spent, and the daylight, the glorious daylight of eternity, is near at hand!
 
 "The daybreak." Why, this represents to the most of us, probably, the moment of death. To as many as shall be alive and remain at the coming of the Lord, it represents the coming of the Lord and the Glory of His people. "The daybreak!" It is the hour of joy. During the night the earth seems sad. She has covered herself with sackcloth, her eyes are full of the drops of the night. There is silence over the plains. The woods send not forth their grateful music. There is only heard the hooting of the owl, with, perhaps, now and then a stray note from the nightingale as though she remembered the day. Night is the time of the world's gloom, but daybreak is the time of her festival! Then is her splendor abroad. Then: "Morn, her rosy step in the eastern clime Advancing, sows the earth with orient pearl." Ten thousand winged songsters of the grove waking up from their slumber begin to pour forth incessant streams of music! Every creature, beholding the light of the sun, wakes itself up and is full of joy! Such will the daybreak be to us. This is not our time of fullest joy. We that are in this tabernacle do groan, being burdened. We have trials without. We have conflicts within. The daybreak is coming when we who are not of the night, nor of darkness, though compelled to pass through it, shall emerge into our proper element, the Light of God, and our spirits shall bathe themselves in all that they can desire, being satisfied with favor and full of the blessing of the Lord! "I shall be satisfied," says David, "when I awake in Your likeness." We are looking for a time of ineffable delight! All the attempts that have ever been made to describe the joy and glory of Heaven have necessarily been failures, and if we were to attempt again, we should fall far below that which God has revealed to us by His Spirit, for eye has not seen, nor ear heard that which He has prepared for them that love Him! Thank God, our joy is coming nearer every time the tick of the clock is heard. Behold, on flying wings it comes! Every day of winter's sorrow or of summer's joy brings it nearer. We said last Sunday evening, "Now is our salvation nearer than when we believed," and we often sing.
-> We nightly pitch our moving tent
-> A day's march nearer home.
+> We nightly pitch our moving tent  
+> A day's march nearer home.  
 
 This is one of the choicest consolations of the present: that we are getting nearer to the daybreak!
 
@@ -28,14 +28,14 @@ The other expression of the text is also instructive: "Until the day breaks and 
 Other shadows we have that we shall be more glad to lose, shadows of frightful things which haunt us, especially the timid, nervous and faint-hearted people of God. Some of the Lord's people spend their lives in fighting shadows! They make troubles. They sit down and imagine disasters which cannot occur. They bind heavy burdens and put them upon their own shoulders, burdens which God never intended them to bear, and burdens which, in fact, do not exist! And some of them even create actual trouble by foolish anxiety to escape from an imaginary trouble! Well, poor trembler, poor Mr. Fearing, and you, Miss Much-afraid and Miss Despondency, the shadows will soon flee away! Though you generally go limping to Heaven with weak hands and feeble knees, and as many sighs as breaths, and as many tears as seconds, there is an end coming to all these and you shall be as merry as any of them by-and-by! You shall be as near the eternal Throne of God as the Apostles, themselves, and have as much of the Divine Love and enjoyment as the strongest Believers in Christ ever had! Be of good courage. Strive against those fears! They weaken you. They dishonor our Master! Repent of ever having indulged them, for they are wicked! Still, let this encourage you: they shall all flee away at the daybreak! Do not, therefore, dread dying when with that comes the daybreak! Expect it, even long for it, since then the shadows which oppress you from morn till night shall flee away!
 
 So, too, those doubts and fears which are made of sterner stuff, the deeper shadows and heavier glooms, shall all flee away! There may be some men who never have a doubt about their acceptance in Christ, but I am afraid I cannot count myself as one of them. For the most part I know whom I have believed and I am persuaded that He is able to keep that which I have committed to Him until that day. But sometimes when it comes to close heart-work and self-examination, I cannot give up Cowper's hymn.
-> 'Tis a point I long to know,
-> Oft it causes anxious thought!
-> Do I love the Lord or no?
-> Am I His, or am I not?
-> If I love, why am I thus?
-> Why this cold and lifeless frame?
-> Hardly, sure, could they be worse
-> Who have never known His name?
+> 'Tis a point I long to know,  
+> Oft it causes anxious thought!  
+> Do I love the Lord or no?  
+> Am I His, or am I not?  
+> If I love, why am I thus?  
+> Why this cold and lifeless frame?  
+> Hardly, sure, could they be worse  
+> Who have never known His name?  
 
 Not that it is of any use having such a hymn as that in the hymnbook, for you never ought to sing it! It is not a thing to sing, but to groan out all alone before our God. I think the most of us are compelled to do that sometimes. Well, blessed be God, at the daybreak, all these fears will be gone! We shall never be able, then, to doubt our interest in Christ because we shall be with Him where He is, and shall behold His Glory! Then we shall never have any fear lest after having preached to others we, ourselves, should be cast away. We shall not be afraid lest we should be shipwrecked, for though it may be but on boards and broken pieces, yet we shall then have come safely to land, all these fears will have vanished forever!
 
