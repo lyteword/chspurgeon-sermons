@@ -1,7 +1,7 @@
 # Sermon 3273 | A Sermon to Ministers and Other Tried Believers
 
 > Casting all your care upon Him, for He cares for you.  
-> 1 Peter 5:7
+> 1 Peter 5:7  
 
 This season of depression in trade has brought great care to many a house and heart, especially to village pastors and their flocks. Their troubles have been heavy and I am afraid their cares have not been light. Few have escaped the pinch of these hard times, the most prosperous have to watch the ebbing tide and ask: How long shall these things be? The subject will be seasonable to us all.
 
