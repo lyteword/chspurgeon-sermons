@@ -1,7 +1,7 @@
 # Sermon 3268 | The Savior's Silence
 
 > But He answered her not a word.  
-> Matthew 15:23
+> Matthew 15:23  
 
 The diary of a physician, one would think, must necessarily be deeply interesting. What a variety of cases must come under the doctor's observation in the course of one year! And some of these must be very strange cases indeed. The details of their cures, if one could understand them, and if the doctor would only translate his hard Latin terms, might be of the greatest interest.
 
