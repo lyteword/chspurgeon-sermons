@@ -1,7 +1,7 @@
 # Sermon 3317 | A Sweet Bow
 
-> He delights in mercy.
-> Micah 7:18
+> He delights in mercy.  
+> Micah 7:18  
 
 Sons of men, rejoice that such a God has revealed Himself to you! This should cause a universal Hallelujah, the whole world over, as soon as ever it is heard! "He delights in mercy." Clap your hands and rejoice before Him! Yes, exceedingly rejoice! The heathen did not find this out. Although they had many gods, differing one from another in character, none of them were ever gods of mercy! They were usually fierce demons, some of them only rejoicing in the exaction of human blood. Go this very day to Hindustan and see what gods man makes unto himself, gods more beastly, more cruel, more devilish than himself! Such is not the living and true God! Far from taking pleasure in the sufferings of creatures, He tells us plainly that He delights in mercy. It is not enough that He is merciful, but He delightsin this high prerogative! While we may well suppose that every attribute of God gives Him pleasure in the exercise, mercy is supremely singled out as being especially His favorite! Mercy is the last attribute openly manifested. He exercised His power in making men before they sinned or needed mercy, and He displayed His wisdom in balancing the clouds and piling the hills before He needed to show mercy, for sin as yet had not come into the world. If I may say so, mercy is God's Benjamin and He delights most of all in it. It is the son of His right hand, though, alas, in bringing it forth, it might well have been called the son of sorrow, too, for mercy came into this world through the sorrows of the Only Begotten Son of God! He delights in mercy, just as some men delight in trade, some in the arts, some in professions, and each man, according to his delight, becomes proficient in pursuing a work for the very love thereof. So God is proficient in mercy. He addicts Himself to it. He is most Godlike, most happy if such a thing may be said of Him! When He is stretching out His right hand with His golden scepter in it, and saying to the guilty, "Come to Me. Touch this scepter and you shall live!" He delights in mercy!
 
@@ -44,17 +44,17 @@ Christian people, here is a noble example for you. If God delights in mercy, and
 Still, the great lesson I want to bring out is this, if God delights in mercy, then why should those who have offended Him be afraid to seek Him? He will hear your prayers be they ever so feeble or broken! He is ready to forgive you, however grossly you may have offended. Think of that! If He is so kind, why do you stay away from Him?
 
 Oh, come to Him, come now! 'Tis all mercy today. You are not bidden to come to a judge, nor to advance to the bar where the sentence shall go against you: 'tis a sweeter note you hear: "Come unto Me, all you that labor and are heavy laden, for I am meek and lowly of heart, and you shall find rest unto your souls, for My yoke is easy and My burden is light." Oh, I wish I could lead you to the Lord! It is not in my power. His Spirit, alone, can do it, but ah, do come, and welcome! There is not a hard word in the whole of the Bible for a coming sinner! There is nothing to keep back a soul that desires to be at peace with God. God's House is open! God's heart is open! God's table is spread! God waits to be gracious, no, He comes to meet the sinner that comes to Him! Are you willing to have Him and to have His mercy? If so, you may have it! Come, then, come and welcome, Sinner, come!
-> Lord You have won, at length I yield!
-> My heart, by mighty Grace compelled
-> Surrenders all to Thee!
-> Against Your terrors long I strove,
-> But who can stand against Your love?
-> Love conquers even me!
-> If You had bid Your thunders roll,
-> And lighting's flash to blast my soul,
-> I still had stubborn been.
-> But mercy has my heart subdued,
-> A bleeding Savior I have viewed, And now I hate my sin.
+> Lord You have won, at length I yield!  
+> My heart, by mighty Grace compelled  
+> Surrenders all to Thee!  
+> Against Your terrors long I strove,  
+> But who can stand against Your love?  
+> Love conquers even me!  
+> If You had bid Your thunders roll,  
+> And lighting's flash to blast my soul,  
+> I still had stubborn been.  
+> But mercy has my heart subdued,  
+> A bleeding Savior I have viewed, And now I hate my sin.  
 
 ## Exposition by C. H. Spurgeon: Psalm 136 and Ephesians 1
 
