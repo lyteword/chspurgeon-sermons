@@ -1,7 +1,7 @@
 # Sermon 3304 | Grace Abounding
 
-> But where sin abounded, Grace did much more abound.
-> Romans 5:20
+> But where sin abounded, Grace did much more abound.  
+> Romans 5:20  
 
 There has been a long battle in this world between man's sin and God's Grace. If it had been a fight between man's sin and God's Justice, it would soon have come to an end. Picture to yourself the flames of Hell and see there what God's Justice can do when it comes into conflict with human guilt. When God goes forth to war against the ungodly, His might is indeed terrible. Divine Justice makes short work of sin: it treads it under foot and stamps it out, even as men do with sparks of fire, for God hates sin with a perfect hatred. And when His anger is aroused against it, He tears it in pieces as the lion tears his prey in his fury. But, happily for us, the conflict with which we are just now concerned is not that between Justice and sin but that between Grace and sin! God's milder attribute of Mercy has entered the field and in our text Paul tells us the result of the battle. It looked for a time as if sin would gain the victory, for it abounded more and more, but at the last the banner of Grace waved triumphantly over the battlefield, for "where sin abounded, Grace did much more abound."
 
