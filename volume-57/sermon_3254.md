@@ -1,7 +1,7 @@
 # Sermon 3254 | The Curse Removed
 
 > Christ has redeemed us from the curse of the Law, being made a curse for us: for it is written, Cursed is every one that hangs on a tree.  
-> Galatians 3:13
+> Galatians 3:13  
 
 The Law of God is a Divine Law, holy, heavenly, perfect. Those who find fault with the Law, or in the least degree depreciate it, do not understand its design and have no right idea of the Law itself. Paul says, "We know that the Law is spiritual: but I am carnal, sold under sin." In all that we ever say concerning justification by faith, we never intend to lower the opinion which our hearers have of the Law, for the Law is one of the most sublime of God's works. There is not a commandment too many, there is not one too few! The Law of the Lord is so incomparable that its perfection is a proof of its Divinity. No human lawgiver could have given forth such a Law as this which we find in the Decalogue. It is a perfect Law, for all human laws that are right are to be found in that brief compendium and epitome of all that is good and excellent toward God, or between man and man.
 
@@ -33,19 +33,19 @@ Mark, Beloved, in the next place, that this removal of the curse from us, when i
 
 We must also say upon this point, that when Christ removes the curse, it is an irreversible removal. Once let me be acquitted by God and who is he that can condemn me? There are some, in these days, who teach that God justifies, and yet, after that, condemns the same person whom He has justified! We have heard it asserted pretty boldly that a man may be a child of God today, hear it, you heavens, and be astonished, and be a child of the devil tomorrow! We have heard it said, but we know it is untrue, for we find nothing in Scripture to warrant it! We have often asked ourselves. Can men really believe that after having been begotten again by God unto a lively hope by the Resurrection of Jesus Christ from the dead, that new birth can fail and die? We have asked ourselves, Can men imagine that after God has once broken our chains, and set us free, He will call us back and bind us once again, like Prometheus, to the great rocks of despair? Will He once blot out the handwriting that is against us and then record the charge again? Once pardoned, then condemned? We know that if Paul had met with such teachers, he would have said, "Who shall lay anything to the charge of God's elect? It is God that justifies. Who is he that condemns? It is Christ that died, yes, rather that is risen again, who is even at the right hand of God, who also make intercession for us." There is no condemnation now to us who are "in Christ Jesus, who walk not after the flesh, but after the Spirit." It is a sweet thought to me that even Satan himself can never rob me of my pardon. I may lose my copy of it, and lose my comfort from it, but the original pardon is filed in Heaven! It may be that gloomy doubts may arise, and I may fear that I am not forgiven, yet I can say:
 
-> O my distrustful heart,   
-> How small your faith appears!   
-> But greater, Lord, You are   
-> Than all my doubts and fears!   
-> Did Jesus once upon me shine?   
-> Then Jesus is forever mine!   
+> O my distrustful heart,  
+> How small your faith appears!  
+> But greater, Lord, You are  
+> Than all my doubts and fears!  
+> Did Jesus once upon me shine?  
+> Then Jesus is forever mine!  
 
 I love, at times, to go back in thought to that hallowed hour when I first realized that my sins were all forgiven for Christ's sake. There is much comfort in recalling that blessed hour when first we knew the Lord, "Do mind the place, the spot of ground Where Jesus did you meet!"
 
 Perhaps you do. Perhaps you can look back to the very place where Jesus whispered to you that you were His. Can you do so? Oh, what comfort it will give you! For remember, once acquitted, you are acquitted forever! So says God's Word. Once pardoned, you are clear forever! Once set at liberty, you shall never be a slave again! Once Sinai's wrath has been appeased, it shall never thunder against you again! Blessed be God's name, we have been brought to Calvary and we shall be brought to Zion, too! At last we shall stand before God and even there we shall be able by Grace to say:
 
-> Great God, we are clean!   
-> Through Jesus' blood we are clean.   
+> Great God, we are clean!  
+> Through Jesus' blood we are clean.  
 
 Now we are brought, in the third place, to observe the great substitute by whom the curse is removed. "The curse of the Law" was not easily taken away. In fact, there was but one way whereby it could be removed. The lightning was in God's hand. It must be launched. He said it must. The sword was unsheathed. Divine Justice must be satisfied, God vowed that it must. Vengeance was ready. Vengeance must fall! God had said that it must. How, then, was the sinner to be saved? The only answer was this. The Son of God appears and He says, "Father, launch Your thunderbolts at Me! Here is My breast, plunge the sword of Justice in here! Here are My shoulders, let the lash of vengeance fall on them!" Thus Christ, our Substitute, came forth and stood for us, "the Just for the unjust, that He might bring us to God." It is our delight to preach the Doctrine of Substitution because we are fully persuaded that no Gospel is preached where Substitution is omitted. Unless sinners are plainly and positively told that Christ stood in their place to bear their guilt and carry their sorrows, they never can see how God can "be just and the Justifier of him which believes in Jesus."
 
