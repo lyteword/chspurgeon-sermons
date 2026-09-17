@@ -1,10 +1,10 @@
 # Sermon 3330 | Two Choice Assurances
 
-> Fear not, Abram: I am your shield and your exceedingly great reward.
-> Genesis 15:1
+> Fear not, Abram: I am your shield and your exceedingly great reward.  
+> Genesis 15:1  
 
-> And He said, 'My Presence shall go with you, and I will give you rest.'
-> Exodus 33:14
+> And He said, 'My Presence shall go with you, and I will give you rest.'  
+> Exodus 33:14  
 
 In the splendid Psalm that sets forth the Divine Glory of the matchless Word of God as compared even with the greatest wonders of God's visible Creation: that is in the nineteenth Psalm: we read in the tenth verse, "Sweeter also than honey and the honeycomb." This is applied to "the judgments of the Lord" which are "true and righteous altogether." Of course, this expression sets forth David's esteem of the Law of God as he knew it, a very small volume compared with our complete Bible, and yet we may surely apply it to the whole of the Scriptures, both Old and New Testaments! The Hebrew original has it, "Sweeter than the dropping of honeycombs." Whereupon gracious Thomas Brookes, the Puritan Divine, observes, "it is sweeter than those drops which fall naturally and instantly from the comb without any force or act, and which are counted as being the purest, choicest and richest honey." How true is this! There are some texts of Scripture that may yield their treasures of instruction, comfort, or direction after deep study and holy meditation, but there are others which are marvelously free in the giving forth of their sweetness, calling for little else than a heart that loves and longs to hear God speak!
 
@@ -37,14 +37,14 @@ So, dear Friends, when we seem to have nothing, certainly nothing visible, to pr
 The visible is necessarily the limited and finite, but the invisible God is Infinite and there is no searching of His understanding, or resistance to His power. You are infinitely safe if you really trust the living God, your beginning and ending, your waking and sleeping, your resting and journeying, your work and suffering, your honor or your reproach, your poverty or wealth, your success or failure, your life or death, your all forever and ever is most secure when the Lord is your Keeper and your Shield upon your right hand. Be it ours in truest wisdom and sincerest trust to give up our hearts to the repose of simple faith in Him!
 
 Come, sing with me that verse of the beloved singer Toplady.
-> Inquirer and Hearer of prayer,
-> You Shepherd and Guardian of Thine,
-> My all to Your Covenant care,
-> I sleeping and waking resign!
-> If You are my shield and my sun,
-> The night is no darkness to me
-> And fast as the moments roll on,
-> They bring me but nearer to Thee!
+> Inquirer and Hearer of prayer,  
+> You Shepherd and Guardian of Thine,  
+> My all to Your Covenant care,  
+> I sleeping and waking resign!  
+> If You are my shield and my sun,  
+> The night is no darkness to me  
+> And fast as the moments roll on,  
+> They bring me but nearer to Thee!  
 
 We are invulnerable and invincible if God is with us! We may be in the very midst of cruel adversaries, but no weapon that is formed against us can prosper if God is our Shield. Our Lord did not say to Abram, and does not say to us, "I will shield you," but that I, that am the Almighty, I am your Shield: it is not alone My power, My wisdom, My love which will protect you, but I, Myself, will be your Shield!
 
@@ -101,10 +101,10 @@ As the Father knows Me, even so know I the Father: and I lay down My life for th
 Therefore does My Father love Me, because I lay down My life, that I might take it again. No man takes it from Me, but I lay it down of Myself. I have power to lay it down, and I have power to take it again. This commandment have I received of My Father There was a division, therefore, again among the Jews for these sayings. And many of them said, He has a devil and is mad, why hear you Him? Others said, These are not the words of him that has a devil. Can a devil open the eyes of the blind? And it was at Jerusalem the Feast of the Dedication, and it was winter. And Jesus walked in the Temple on Solomon's porch. Then came the Jews round about Him, and said unto Him, How long do You make us to doubt? If you are the Christ, tell us plainly. Jesus answered them, I told you, and you believed not: the work that I do in My Father's name, they bear witness of Me. But you believe not, because you are not of My sheep, as I said unto you. Believing does not make them sheep, but being sheep by Divine Election proves them to be such.
 
 My sheep hear My voice, and I know them, and they follow Me. And I give unto them eternal life, and they shall never perish, neither shall any man pluck them out of My hand. My Father, which gave them to Me, is greater than all and no man is able to pluck them out of My Father's hand. I and my Father are One. Happy are they, then, who have received the character of sheep, for thus they prove themselves to be the chosen of God! And in the hand of Christ, and in His Father's grasp, they are eternally secure.
-> If in my Father's love
-> I share a filial part,
-> Send down your Spirit like a dove
-> To rest upon my heart.
+> If in my Father's love  
+> I share a filial part,  
+> Send down your Spirit like a dove  
+> To rest upon my heart.  
 
 In this Chapter our Savior's glorious Person is very plainly set before us. And it is made the ground of our faith and a reason why we should give the more earnest heed to His words, lest at any time we should let them slip.
 
