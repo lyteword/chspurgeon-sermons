@@ -1,7 +1,7 @@
 # Sermon 3265 | Faith Tried and Triumphing
 
 > Though He slays me, yet will I trust in Him.  
-> Job 13:15
+> Job 13:15  
 
 There are some speeches which could not be made by ordinary men. As soon as you hear them, you feel that there is a ring about them which is by no means common. Certain expressions which have been heard and remembered could have been uttered only by great warriors, or by men who have navigated the vast ocean. Certain other still nobler expressions, because spiritual ones, could have been uttered only by those who have had to fight with spiritual foes, or have done business on the great waters of soul trouble. When you hear the expression, "If there are as many devils at Worms as there are tiles on the housetops, I will go there in God's name," you are quite certain the speaker is Martin Luther. No other than he could have said it! And just as certainly, I think, I would have felt if I had read tonight's text for the first time, that it was Job who said it and nobody else.
 
@@ -37,8 +37,8 @@ Now the second point shall be that those of us who have learned to trust in God 
 
 Ah, Job knew what He meant, for all other things had been done except the slaying of him! His children were dead and the house in which they had met was a ruin. All he had was gone, his health had gone and he could not rest by reason of the disease which was all over him, most painful and most acute. He had nothing left on earth that was worth having. He was even friendless and he was worse than wifeless, for his wife had turned against him. Yet he says there is but one thing more that can be done, and God has kept Satan back from that. He said, "Only you shall not take his life." But if the Lord chose to let loose the dog without even the link of a chain upon him, though He allows me now to lose my life itself:
 
-> Though He slays me, I will trust, Praise Him even from the dust:
-> Prove, and sing it as I prove, His eternal gracious love.   
+> Though He slays me, I will trust, Praise Him even from the dust:  
+> Prove, and sing it as I prove, His eternal gracious love.  
 
 Now, the text evidently implies that faith will be tried and tried severely. Let us think a moment about this. Has it not been always the case that if any man has had a faith beyond his fellow men, it has met with trial? If you go a step beyond the ordinary rank and file, you will be shot at for that very reason! Columbus believes that there is another part of the world undiscovered, what ridicule is heaped upon him! Galileo says the world moves. He must be put into the Inquisition, the poor old man must be forced to deny what he was quite sure was the truth. It was dangerous in those days to know too much and to believe a little more than other people. And in spiritual things it is just the same. The world is against the true faith. The faith of God's elect is not a flower that men delight to admire and praise. It is a thing which, wherever they see it, they count as a speckled bird and they are sure to be against it! If you have faith in God, remember that this is not the world of faith, but the world of unbelief, and the darkness that is in the world will try to quench your Light!
 
@@ -62,10 +62,10 @@ Why is it that the Believer is warranted in trusting in God to the very last ext
 
 I ought to trust Him, also, to the last, because outward Providences prove nothing to us about God. We cannot read outward events correctly. They are written in hieroglyphics. The book of God is readable. It is written in human language! But the works of God are often unreadable:
 
-> Blind unbelief is sure to err,   
-> And scan His work in vain.   
-> God is His own interpreter,   
-> And He will make it plain.   
+> Blind unbelief is sure to err,  
+> And scan His work in vain.  
+> God is His own interpreter,  
+> And He will make it plain.  
 
 We begin spelling God's works and making mischief out of them because we do not know the letters or understand the alphabet, and cannot readily know what He means. If the Lord says He loves us, do we believe it though He smites us? Do we believe that, "Behind a frowning Providence He hides a smiling face?"
 
