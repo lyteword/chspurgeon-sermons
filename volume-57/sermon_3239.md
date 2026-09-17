@@ -1,7 +1,7 @@
 # Sermon 3239 | Woe and Weal
 
 > I will bear the indignation of the Lord, because I have sinned against Him, until He pleads my cause, and executes judgment for me, He will bring me forth to the light and I shall behold His righteousness.  
-> Micah 7:9
+> Micah 7:9  
 
 Those who expect to find the road to Heaven smooth and unobstructed will discover little in the experience of the ancient saints to support the expectation. The Lord's people have, in all ages, been tried people. Cowper well says:"The path of sorrow, and that path alone, Leads to the land where sorrow is unknown."
 
@@ -71,10 +71,10 @@ For the son dishonors the father, the daughter rises up against her mother, the 
 
 I will wait for the God of my salvation: my God will hear me. Rejoice not against me, O my enemy: when I fall, I shall arise; when I sit in darkness, the Lord shall be a light unto me. And this is all the light that God's people need! Even if it is the darkness of a black Egyptian night into which our spirit has fallen, yet if God shall but appear to us, there shall soon be light for us! Dr. Watts truly sang:
 
-> In darkest shades, if He appears,   
-> My dawning is begun!   
-> He is my soul's sweet morning star,   
-> And He my rising sun.   
+> In darkest shades, if He appears,  
+> My dawning is begun!  
+> He is my soul's sweet morning star,  
+> And He my rising sun.  
 
 I will bear the indignation of the Lord, because I have sinned against Him, until He pleads my cause, and executes judgment for me: He will bring me forth to the light andI shall behold His righteousness. Listen to this testimony of the Prophet, tried child of God! Even when in your own household you find enemies, put your trust in God, for He will yet appear to deliver you. Let this be your joy! Sit still in humble patience and "bear the indignation of the Lord," for even though trouble is laid upon you, it is not so heavy as it might have been, and it is not so severe as it would have been if the Lord had dealt with you in strict justice! Therefore in patience possess your soul and wait quietly before your God. Be not without hope. Expect that He will plead your cause and that He will execute judgment for you. Watch for His light, which will most surely come, and in which you shall behold not your own righteousness, but His!
 
