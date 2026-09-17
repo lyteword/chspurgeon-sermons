@@ -1,7 +1,7 @@
 # Sermon 3251 | Christ the Tree of Life
 
 > In the middle of its street, and on either side of the river, was the Tree of Life, which bore twelve fruits, each tree yielding its fruit every month. The leaves of the tree were for the healing of the nations.  
-> Revelation 22:2
+> Revelation 22:2  
 
 You will remember that in the first Paradise, there was a Tree of Life in the midst of the garden. When Adam had offended and was driven out, God said, "Lest he put forth his hand and take of the Tree of Life and eat, and live forever, therefore the Lord God drove out the man." It has been supposed, by some, that this Tree of Life in the Garden of Eden was intended to be the means of continuing man in immortality, that his feeding upon it would have supported him in the vigor of unfailing youth, preserved him from exposure to decay and imparted, by a spiritual regeneration, the seal of perpetuity to his constitution. I do not know about that. If it were so, I can understand the reason why God would not have the first man, Adam, become immortal in the lapsed state he was then in, but ordained that the old nature should die, and that the immortality would be given to a new nature which would be formed under another leadership and quickened by another Spirit.
 
