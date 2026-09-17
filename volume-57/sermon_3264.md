@@ -1,7 +1,7 @@
 # Sermon 3264 | God's Care of Elijah
 
 > And it shall be that you shall drink from the brook, and I have commanded the ravens to feed you there.  
-> 1 Kings 17:4
+> 1 Kings 17:4  
 
 What a mighty master of the art of prayer was Elijah the Tishbite! He was one of those who had the power to shut up Heaven so that it did not rain. He did not merely prophesy, "As the Lord God of Israel lives, before whom I stand, there shall not be dew nor rain but according to my word," but he prayed that it might be so, so that he was not only the messenger of the drought, but in some sense, the cause of it. It was his act that stopped the bottles of Heaven! It was his prevailing prayer which brought down that heavy chastisement upon the sinful people.
 
@@ -15,10 +15,10 @@ First, then, we certainly gather from the whole incident related concerning Elij
 
 This narrative seems to tell us, first of all, that God's people shall always have enough. Do they need drink in a parched land. They shall "drink of the brook." Do they need food, "I have commanded the ravens to feed you there." Elijah never had short commons. He had no luxuries, just bread, meat, and water, but these were enough. No doubt, Jezebel's priests fed much more sumptuously and many of God's servants not as well, for we read of Obadiah that he took the Prophets of God and hid them by fifties in a cave and fed them bread and water. Now Elijah did get on better than this for he had bread and meat while they had only bread. God, however, was not pleased to give Elijah dainties. Delicate things are not promised to the children of God, and His Prophets, at any rate, should not seek after them. They that fare delicately and are clothed sumptuously are in kings' houses and are often nothing better than reeds shaken by the wind. Let us learn, then, from this, that although God will provide for the needs of His people, yet He has never promised to give them more than enough. The promise runs, "Your bread shall be given you, and your water shall be sure," but it goes no further. We are instructed each day to pray, "Give us this day our daily bread," which means, "Give us a sufficiency." And, indeed, if God's Inspiration had not taught us so to pray, wisdom would teach us to do it, for Agur's prayer is one which philosophy might justify as well as Grace, "Give me neither poverty nor riches: feed me with food convenient for me." It is that middle path of the, "enough," which is, perhaps, the most pleasant, and certainly the most safe. "Having food and raiment let us therewith be content.":
 
-> Let others stretch their arms like seas,   
-> And grasp in all the shore:
-> Grant me the presence of Your love,   
-> And I will ask no more.   
+> Let others stretch their arms like seas,  
+> And grasp in all the shore:  
+> Grant me the presence of Your love,  
+> And I will ask no more.  
 
 You have, perhaps, been struggling and trying to rise in the world, and after long and arduous efforts find yourself just where you were. You did make money fast at one time, but you have lost it all again. Well, dear Friends, what does this matter, after all, as long as your God is still faithful to you? He never promised you riches! He did, however, promise you that you should lack no good thing and if riches had been a good thing for you, you would have had them! Perhaps you are one of the hyssops that grow best upon the wall, or one of the ferns that flourish best down in some shady place. Too much sunlight and exposure might have been ill for you. Thank God that you have enough just now, and are a Believer in Christ! Take your case before the Lord and He will command even the ravens to feed you sooner than that you shall know any serious lack. I ought to say before I leave this point that Elijah had enough, but it did not always come to him in the nicest way, for I do not imagine that the ravens knew how to get bread and meat always cut into nice shapes. Perhaps they snatched a rough bit of meat here and perhaps a crust of bread there, and it came in all sorts of ugly pieces, but still, there it was and it was enough! "Beggars are not to be choosers," we say, and certainly pensioners on God's bounty ought not pick holes and find fault with the Lord's providing! Whatever God gives you, be grateful for, for if too proud to take from the raven's mouth, it will be well for you to go without until your hunger consumes your pride! God promises His people enough, but not more than enough, and even that enough may not come to us in the way we would choose.
 
