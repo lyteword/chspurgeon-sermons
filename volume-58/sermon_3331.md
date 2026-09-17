@@ -1,7 +1,7 @@
 # Sermon 3331 | Knowing and Believing
 
-> I know whom I have believed.
-> 2 Timothy 1:12
+> I know whom I have believed.  
+> 2 Timothy 1:12  
 
 The text is wholly taken up with three things, with knowing, with believing and with the Person who is known and believed. And upon both the knowing and the believing, Paul is very decided. He puts in no, "if," no word of change. He does not say, "I hope so," or, "I trust so," but, "I know I have believed and I know whom I have believed." It is all assurance and not a shadow of doubt! Let us imitate the Apostle, or ask for Grace to be able to imitate him, that we may shake off the dubious phraseology which is so common among Christians, nowadays, and may be able to speak with Apostolic confidence upon a matter upon which we ought to be confident if anywhere at all, namely, our own salvation!
 
@@ -48,10 +48,10 @@ Let it be remarked here that in proportion as our genuine knowledge of Christ in
 But now there may be some present who are saying, "I cannot say I know whom I have believed."
 
 "How can I know that I may believe in Him?" The answer is, search the Word of God with a desire to find Him. Seek out the most Christ-exalting ministry in your neighborhood, in whatever denomination you can find it, and listen to it with all your ears and with all your heart. Get to your chamber and there seek the Lord to illuminate you in the matter of the Lord Jesus Christ! Ask Him to reveal His Son in you. I tell you this, faith comes by hearing and by hearing the Word of God, and when to these is added earnest seeking, you shall not be long without finding Him! They who seek Christ are already being sought of Him. You who desire Him shall have Him! You who want Him shall not be long without Him. It is to have Christ to some degree, to hunger and to thirst after Him, and when you feel that you cannot be content without Him, He will not let you be, but will soon come to you! I believe there are some who will get peace with Christ tonight! Do you understand it, dear Friend? You have nothing to do. You have nothing to be. You have not even anything to learn, except that Jesus Christ came into the world to save sinners and that He is able to save unto the uttermost them that come unto God by Him! You know that. Now, trust Him, and if you do, it is all done and you are saved! If you have trusted in Him whom God has revealed as your Savior, it is not a matter of twenty minutes nor much less a matter of months, but you are saved at once!
-> The moment a sinner believes,
-> And trusts in his crucified God,
-> His pardon at once he receives,
-> Salvation in full through Christ's blood.
+> The moment a sinner believes,  
+> And trusts in his crucified God,  
+> His pardon at once he receives,  
+> Salvation in full through Christ's blood.  
 
 When a man once gets into the lifeboat, if it were certain that the lifeboat would never sink, he is saved as soon as he gets in. Now, the act of faith does, as it were, put us into the lifeboat of Christ Jesus and we are saved immediately! You may have many a tossing, but you will get safely to land at last. If you want faith you must get it, as I have told you, by knowing Him, studying the Word of God, listening to it and seeking His face. But make use of what you know, or else what you know will be like the stale manna and will be of no use to you. Believe it as you know it. Use it up as you get it. And if you already know Christ to be a sinner's Savior, and know that you are a sinner, then come tonight and put your trust in Him! And be of good cheer because He will never, never, never cast you away! And now, lastly, I should like to ask a question, and it is this, how many are there who do know Christ?
 
