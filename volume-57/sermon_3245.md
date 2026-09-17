@@ -1,7 +1,7 @@
 # Sermon 3245 | Our Position and Our Purpose
 
 > Having therefore these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.  
-> 2 Corinthians 7:1
+> 2 Corinthians 7:1  
 
 Kindling with strong emotion, constrained by the love of Christ and animated by the fellowship of all spiritual blessing, the Apostle here strikes out an exhortation in which he appeals to the noblest passions of the children of God, to their sense of a Divine lineage and a present endowment, as well as of an exalted destiny for an incentive to purity of character and holiness of life.
 
@@ -53,8 +53,8 @@ I remember hearing a man say that he had lived for six years without having sinn
 
 That I can understand. And the next thing I should know is that for such perfection I ought to pray. I should not like to pray for anything short of that. I should not like, at the Prayer Meeting, to hear any of you say, "Lord, bring us halfway toward perfection." No, no, no! Our prayer must be, "Lord, put away all my sin, deliver me from it altogether." And God would not teach you to pray for what He did not mean to give. Your perfection is God's design, for He has chosen you to be conformed to the image of His Son, and what is that? Surely the image of His Son is perfection! There were no faults in the Lord Jesus Christ. We are to be made like Him and as this is the work and design of Grace, then perfection is the center of the target at which God's Grace is always aiming. All that He works in us is with this great ultimate end and aim, that He may sanctify us wholly, spirit, soul and body, and that He may release us from sin and make us perfect even as our Father who is in Heaven is perfect. Oh, when will it be? When will it be? Why, the very thought of it makes me feel as if I could sing:
 
-> Oh, happy hour, oh, blest abode,   
-> I shall be near and like my God.   
+> Oh, happy hour, oh, blest abode,  
+> I shall be near and like my God.  
 
 What a joy it will be to be just like Him, to have no more corruption of the flesh and no more temptations to sin to destroy the soul's delight and pleasure in her God! May the Lord hasten on the day! "Perfecting holiness."
 
