@@ -1,7 +1,7 @@
 # Sermon 3248 | Gathering Without Planting
 
 > You eat of the vineyards and olive groves which you did not plant.  
-> Joshua 24:13
+> Joshua 24:13  
 
 The Israelites, when they came into Canaan, entered into possession of a country which was thoroughly prepared for their occupation. There were walled cities and houses exactly adapted for their use and in habitable repair. The vineyards were in full bearing and the hills terraced ready for cultivation. They were not like emigrants to the wild west who have to clear forests and turn over prairies! They had not even to take possession of ruined cities and to rebuild them! For the most part, everything stood waiting for them, "houses full of all good things," and even "the old corn of the land" stored up for their immediate use! Moses had promised them that it would be so and Joshua reminded them of the promise when it had become a fact.
 
