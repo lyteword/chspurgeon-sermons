@@ -1,7 +1,7 @@
 # Sermon 3283 | The Voices of Our Days
 
-> I said, Days should speak and multitude of years should teach wisdom.
-> Job 32:7
+> I said, Days should speak and multitude of years should teach wisdom.  
+> Job 32:7  
 
 In the discussion between Job and his three friends, Elihu was present, but though by far the wisest man, he remained quiet. Sometimes a still tongue proves a wise head. In our text he gives his reason for refraining from speech. He felt inclined to deliver his mind, but being the younger man he modestly said, "These gray-headed men ought to know better than I. Perhaps if I speak, I shall display my ignorance and they will say, "Be silent, boy, and let your fathers teach you." Therefore he said to himself, "Days should speak and multitude of years should teach wisdom."
 
@@ -41,14 +41,14 @@ And then, sometimes, how sharply the Holy Spirit has taught us. I have heard say
 
 
 And let us remember, again, how much teaching we have had from the ministry under the blessing of God's Holy Spirit. I should not wonder if some Christians do not profit, their Sabbaths are very dreadful days to them. All the week they are hard at work and on Sunday there is nothing to feed upon in what they hear, so they come home from public worship dissatisfied and troubled. Now, if your souls have been fed, if you have often said, "Surely God was in this place and I knew it," and you have gone home with your souls fed with the finest of the wheat, should there not be some wisdom to show for it? Consider the position which some of you occupy as teachers of others, as heads of families and instructors. If you do not learn, how are you to teach? And if there is no learning with you, you cannot wonder if your scholars make no progress under your instructions! With God as our Teacher, if we do not learn, we cannot blame others if they do not learn from us who are but men and women! May God grant that instead of wasting time in frivolities, or "killing time," as the worldling calls it, we may seek to increase in the knowledge of God and in likeness to Jesus, so that every day we may be better heirs of Heaven!
-> So let our lips and lives express
-> The holy Gospel we profess!
-> So let our works and virtues shine
-> To prove the Doctrine all Divine!
-> Thus shall we best proclaim abroad
-> The honors of our Savior God,
-> When His salvation reigns within,
-> And Grace subdues the power of sin!
+> So let our lips and lives express  
+> The holy Gospel we profess!  
+> So let our works and virtues shine  
+> To prove the Doctrine all Divine!  
+> Thus shall we best proclaim abroad  
+> The honors of our Savior God,  
+> When His salvation reigns within,  
+> And Grace subdues the power of sin!  
 
 My last word shall be a short one. And it is this, according to my text, those who have wisdom should communicate it to others. "I said, Days should speak", not be silent: "and multitude of years should teach wisdom." That is to say, those who have days and multitude of years should try to teach the younger folks what they know! Now, it is a fault with some of our Brothers and Sisters that they do not teach our young people enough. They are too quiet. I should not like them to die and go to Heaven without having told us all they knew. And yet, when a venerable saint is buried who has been very reticent in speech and has never used his pen, what a mint of teaching is buried with him! It always seems to me to be a pity that anything should be lost through the hand of death: it should rather be a gain! There are some of us who have told people all we know and we are always repeating it, so that if we die, no secrets will sink into oblivion. But there are others of the opposite sort, a great deal goes into them: there must be a deal of wisdom in them for none ever comes out! Doubtless many Believers have been walking with God and enjoying the means of Grace for so long a time that they are quite able to teach others, but they are of small service to us because they are so retiring. I never like to see a Christian like an old-fashioned moneybox into which you put the money, but from which you cannot get it out again unless you break it! It ought not to be so. Does not our Savior tell us that the well of water in us is to become rivers of water streaming out from us? As we receive, we should give! The more we learn, the more we should teach, and if God teaches us, it is because He expects us to instruct others.
 
