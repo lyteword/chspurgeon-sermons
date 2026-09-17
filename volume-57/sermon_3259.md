@@ -1,7 +1,7 @@
 # Sermon 3259 | Faith's Way of Approach
 
 > So then faith comes by hearing, and hearing by the Word of God.  
-> Romans 10:17
+> Romans 10:17  
 
 According to the Christian religion, faith is the great essential thing. "Without faith it is impossible to please God." Whatever we may do or may be, we cannot be acceptable with the Most High unless we believe in Him. Even prayer can only be a mockery if it is not the prayer of faith. "He that comes to God must believe that He is and that He is a rewarder of them that diligently seek Him," or else he does not really pray. The Lord Jesus Christ has died to save men, but it is certain that no man will be saved without faith. Even the blood of Jesus Christ does not save any except those who believe in it. "God so loved the world" is a very wide expression, but we must not make it wider than Scripture makes it, for remember how the verse goes on, "God so loved the world, that He gave His only begotten Son, that whoever believes in Him should not perish, but have everlasting life." Without faith Christ is not ours. His blood cannot cleanse us, His life cannot quicken us. We must have faith to get at the blessings of salvation.
 
