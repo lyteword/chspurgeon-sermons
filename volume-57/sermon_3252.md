@@ -1,7 +1,7 @@
 # Sermon 3252 | "By Water and Blood"
 
 > This is He that came by water and blood, even Jesus Christ, not by water only, but by water and blood.  
-> 1 John 5:6
+> 1 John 5:6  
 
 By the terms "water" and "blood" we understand the purifying and the pardoning effects of Christ's work for His people. He came to purify them from the power of sin, that they might no longer live in it. This is indicated by the declaration that He "came by water." He also came to put away the guilt of their sin, that they might not be condemned for it. This is set forth by the intimation that He also came "by blood." We might say that all the Lord's Prophets who came before Christ, in a certain sense, "came by water." That is to say, they all sought the purification of the Lord's people. Whether it was Isaiah, whose lips had been touched with the live coal from the altar, or Jeremiah, whose eyes were fountains of tears as he wept over sinners, or Amos, who spoke as a herdsman, or Ezekiel, whose message was one of grandeur and sublimity, the objective of every one of them was to purge the people from their sins. It was against sin that they all lifted up their voices, yet none of them could pardon sin and no one of them ever professed to be able to do so! Of the whole of them it must to said that they came by water only, and not by blood.
 
