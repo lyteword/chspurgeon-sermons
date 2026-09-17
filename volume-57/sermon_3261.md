@@ -1,7 +1,7 @@
 # Sermon 3261 | The Covenant
 
 > He will ever be mindful of His Covenant.  
-> Psalm 111:5
+> Psalm 111:5  
 
 It is an amazing thing that God should enter into gracious Covenant with men. That He should make man and be gracious to man is easily to be conceived, but that He should strike hands with his nature and put His august majesty under bond to him by His own promise is marvelous! Once let me know that God has made a Covenant and I do not think it amazing that He should be mindful of it, for He is "God that cannot lie." "Has He said, and shall He not do it?" Has He once given His pledge? It is inconceivable that He should ever desert from it. The doctrine of the text commends itself to every reasonable and thoughtful man, if God has made a Covenant, He will ever be faithful to it. It is to that point that I would now call your attention with the desire to use it practically.
 
