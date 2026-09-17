@@ -1,7 +1,7 @@
 # Sermon 3306 | Satan, Self, Sin and the Savior
 
-> And He asked him, What is your name? And he answered, saying, My name is Legion: for we are many.
-> Mark 5:9
+> And He asked him, What is your name? And he answered, saying, My name is Legion: for we are many.  
+> Mark 5:9  
 
 I think the text suggests to us something about Satan, something about self and also something about sin and the Savior without any preface, let us at once seek to find in the text something about Satan.
 
@@ -33,20 +33,20 @@ That brings me to my last point, which is this, the Lord Jesus Christ can as eas
 Perhaps some of you are just now in great trouble because of your inward corruptions. It may be that you have lately had such a sight of them as you have never before had in all your lives. Well, dear Friends, this may humble you, but I pray that you will not let it cause you to dishonor the Lord Jesus Christ. Never forget that the King of kings is still reigning supreme over all the powers of darkness! Satan may rage and rave in his great wrath, but there is a bit in his mouth and a bridle on his jaws, and he can be controlled and restrained just as the Lord pleases. He who rules the roaring billows and rides upon the wings of the wind can make all the forces of evil subservient to His will. Even when the devil is permitted to attack the children of God, there is always a limit set beyond which he cannot go, as there was in the case of Job. To my mind, the poor Patriarch sitting down among the ashes, smitten with sore boils from the sole of his feet to the crown of his head, and yet resignedly saying to his wife, "Shall we receive good at the hand of God, and shall we not receive evil?" is a much nobler being than Satan reigning among the fiends of the Pit! Job might have laughed Satan to scorn as messenger after messenger came to tell him that his oxen and asses were stolen and his servants slain by the Sabeans, that his sheep had been burned up by lightning, that his camels had been carried away by the Chaldeans and last and worst of all, that his children had been killed by the great wind from the wilderness that smote the four corners of the house where they were eating and drinking. And I think that was what Job practically did when, with sublime resignation, he said, "The Lord gave, and the Lord has taken away; blessed be the name of the Lord." How glorious was the Patriarch's victory when he had been still further tried, yet was able to utter that grand declaration of his faith in God, "Though He slays me, yet will I trust in Him"!
 
 But how much more glorious was the victory of the Man, Christ Jesus, over His great adversary and ours! When "Jesus of Nazareth, the King of the Jews," was nailed to the Cross, Satan thought that he had won the day. The old serpent had stung Him to death, vainly imagining that all was over with Him. I think I see the arch-fiend gloating over the awful agonies of the dying Savior and maliciously taunting Him as He hung there apparently forsaken by God and man. "Ah," he said, "Seed of the woman, I have indeed bruised Your heel. I have made men reject You and put You to death! I have vexed and tormented You, I have scorned and scouted You and You have not a word to say for Yourself. And now Your soul must soon depart out of Your body." Yet as the devil was still pouring out his vainglorious boasts and taunts, with a mighty voice, the expiring Savior cried, "It is finished," and in that moment His soul sprang upon the enemy and utterly routed him forever! "You have conquered, O Galilean!" is said to have been the dying cry of Julian the apostate, and Satan might have said the same, for when Jesus nailed to His Cross the handwriting that was against us, "having spoiled principalities and powers, He made a show of them openly, triumphing over them in Himself," for that is the marginal reading of Colossians 2:15 and, therefore, with Dr. Watts.
-> I sing my Savior's wondrous death;
-> He conquered when He fell!
-> 'Tis finished! 'said His dying breath,
-> And shook the gates of Hell!
-> His Cross a sure foundation laid
-> For Glory and renown,
-> When through the regions of the dead
-> He passed to reach the crown
+> I sing my Savior's wondrous death;  
+> He conquered when He fell!  
+> 'Tis finished! 'said His dying breath,  
+> And shook the gates of Hell!  
+> His Cross a sure foundation laid  
+> For Glory and renown,  
+> When through the regions of the dead  
+> He passed to reach the crown  
 
 Yes, Jesus triumphed in the very hour that looked like the time of His defeat! So praise Him, you bright spirits before the Throne of God, and imitate Him, you saints still here below, for.
-> As surely as He overcame,
-> And triumphed once for you,
-> So surely you that love His name
-> Shall triumph in Him too
+> As surely as He overcame,  
+> And triumphed once for you,  
+> So surely you that love His name  
+> Shall triumph in Him too  
 
 Even though your foes are named Legion, for they are many. God bless you, for Jesus' sake! Amen.
 
