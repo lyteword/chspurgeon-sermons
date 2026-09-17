@@ -1,7 +1,7 @@
 # Sermon 3316 | Their Desired Haven
 
-> So He brings them to their desired haven.
-> Psalm 107:30
+> So He brings them to their desired haven.  
+> Psalm 107:30  
 
 Taken strictly, according to its original context, the text plainly and powerfully reminds us that our Providential mercies ought never be forgotten, and more especially those remarkable mercies which concern the safety of our life in times of great peril.
 
