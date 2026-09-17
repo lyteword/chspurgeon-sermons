@@ -1,7 +1,7 @@
 # Sermon 3233 | God's Firebrands
 
 > Is not this a brand plucked out of the fire?  
-> Zechariah 3:2
+> Zechariah 3:2  
 
 It may be well to explain these words, for simple as they are, a few words of exposition may be useful to open up the metaphor and enforce the thrilling Truth of God that underlies it.
 
@@ -41,9 +41,9 @@ Or, what if you have even worn the felon's dress? What if you have even plunged 
 
 Now, if ever such people as these are saved from this terrible disease of self-righteousness, we would have to say, indeed, "Is not this a brand plucked out of the fire?" And nowadays it is getting so common that it ought to be a subject of prayer with God's people that God would deliver this land from the spreading poison, the Romanism, alias Pusey-ism, which has covered it almost everywhere! If a man wants to make sure of everlasting wrath, let him fall into the deep ditch of Puseyism, for the abhorred of the Lord fall therein! You may get out the common sinner, but those who wrap themselves about with vestments and fine garments of ceremony, who shall reach these? The hocus-pocus of the priesthood, the gewgaws, the ceremonies, the mummery which they designate worship, these things form the refuge of lies behind which they hide themselves, and the true Gospel of the blessed God is scarcely heard! What with their chants and intoning, how can the still small voice of the Gospel be heard? Through the dim smoke of incense and the glare of gorgeous vestments, how shall Christ have a hearing? The Man of Nazareth, alone, is He who can save sinners! May He, in His mighty power to save, rend away these rags of Rome from before His Cross and let the naked beauty and simplicity of the Gospel shine out again! Once more may we have to say, in the words of Cowper:
 
-> Legible only by the light they give,   
-> Stand the soul-quickening words:
-> 'Believe and live.'   
+> Legible only by the light they give,  
+> Stand the soul-quickening words:  
+> 'Believe and live.'  
 
 With more brevity than the preacher likes, though with perhaps as much amplitude as will be pleasant to yourselves, we shall now take the text by way of enquiry or hope. Our time has so far gone that I can only hint at what I meant to say.
 
