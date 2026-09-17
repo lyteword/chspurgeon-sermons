@@ -1,7 +1,7 @@
 # Sermon 3278 | The Wordless Book
 
 > Wash me, and I shall be whiter than snow.  
-> Psalm 51:7
+> Psalm 51:7  
 
 I daresay you have, most of you, heard of a little book which an old Divine used constantly to study. And when his friends wondered what there was in the book, he told them that he hoped they would all know and understand it, but that there was not a single word in it. When they looked at it, they found that it consisted of only three leaves, the first was black, the second was red and the third was pure white. The old minister used to gaze upon the black leaf to remind himself of his sinful state by nature, upon the red leaf to call to his remembrance the precious blood of Christ, and upon the white leaf to picture to him the perfect righteousness which God has given to Believers through the atoning Sacrifice of Jesus Christ, His Son.
 
@@ -48,8 +48,8 @@ What a beautiful sight it was, this morning, when we looked out and saw the grou
 
 Now, how can a sinner be made "whiter than snow?" Well, first of all, there is a permanence about the whiteness of a blood-washed sinner which there is not about the snow. The snow that fell this morning was, much of it, anything but white this afternoon! Where the thaw had begun to work, it looked yellow even where no foot of man had trod upon it. And as for the snows in the streets of London, you know how soon its whiteness disappears. But there is no fear that the whiteness which God gives to a sinner will ever depart from him, the robe of Christ's Righteousness which is cast around him is permanently white:
 
-> This spotless robe the same appears When ruined nature sinks in years.   
-> No age can change its glorious hue, The robe of Christ is always new.   
+> This spotless robe the same appears When ruined nature sinks in years.  
+> No age can change its glorious hue, The robe of Christ is always new.  
 
 It is always "whiter than snow." Some of you have to live in smoky, grimy London, but the smoke and the grime cannot discolor the spotless robe of Christ's Righteousness! In yourselves, you are stained with sin, but when you stand before God, clothed in the Righteousness of Christ, the stains of sins are all gone. David in himself was black and foul when he prayed the prayer of our text, but clothed in the Righteousness of Christ, he was white and clean. The Believer in Christ is as pure in God's sight at one time as he is at another. He does not look upon the varying purity of our sanctification as our ground of acceptance with Him. He looks upon the matchless and Immutable Purity of the Person and work of the Lord Jesus Christ and He accepts us in Christ, not because of what we are in ourselves! Hence, when we are once "accepted in the Beloved," we are permanently accepted! And being accepted in Him, we are "whiter than snow."
 
