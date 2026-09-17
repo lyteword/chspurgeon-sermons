@@ -1,7 +1,7 @@
 # Sermon 3309 | Christ the Seeker and Savior of the Lost
 
-> For the Son of Man has come to seek and to save that which was lost.
-> Luke 19:10
+> For the Son of Man has come to seek and to save that which was lost.  
+> Luke 19:10  
 
 We have now considered six of the glorious achievements of our Divine Lord and Savior and it is time to conclude the series.
 
@@ -12,12 +12,12 @@ Although it seems, at first sight, that in selecting our present topic we have d
 Notice, first, our Lord's gracious mission: " The Son of Man is come."
 
 When He was here among men, He could use the present tense and say, "is come." That was an improvement upon what Prophets had to say, for they only spoke of Him as The Coming One, as One who, in the fullness of time, would be manifested. The promise was amazing, but what shall I say of the actual performance when the Word made flesh could say, "The Son of Man is come?" To us, today, the coming of Christ to seek and to save the lost is an accomplished fact, a matter of history, most sure and certain. And what a fact it is! You have often thought of it, but have you ever worked your mind into the very heart of it: that God has actually visited this world in human form: that He before whom angels bow has actually been here, in fashion like ourselves, feeding the hungry crowds of Palestine, healing their sick and raising their dead? I know not what may be the peculiar boast of other planets, but this poor star cannot be excelled, for on this world the Creator has stood! This earth has been trodden by the feet of God and yet it was not crushed beneath the mighty burden because He designed to link His Deity with our humanity! The Incarnation is a wonder of wonders, but it does not belong to the realm of imagination or even of expectation, for it has actually been beheld by mortal eyes! We claim your faith for a fact which has really taken place. If we asked you by faith to expect a marvel yet to come, we trust the Spirit of God would enable you to do so, that, like Abraham, you might foresee the blessing and be glad. But the miracle of miracles has been worked! The Son of the Highest has been here. From Bethlehem to Calvary, He has traversed life's pilgrimage. Thirty years or more yonder canopy of sky hung above the head of Deity in human form. O wondrous joy! Say rather, O matchless hive of perfect sweets, for a thousand joys lie close compacted in the word, "Immanuel". God With Us!
-> Welcome to our wondering sigh.
-> Eternity within a span!
-> Summer in winter! Day in night!
-> Heaven in earth! And God in man!
-> Great Little One, whose glorious birth
-> Lifts the earth to Heaven, stoops Heaven to earth.
+> Welcome to our wondering sigh.  
+> Eternity within a span!  
+> Summer in winter! Day in night!  
+> Heaven in earth! And God in man!  
+> Great Little One, whose glorious birth  
+> Lifts the earth to Heaven, stoops Heaven to earth.  
 
 Our Lord had come upon His sacred mission as soon as He was really the Son of Man, for before He was known only as the Son of God. Others had borne the name of "son of man," but none deserved it so well as He. Ezekiel, for reasons which we need not now stay to consider, is called, "son of man," a very large number of times. Perhaps, like John in Christ's own day, Ezekiel had much of the spirit and character which were manifest in our Lord, and so the name was the more suitable to him. Certainly he had Christ's eagle eyes, Christ's spiritual Nature and was filled with light and knowledge, and so, as if to remind him that he who is like his Lord in excellence must also have fellowship with Him in lowliness, he is again and again reminded that he is still "the son of man."
 
