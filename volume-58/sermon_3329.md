@@ -1,7 +1,7 @@
 # Sermon 3329 | Goodness Going Before
 
-> You prevent Him with the blessings of goodness.
-> Psalm 21:3
+> You prevent Him with the blessings of goodness.  
+> Psalm 21:3  
 
 Our text is one of many instances of the way in which words change their meanings. The word, "prevent," as we now use it, has a very different meaning from that which it had when our translators used it. It now signifies to get before one, to stop up his path, to prevent his going a certain way, just as the angel "prevented" Balaam, standing with his sword drawn in his hand that he might not pass that way. This is only the modern use of the word, but the real and ancient use of it was simply, "to go before." "You go before Him with the blessings of goodness." That is the real meaning of the word, and when we speak of, "preventing Grace," we do not intend to describe the Grace that keeps us from sin, but the Grace which goes before our actually believing in Christ: "prevenient Grace," as we are accustomed to call it theologically. Grace which comes to us while as yet we are not conscious of its power, or have no desire towards it.
 
@@ -52,16 +52,16 @@ Certainly, too, the Lord has preceded us in the order of our experience as to ti
 Yet again He sometimes precedes us in our labors. Before our missionaries went to the South Seas, there was a peculiar preparation of the minds of the people. They had a tradition or legend that white men would come in ships and tell them of the true God. Their minds were ready! They were looking for the vessels, and when they arrived, the people were not only waiting, but willing to receive them! You, too, will perhaps find, some of you who may be going to sail to Australia, or change your position in life: that the people among whom you are going are prepared for you and you are especially prepared as God's witness for them! Believe that wherever you are going, that God who knows all about you and who orders your footsteps, will prepare your way before you! He will not let you go an unknown path, but one that should be trodden by the foot of His love before it shall be trodden by you. He will precede you with the blessings of goodness.
 
 And, lastly, my text has a very sweet meaning when we think that God will precede even our expectations. Some of us never expected the Christian life to be as happy as it has been. We have had, oh, how often!, some expectations about Heaven. I do not care to read many books about Heaven. If most of the books that have ever been written about Heaven were destroyed, I think we should know nearly as much as we do now, with them! We know more about Heaven, I believe, from our hymns than we do from our books. The hymn: "Jerusalem, my happy home, name ever dear to me! When shall my labors have an end in joy, and peace, and thee!" has more of Heaven in it than half the books that have been written upon the subject, or that other hymn.
-> Jerusalem the golden, with milk and honey blest,
-> Beneath your contemplation sink heart and voice oppressed!
-> We know not, oh we know not, what joys await us there
-> What radiance of Glory, what bliss beyond compare.
+> Jerusalem the golden, with milk and honey blest,  
+> Beneath your contemplation sink heart and voice oppressed!  
+> We know not, oh we know not, what joys await us there  
+> What radiance of Glory, what bliss beyond compare.  
 
 Now these hymns take us up even into the pearly gated city itself, and sometimes when we have been singing.
-> On Jordan's stormy bank I stand,
-> And cast a wistful eye
-> To Canaan's fair and happy land,
-> Where my possessions lie.
+> On Jordan's stormy bank I stand,  
+> And cast a wistful eye  
+> To Canaan's fair and happy land,  
+> Where my possessions lie.  
 
 We have almost seen the: "Sweet fields beyond the swelling flood, Arrayed in living green," and we have been ready to ask to go to be with our Savior, with whom we shall dwell forever! We expect to meet a blessed company of the saints there. We expect to have wondrous nearness to the Lord Jesus Christ. We are expecting, everyone of us, to have a bright crown. We are expecting to have perfect freedom from every ill, from pain, from sin and from sorrow! And to have what the Apostle calls "a far more exceeding and eternal weight of glory."
 
@@ -71,11 +71,11 @@ We are expecting to see such a place as imagination never pictured! To hear such
 My only regret in thinking on such a text as this is that some of you have no part in it. Oh, Friends, may God give you Grace to look to Him! How can you live on the brink of a stream and never think of the fountain? How can you receive daily mercies and yet so cruelly treat your God who gives you everything? Worse than the ox treats its owner, for the ox knows his owner and the donkey its master's crib, but you do not know, you do not consider!
 
 Ah, He has indeed preceded you with the blessings of His goodness in keeping you alive, in permitting you to hear the Gospel and, above all, in this one respect, that this very night He invites you to turn to Him! The Father's heart beats towards you and He says to you, "My erring one, come to Me, come to Me! He that comes to Me I will in no wise cast out. Turn you, turn you, why will you die?".
-> Return, O wanderer, to your home!
-> Your Father calls for you.
-> No longer now an exile roam
-> In guilt and misery.
-> Return, return!
+> Return, O wanderer, to your home!  
+> Your Father calls for you.  
+> No longer now an exile roam  
+> In guilt and misery.  
+> Return, return!  
 
 If you come to Him, there shall be no rejection, but a warm reception, and you shall be blessed forever in Jesus Christ!
 
