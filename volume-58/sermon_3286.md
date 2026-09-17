@@ -1,24 +1,24 @@
 # Sermon 3286 | The Fear of Death
 
-> Forasmuch then as the children are partakers of flesh and blood, He Himself likewise shared in the same, that through death He might destroy him who had the power of death, that is, the devil, and deliver those who through fear of death were all their lifetime subject to bondage.
-> Hebrews 2:14,15
+> Forasmuch then as the children are partakers of flesh and blood, He Himself likewise shared in the same, that through death He might destroy him who had the power of death, that is, the devil, and deliver those who through fear of death were all their lifetime subject to bondage.  
+> Hebrews 2:14,15  
 
 Before speaking upon the main subject of the text, I cannot help drawing your attention to those two words, "the children." Hear that sweet expression again, for it is one of the choicest descriptions of the saints, "the children." "You are all the children of God by faith in Christ Jesus." What a wonderful influence the children have in the house! How many of the arrangements are made especially with a view to them! How much of the wear and tear of life to their parents is for their sakes! And we may truly say, concerning our Father in Heaven, that His plans, His arrangements, His actions, His gifts are very emphatically for the children! He uses all things in this great house of His for the education of the children, and when their education shall be finished. He will clear all these things away just as the builder takes down the scaffolding around the house when it is complete.
 
 This name of "the children" is such a blessed one, it seems to indicate a simple, sweet and gracious character. "Be not children in understanding," but in all else be.
-> Humble, teachable and mild,
-> Like unto a little child.
+> Humble, teachable and mild,  
+> Like unto a little child.  
 
 But this is only by the by, the main theme on which I am going to speak is the fear of death And, first, I observe that the fear of death is natural to man as a sinner. So long as there was no sin in the world, there was no death and no fear of death, but as soon as sin entered, God said to Adam, "Dust you are and unto dust shall you return." The echo of these words still rings throughout the world and Adam's children, as sinners, fear death, but this is rather a blessing to them than otherwise. To most unconverted men, the fear of death has often been made to subserve the highest purpose of Divine Mercy. Many a man would, at least outwardly, have been more guilty than he is if the fear of death had not, to some extent, held him in check. The knell from the old church tower has often spoken to those who other preachers could not reach, and an open grave has had an eloquent voice which has been more alarming than the polished sentences of the golden-mouthed orator.
 
 It is well that there should be such a thing as the fear of death in the world! But for it, sinners would be more outrageously wicked than they already are. This earth would soon become like Sodom and Gomorrah if men were not restrained by the fear that they must soon depart this life. No doubt, too, the fear of death answers very wise and important purposes in the economy of humanity. If men were in peril, they would probably give themselves up without making any strenuous exertions for their preservation if there were not an indefinable dread of death which creeps over them and makes them put forth what strength they have in order, if possible, to prolong their lives. Being afraid to die, they tug, toil, labor and strive so as to put off the dreaded day as long as they can! Even Satan spoke the truth when he said, "All that a man has will he give for his life." Our streets might be crowded with idlers who would starve rather than work if the fear of death did not drive them unwillingly to their labors!
 
 Certainly the fear of death has often been the means of preventing the crime of suicide. You know how Shakespeare represents Hamlet as talking of a man making his quietus with a bare bodkin.
-> But that the dread of something after death,
-> The undiscovered country, from whose bourn
-> No traveler returns, puzzles the will,
-> And makes us rather bear those ills we have,
-> Than fly to others that we know not of
+> But that the dread of something after death,  
+> The undiscovered country, from whose bourn  
+> No traveler returns, puzzles the will,  
+> And makes us rather bear those ills we have,  
+> Than fly to others that we know not of  
 
 No doubt it has often been the case that this "dread of something after death" has prevented men from rushing into the presence of their Maker red-handed with their own blood! The fear of death, though itself part of the punishment of sin, is a wise and beneficent arrangement in the commonwealth of humanity.
 
@@ -29,8 +29,8 @@ But though the fear of death is not necessary to Christians and the Grace of God
 Many of these persons have been so long in this sad state that they have almost come to believe that it is impossible for them to escape from it. There is such a thing as sitting so long on the cold stone of despair that you and the stone almost seem to be one. There is such a thing as wearing the yoke of despondency until that yoke and your shoulders become so closely united that you cannot take it off. Just as valor fights till its sword grows to its hand, so despair burdens you till it grows into your spirit. I would not roughly tear it out, but if I might kindly perform an act of spiritual surgery, I would be glad to be made the instrument through which the Master would perform His blessed work of delivering those who are in bondage through fear of death!
 
 Beloved Brothers and Sisters in Christ, there is no need that you should be afraid to die! It is even possible for you to look upon death as your best friend! You may yet come to be familiar with the shroud, the mattock, the grave, and find the cemetery to be no place of gloom and may even rejoice in the prospect of death and: "Long for evening to undress that you may rest with God." According to our text, it appears that in order to remove this fear of death from His people, our Lord Jesus Christ became Man: "Forasmuch then as the children are partakers of flesh and blood, He Himself likewise shared in the same." And as flesh and blood have about them the element of mortality, the flesh and blood of Christ partook of the same character. It is true that in Him was no sin, but in all other respects His flesh was like ours and, therefore, was liable to death even as ours is. Now, the very fact that Jesus Christ became Man should remove from us the fear of anything which is incidental to humanity because it was incidental to Christ as well as to ourselves.
-> He takes us through no darker rooms
-> Than He went through before.
+> He takes us through no darker rooms  
+> Than He went through before.  
 
 "Fear not," said Caesar, to the trembling boatman, "you carry Caesar and all his fortunes." And, in like manner, standing in the vessel of our mortality, Christ says to us, "Fear not, you carry Christ and all His fortunes; you are partakers of flesh and blood and He Himself likewise shared in the same." If one had to be a soldier on the field of battle, it might be a very great assistance to one's courage to stand side by side with the hero of a thousand fights who had always been victorious! If tonight you had to journey along some dark and lonely road and an angel came from Heaven to walk beside you, and you were quite sure that it was an angel. I should think you would be altogether free from fear! With such a companion you might even wish that the way were still more dangerous so that you might have the delightful experience of passing through it unharmed under the care of such a glorious protector!
 
