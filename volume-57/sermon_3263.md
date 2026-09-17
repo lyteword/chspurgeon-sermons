@@ -1,7 +1,7 @@
 # Sermon 3263 | Intelligent Obedience
 
 > Keep and seek for all the commandments of the Lord your God.  
-> 1 Chronicles 28:8
+> 1 Chronicles 28:8  
 
 Is the Lord your God? I must put this question very pointedly to you at the onset, otherwise I shall not be speaking to you in expounding the words of my text. Were I to address the ungodly and the unconverted, and say to them, "Keep God's commandments," they would, perhaps, misunderstand such an exhortation and consider that I intend to set before them as the way of life a strict observance of the commandments. It is no such thing. "By the deeds of the Law there shall no flesh be justified." So far as the sinner is concerned, by the Law comes the knowledge of sin! The Law can do nothing more for him than convince him that he needs a Savior and drive him out of himself to find in Christ what he cannot find in himself.
 
@@ -25,10 +25,10 @@ Again, is not the seeking out of the Divine commands a proof of an intense affec
 
 Common affection will do what it must, but intense affection will do all it can. A vehement enthusiasm, a constraining love, such as that which Jesus Christ deserves of us, says:"Oh, what can I do for my Savior to praise?" "Is there an alabaster box of precious ointment that I can break, that I may anoint His head? Wherein can I be of service to any members of His family? How can I show forth the Glory of His name?" The glow of affection would be always prompting us to seek here, there and everywhere to know what we can do! We are far from believing in works of supererogation. No man can ever do more than it was his duty to have done. When we have done all, we are but unprofitable servants! Still the earnest Christian, if he could, would do even more than he should. Instead of wishing to stand still and stop short on this side of the path, he would exceed both in service and in sacrifice, as Dr. Watts sings:
 
-> Yet if I might make some reserve,   
-> And duty did not call!   
-> I love my God with zeal so great,   
-> That I should give Him all!   
+> Yet if I might make some reserve,  
+> And duty did not call!  
+> I love my God with zeal so great,  
+> That I should give Him all!  
 
 Diligent enquiry in seeking out the Divine will manifests that holy intensity of affection which becomes the disciple of such a Lord as our Savior, Jesus Christ, and which I trust and pray always gleams, and shall gleam in the bosoms of many of us who have been redeemed by His precious blood!
 
