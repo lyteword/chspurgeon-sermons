@@ -1,7 +1,7 @@
 # Sermon 3240 | The Blood of Christ's Covenant
 
 > As for you, also, by the blood of your Covenant I have sent forth your prisoners out of the pit wherein is no water.  
-> Zechariah 9:11
+> Zechariah 9:11  
 
 The Lord is here speaking to His ancient people, Israel. That nation had always been preserved, although other nations had been destroyed, and the reason was that God had entered into a Covenant with Abraham on their behalf. Circumcision was the sign and seal of the Covenant, so that God could truly speak of "the blood of your Covenant." The Jews have never ceased to be a nation, though they have been scattered, peeled and delivered over into the hand of their adversaries because of their sins. They may enjoy various rights and privileges in the different countries where they sojourn for a while, but they cannot be absorbed into the nationalities by which they are surrounded. They must always be a separate and distinct people, but the day shall yet come when the branches of the olive tree, which have been so long cut off, shall be grafted in again. Then shall they, as a nation, again behold the Messiah, the true and only King of the Jews, and their fullness shall be the fullness of the Gentiles, also!
 
@@ -37,14 +37,14 @@ If you have been delivered, I feel sure that you will prize your deliverance. I 
 
 Surely, too, if you have been drawn out of this pit wherein is no water, you will love your Deliverer and you will desire above everything else to live to Him and to labor for Him all your life! I hope you can truthfully say to your Lord:
 
-> Have You a lamb in all Your flock   
-> I would disdain to feed?   
-> Have You a foe, before whose face   
-> I fear Your cause to plead?   
-> You know I love You, dearest Lord,   
-> But oh, I love to soar   
-> Far from the sphere of mortal joys,   
-> And learn to love You more.   
+> Have You a lamb in all Your flock  
+> I would disdain to feed?  
+> Have You a foe, before whose face  
+> I fear Your cause to plead?  
+> You know I love You, dearest Lord,  
+> But oh, I love to soar  
+> Far from the sphere of mortal joys,  
+> And learn to love You more.  
 
 I trust that you have dedicated yourself wholly to your Lord, perhaps not in writing, yet just as truly as if you had set your signature to such a covenant as some have felt moved to leave upon record. If you have resolved thus in your heart, you can say with me at the moment, "Lord Jesus, I am Yours, body, soul and spirit, wholly Yours, only Yours, always Yours. You have bought me for Yourself, not with corruptible things such as silver and gold, but with Your own most precious blood and, therefore, You shall have me with all my powers, all my possessions, all my possibilities in life and in death, in time and in eternity! I give all up to You absolutely without reserve, that You may do with me whatever You please and whatever will bring most Glory to Your holy name. I fear there is much dross still remaining in me, in all the gold You have given me in Your wondrous Grace. If it seems good in Your sight, put me into the hottest furnace, but O Lord, do take away all the dross and then fashion me into a vessel meet for Your own use!" The man who can truthfully talk thus to the Lord Jesus is in the Covenant! And by the blood of the Covenant he has been brought forth out of the prison wherein is no water!
 
