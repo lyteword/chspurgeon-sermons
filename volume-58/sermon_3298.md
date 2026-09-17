@@ -1,7 +1,7 @@
 # Sermon 3298 | Lessons From Christ's Baptism
 
-> And Jesus, when He was baptized, went up immediately out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit God descending like a dove, and lighting upon Him: and lo, a Voice from Heaven, saying, This is My Beloved Son, in whom I am well-pleased.
-> Matthew 3:16,17
+> And Jesus, when He was baptized, went up immediately out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit God descending like a dove, and lighting upon Him: and lo, a Voice from Heaven, saying, This is My Beloved Son, in whom I am well-pleased.  
+> Matthew 3:16,17  
 
 I want to teach two lessons tonight. The first will be a most necessary one for the unconverted. The second will be more suitable to believers in the Lord Jesus Christ.
 
@@ -44,28 +44,28 @@ You know, too, that in Scripture the dove is spoken of as a type of love. When t
 If I cannot rejoice in Christ, the next best thing is to weep because I cannot enjoy sweet fellowship with Him. If I cannot rest in Christ, it is a good thing if I cannot rest anywhere else. Ah, Soul, if you have the Spirit of God within you, you will pine and sigh and cry until Christ is very near and very dear to you! And when He is both near and dear to you, then your soul will be like a vessel that is filled to the brim, yet still remaining under the running stream, and you will overflow with love and gratitude to your dear Lord who has done such great things for you!
 
 Time flies, so I must close with just one more thought. You remember that when this world was created, "the earth was without form, and void; and darkness was upon the face of the deep. And the Spirit of God moved upon the face of the waters." Everything was in a state of chaos and confusion: there was neither life nor order! But when the Spirit of God spread His great wings over the face of the deep and brooded, like a bird upon its nest, it was not long before the Voice of God was heard and soon disorder gave place to order, darkness to light, and death to life! The Holy Spirit comes into our heart now to work the same kind of change as that. He finds our soul in a state of chaos, formless, empty, dark, but when He mysteriously spreads His dove-like wings over our soul, life, light and order soon appear. We then begin to see what we never saw before! We put God into His rightful place and we realize how great He is. And we put ourselves into our rightful place and we realize what nothings we are! We put the Law into its rightful place and recognize how terribly stern it is. And we put sin into its rightful place and we tremble before its terrible power! When the Spirit of God broods over us, one of the first signs of the new life appearing in our soul is the penitent cry, "God be merciful to me a sinner." Those sorrow-filled eyes, those swiftly falling tears, that brokenhearted sigh, all these are the result of the brooding of the Spirit of God upon our disordered nature! And when at last you can truthfully say: "I rest My soul on Jesus, this weary soul of mine. His right hand me embraces I on His breast recline," that also is the result of the brooding of the Spirit! He has quickened you! He has given you life, for only a living soul can truly say, "I do believe in Jesus." That is a sure sign of the new creation! It is a certain proof that Christ has made all things new in you by the effectual working of His ever-blessed Spirit. To any here who have never realized the dove-like energy of the Holy Spirit, I commend the prayer Charles Wesley wrote.
-> Expand your wings, celestial Dove,
-> Brood over our nature's night!
-> On our disordered spirits move
-> And let there now be light.
+> Expand your wings, celestial Dove,  
+> Brood over our nature's night!  
+> On our disordered spirits move  
+> And let there now be light.  
 
 Dr. Watts gives us another prayer in which Christians can heartily unite.
-> Descend from Heaven, immortal Dove,
-> Stoop down and take us on your wings
-> And mount and bear us far above
-> The reach of these inferior things!
-> Beyond, beyond this lower sky
-> Up where eternal ages roll,
-> Where solid pleasures never die
-> And fruits immortal feast the soul!
-> Oh for a sight, a pleasing sight
-> Of our Almighty Father's Throne!
-> There sits our Savior crowned with light,
-> Clothed in a body like our own!
-> When shall the day, dear Lord, appear,
-> That I shall mount to dwell above,
-> And stand and bow among them there,
-> And view Your face, and sing, and love?
+> Descend from Heaven, immortal Dove,  
+> Stoop down and take us on your wings  
+> And mount and bear us far above  
+> The reach of these inferior things!  
+> Beyond, beyond this lower sky  
+> Up where eternal ages roll,  
+> Where solid pleasures never die  
+> And fruits immortal feast the soul!  
+> Oh for a sight, a pleasing sight  
+> Of our Almighty Father's Throne!  
+> There sits our Savior crowned with light,  
+> Clothed in a body like our own!  
+> When shall the day, dear Lord, appear,  
+> That I shall mount to dwell above,  
+> And stand and bow among them there,  
+> And view Your face, and sing, and love?  
 
 May the Lord bless everyone of you, for Jesus Christ's sake! Amen.
 
