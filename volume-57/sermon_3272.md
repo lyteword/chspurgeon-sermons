@@ -1,7 +1,7 @@
 # Sermon 3272 | How to Become Full of Joy
 
 > And these things write we unto you that your joy may be full.  
-> 1 John 1:4
+> 1 John 1:4  
 
 It is a wonderful proof of our Savior's deep attachment to His people that having made their salvation sure, He is also anxious concerning their present state of mind. He wishes that His people should be not only safe, but happy, that they should not be merely saved, but that they should rejoice in His salvation! It does not delight your Master for you to bow your heads as does the bulrush, or for you to go mourning all your days. He would have you rejoice, for again and again by His Apostles does He exhort you to rejoice in Him. We will go at once to our text. Let our first point be, a Christian's joy needs looking after. If it were not so, our text would not have been written, for we would not have had John writing to promote what would stand and progress well enough of itself. John seems to put the whole of the Apostolic band with himself into the verse when he says, "These things write we unto you that your joy may be full," as if their joy would not be full unless Inspired Apostles should be commissioned of God to write in order to promote it. The Christian's joy needs looking after.
 
