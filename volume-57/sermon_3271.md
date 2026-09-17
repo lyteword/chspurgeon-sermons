@@ -1,7 +1,7 @@
 # Sermon 3271 | God, the Children's Teacher
 
 > O God, You have taught me from my youth.  
-> Psalm 71:17
+> Psalm 71:17  
 
 *A special note to Sunday school teachers, parents, etc. Mr. Spurgeon seldom preached especially to children, his Sermons are all so simple that boys and girls as well as the common people heard him gladly and understood his words easily. The accompanying discourse is one of the very few delivered to a congregation of young people by the beloved preacher who has been for nearly 20 years at Home with the Lord. It was preached at the Tabernacle during a series of special services in March, 1869, and it is now published in the regular weekly series at the time of special prayer for the children and young people in Sunday schools, Bible classes, Christian Endeavor Societies, etc., in the hope that all who are interested in the spiritual welfare of the young will aid in its widespread circulation among them.*
 
@@ -87,30 +87,30 @@ Pass those questions all round the building and I hope there are many who will b
 
 I shall now ask a question or two, and then I shall have done. All the children here believe that when we have gone from this life, we shall go into another world. And you are all hoping, I am sure, that when you die, you will go to that happy land of which we sometimes sing:
 
-> There is a happy land,   
-> Far, far away,   
-> Where saints in Glory stand,   
-> Bright, bright as day!   
-> Oh, how they sweetly sing,   
-> Worthy is our Savior King,   
-> Loud let His praises ring,   
-> Praise, praise forever!   
-> Come to this happy land,   
-> Come, come away   
-> Why will you doubting stand?   
-> Whystill delay?   
-> Oh, we shall happy be   
-> When from sin and sorrow free   
-> Lord, we shall live with Thee,   
-> Blest, blest forever!   
-> Bright in that happy land   
-> Beams every eye!   
-> Kept by a Father's hand,   
-> Love cannot die.   
-> On then to Glory run,   
-> Be a crown, and kingdom, won   
-> And bright above the sun,   
-> Reign, reign forever.   
+> There is a happy land,  
+> Far, far away,  
+> Where saints in Glory stand,  
+> Bright, bright as day!  
+> Oh, how they sweetly sing,  
+> Worthy is our Savior King,  
+> Loud let His praises ring,  
+> Praise, praise forever!  
+> Come to this happy land,  
+> Come, come away  
+> Why will you doubting stand?  
+> Whystill delay?  
+> Oh, we shall happy be  
+> When from sin and sorrow free  
+> Lord, we shall live with Thee,  
+> Blest, blest forever!  
+> Bright in that happy land  
+> Beams every eye!  
+> Kept by a Father's hand,  
+> Love cannot die.  
+> On then to Glory run,  
+> Be a crown, and kingdom, won  
+> And bright above the sun,  
+> Reign, reign forever.  
 
 May we have that crown and kingdom! That is what we are looking for. A little girl came home one Sunday and asked her mother a question. Little boys and girls will sometimes ask questions which cannot be very easily answered. She said, "Mother, do you believe what Teacher told me today?" "What's that, dear?" "Why, she said that we are only going to stay in this world for a little while, and that we are going to another world. Do you believe it, Mother?" "Oh, yes, my Dear, of course I do, the Bible says so!" "Then, Mother, you know aunt Eliza is going to Australia?" "Yes, what about that?" "She is getting ready, is she not?" "Yes, she is packing up her trunks and getting ready." "Then, Mother, if you are going into another world, why don't you get ready, too?" A very proper question for a child to put, and a very proper question for me to put to you here! If you are going to another world, dear Children, may God's Holy Spirit help you to get ready to go!
 
