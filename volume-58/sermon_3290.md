@@ -1,7 +1,7 @@
 # Sermon 3290 | God's Hand at Evening
 
-> Now the hand of the Lord was upon me in the evening.
-> Ezekiel 33:22
+> Now the hand of the Lord was upon me in the evening.  
+> Ezekiel 33:22  
 
 Perhaps in the special senses in which Ezekiel uses this expression, we shall not expect to feel "the hand of the Lord" upon us. God may not call us to prophesy as Ezekiel did, although in the Scriptural use of the word, "prophesy," the preacher of the Word is still called to deliver the message which he has received from his Lord's lips. The days of special visions and voices and prophesying have passed away, but we can still say with Peter, "We have a more sure word of prophecy, whereunto you do well that you take heed, as unto a light that shines in a dark place, until the day dawns and the day star arise in your hearts."
 
@@ -16,10 +16,10 @@ First, then, looking at this expression in its connection with the Lord's people
 Turning to another side of the subject, let me say that there is no reason why the hand of the Lord should not be upon us without our having any particular trouble. When we have come up to God's House to worship Him, I trust that we have often felt "the hand of the Lord" upon us, pressing us down very low in a sense of our own weakness and unworthiness. There are other things beside affliction that can humble us beneath the mighty hand of God! When Peter's boat began to sink because it was full of fish, Peter, too, went down and he cried to Jesus, "Depart from me, for I am a sinful man, O Lord." When we think of all the Lord's goodness to us, we cry out, somewhat as David did, "Who are we, O Lord, and what is our house, that You have done such great things for us?" If we have "the hand of the Lord" upon us in this sense, it will not crush us, nor drive us to despondency or death: it will make us realize our own nothingness while it will also give us a grateful sense of our Lord's loving kindness and condescension in dealing so graciously with us!
 
 Yet this humbling "hand of the Lord" is also at the same time an uplifting hand. The Christian is often a riddle to himself: he cannot understand how it is that the lower he sinks, the higher he rises! Then he sings, with Dr. Watts.
-> The more Your glories strike my eyes,
-> The humbler I shall lie.
-> Thus, while I sink, my joys shall rise
-> Immeasurably high!
+> The more Your glories strike my eyes,  
+> The humbler I shall lie.  
+> Thus, while I sink, my joys shall rise  
+> Immeasurably high!  
 
 The truest joy is the joy of the creature in being made nothing that God may be All-in-All, the joy of emptiness in receiving of the Divine fullness, the joy of utter weakness laying hold upon the Divine strength! Have you never, dear Friends, in the worship of God, felt His hand gloriously bearing you aloft that not merely were worldly cares forgotten, with all the things that concern time and sense, but you seemed to forget that you were still in the body and that the body was upon the earth? There have been times with some of us when "the hand of the Lord" has been so blessedly upon us that He has seemed to open the pearly gates and bid us enter! We have stood awe-stricken and yet full of joy in the Presence of the Eternal, and we have worshipped Him with cherubim and seraphim, and have anticipated the day when we shall join the heavenly throng to go no more out forever! "The hand of the Lord" when it is upon us thus is so uplifting that we feel as though the joys of our spirit are more than our bodily frame can bear, and we cry with the spouse: "Stay me with flagons, comfort me with apples: for I am love-sick." May we often feel this downcasting and yet uplifting power of "the hand of the Lord" upon us!
 
