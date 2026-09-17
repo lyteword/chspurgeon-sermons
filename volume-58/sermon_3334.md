@@ -1,7 +1,7 @@
 # Sermon 3334 | Lovely, But Lacking
 
-> One thing you lack.
-> Mark 10:21
+> One thing you lack.  
+> Mark 10:21  
 
 Though the Gospel of Jesus Christ most certainly addresses itself to the vilest of the vile, it is not exclusively to such that the message of salvation is sent. There are, indeed, no characters so far gone in vice that the Gospel does not speak to them. However abandoned they may be, still is this inviting voice sent to the very chief of sinners, "Come to Christ and live." But the Gospel, with equal affection, addresses itself to those who are not upon any common estimation to be numbered with the chief of sinners, to those whose moral integrity has been unimpeachable, whose outward propriety has been scrupulous, whose lives in all their domestic and social relations have been commendable. There are always some such individuals in our congregation. We are very thankful that there are. We have an invitation for them as frank, as honest and as earnest as for wanton sinners, heinous transgressors and hardened criminals, and our sincere desire is that such may be saved, for we believe that they, also, will make illustrious trophies of Divine Grace when Grace decides them to decide for Christ.
 
@@ -38,21 +38,21 @@ Lastly, we shall give you a word of direction.
 If you would inherit eternal life, Christ's direction is, "Sell all that you have and give to the poor." Now, what did He mean by that? We shall read it three ways and very quickly. First, He meant in the young man's case, "Give up your idol." His was wealth. He means the same kind of trial for you. Give up your idol. What is it? I pause. You may look, but I am sure that if you are not loving God you are loving something else, and whatever it is that you love better than God is your idol, and you are an idolater, and your idol must fall to the ground if Jesus is to be All in All. You cannot serve two masters, and whatever your present master is, it must be thrown out: that Christ may come in.
 
 "Sell all that you have." Well, that means another thing as I read it, that is, consecrate your all to God. How can you expect, if you withhold and keep back part of the price from God, that He should accept you and save you by Jesus Christ. No, come, poor guilty Sinner, and wash in the purple stream that flows from Jesus' heart and then say in return, "My Lord, since, You have thus redeemed me.
-> All that I am, and all I have
-> Shall be forever Thine.
-> Whatever my duty bids me give,
-> My cheerful hands resign.
-> And if I could make some reserve,
-> And duty did not call
-> I'd love my God with zeal so great
-> That I must give Him all.
+> All that I am, and all I have  
+> Shall be forever Thine.  
+> Whatever my duty bids me give,  
+> My cheerful hands resign.  
+> And if I could make some reserve,  
+> And duty did not call  
+> I'd love my God with zeal so great  
+> That I must give Him all.  
 
 The third reading of this passage will be, give up your hindrances. This young man's hindrance was his possessions, and it was better that he should relinquish his possessions and be saved, than be hindered by his wealth. What, my dear Friend, is your hindrance? Give it up! Give it up! Give it up! Oh, I know some of you that are hindered by bad company. You are often imposed, but it is all blown away by those merry men whose merriment is tinged with lasciviousness. Give them up! Will you give them up, or give up Christ? Which shall it be? You remember in John Bunyan's Lifehe says that one Sunday when he was playing on the village green at a game of cat, he was just about to strike the cat when a voice came to him from Heaven, and said, "Will you have your sins and go to Hell, or leave your sins and go to Heaven?" And he stood there in the midst of his companions and paused, and they could not think what ailed the tinker while he was disputing in his mind which it should be: Christ and Heaven, or his sins and Hell! Now, whatever your hindrance is, if it is money, if it is anything, whatever it is, give it up! If it is your right hand, you had better cut it off and cast it from you, than having it enter into Hell. If it is your right eye, it were better for you to pluck it out than having two eyes to be cast into Hell's fire! That is the cry of the text tonight, down with your idols! Give them all up! Cast away your hindrances and come to Christ and trust Him! That is the first word of instruction.
 
 But the second instructive word is, " Take up the cross." That means, profess Christ You have a notion, perhaps, some of you, that you will sneak into Heaven as secret Christians. Take care that if you try that you do not find yourselves at another gate than the gate of pearl! Christ came not to save those cowardly souls who will not acknowledge Him. His own words are, "He that denies Me before men, him will I deny before My Father who is in Heaven." Ashamed of Jesus? Ah, then, remember those words, "The fearful and unbelieving", the fearful: that is those who are afraid to acknowledge Christ as their Master: "shall have their portion in the lake that burns with fire and brimstone, which is the second death." I pray you, then, if you are Christ's, confess Him! Acknowledge Him! Confess that you are His, take up the cross, take up your cross: that is, endure His reproach. You would not like to be called a canting Methodist, or Presbyterian, or some other ugly name. Ah, but, my dear Friend, if you would have Christ's crown, you must have Christ's Cross, and he that is not willing to be sneered at with Christ cannot reign with Christ! And what if they do sneer at you? If that is your cross, take it up! What higher honor can a man need on this side of Heaven than to be called a fool for Christ? I know the day shall come when angels shall envy the men that were permitted to have the privilege of suffering for Christ. You know the old story of Henry the Fifth, when, in view of a battle, it was said he needed more men, but he replied that he did not wish for more men, for: "The fewer men, the greater share of honor," and he pictured the day when
 
-> Gentlemen of England, now a-bed
-> Shall think themselves accursed they were not here!
+> Gentlemen of England, now a-bed  
+> Shall think themselves accursed they were not here!  
 
 Truly, if you could escape rebuke and persecution, you might well be grieved to think that you went to Heaven by so mean a way! Be willing, then, like a brave spirit, to take up the cross and carry it, counting the reproach of Christ greater riches than all the treasures of Egypt. Take up your cross: that is, trust in the Cross, grasp it as your only hope! Let the Atonement which Jesus made by His death be the delight of your soul and from this day always boast therein.
 
