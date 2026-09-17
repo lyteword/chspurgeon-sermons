@@ -1,12 +1,12 @@
 # Sermon 3275 | "A Kind of First Fruits"
 
 > Of His own will He brought us forth by the Word of Truth, that we might be a kind of first fruits of His creatures.  
-> James 1:18
+> James 1:18  
 
 Martin Luther, the great defender of the faith, who passionately loved the Doctrine of Justification by Faith, once grew so thoroughly out of temper with the opponents who quoted the Apostle James against him, that he almost threatened to tear his Epistle out of the canon, because he supposed that James fell afoul of Paul upon the matter of justification by faith alone. It is, however, very clear to us that James, like the other Apostles, never doubted that every good thing that can be found among mankind is a gift of pure Grace, the gift of God. Hear how he puts it in the verse preceding our text, "Every good gift and every perfect gift is from above," nothing from human nature, nothing from mere free agency. Good and perfect gifts are flowers too rich and rare to spring up of themselves upon the dunghill of human nature. "Every good gift and every perfect gift is from above, and comes down from the Father of Lights." James knew how to:
 
-> Give all the Glory to Him   
-> To whom all the Glory belongs.   
+> Give all the Glory to Him  
+> To whom all the Glory belongs.  
 
 There was no gainsaying upon this matter with the Apostle. He put the crown upon the right head and ascribed the honor to Him alone who is worthy to receive it.
 
@@ -18,10 +18,10 @@ the privilege mentioned is that we have been regenerated, that we are new creatu
 
 "Of his own will He brought us forth." Regeneration and all consequent blessings come to us entirely through the absolute but gracious will of God. He is not bound to give. He may, if He wills, withhold. We have no claim upon God, except the claim ofjustice, and what would that involve but that He should punish us for our sin? We are felons against the Majesty of Heaven. We have forfeited all the rights we ever had under the Divine Government. The right to punishment is the only right we can now claim upon the footing ofjustice. Henceforth we are simply in the hands of God awaiting His sentence. He may, if He wills, save the entire human race. If it pleases Him, He may save none. If so He wills, He may make this man a monument of mercy and leave his neighbor to reap the due reward of his works. This is what God has a right to do and He claims His sovereign prerogative! Are not His own words heard through Scripture like peals of thunder, "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion; so then it is not of him that wills, nor of him that runs, but of God that shows mercy?" There are some who, in their blindness, grow wrathful at this Doctrine, as if it were ungracious to mention a fact which it is impossible to disguise. They will almost froth at the mouth when the subject is broached. Well, let them do so. It still stands firm as a rock and fast as the eternal hills! Jehovah gives no account of His matters. He does as He wills among the armies of Heaven and among the inhabitants of this lower earth. So:
 
-> Mortals, be dumb! What creature dares   
-> Dispute His awful will?   
-> Ask no account of His affairs,   
-> But tremble and be still!   
+> Mortals, be dumb! What creature dares  
+> Dispute His awful will?  
+> Ask no account of His affairs,  
+> But tremble and be still!  
 
 Brothers and Sisters, you and I, to whom this sovereignty has looked forth through the lattice of Grace, can gladly appreciate it. We bless that wonderful, discriminating love which fixed upon us while others were let to go their downward course and perish. The only motive God had to stir up His mercy, was His own will. To us, therefore, it is precious. Before we ever prayed, before we ever sought His face, His own will, acting spontaneously, brought to us the bounty of His loving kindness. Now most men who are generous need to have their generosity excited. They will need to be waited upon. Appeals must be laid before them. They must sometimes be pressed, an example must lead them on. But "of His own will" God did to us all that has been done, without any incentive or prompting, moved only by Himself because He delights in mercy, because His name and His Nature are Love, because evermore, like the sun, it is natural to Him to distribute the beams of His eternal Grace! "Of His own will He brought us forth." Come, my Brothers and Sisters, let us magnify the Lord who loved us when we were dead in trespasses and sins! Let us extol the freeness of that mercy, the goings-forth of which were of old, from everlasting, while we remember that we deserved it not, that we set ourselves against it, that when we did know it, we despised it! That when it was presented to us, we defied it, resisted it, stood out against it many a long year! Oh, when we think of this, I say, let us bow humbly before the Throne of the Infinite Majesty and bless Him whose mercy endures forever and whose loving kindness, like Himself, owes nothing to any incentive beyond itself, but is causeless, not communicated, existing full and free in the mind of God Himself! Because He willed and according to the dictate of His own good pleasure, did He have compassion upon us!
 
