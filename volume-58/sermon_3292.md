@@ -1,7 +1,7 @@
 # Sermon 3292 | The Almighty Warrior
 
-> Gird Your sword upon Your thigh, O Most Mighty One, with Your Glory and Your Majesty. And in Your Majesty ride prosperously because of truth and meekness and righteousness: and Your right hand shall teach You terrible things. Your arrows are sharp in the heart of the king's enemies; whereby the people fall under You.
-> Psalm 45:3-5
+> Gird Your sword upon Your thigh, O Most Mighty One, with Your Glory and Your Majesty. And in Your Majesty ride prosperously because of truth and meekness and righteousness: and Your right hand shall teach You terrible things. Your arrows are sharp in the heart of the king's enemies; whereby the people fall under You.  
+> Psalm 45:3-5  
 
 This Psalm has been thought by some to be a marriage song for Solomon on the occasion of his wedding with the daughter of Pharaoh. It may be so, though I should be very loath to believe it. But even if that should be true, we will find in the Psalm a distinct reference to the Lord Jesus Christ, and to His marriage union with His Church. Under the Mosaic dispensation, when a man had married a wife, he was not to go out to war for a year, but when the Lord Jesus Christ entered into a marriage union with His people, that very union made it necessary that He should wage war on their behalf. He had to meet all their spiritual foes in terrible conflict, the Prince of Darkness and all the powers of evil set themselves in array against Him, and we know how He fought with them, overcame them and trampled them beneath His feet as the treader of grapes crushes the purple clusters in the winepress. And now, even though in Heaven, He is in a state of rest. Yet here, as the Head of the Church Militant, His mystical body, He is still warring against sin, struggling most strenuously to drive sin out of the world and to make the earth His own dominion wherein He shall reign in righteousness and peace.
 
