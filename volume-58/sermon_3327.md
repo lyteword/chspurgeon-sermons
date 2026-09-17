@@ -1,7 +1,7 @@
 # Sermon 3327 | Our Lord's Heroic Endurance
 
-> For consider Him that endured such contradiction of sinners against Himself lest you be weary and faint in your minds.
-> Hebrews 12:3
+> For consider Him that endured such contradiction of sinners against Himself lest you be weary and faint in your minds.  
+> Hebrews 12:3  
 
 If we regard the Christian as a racer contending for the great race, we see that he is subject to several dangers. He may give up the race and turn back unless everlasting mercy shall prevent so dreadful a calamity. He may leap out of the track and leave for a time the only path that leads to victory and reward. Or he may be so clogged and hampered with weights that though he may run, he may run altogether in vain. Or he may be tripped up and fall, and so others may pass him and take the prize of his high calling. But even if he shall fully have avoided all those dangers, if he shall keep to the course, if he shall be kept upon his feet, and if his racing should be of the best kind, yet there is still the possibility, for the best Christian is still flesh and blood: that he may faint.
 
@@ -44,10 +44,10 @@ Yet the silence of the Savior is not all. We ought to admire the patient serenit
 Now, let it be so with you so that you may be kept from growing weary. If in the Sunday school a class seems unmanageable. If the boys cannot be taught. If the girls seem so giddy. If in the little village station the hearers seem so dull, so inattentive, so careless and so forgetful, if in any other sphere of labor you do not seem to be appreciated, but to meet with very serious rebuffs, never mind! These are nothing compared with the contradictions which the Savior endured and yet He never swerved! And therefore swerve you not. Let the Divine Life that is in you urge you constantly onwards. Make no provision for the flesh nor for the ease thereof. If, indeed, it is your life-work, go and complete it! If you feel that God has called you to be the stern advocate of the right, go onward and vow to go onward by the love of Christ, and let nothing stop you! If hunger can break through stone walls, much more shall a hunger to do the Master's will! To a man who can dare and do because he feels that he is consecrated and destined to work, nothing is impossible! You, too, shall break through a wall. You, too, shall dash through a host. A man who believes that God has called him to work would tunnel through the globe, itself, before he would be turned from his purpose! He would thread the stars on strings before he would be disappointed of his great life-work! Do you but feel this, and never turn aside, but remember how Christ endured such contradiction of sinners against Himself!
 
 And, once more, I think it is worthwhile to notice that while the Savior did not swerve, He did not even seem to pause. He did not stop to take a breath. All these persons came rushing round Him and tried to push Him out of His course, but He did not even stop, I say, to take a breath! All that they did, did but rather quicken His pace, if possible, and made Him still more set upon His great purpose. So let it be with us. We take far too much notice, I think, of some of our troubles and oppositions. I sometimes quote in your hearing those brave lines of Anne Askew. Poor soul! After having been racked to torture many times, you still hear her singing.
-> I am not she to lie,
-> My anchor to let fall:
-> For every drizzling mist
-> My ship's substantial.
+> I am not she to lie,  
+> My anchor to let fall:  
+> For every drizzling mist  
+> My ship's substantial.  
 
 Such a substantial vessel did she seem to ride in that she was not going to let her anchor out! The being racked, as she cruelly was, was no "drizzling mist," I think, but a very horrible tempest which might well make some of us afraid, even unto death, but then, we make so much of little things! Our fathers plucked up sycamore trees by the roots, but we are afraid if only one or two sere leaves blow wildly across our path! They spoke unto mountains and said, "Be you moved hence, and cast into the midst of the sea." But we sit down and murmur over molehills as though they were Alps, the summits of which we should never to able to reach! We are a puny race, I fear, but may the Lord feed us and we shall then grow stronger, and though it adds not a cubit to our stature, yet we shall grow spiritually! And we shall grow in this way if we consider how Christ bore the mighty trials which came upon Him. He was bowed down. He did stagger and did sweat great drops of blood when He was under the deep depression of His own spirit, caused by our sins being laid upon Him. Even a strong man may quail there, but before Herod or Pilate, or His Jewish accusers, or ribald and mocking men, He never showed a sign of faltering! No, not He! But He "endureds uch contradiction of sinners against Himself."
 
