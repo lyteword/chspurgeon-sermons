@@ -83,7 +83,7 @@ Behold, the nations are as a drop in a bucket, All the nations, Jews and Gentile
 
 And are counted as the small dust of the balance. That little imperceptible dust that does not turn the scale of an ordinary balance and for which you would need the most sensitive scales in order to discover its presence! That is all that the whole of the nations of the earth are in comparison with God! Yet, sometimes we fancy that one man is so great that
 
-all must give way to him. Whereas, if we trust in God, and think as God thinks, a whole nation will be to us as a drop in a bucket, or as the unseen dust of the balance. Well did Dr. Watts sing: 
+all must give way to him. Whereas, if we trust in God, and think as God thinks, a whole nation will be to us as a drop in a bucket, or as the unseen dust of the balance. Well did Dr. Watts sing:
 
 > Great God! How infinite are You!  
 > What worthless worms are we!  
@@ -94,11 +94,11 @@ all must give way to him. Whereas, if we trust in God, and think as God thinks, 
 > You are the ever-living God,  
 > Were all the nations dead.  
 
-15, 16. Behold, He takes up the isles as a very little thing. And Lebanon is not sufficient to burn, nor the beasts thereof sufficient for a burnt offering. Set Libanus itself on fire, let all its forests of cedar be the wood to burn the sacrifice, and all its cattle the victims upon the altar, yet are they but as a child's toy in the sight of the All-Glorious Jehovah. There is nothing in them that can satisfy His infinite heart!
+Behold, He takes up the isles as a very little thing. And Lebanon is not sufficient to burn, nor the beasts thereof sufficient for a burnt offering. Set Libanus itself on fire, let all its forests of cedar be the wood to burn the sacrifice, and all its cattle the victims upon the altar, yet are they but as a child's toy in the sight of the All-Glorious Jehovah. There is nothing in them that can satisfy His infinite heart!
 
 All nations before Him are as nothing; and they are counted to Him less than nothing, and vanity. To whom then will you liken God? Or what likeness will you compare unto Him? Now, children of God, do not miss the meaning of this passage by saying that it relates to the heathen. True, it does, but not to them alone. When the heathen liken God to sticks and stones, they scarcely act worse than some of His people do, for, sometimes, we do not even think as well of our God as we do of ourselves. You, being evil, are constantly supplying your children's needs, yet you doubt whether God will supply yours! You liken Him to an ungenerous father, or to a forgetful and faithless friend, one who changes with the wind. Oh, dear Friends, have you not so likened Him? If so, let the rebuke to the heathen be also a rebuke to you. This is what the heathen do:
 
-19, 20. The workman melts a graven image, and the goldsmith spreads it over with gold, and casts silver chains. He that is so impoverished that he has no oblation, no precious metal,
+The workman melts a graven image, and the goldsmith spreads it over with gold, and casts silver chains. He that is so impoverished that he has no oblation, no precious metal,
 
 Chooses a tree that will not rot; he seeks unto him a cunning workman to prepare a graven image that shall not be moved. Have you known? Have you not heard? Has it not been told you from the beginning? Have you not understood from the foundations of the earth? It is He that sits upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretches out the heavens as a curtain, and spreads them out as a tent to dweel in: that brings the princes to nothing! He makes the judges of the earth as vanity. Yes, they shall not be planted; yes, they shall not be sown: yes, their stock shall not take root in the earth: and He shall also blow upon them, and they shall wither, and the whirlwind shall take them away as stubble. To whom, then, will you liken Me, or shall I be equal? says the Holy One. Lift up your eyes on high Look at the stars.
 
