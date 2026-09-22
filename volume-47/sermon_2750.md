@@ -94,8 +94,7 @@ But let me give you one more piece of advice, keep on knocking and remember that
 
 May it come to pass that you and I, having stood on this side of the door, may soon be seated on the other side of it! While you are on this side, it is a door of hope. On the other side, it is a door of gratitude. If any of you have got inside the door, sing to the praise of Him who opened this door and let you in, and who has given you a feast of good things which He has prepared for all them that love Him.
 
-## Exposition by C. H. Spurgeon: Romans 5:1-5.
-
+## Exposition by C. H. Spurgeon: Romans 5:1-5
 Therefore. The Apostle Paul had the logical faculty largely developed, so his writings are full of, "there-fores." And the Christian religion, as a whole, stands logically connected, doctrine with doctrine, Truth of God with Truth of God. Error is inconsistent with itself, but the Truth of God is consistent, logical, and unerring. "Therefore."
 
 Being justified by faith, we have peace with God through our Lord Jesus Chris. Are you enjoying that peace, dear Friend, at this moment? If you are, indeed, justified by faith, you are at peace with God. Therefore know it and feel no disquietude. Draw near to God as a dear child might to a loving father. "We have peace with God through our Lord Jesus Christ."
