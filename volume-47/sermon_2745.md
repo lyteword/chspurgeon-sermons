@@ -1,7 +1,7 @@
 # Sermon 2745 | Intercession and Supplication
 
-> Are You not He, O Lord our God? Therefore we will wait for You
-> Jeremiah 14:22
+> Are You not He, O Lord our God? Therefore we will wait for You  
+> Jeremiah 14:22  
 
 this is an instance of amazing yet holy boldness. The Prophet had received from the Lord the explicit command, "Pray not for this people: for their good," and yet, after reasoning with God, his heart grew so warm with sacred fervor and his spirit became fired with such a passionate zeal that he could not help pleading for the sinful nation! He poured out his soul in the vehement prayer and said to the Lord, "We will wait upon You." This was, perhaps, disobedience in the outward form, but it was not disobedience as to the inner spirit of the Prophet, for the Lord counts not as disobedience the earnest pleading and yearning of the heart of His people. This is a marvelous instance of how, under the most discouraging circumstances, when there appears no prospect whatever of success, men who are moved of God to pray for their fellows, will cling to His garments and still intercede on behalf of those who are altogether unworthy of their supplications.
 
@@ -70,7 +70,7 @@ meaning of the mystic characters, "the king's countenance was changed, and his t
 > "You sinners, seek His Grace,  
 > Whose wrath you cannot bear!  
 > Fly to the shelter of His Cross,  
-> And find salvation there."
+> And find salvation there."  
 
 "But," someone says, "I do not believe in any future state." Well, Friend, suppose it should happen to be as you wish, have you any advantage over me even then? Suppose, that, after all, there should be no future state? I am as well off as you are. If there should be no Hell and no Heaven, I am as well off as you are. But if there is a future state. If there is a Hell and there is a Heaven, where will you be then? Remember that to disbelieve is not the same thing as to disprove, and I, for one, feel certain that as surely as you live, there is a future state and there is a God who will judge you! And your unbelief cannot postpone the dread assize.
 

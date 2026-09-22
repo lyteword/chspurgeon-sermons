@@ -1,7 +1,7 @@
 # Sermon 2744 | Lost Through One, Saved Through One
 
-> And not as it was by one that sinned, so is the gift: for the judgment was by one to condemnation, but the free gift which came from many offenses resulted in justification.
-> Romans 5:16
+> And not as it was by one that sinned, so is the gift: for the judgment was by one to condemnation, but the free gift which came from many offenses resulted in justification.  
+> Romans 5:16  
 
 MY one and only desire, at this time, is to help those who are sincerely seeking salvation, that they may find it and find it speedily. Ignorance often hinders sinners from coming to Christ. I know that it did so in my own case. I have often thought that if I had understood the plan of salvation more clearly, I would have accepted Christ sooner than I did. And I feel very little doubt that there are many other anxious enquirers who are a long time looking for what is close to them all the while. They are like Hagar in the wilderness, dying of thirst while a well of water is near their feet. They are asking the way to Zion because they are ignorant of the road.
 
@@ -58,7 +58,7 @@ This, too, is a matter of present possession. As soon as we believe in Jesus, we
 > "I will praise You every day!  
 > Now Your anger's turned away.  
 > Comfortable thoughts arise  
-> From the bleeding Sacrifice!"
+> From the bleeding Sacrifice!"  
 
 and that may be done now, at this very moment! It need not take you a day, a month, a year, but, in an instant God can speak the pardoning word, strike His pen through the long list of your sins, and write you in His book as, "Righteous," and righteous you shall be, then and there! Oh, wondrous Grace! Shall we ever be able to say enough to express our gratitude for it?
 

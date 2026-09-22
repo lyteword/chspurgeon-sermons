@@ -1,7 +1,7 @@
 # Sermon 2750 | A Door of Hope
 
-> The Valley of Achor as a door of hope.
-> Hosea 2:15
+> The Valley of Achor as a door of hope.  
+> Hosea 2:15  
 
 A Christian must walk by faith, not by sight. The way to Heaven is not one which is to be trodden by the carnal foot of the man who must see before he can believe. It is a dark way to those who have not the eyes of faith. It is a way through the air, utterly inaccessible to those who have not faith's wings. It is a way upward, quite impassable to the man who has not faith's ladder. The way through this world, under the guardianship of God, and upward to the eternal Home of the faithful is by faith and not by sight. Yet, nevertheless, the Lord is pleased to humor our weakness and our frailties, albeit that we would be quite as safe if we had to walk by faith in the dark, as we are when we walk in the light of the supernatural inward sight of faith, still seeing a brighter light than that which glistens around us. Yet it does please God to give us, in this wilderness, comfortable tokens and sure evidences by which we are enabled to understand, even by reason, judgment and sense, that we are His reconciled people. When God withholds the Presence of His comforting Spirit, or when the sunlight of His Countenance is taken from us, we are, nevertheless, quite safe, for then we are enabled to cling to Christ in the dark with the arms of faith, but God often gives us more than is absolutely necessary, He gives us glimpses of Heaven while here below and rich spiritual enjoyment while we are in this otherwise barren land.
 
@@ -43,8 +43,8 @@ Besides, they are doors of hope in this respect, for we argue thus, Did He once 
 
 So you see the rich enjoyments, the transports, the raptures, the delights, the ecstasies of Believers become doors of hope to them when many other doors are shut. Now, Believer, turn back to your experience and see if you cannot make it be a door of hope to you. Are you now distrustful and desponding? Then, think of "His love in times past" and, surely, it will,
 
-> Forbid you to think 
-> He'll leave you at last in trouble to sink. 
+> Forbid you to think   
+> He'll leave you at last in trouble to sink.   
 
 Turn back to your Ebenezers, those golden signposts on the road to Heaven. Can you, Believer, sit down by the side of one of those signs of help and then despair? Or can you remember the days of old, the years of former times when your God sent from above and took you and brought you up out of many waters? And do you believe that He has brought you thus far to put you to shame? If He had intended to destroy you, would He have shown such kindness to you as this? Would all these banquets have been given to a foe? Would the King have brought you to His house of wine if He had not intended to bring you in to the marriage supper of the Lamb?
 

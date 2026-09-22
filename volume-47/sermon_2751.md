@@ -1,7 +1,7 @@
 # Sermon 2751 | "A Prepared Place for a Prepared People"
 
-> I go to prepare a place for you.
-> John 14:2
+> I go to prepare a place for you.  
+> John 14:2  
 
 "Giving thanks unto the Father, who has qualified us to be partakers of the inheritance of the saints in the light."
 
@@ -35,7 +35,7 @@ Now, however, let us try to come a little closer to the subject and attempt to e
 
 I am not going to enter into any speculations about the matter, but it seems clear enough to me, in this text, that Christ is preparing a place somewhere not for disembodied spirits, for they are already before the Throne of God perfectly blessed, but for the entire manhood of His people, when spirit, soul and body shall be again united and the complete man shall receive the adoption, to wit, the redemption of the body, and the whole manhood of every Believer shall be perfected in the Glory of Christ. I do not know what better world, in many respects, there could be than this, so far as material nature is concerned. It is so full of the beauty and loveliness that God pours upon it on every side! It is a wonderful world,
 
-"Where everyprospect pleases, And only man is vile",
+"Where every prospect pleases, And only man is vile",
 
 but I could not reconcile myself to the idea that this world would be Heaven. No. My thoughts rise far above the loftiest hills, the most flowery meadows, the rolling ocean and the flowing rivers. Earth has not space enough to be our Heaven! She has too narrow a boundary and she is too coarse a thing, bright gem though she is, for perfected manhood to possess throughout eternity! It will do well enough for the thousand years of Glory, if it shall literally be that, we shall reign with Christ upon it during the millennial age. But it is a drossy thing and if it ever is to be the scene of the new heavens and the new earth, it must first pass through the fire. The very smell of sin is upon it, and God will not use this globe as a vessel unto honor until He has purified it with fire as once He did with water. And then, perhaps, it may serve for this higher purpose, but I scarcely think it will. Even now Jesus is preparing and has gone away on purpose to prepare a place
 
@@ -69,9 +69,9 @@ men better than all the rest of His disciples. And out of the 12 He loved three 
 
 If you were to give a dinner party and you had a number of friends there, you would like to pick the seats for them. You would say, "Now, there is So-and-So. I know that he would like to sit next to So-and-So." And you would try to arrange it so. Well, in that grand wedding feast above, our Savior has so prepared a place for us that He will find us each the right position. I was talking, this afternoon, with one whom I very dearly love and she said to me, "I hope my place in Heaven will not be far from yours." And I replied, "Well, I trust so, too, but we are not married or given in marriage there." Such ties and such relationships must end, as far as they are after the flesh, but we know that there have been bonds of spirit that may still continue. I sometimes think that if I could have any choice as to those I should live near in Heaven, I should like to live in the region of such strange folk as Rowland Hill and John Berridge. I think I should get on best with them, for we could talk together of the way wherein God led us and of how He brought souls to Christ by us. Though some said that we were a deal too merry when we were down below and that the people laughed when they listened to us, and some spoke as if that were a great sin, we will make them laugh up yonder, I guarantee you, as we tell again the wonders of redeeming love and of the Grace of God, their mouths shall be filled with laughter and their tongues with singing! And then,
 
-> Loudest of the crowd I'll sing, 
-> While Heaven's resounding mansions ring 
-> With shouts of Sovereign Grace 
+> Loudest of the crowd I'll sing,   
+> While Heaven's resounding mansions ring   
+> With shouts of Sovereign Grace   
 
 and I expect each of you who love the Lord will do the same!
 
