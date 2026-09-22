@@ -1,7 +1,7 @@
 # Sermon 2715 | Christian Resignation
 
-> Not as I will, but as You will.  
-> Matthew 26:39  
+> Not as I will, but as You will. 
+> Matthew 26:39 
 
 The Apostle Paul, writing concerning our Lord Jesus Christ, says, "Though He were a Son, yet learned He obedience by the things which He suffered." He who, as God, knew all things, had to learn obedience in the time of His humiliation. He who is, in Himself, Wisdom Incarnate, did, Himself, condescend to enter the school of suffering, there we learn that important lesson of the Christian life, obedience to the will of God. And here, in Gethsemane's Garden, you can see the Divine Scholar going forth to practice His lesson. He had been, all His lifetime, learning it, and now He has to learn it for the last time in His agony and bloody sweat, and in His terrible death upon the Cross. Now is He to discover the utmost depths of suffering and to attain to the height of the knowledge of obedience. See how well He has learned His lesson! Note how complete and ripe a scholar He is! He has attained to the very highest class in that school and, in the immediate prospect of death, can say to His Father, "Not as I will, but as You will."
 
@@ -29,10 +29,10 @@ Now, in a spiritual sense, this is hard to perform, but, nevertheless, it is a C
 
 But there is another trial which we shall all have to endure, in our measure, which will prove whether we understand by this prayer what Christ meant by it. Sometimes, in the service of Christ, we must be prepared to endure the loss of reputation, of honor and even of character itself. I remember, when I first, came to London to preach the Word, I thought that I could bear anything for Christ. But I found myself shamefully slandered. All manner of lies were uttered concerning me and, in agony, I fell on my face before God and cried unto Him. I felt as though that was a thing I could not bear, my character was very dear to me and I could not endure to have such false things said about me! Then this thought came to me, "You must give up all for Christ, you must surrender everything for Him, character, reputation and all that you have, and if it is the Lord's will, you shall be reckoned the vilest of the vile! But so long as you can still continue to serve Him and your character is really pure, you need not fear. If it is your Master's will that you shall be trampled and spit upon by all the wicked men in the world, you must simply bear it and say, 'Not as I will, but as You will.'" And I remember how I rose, then, from my knees, and sang to myself that verse:
 
-> If on my face, for Your dear name,  
-> Shame and reproaches be,  
-> All hail reproach, and welcome shame!  
-> If You remember me.  
+> If on my face, for Your dear name, 
+> Shame and reproaches be, 
+> All hail reproach, and welcome shame! 
+> If You remember me. 
 
 "But how hard it was," you say, "for you to suffer the loss of character and to have evil things spoken against you falsely for Christ's name's sake!" And what was the reason why it was so hard? Why, it was just because I had not fully learned how to pray this prayer of our Lord Jesus Christ, and I am afraid that I still have not completely learned it. It is a very delightful thing to have even our enemies speaking well of us, to go through this world with such holiness of character that men who pour scorn upon all religion cannot find fault with us, but it is an equally glorious thing for us to be set in the pillory of shame, to be pelted by every passerby, to be the song of the drunkard, to be the by-word of the swearer when we do not deserve it, and to endure all this for Christ's sake. This is true heroism, this is the meaning of the prayer of our text.
 
@@ -82,9 +82,7 @@ Every branch in Me that bears not fruit He takes away. In some sense, men and wo
 
 And every branch that bears fruit, He purges it, that it may bring forth more fruit! From these words it is clear that many of the afflictions which we have to endure are not brought upon us because we are unfruitful, but because we are bearing fruit!
 
-Now you are clean through the word which I have spoken unto you. Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine, no more can you, except you abide in Me. Dear Friends, beware of a Christless Christianity! Beware of trying to be Christians without living daily upon Christ! The branch may just as well
-
-try to bear fruit apart from the vine as for you to hope to maintain the reality of Christian life without continual fellowship with the Lord Jesus Christ!
+Now you are clean through the word which I have spoken unto you. Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine, no more can you, except you abide in Me. Dear Friends, beware of a Christless Christianity! Beware of trying to be Christians without living daily upon Christ! The branch may just as well try to bear fruit apart from the vine as for you to hope to maintain the reality of Christian life without continual fellowship with the Lord Jesus Christ!
 
 I am the vine, you are the branches: he that abides in Me, and I in him, the same brings forth much fruit: for without Me you can do nothing. If a man abides not in Me, he is cast forth as a branch, and is withered; and men gather them, and cast them into the fire, and they are burned. The vine must either bear fruit or be good for nothing and you, Believer, must be vitally united to Christ and bear fruit in consequence of that union or else you will be like those fruitless branches, of which our Lord said that, "men gather them, and cast them into the fire and they are burned."
 

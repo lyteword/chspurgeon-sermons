@@ -1,7 +1,7 @@
 # Sermon 2739 | "I Have Enough"
 
-> Esau said, I have enough. Jacob said, I have enough.  
-> Genesis 33:9,11  
+> Esau said, I have enough. Jacob said, I have enough. 
+> Genesis 33:9,11 
 
 It is a very rare thing to meet with people who say that they have enough, for those who have most generally desire more, and those who have little feel that contentment is a thing which cannot reasonably be expected from them. For any person honestly and truthfully to say, "I have enough," is so unusual a circumstance that I do not remember having heard it often. I have done so a few times, at long intervals. This being the case as a rule, it is very remarkable that there should be, in this chapter, a record of two persons who each said, "I have enough." It is specially noteworthy that this was said by two brothers, for, generally, if one of two brothers is contented, the other is of quite a different disposition. One may be of a very happy and easy-going spirit, but the other possesses enough worry and care to have stocked the two. But here are two brothers, twins, yet each one says, "I have enough."
 
@@ -23,9 +23,7 @@ I have no doubt that sometimes ignorance is a help to contentment. Hence the com
 
 I do not say that this was Esau's case, however. I think he was contented and said, "I have enough," for quite another reason. Some are contented because they are utterly reckless and only consider present pleasure. They live from hand to mouth and never calculate what may happen tomorrow. Laying by for a rainy day seems to them to be preposterous. If they have sufficient for the passing hour, it is quite enough for them. In some respects, how like this vice is to the virtue which the Christian ought to seek after! Yet it is a vice as we see it in the ungodly, for they are careless, heedless and reckless as was this man, Esau, who, coming in hungry and faint from the chase, sells his birthright for one mess of red pottage, not knowing and not caring what the spiritual value of that birthright might be, but selling it straightaway that he might satisfy his hunger! There are some who are contented for this reason, that they do not exercise thought, they do not give due consideration to their true condition and they say, "We have enough," because they have sufficient for the time present. Such contentment as that, I do not commend, if any of us have it, may God deliver us from it!
 
-Yet let me notice, next, that in the contentment of unconverted men, there are some good points. For, first, it may prevent greed in them. When a man says, "I have enough," you do not expect him to be one of those who grind the faces of the poor and who must compass sea and land to get more wealth to themselves. Now, in Esau's case, he declined his brother's present until he was pressed to accept it, and I have no doubt that he honestly declined it on the ground that he had enough. His brother had planned this gift to propitiate his favor, but he tells him that he does not need it, that he loves him without the present, and he has enough, so does not require it. It is a good thing for a man, even if he has not the Grace of God, to be so contented with the things which he has as not to be covetous of the things of others, for covetousness is a great sin and is condemned in that Commandment which says, "You shall not covet anything that is
-
-your neighbor's." So far, contentment is a good thing if a man is so satisfied with what he has that he does not covet that which belongs to another!
+Yet let me notice, next, that in the contentment of unconverted men, there are some good points. For, first, it may prevent greed in them. When a man says, "I have enough," you do not expect him to be one of those who grind the faces of the poor and who must compass sea and land to get more wealth to themselves. Now, in Esau's case, he declined his brother's present until he was pressed to accept it, and I have no doubt that he honestly declined it on the ground that he had enough. His brother had planned this gift to propitiate his favor, but he tells him that he does not need it, that he loves him without the present, and he has enough, so does not require it. It is a good thing for a man, even if he has not the Grace of God, to be so contented with the things which he has as not to be covetous of the things of others, for covetousness is a great sin and is condemned in that Commandment which says, "You shall not covet anything that is your neighbor's." So far, contentment is a good thing if a man is so satisfied with what he has that he does not covet that which belongs to another!
 
 It is also right and proper that he should not have any envious ill-feeling towards others. If others are better off than they are, some people straightway find fault with Providence and are envious and jealous of the person who appears to be more favored than they are. Esau was not of that mind, for he said to Jacob, "I have enough, my brother. Keep what you have unto yourself." There is another sense implied in the Hebrew, "Be that to you that is yours. May it do you good. May you use and enjoy it yourself!" I like to hear a man say, "My motto is, 'Live, and let live.' I have enough and I wish others to have enough, too. And if another man's 'enough' is larger than mine, I am glad he has it. If he is capable of more enjoyment than I am, let him have it, why should I not rejoice in his joy and thus suck out of the sweets that belong to him some sweetness for myself by being glad that another is not as poor as I am, or so sick as I am, or so feeble as I am, or being glad that there are some who can excel myself, even in the point of earthly happiness?" So far so good, Esau, that you should say, "I have enough."
 
@@ -77,11 +75,11 @@ My least and greatest need! And so
 
 Your Grace is enough for me." You remember how Paul says the Lord spoke to him, "My Grace is sufficient for you: for My strength is made perfect in weakness?" Think what Grace there is in Christ Jesus our Lord, electing Grace, calling Grace, forgiving Grace, renewing Grace, preserving Grace, sanctifying Grace, perfecting Grace, Grace upon Grace, Grace that leads to Heaven! O Beloved, all this Grace is yours and surely there is Grace enough for you! Why do you fear that you will fail? Will God's Grace fail you? Will God's Grace forsake you and permit you to perish by the hand of the enemy? No, verily, then let each Believer say to Him, "Your Grace is enough for me." Miss Havergal next writes:
 
-> It is so sweet to trust Your Word alone,  
-> I do not ask to see  
-> The unveiling of Your purpose, or the shining  
-> Of future light on mysteries untwining,  
-> Your promise-roll is all my own! Your Word is enough for me!  
+> It is so sweet to trust Your Word alone, 
+> I do not ask to see 
+> The unveiling of Your purpose, or the shining 
+> Of future light on mysteries untwining, 
+> Your promise-roll is all my own! Your Word is enough for me! 
 
 It is very sweet to be able to say of the Lord's promise, "That is enough for me, even if I do not see the fulfillment of it for many a day, the promise itself is enough for me. If the Lord seems to do nothing at all for my help, yet, since He has said, 'I will never leave you, nor forsake you,' His Word is enough for me." Why, Beloved, you sometimes make a man's word enough for you, the word of a man whom you can trust. And you say, "His word is his bond." But God's Word is backed by His oath, is not that Word enough for you? If so, why do you fret and worry? Rather, you should say to the Lord, "Your Word is enough for me." Then the gracious poetess continues: "The human heart asks love, but now I know
 
@@ -99,10 +97,10 @@ Can you say that, you who have lost some dear one, you who are widowed, you who 
 
 The sweet poem closes thus:
 
-> There were strange soul-depths, restless, vast and broad,  
-> Unfathomed as the sea!  
-> An infinite craving for some infinite stilling,  
-> But now Your perfect love is perfect filling! Lord Jesus Christ, my Lord, my God, You, You are enough for me!  
+> There were strange soul-depths, restless, vast and broad, 
+> Unfathomed as the sea! 
+> An infinite craving for some infinite stilling, 
+> But now Your perfect love is perfect filling! Lord Jesus Christ, my Lord, my God, You, You are enough for me! 
 
 So may it be with each of us, for Christ's sake! Amen.
 
@@ -110,9 +108,7 @@ So may it be with each of us, for Christ's sake! Amen.
 
 And Jacob went on his way, and the angels of God met him. And when Jacob saw them, he said, This is God's host: and he called the name of that place Mahanaim. Jacob was about to enter upon a great trial and therefore he received a great comfort in preparation for it. God knows when to send angels to His servants, and when they come, it is often as the forerunners of a trial which is to follow them.
 
-And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom. And he commanded them, saying, Thus shall you speak unto my lord Esau; Your servant Jacob says thus, I have sojourned with Laban, and stayed there until now: and I have oxen, and asses, flocks, and menservants and women servants: and I have sent to tell my lord, that I may find grace in your sight It has been judged by some that Jacob, in sending such a message
-
-to Esau, acted unworthily and unbelievingly, but I think we are not called upon to censure the servants of God in points wherein they are not condemned in Scripture. The elder brother, according to all Eastern customs, was the lord of the family, and Jacob had so grossly injured Esau that it well became him to walk very humbly and to abound in courtesy towards him. Besides, I hope we shall never imagine that the highest faith is inconsistent with the greatest prudence, and that we shall never forget that there is such a book in the Bible as the Book of Proverbs which contains counsels of wisdom for daily life. That Book of Proverbs is placed not far from the Song of Solomon which treats of high spiritual communion, as if to teach us that the next door neighbor to the wisdom that comes from above which walks with God, is that prudence which God gives to His servants for their dealings with men. He that walks with God will not be a fool, for God is the source of all wisdom, and the man who walks with Him will learn wisdom from Him.
+And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom. And he commanded them, saying, Thus shall you speak unto my lord Esau; Your servant Jacob says thus, I have sojourned with Laban, and stayed there until now: and I have oxen, and asses, flocks, and menservants and women servants: and I have sent to tell my lord, that I may find grace in your sight It has been judged by some that Jacob, in sending such a message to Esau, acted unworthily and unbelievingly, but I think we are not called upon to censure the servants of God in points wherein they are not condemned in Scripture. The elder brother, according to all Eastern customs, was the lord of the family, and Jacob had so grossly injured Esau that it well became him to walk very humbly and to abound in courtesy towards him. Besides, I hope we shall never imagine that the highest faith is inconsistent with the greatest prudence, and that we shall never forget that there is such a book in the Bible as the Book of Proverbs which contains counsels of wisdom for daily life. That Book of Proverbs is placed not far from the Song of Solomon which treats of high spiritual communion, as if to teach us that the next door neighbor to the wisdom that comes from above which walks with God, is that prudence which God gives to His servants for their dealings with men. He that walks with God will not be a fool, for God is the source of all wisdom, and the man who walks with Him will learn wisdom from Him.
 
 And the messengers returned to Jacob, saying, We came to your brother Esau, and also he comes to meet you, and four hundred men with him. Then Jacob was greatly afraid and distressed: and he divided the people that were with him, and the flocks and herds, and the camels, into two bands; and said, If Esau comes to the one company, and smites it, then the other company which is left shall escape. This fear and distress were sad proofs of lack of faith on Jacob's part, for where there is strong faith, there may be a measure of human fear, but it will not go to the length of being "greatly afraid and distressed," as he was. In this respect he falls short of his grandfather Abraham. But, nevertheless, he acts wisely, first with common prudence, and next with uncommon prayerfulness.
 

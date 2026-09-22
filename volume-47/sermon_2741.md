@@ -1,7 +1,7 @@
 # Sermon 2741 | Salvation by Grace
 
-> By Grace you are saved.  
-> Ephesians 2:5  
+> By Grace you are saved. 
+> Ephesians 2:5 
 
 The cardinal error against which the Gospel of Christ has to contend is the effect of the tendency of the human heart to rely upon salvation by works. The great antagonist to the Truth of God, as it is in Jesus, is that pride of man which leads him to believe that he can be, at least in part, his own savior. This error is the prolific mother of multitudes of heresies! It is through this falsehood that the pure stream of the Truth of God has been tainted so that, instead of flowing on in one clear pure river, it has been sadly polluted. There have been many who have sought to hinder the flowing of the Water of Life, or to divert the stream from its proper current. Many have tried to mingle the fancies and fallacies of men with the Truth as it is in Jesus, in order, thereby, to make it more palatable to poor, fallen, human nature.
 
@@ -11,9 +11,7 @@ In all times, whenever this Doctrine has been obscured, the Church has become ei
 
 In Augustine's day, there had been a grievous falling away from the simplicity of the Gospel. And when he arose and preached to the world this glorious Truth of God, there was an influence for good which, I believe, staved off the great Romish heresy, at least for a time. Had the Church and the world but listened to his voice and accepted his teaching, Popery would have been an impossibility! Then later, when Romanism had waxed exceedingly strong, the Lord raised up Martin Luther who taught this as the great central Truth of Christianity, that sinners are justified by faith, not by works. After Luther came another distinguished teacher of the Doctrine of Grace, John Calvin, a man far better instructed in the Truth of the Gospel than even Martin Luther was, and he pushed this grand Doctrine to its legitimate consequences. Luther had, as it were, undammed the stream of Truth by breaking down the barrier which had kept back the living waters in the great reservoir, but the stream was turbid and carried down with it much that ought to have been left behind. Then Calvin came and cast salt into the waters and purified them, so that they flowed on in a clear, sweet, pure stream to gladden and refresh the Church of God and to quench the thirst of poor parched sinners.
 
-Calvin preached, as his great staple Doctrine, the great Truth in my text, "By Grace you are saved." It is common, in these days, to call those ministers who dwell mainly upon this Doctrine, "Calvinists." But we do not accept that title without qualification. We are not ashamed of it and we would rather be called "Calvinists" than have any other name
-
-except that which is our true one. We hold and assert again and again, that the Truth of God which Calvin preached, the Truth of God which Augustine thundered out with all his might, was the very Truth of God which the Apostle Paul had long before written in his Inspired Epistles and which is most clearly revealed in the discourses of our blessed Lord Himself! We desire to preach the Truth of God, the whole Truth of God and nothing but the Truth of God! We are not the followers of any mere man, we do not derive our Inspiration from Calvin's Institutes and Commentaries, but from the Word of God itself! Yet we hold the Doctrines commonly called, "Calvinism," to be none other than the essential basement Doctrines of our holy faith. These were the truths that Whitefield preached and that produced the great revival in his days! And these must be the Doctrines to which the Church of God must again return, if the Church of Rome is to be razed to its deep foundations, or souls to be converted in great multitudes, or the Kingdom of Christ to come!
+Calvin preached, as his great staple Doctrine, the great Truth in my text, "By Grace you are saved." It is common, in these days, to call those ministers who dwell mainly upon this Doctrine, "Calvinists." But we do not accept that title without qualification. We are not ashamed of it and we would rather be called "Calvinists" than have any other name except that which is our true one. We hold and assert again and again, that the Truth of God which Calvin preached, the Truth of God which Augustine thundered out with all his might, was the very Truth of God which the Apostle Paul had long before written in his Inspired Epistles and which is most clearly revealed in the discourses of our blessed Lord Himself! We desire to preach the Truth of God, the whole Truth of God and nothing but the Truth of God! We are not the followers of any mere man, we do not derive our Inspiration from Calvin's Institutes and Commentaries, but from the Word of God itself! Yet we hold the Doctrines commonly called, "Calvinism," to be none other than the essential basement Doctrines of our holy faith. These were the truths that Whitefield preached and that produced the great revival in his days! And these must be the Doctrines to which the Church of God must again return, if the Church of Rome is to be razed to its deep foundations, or souls to be converted in great multitudes, or the Kingdom of Christ to come!
 
 My text relates to the Doctrine of Salvation by Grace and, coming to it, I ask you to notice, first, that the Apostle addresses certain people who were saved. Next, I want you to notice the meanings of the term, "Grace," as applied in the Scriptures. And I shall finish with some consolatory and practical inferences.
 
@@ -31,18 +29,18 @@ No, my dear Friends, under the theory of salvation by works, whatever form it ma
 
 "But," asks someone, "do not Arminians rejoice to say that they are already saved?" Yes, but their assertion is contradicted by the assurance which they will give you directly afterwards, that they may finally perish. Although they are now saved, their safety is something like that of a wrecked mariner who, after being tossed to and fro in a stormy sea, is washed up on a rock, from which he may presently be hurled back into the raging billows! Their safety is not like that of the man who has been carried into the lighthouse, or brought to land in the lifeboat, for they believe that, after all they have experienced, they may be lost. It is not salvation that the Arminian possesses. He is only in a salvable state. His condition is that of a man who, if he continues to repent and believe, shall be saved, but he is not truly saved now, he has not been built upon that sure, certain, solid foundation upon which the true Believer is resting. He cannot sing, with Toplady:
 
-> The terrors of Law, and of God  
-> With me can have nothing to do!  
-> My Savior's obedience and blood  
-> Hide all my transgressions from view!  
-> My name from the palms of His hands  
-> Eternity will not erase,  
-> Impressed on His heart it remains  
-> In marks of indelible Grace.  
-> Yes, I to the end shall endure,  
-> As sure as the earnest is given,  
-> More happy, but not more secure,  
-> The glorified spirits in Heaven!  
+> The terrors of Law, and of God 
+> With me can have nothing to do! 
+> My Savior's obedience and blood 
+> Hide all my transgressions from view! 
+> My name from the palms of His hands 
+> Eternity will not erase, 
+> Impressed on His heart it remains 
+> In marks of indelible Grace. 
+> Yes, I to the end shall endure, 
+> As sure as the earnest is given, 
+> More happy, but not more secure, 
+> The glorified spirits in Heaven! 
 
 Such a salvation as that, a present one, enjoyed now in all its fullness, in all its riches, in all its boundless lengths, and breadths, and depths and heights, is not possible under any other system but that of salvation by Grace, and by Grace alone! We, of all men living, who preach the Doctrine of Salvation by Grace, can proclaim a present salvation in all its fullness.
 
@@ -52,8 +50,8 @@ For what is it to be saved? It is to have sin forgiven and to be "accepted in th
 
 To be saved, however, includes more than forgiveness of sins, it includes the imputation of the righteousness of Christ and, in this sense, also, the meanest Believer in Him is as much saved as the celestial spirits in the Paradise above. Is the robe of Christ's righteousness spread over the Apostles? So is it, at this hour, around the poorest person on earth who is trusting in Jesus! Are those who sing God's praises before His Throne in Glory clothed in the fair white linen which is the righteousness of the saints? Even so are all Believers here below! Each saint is, as John Kent says:
 
-> "With his spotless vesture on,  
-> Holy as the Holy One."  
+> "With his spotless vesture on, 
+> Holy as the Holy One." 
 
 Covered with Christ's righteousness, God sees no spot in His people!
 
@@ -85,17 +83,17 @@ Then, once again, here is a word of comfort If we are saved, are saved, mark you
 
 Now you do know it, for you are on the Rock and you are saved, so why are you sad? You may now be despised, but, remember, the time is coming when you shall be glorified with Christ! You may be now forgotten by your friends, but your Savior's eyes are on you and your name is on His heart! You are sad, yes, but you are secure! If you believe in Jesus, you may be cast down but you cannot be destroyed! You may be forsaken for a while, but you can never be cast away! Come then:
 
-> "Children of the heavenly King,  
-> As you journey, sweetly sing,  
-> Sing your Savior's worthy praise,  
-> Glorious in His works and ways."  
+> "Children of the heavenly King, 
+> As you journey, sweetly sing, 
+> Sing your Savior's worthy praise, 
+> Glorious in His works and ways." 
 
 Lastly, one word to those who cannot say that they are saved. My dear Friends, there is very much in this text that should cheer and comfort you. The men who are saved are saved by Grace, by God's free favor. There was nothing in them to recommend them to God. You have been confessing, "O Lord, I do not feel as I ought to feel" He does not want your feelings as a recommendation. If saved, you are to be saved as a matter of free favor and not as a matter of merit in any sense whatever. "But," says one, "I cannot repent, I cannot believe." My dear Friend, you are not going to be saved by anything that you can do in your own strength. You need repentance. Do not try to work it for yourself, the Lord will work repentance in you. You need faith. Do not go about to seek faith in yourself, you will never find it there, seek it from Christ. He is the Author as well as the Finisher of faith!
 
 "By Grace you are saved." Go and carry this text into every den and sty of pollution in London! Tell it to the murderer, the thief, the blasphemer, the harlot! Tell it to the man who cannot repent, and cannot pray, and cannot believe! Tell him that salvation is by Grace, and is worked in us by God the Holy Spirit and, as the hymn says:
 
-> "Heaven with the echo shall resound,  
-> And all the earth shall hear."  
+> "Heaven with the echo shall resound, 
+> And all the earth shall hear." 
 
 Go, then, my Brothers and Sisters, and spread the Doctrine of Salvation by Grace, for this old watchword of the Church is the source of her victory! And when once this shall be her battle-cry, her triumph is sure! The headstone of God's spiritual temple shall be brought forth with shouts, crying, "Grace, Grace unto it."
 
@@ -137,9 +135,7 @@ Nor again the head to the feet, I have no need of you. No, much more those membe
 
 For our comely parts have no need: but God has tempered the body together, having given more abundant honor to that part which lacked. Here is a lesson for us with regard to church fellowship, always to take most notice of those who are the least noticeable, and to be most gentle with those who require the most tenderness. You know that there are some of our fellow members who are not all we should like them to be. We believe that they are children of God, but they are, somehow or other, "cut on the cross." They are crotchety and weak in many ways. Now, we should try, as far as we can, to adapt ourselves to them. If you have ever had the gout very badly, you know that if a person walks across the room too heavily, you feel it. Do you, therefore, say to your father, when he is thus laid aside, "You cannot expect me to take notice of such a thing as that? Nor would you be so cruel as to say to anybody else, "If he has a gouty foot, I cannot help it and I shall tread on it every now and then." No, you are not so brutal as that! So, if there is a member of the body that is more tender than the rest, and especially if that tenderness is the result of disease, let us try to minister to it as far as we possibly can. Let us give "more abundant honor to that part which lacks."
 
-That there should be no schism in the body. That is, no division, no tear in the body. 25, 26. But that the members should have the same care, one for another. And whether one member suffers, all the
-
-members suffer with it; or one member is honored, all the members rejoice with it. I am afraid that this second half of the verse refers to a duty which is more neglected than is the other. It is an easier thing to suffer with those that suffer than it is to rejoice with those that rejoice. And I will tell you why it is so, because, in giving compassion to those that suffer, you have some sense of dignity. Condescension is often a sort of pride, but when a Brother is better off than you are, when he has more talent than you have, when he is more successful than you are, for you to go and rejoice with him and be as glad as if it were all your own gladness, yes, to enter into his joy, and say, "God be thanked, my Brother, for your prosperity! I would increase it if I could, for I feel that I am a partner with you!", ah, this needs great Grace. So, may God continually give us more Grace and deliver us from everything like envy, which is of Satan, and yet is all too common even among professing Christians!
+That there should be no schism in the body. That is, no division, no tear in the body. 25, 26. But that the members should have the same care, one for another. And whether one member suffers, all the members suffer with it; or one member is honored, all the members rejoice with it. I am afraid that this second half of the verse refers to a duty which is more neglected than is the other. It is an easier thing to suffer with those that suffer than it is to rejoice with those that rejoice. And I will tell you why it is so, because, in giving compassion to those that suffer, you have some sense of dignity. Condescension is often a sort of pride, but when a Brother is better off than you are, when he has more talent than you have, when he is more successful than you are, for you to go and rejoice with him and be as glad as if it were all your own gladness, yes, to enter into his joy, and say, "God be thanked, my Brother, for your prosperity! I would increase it if I could, for I feel that I am a partner with you!", ah, this needs great Grace. So, may God continually give us more Grace and deliver us from everything like envy, which is of Satan, and yet is all too common even among professing Christians!
 
 Now you are the body of Christ, and members in particular. And God has set some in the church, first Apostles, secondarily Prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues. Are all Apostles? Are all Prophets? Are all teachers? Are all workers of miracles? Have all the gifts of healing? Do all speak with tongues? Do all interpret? But covet earnestly the best gifts and yet show I unto you a more excellent way.
 

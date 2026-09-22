@@ -1,7 +1,7 @@
 # Sermon 2714 | Those Who Desire
 
-> O Lord, I beseech You, let now Your ear be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name.  
-> Nehemiah 1:11  
+> O Lord, I beseech You, let now Your ear be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name. 
+> Nehemiah 1:11 
 
 Nehemiah was earnest in his prayer for the good of his sorrow-stricken nation, but he did not make the mistake of thinking that he was the only praying man in the world. He said, "Be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name." In this one respect, I like Nehemiah better than Elijah. They were both noble men and greatly concerned for the highest welfare of their fellow countrymen, but, at one time at least, Elijah did not have a true or a fair estimate of things as they really were. He even presumed to say to God, "I have been very jealous for the Lord God of Hosts: for the children of Israel have forsaken Your covenant, thrown down Your altars, and slain Your Prophets with the sword; and I, even I only, am left; and they seek my life, to take it away." Nehemiah, however, acted on another and a more hopeful principle. When he had presented his own personal supplication, he felt certain that there were others who were also praying to the Lord, so he said, "Be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name."
 
@@ -27,10 +27,10 @@ There are others, whose fear of God arises entirely from dread. They dare not go
 
 That which you do because you are afraid to act otherwise is no evidence of a renewed heart, it is, rather, the proof that you are a slave, living in dread of the lash, and that you would act far otherwise if you dared! But the child of God loves his heavenly Father and delights to worship Him. Oftentimes, when the Sabbath is about to close, he says:
 
-> My willing soul would stay  
-> In such a frame as this,  
-> And sit and sing herself away  
-> To everlasting bliss!  
+> My willing soul would stay 
+> In such a frame as this, 
+> And sit and sing herself away 
+> To everlasting bliss! 
 
 He delights in the worship of God! It is his element, his pleasure, his treasure, and he loves it without measure!
 
@@ -74,8 +74,8 @@ Cry mightily to God about it and He will yet bring you better days. The Apostle 
 
 To close my discourse, let me say that the very highest form of devotion we can ever reach is included in the description in the text, "Your servants who desire to fear Your name," for I find that some of our translators and expositors read it, "who delight to fear Your name." There is not much variation in it, after all, because to desire to fear God's name is much the same thing as doing it as a matter of delight. Come, Beloved, God grant that we may all get to be of that number who delight to fear His name! May we be of those to whom it is a pleasure and a joy to be the soldiers of the Cross, the followers of the Lamb, to whom prayer is recreation, to whom praise is Paradise, to whom the service of God is Heaven! We are not now slaves, but happy children who delight in God, and joy in Him! And we can sing with our sacred poet:
 
-> I need not go abroad for joys, I have a feast at home! My sighs are turned into songs, My heart has ceased to roam.  
-> Down from above the blessed Dove Is come into my breast, To witness Your eternal love, And give my spirit rest.  
+> I need not go abroad for joys, I have a feast at home! My sighs are turned into songs, My heart has ceased to roam. 
+> Down from above the blessed Dove Is come into my breast, To witness Your eternal love, And give my spirit rest. 
 
 O yes, we delight to fear God! Our misery is that we cannot fear Him as we would. Our sorrow is if we ever fall into sin. A child of God cannot find pleasure there. He may be led into sin, but he will be whipped for it, and he will whip himself for it. He will groan, and cry, and sigh to think how wrong he was to go astray. But his greatest delight is in the Law of the Lord and in His Law does he meditate day and night.
 

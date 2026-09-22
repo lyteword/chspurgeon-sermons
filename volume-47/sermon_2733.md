@@ -1,7 +1,7 @@
 # Sermon 2733 | Christ's Manifestation to Mary Magdalene
 
-> Jesus said unto her, Touch Me not; for I am not yet ascended to My Father: but go to My brethren, and say unto them, I ascend unto My Father, and your Father; and to My God, and your God.  
-> John 20:17  
+> Jesus said unto her, Touch Me not; for I am not yet ascended to My Father: but go to My brethren, and say unto them, I ascend unto My Father, and your Father; and to My God, and your God. 
+> John 20:17 
 
 This was the first appearance of our Lord Jesus Christ after His Resurrection. In sundry places and at divers times, during the ensuing 40 days, He appeared to different disciples, showing Himself openly to them when they were assembled for worship and at other times. But this was the first occasion of His being seen by any of His followers after He had risen from the dead. The whole incident is full of consolation and we who are poor weary pilgrims through this earthly wilderness need some words of comfort every now and then to cheer us on the road. May the Holy Spirit sweetly assist us in meditating now upon the things of Christ, and may our hearts burn within us as He speaks to us by the way!
 
@@ -81,18 +81,16 @@ Who has directed the Spirit of the Lord, or being His counselor has taught Him? 
 
 Behold, the nations are as a drop in a bucket, All the nations, Jews and Gentiles, the vast multitudes of China, and India, and all other nations, all these are but as a drop in a bucket, the one drop that trembles on the bucket's brim when all the rest of the water is gone!
 
-And are counted as the small dust of the balance. That little imperceptible dust that does not turn the scale of an ordinary balance and for which you would need the most sensitive scales in order to discover its presence! That is all that the whole of the nations of the earth are in comparison with God! Yet, sometimes we fancy that one man is so great that
+And are counted as the small dust of the balance. That little imperceptible dust that does not turn the scale of an ordinary balance and for which you would need the most sensitive scales in order to discover its presence! That is all that the whole of the nations of the earth are in comparison with God! Yet, sometimes we fancy that one man is so great that all must give way to him. Whereas, if we trust in God, and think as God thinks, a whole nation will be to us as a drop in a bucket, or as the unseen dust of the balance. Well did Dr. Watts sing:
 
-all must give way to him. Whereas, if we trust in God, and think as God thinks, a whole nation will be to us as a drop in a bucket, or as the unseen dust of the balance. Well did Dr. Watts sing:
-
-> Great God! How infinite are You!  
-> What worthless worms are we!  
-> Let the whole race of creatures bow,  
-> And pay their praise to Thee.  
-> Your Throne eternal ages stood,  
-> Ere seas or stars were made!  
-> You are the ever-living God,  
-> Were all the nations dead.  
+> Great God! How infinite are You! 
+> What worthless worms are we! 
+> Let the whole race of creatures bow, 
+> And pay their praise to Thee. 
+> Your Throne eternal ages stood, 
+> Ere seas or stars were made! 
+> You are the ever-living God, 
+> Were all the nations dead. 
 
 Behold, He takes up the isles as a very little thing. And Lebanon is not sufficient to burn, nor the beasts thereof sufficient for a burnt offering. Set Libanus itself on fire, let all its forests of cedar be the wood to burn the sacrifice, and all its cattle the victims upon the altar, yet are they but as a child's toy in the sight of the All-Glorious Jehovah. There is nothing in them that can satisfy His infinite heart!
 

@@ -1,7 +1,7 @@
 # Sermon 2711 | The Sight of Iniquity
 
-> Why do You show me iniquity, and cause me to behold grievance?  
-> Habakkuk 1:3  
+> Why do You show me iniquity, and cause me to behold grievance? 
+> Habakkuk 1:3 
 
 In this discourse, it will be my endeavor to assign some reasons why God causes His people to see iniquity in themselves and in others.
 
@@ -83,8 +83,8 @@ And there were born unto him seven sons and three daughters. It was a great priv
 
 His substance also was seven thousand sheep, and three thousand camels, and five hundred yoke of oxen, and five hundred she asses, and a very great household; so that this man was the greatest of all the men of the east. A man may be a good man and a rich man, but it is not usually the case. I am afraid that what Mr. Bunyan says is all too true:
 
-> Gold and the Gospel seldom agree,  
-> Religion always sides with poverty.  
+> Gold and the Gospel seldom agree, 
+> Religion always sides with poverty. 
 
 Yet it should not be so, for God can give a man Grace enough to use all his substance to his Lord's Glory. I wish that it were more often the case that we could see a holy Job as well as a godly Lazarus, a company of men who would prove their consecration to God by never allowing their wealth to become their master, but being master of all their substance and realizing constantly that it is all the Lord's. This, after all, is the noblest heritage a man has with the exception of his God. Job, in adversity, could possess his soul in patience because, in his prosperity, he had not let his riches possess him, but he had possessed them.
 

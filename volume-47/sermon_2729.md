@@ -1,7 +1,7 @@
 # Sermon 2729 | Christ's Transfigured Face
 
-> His face did shine as the sun.  
-> Matthew 17:2  
+> His face did shine as the sun. 
+> Matthew 17:2 
 
 While our Lord Jesus Christ was upon this earth, He was as much Divine as before He left His Father's court in Heaven. He never ceased to be God, nor was the Godhead for a single moment separated from His Humanity. He was, therefore, always glorious. Yet there was a greater Glory about Him than could usually be seen. This may seem to be a paradox, but it is true. For Christ to be glorious was almost a less matter than for Him to restrain or hide His Glory. It is forever His Glory that He concealed His Glory and that, though He was rich, for our sakes He became poor. Though He was God over all, blessed forever, He "made Himself of no reputation, and took upon Him the form of a servant, and was made in the likeness of men."
 
@@ -57,9 +57,7 @@ So is it with Christ. He has in Him all brightness and Glory. If there is any vi
 
 We cannot really see the full glory of the sun, some have been blinded by looking at him too intently. And no mortal eye can gaze upon all the splendors of Christ. You may see much of Him, but there is such a wondrous mystery, such a marvelous excess of Glory about Him that if any man says, "I know Him fully," he proves that he knows Him not! Paul wrote to the Philippians, "that I may know Him." Yet he had known Christ for many years. I suppose that he knew a great deal more about Christ in the first year of his Christian life than most of us know after 20 or 30 years, yet, after that long period of gracious instruction which the Holy Spirit had given him, he still had to write, as the expression of his most ardent desire, "that I may know Him," for he felt that he had not yet comprehended, with all the saints, what are the heights, and depths, and lengths, and breadths of the love of Christ which passes knowledge!
 
-There is an inexpressible Glory about my Master, I can never exaggerate in speaking of it. I can never go to any excess in praising Him! I can never extol Him so much that anyone shall truthfully dare to say to me, "You have said too
-
-much in honor of your Lord." No, if all human tongues were eloquent and all did speak His praise forever, and if all angelic voices never spoke except to laud and magnify Him, so glorious is He that the praises of all combined would not rise above the soles of His feet!
+There is an inexpressible Glory about my Master, I can never exaggerate in speaking of it. I can never go to any excess in praising Him! I can never extol Him so much that anyone shall truthfully dare to say to me, "You have said too much in honor of your Lord." No, if all human tongues were eloquent and all did speak His praise forever, and if all angelic voices never spoke except to laud and magnify Him, so glorious is He that the praises of all combined would not rise above the soles of His feet!
 
 I gather from our text, in the third place, that the Glory of Christ is all meant to cheer and to enlighten.
 
@@ -81,10 +79,10 @@ Lastly, for our time fails us, we learn that this Glory of Christ will soon be m
 
 In Heaven, the glorified face of Jesus is always to be seen, for we are expressly told that, "His servants shall serve Him: and they shall see His face." Their eyes will be specially strengthened so that they can gaze upon it without injury: "O long-expected day, begin," when we, too, shall be caught up to see that wondrous Countenance! Do not your desires often make you feel like a bird that wants to fly, but cannot, because it is held down by a chain? Then you sing:
 
-> My heart is with Him on His Throne,   
-> And ill can brook delay!   
-> Each moment listening for the voice,   
-> 'Rise up, and come away.'   
+> My heart is with Him on His Throne, 
+> And ill can brook delay! 
+> Each moment listening for the voice, 
+> 'Rise up, and come away.' 
 
 They who behold Christ in Heaven, even from the outermost rank of the saints, are to be envied above all earthly kings and princes. One said to an old saint, "You cannot see God's face and live." "Then," he replied, "let me see God's face and die!" And I will be glad enough to die a hundred deaths if I may but see Christ! One hour with Christ in Glory will more than make up for a weary lifetime of service, or suffering, or poverty, or persecution. I have often tried to imagine what the first five minutes with Jesus Christ in Heaven will be, but I have sought in vain to picture the novelty and freshness of that wondrous time when the soul, filled with amazement, will exclaim, "The half has never been told me!" The Queen of Sheba was astonished when she saw all the glory of King Solomon, but he was a mere nobody compared with our Lord Jesus Christ! Oh, what will it be to see Him?
 

@@ -1,7 +1,7 @@
 # Sermon 2716 | Christ's Poverty, Our Riches
 
-> For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through His poverty might be rich.  
-> 2 Corinthians 8:9  
+> For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through His poverty might be rich. 
+> 2 Corinthians 8:9 
 
 It is well to notice that Believers are to be constrained to Christian duty by Gospel motives rather than by legal arguments. It is poor work to try to stir up a Christian to perform an act of Grace by an argument fetched from a heathen moralist. And it is equally poor work to try and lead a child of God to perform a service of love by an argument which is applicable only to a slave. Hence you will find that the Apostle Paul, when he wants to urge the saints in Corinth to liberality, does not tell them what they are bound to do according to the requirements of the Law of God, for they are not under the Law, he uses arguments suitable for men who have come under the blessed Sovereignty of Divine Grace!
 
@@ -43,10 +43,10 @@ Now the wicked men begin to accuse Him. He is brought so low that they even rob 
 
 While they had our gracious Master in their power, Herod, Pilate, the priests and the people mocked Him. Oh, it was shameful mockery! They ridiculed His royalty by putting a reed scepter into His hand, a soldier's old purple coat over His shoulders and a thorny crown upon His blessed brow. They cast scorn upon His prophetic office by blinding His eyes and buffeting Him, and saying, "Prophesy unto us, Christ, Who is he that struck You?" They spat in His face. They struck Him with their hands. They treated Him as the vilest of the vile. Now, Beloved, see how you are enriched by His poverty. Because of all this shame which Christ endured, you shall not be put to shame nor be confounded, world without end! To each Believer, the ancient promise is true, "No weapon that is formed against you shall prosper; and every tongue that shall rise against you in judgment, you shall condemn. This is the heritage of the servants of the Lord, and their righteousness is of Me, says the Lord." Yes, just as low as your Savior stooped in His humiliation, so high do you rise because of your union to Him! Just as much as He was mocked, so much are you honored! He was treated like a slave and felon, so you are made to be a son of the Highest:
 
-> Behold what wondrous Grace  
-> The Father has bestowed  
-> On sinners of a mortal race,  
-> To call them sons of God!  
+> Behold what wondrous Grace 
+> The Father has bestowed 
+> On sinners of a mortal race, 
+> To call them sons of God! 
 
 Not only did those wicked men mock our Lord, but they also scourged Him with those cruel thongs which made deep furrows on His blessed back. Oh, what abject poverty was that when His very body was not reckoned as His own, but was allowed to be brutally beaten at the will of another! Yet see how rich He has made us by His poverty, for it is written, "The chastisement of our peace was upon Him; and with His stripes we are healed." There is no scourging for you, Believer, for the stripes have all fallen upon your Substitute! God's sword of justice has been sheathed in the very heart of Christ, so, if you believe in Him, it can never touch you! Oh, how secure you are! Not a blow can fall upon you now, not the smallest drop of Divine wrath can ever be your bitter portion, for Jesus bore the blows for you and drank the cup of wrath quite dry. Your warfare is accomplished, your iniquity is pardoned, for, in the Person of your great Substitute, you received of the Lord's hand, double for all your sins, and you are forever clear.
 
@@ -80,8 +80,8 @@ And, finally, how vast is the inheritance which Christ has given to His people. 
 
 But suppose you should live to the extreme limit of human life? How soon those years will pass! Or suppose that Christ should come all of a sudden, and He may come at any moment. Or suppose that while you are sitting here, a convoy of angels should come and bear your spirit away? We are much nearer than we think, some of us are very much nearer than we think, to our eternal rest. It is only a week or two, a month or two, a year or two before we shall be there. Then, courage, my Soul!
 
-> The way may be rough, but it cannot be long,  
-> And I'll smooth it with hope, and cheer it with song.  
+> The way may be rough, but it cannot be long, 
+> And I'll smooth it with hope, and cheer it with song. 
 
 I remember preaching, one summer's afternoon, about the New Jerusalem. There was a sister sitting on my right hand downstairs, not in this building, but in a country place, and I noticed her eyes sparkling as I spoke. It seemed to stir my very soul as she looked at me with such an extraordinary gaze of joy, and I was stirred up to say something more, and something better about our happy Home above. When I saw her, apparently still looking at me, a minute or two later, I perceived the same fixed gaze, and I stopped and said, "I think that Sister is dead." And she was. She had gone Home without a sigh, or a groan, or a moan. In the fullness of the prospect, the delight seemed to have swelled like a mighty wave and washed her on to the heavenly shore! Who knows how soon a similar experience may be ours? We may go to sleep tonight and awake in eternal Glory! We are not far from Home, so let us be of good cheer, and rejoice, and praise and bless our Divine Lord that He should ever have stooped so low to raise us so high!
 

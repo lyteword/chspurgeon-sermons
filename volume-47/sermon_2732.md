@@ -1,7 +1,7 @@
 # Sermon 2732 | Believers Tested by Trials
 
-> Behold, I go forward, but He is not there; and backward, but I cannot perceive Him: on the left hand, where He works, but I cannot behold Him: He hides Himself on the right hand, that I cannot see Him: but He knows the way that I take: when He has tried me, I shall come forth as gold.  
-> Job 23:8-10  
+> Behold, I go forward, but He is not there; and backward, but I cannot perceive Him: on the left hand, where He works, but I cannot behold Him: He hides Himself on the right hand, that I cannot see Him: but He knows the way that I take: when He has tried me, I shall come forth as gold. 
+> Job 23:8-10 
 
 Job, as we noticed in our reading, was at that time in very deep distress. I commend this fact to the notice of any here who are very sorely tried. You may be the people of God and yet be in a terrible plight, for Job was a true servant of the Most High, yet he sat down among the ashes and scraped himself with a potsherd because he was covered with sore boils and, at the same time, he was reduced to absolute poverty. The path of sorrow has been trod by thousands of holy feet, you are not the first one who could sit down and say, "I am the man that has seen affliction." You were not the first tried one, you are not the only one and you will not be the last one. "Many are the afflictions of the righteous." So let this be some comfort to you, that you are one of the Lord's suffering children, one of those who have to pass through rough roads and fiery places in the course of their pilgrimage to Heaven.
 
@@ -27,10 +27,10 @@ What is more, in getting near to God, a man is sure to have strength. You notice
 
 Just as the sun makes the landscape bright and fair, so does the light of God's Countenance make all His people glad. It would not matter to a man whether he were in a dungeon or a palace if he had the constant Presence of God! I am not speaking at random when I make that assertion. Read the record of the martyr days of the Church and you will understand that the Presence of God caused His persecuted people to be the happiest in the whole world! No minstrels in royal halls ever sang so sweetly as did the prisoners of the Lord who were confined in deep, dark, underground dungeons where they could scarcely breathe. No, that is not all, for some have been happy even on the rack. Think of brave Lady Anne Askew sitting on the cold stones after the cursed inquisitors had torn her poor feeble frame almost limb from limb, and when they tempted her to turn from the faith, she answered:
 
-> I am not she that lyst  
-> My anker to let fall  
-> For every dryslynge mist;  
-> My shippe's substancyal.  
+> I am not she that lyst 
+> My anker to let fall 
+> For every dryslynge mist; 
+> My shippe's substancyal. 
 
 Some who were tortured, not accepting deliverance, declared, as in the case of Lawrence, that the gridiron was a bed of roses and that they never were so joyous as when their body was being consumed in the fire, every finger being like a lighted candle, for they were able, even then, to cry, "None but Christ! None but Christ!" It is amazing how the Presence of God seems to be a salve that kills all pain, an uplifting, like an angel's wing, that bears upward one who, without it, would be utterly crushed. The martyr is torn in pieces and full of agonies, and yet all his sufferings are transformed till they become sweet harmonies of intense delight because God is with him! Oh give me God, give me God, and I care not what you withhold from me! "Whom have I in Heaven but You? And there is none upon earth that I desire beside You."
 
@@ -70,10 +70,10 @@ And they become honorable, too. "When He has tried me," said Job, "even though m
 
 Once more, you shall come out of the fire uninjured. It looks very hard to believe that a child of God should be tried by the loss of his Father's Presence and yet should come forth uninjured by the trial. Yet no gold is ever injured in the fire. Stoke the furnace as much as you may, let the blast be as strong as you will, thrust the ingot into the very center of the white heat, let it lie in the very heart of the flame, pile on more fuel, let another blast torment the coals till they become most vehement with heat, yet the gold is losing nothing, it may even be gaining. If it had any alloy mingled with it, the alloy is separated from it by the fire, and to gain in purity is the greatest of gains. But the pure gold is not one drachma less! There is not a single particle of it that can be burnt. It is still there, all the better for the fiery trial to which it has been subjected! And you, dear child of God, whatever may befall you, shall come out of the fire quite uninjured. You are under a dark cloud just now, but you shall come out into brightness and you shall have lost nothing that was worth keeping! What is there that you can lose? When death comes, what will you lose?:
 
-> Corruption, earth, and worms  
-> Shall but refine this flesh,  
-> Till my triumphant spirit comes  
-> To put it on afresh!  
+> Corruption, earth, and worms 
+> Shall but refine this flesh, 
+> Till my triumphant spirit comes 
+> To put it on afresh! 
 
 When we put on our new clothes, this body that shall have passed through God's transforming hand, shall we be losers? No, we shall say, "What a difference! Is this my Sabbath garment? The old one was dark and dingy, dusty and defiled. This is whiter than any fuller could make it and brighter than the light!" You will scarcely know yourselves, my Brothers and Sisters! You will know other people, I daresay, but I think you will hardly recognize yourselves when once you have put on your new array. You cannot really lose anything by death! You will not lose the eyes you part with for a while, for, when Christ shall stand at the latter day, upon the earth, your eyes shall behold Him! You shall lose no faculty, no power, but you shall infinitely gain even by death itself, and that is the very worst of your enemies, so that you shall certainly gain by all the rest! Come then, pluck up courage and march boldly on! Fear no ghosts, for they are but specters, there is no reality about them!
 
