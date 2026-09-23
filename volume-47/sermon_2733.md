@@ -53,7 +53,7 @@ An old divine calls Mary Magdalene apostola apostolorum, that is, the Apostle to
 
 Oh, that we may now put our unfeigned and constant trust in Him who died, putting equal trust in Him who rose again, making this our glory, both in His dying and in His rising, that He has ascended up on high and taken His lawful place at the right hand of God, where He also makes intercession for us!
 
-Oh, that those who are dead in sin were quickened by God's Spirit that they might know something of the precious-ness of having a Father in Heaven, the same Father that Jesus Christ had! Sinner, I pray the Lord to teach you to believe in Jesus Christ. And if you have sinned with Mary Magdalene, may He help you to believe, with her, that you may share in her sweet manifestations and have a gracious message like hers to tell some day to the rest of your brethren!
+Oh, that those who are dead in sin were quickened by God's Spirit that they might know something of the preciousness of having a Father in Heaven, the same Father that Jesus Christ had! Sinner, I pray the Lord to teach you to believe in Jesus Christ. And if you have sinned with Mary Magdalene, may He help you to believe, with her, that you may share in her sweet manifestations and have a gracious message like hers to tell some day to the rest of your brethren!
 
 ## Exposition by C. H. Spurgeon: Isaiah 40; Matthew 16:21-23
 
