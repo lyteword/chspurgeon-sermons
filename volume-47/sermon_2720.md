@@ -1,7 +1,7 @@
 # Sermon 2720 | The Savior Resting in His Love
 
-> He will rest in His love. 
-> Zephaniah 3:17 
+> He will rest in His love.  
+> Zephaniah 3:17  
 
 One of our sweetest hymns commences with this verse: "How firm a foundation, you saints of the Lord, Is laid for your faith in His excellent Word! What more can He say than to you He has said, You who unto Jesus for refuge have fled?" Well might the poet have put that question if he had risen up from reading this third chapter of the prophecy of Zephaniah! O people of God, open your ears and your hearts while Jehovah thus speaks to you by the mouth of His ancient Prophet, "Sing, O daughter of Zion; shout, O Israel; be glad and rejoice with all the heart, O daughter of Jerusalem. The Lord has taken away your judgments, He has cast out your enemy: the King of Israel, even the Lord, is in the midst of you: you shall not see evil anymore. In that day it shall be said to Jerusalem, Fear you not: and to Zion, Let not your hands be slack. The Lord your God in the midst of you is mighty; He will save, He will rejoice over you with joy; He will rest in His love, He will joy over you with singing." The words are very simple, but the promises they convey are so weighty that the verses roll along like the triumphant periods of a jubilant poem! The Truth of God, even when told in the simplest words, is very much akin to the loftiest poetry and I might, without the slightest hesitation, declare that there never was any poem composed by human intellect which could match for a moment, in the sweetness of its notes, the succession of precious promises which God here proclaims in the ears of His chosen ones!
 

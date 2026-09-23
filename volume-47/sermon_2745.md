@@ -1,7 +1,7 @@
 # Sermon 2745 | Intercession and Supplication
 
-> Are You not He, O Lord our God? Therefore we will wait for You 
-> Jeremiah 14:22 
+> Are You not He, O Lord our God? Therefore we will wait for You  
+> Jeremiah 14:22  
 
 This is an instance of amazing yet holy boldness. The Prophet had received from the Lord the explicit command, "Pray not for this people: for their good," and yet, after reasoning with God, his heart grew so warm with sacred fervor and his spirit became fired with such a passionate zeal that he could not help pleading for the sinful nation! He poured out his soul in the vehement prayer and said to the Lord, "We will wait upon You." This was, perhaps, disobedience in the outward form, but it was not disobedience as to the inner spirit of the Prophet, for the Lord counts not as disobedience the earnest pleading and yearning of the heart of His people. This is a marvelous instance of how, under the most discouraging circumstances, when there appears no prospect whatever of success, men who are moved of God to pray for their fellows, will cling to His garments and still intercede on behalf of those who are altogether unworthy of their supplications.
 
@@ -61,10 +61,10 @@ Ah, and when God, the Judge of All, lays hold of you in the world to come, thoug
 
 "Now consider this, you that forget God," He says, "lest I tear you in pieces, and there be none to deliver." Those are not my words. I dare not say such terrible things on my own account! They are the warning words of the God of Love! And if Infinite Love speaks like that, you ought to give heed to what is said! There is a weight of emphasis about this message that my voice cannot convey. Let me utter it again, with sorrowful and heartfelt earnestness, imploring you never to run the risk of knowing what these dreadful words means. "Consider this, you that forget God," not merely you that blaspheme, but you that forget Him and do not think of Him. "Consider this, you that forget God, lest I tear you in pieces, and there be none to deliver." God grant that you may not try to fight it out with Him, for you cannot do so, it is impossible!
 
-> "You sinners, seek His Grace, 
-> Whose wrath you cannot bear! 
-> Fly to the shelter of His Cross, 
-> And find salvation there." 
+> "You sinners, seek His Grace,  
+> Whose wrath you cannot bear!  
+> Fly to the shelter of His Cross,  
+> And find salvation there."  
 
 "But," someone says, "I do not believe in any future state." Well, Friend, suppose it should happen to be as you wish, have you any advantage over me even then? Suppose, that, after all, there should be no future state? I am as well off as you are. If there should be no Hell and no Heaven, I am as well off as you are. But if there is a future state. If there is a Hell and there is a Heaven, where will you be then? Remember that to disbelieve is not the same thing as to disprove, and I, for one, feel certain that as surely as you live, there is a future state and there is a God who will judge you! And your unbelief cannot postpone the dread assize.
 

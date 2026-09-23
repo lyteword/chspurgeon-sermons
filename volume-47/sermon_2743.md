@@ -1,7 +1,7 @@
 # Sermon 2743 | Mistaken Notions About Repentance
 
-> Then you will remember your evil ways, and your deeds that were not good, and you will loathe yourselves in your own sight for your iniquities and for your abominations. 
-> Ezekiel 36:31 
+> Then you will remember your evil ways, and your deeds that were not good, and you will loathe yourselves in your own sight for your iniquities and for your abominations.  
+> Ezekiel 36:31  
 
 We noticed, in our reading, in what a kingly style the Lord speaks all through this chapter. He does not say "if or "but," but He says, "you will" and "you shall" and this teaches us that God is Omnipotent even in the regions of free agency. It would be preposterous to say that man is not a free agent! There are some who, in order to glorify the Grace of God, have sought to deny the free agency of man, I do not mean that they have done it in so many words, but, practically, the effect of their language has been to deny it. But man is perfectly free and God violates not the human will, yet I cannot explain to you how it is, He is as much able to rule perfectly free agents as He is to control the atoms of inert matter. It is Omnipotence which compels yonder starry orbs to obey the laws which God has made and to travel in their appointed courses, but, to my mind, it is even more marvelous Omnipotence which leaves men free agents and controls not their will, but yet sweetly triumphs over them and wins for God the accomplishment of His Divine Purposes!
 
@@ -19,10 +19,10 @@ I advise you, dear Friends, to beware of making yourselves out to be worse than 
 
 Again, some think that repentance means the dread of Hell and a sense of wrath. Men ought to dread Hell, it is a thing to be dreaded, indeed, as they know who are enduring its torments. Men ought to fear the wrath of God. It is a very solemn reflection that every unconverted person in the world has the wrath of God abiding upon him and will have it abiding on him until he escapes to the refuge provided in the Atonement of Christ Jesus. But a sense of God's wrath against sin is not repentance! It generally goes with it, it frequently attends it, but repentance is a change of mind with regard to sin, with regard to everything and it is a consciousness that sin is sin, that you have committed it. It is a sorrow to you that you have committed it and a resolve, in God's strength, that you will escape from it, a holy desire and longing to be rid of sin which has done you so much mischief. In the words of the child's hymn,
 
-> "Repentance is to leave 
-> The sins we loved before, 
-> And show that we in earnest grieve 
-> By doing so no more." 
+> "Repentance is to leave  
+> The sins we loved before,  
+> And show that we in earnest grieve  
+> By doing so no more."  
 
 And there is very much of real repentance which is not accompanied by a dread of Hell at all. It is sweetened by a sense of love rather than embittered by a dread of vengeance. Do not, therefore, confuse things that differ.
 
@@ -96,8 +96,8 @@ Then will I sprinkle clean water upon you and you shall be clean from all your f
 
 And I will put My Spirit within you, and cause you to walk in My statutes, and you shall keep My judgments and do them. And you shall dwell in the land that I gave to your fathers; and you shall be My people, and I will be your God. I will also save you from all your uncleanness: and I will call for the corn, and will increase it, and lay no famine upon you. And I will multiply the fruit of the tree, and the increase of the field, that you shall receive no more reproach of famine among the heathen. What splendor of love is this to a people who, mind you, had done nothing whatever to deserve it, who were just as undeserving as in the day when the Lord smote them and scattered them among the heathen! For no reason whatever but His own Free Grace, and for the Glory of His holy name would God do these extraordinary deeds of love. What a wondrous God He is! Rightly do we sing,
 
-> Who is a pardoning Godlike Thee? 
-> Or who has Grace so rich and free? 
+> Who is a pardoning Godlike Thee?  
+> Or who has Grace so rich and free?  
 
 Then you will remember your evil ways, and your deeds that were not good, and you will loathe yourselves in your own sight for your iniquities and for your abominations, Not for your sakes do I this, says the Lord God, be it known unto you: be ashamed and confounded for your own ways, O house of Israel. There was nothing for them to boast of in all the mercies they received. No merit of their own had brought them back the corn and oil, it was all of God's infinite Sovereign Grace because He will have mercy on whom He will have mercy, and He will have compassion on whom He will have compassion. How royally He talks, like such a King as He is, the Sovereign Lord of all!
 

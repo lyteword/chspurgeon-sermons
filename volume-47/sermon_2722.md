@@ -1,7 +1,7 @@
 # Sermon 2722 | The Education of Sons of God
 
-> Though He were a Son, yet learned He obedience by the things which He suffered. 
-> Hebrews 5:8 
+> Though He were a Son, yet learned He obedience by the things which He suffered.  
+> Hebrews 5:8  
 
 Were you ever in a new trouble, one which was so strange that you felt that a similar trial had never happened to you and, moreover, you dreamt that such a temptation had never assailed anybody else? I should not wonder if that was the thought of your troubled heart. And did you ever walk out upon that lonely desert island upon which you were wrecked and say, "I am alone, alone, alone, nobody was ever here before me?" And did you suddenly pull up short as you noticed, in the sand, the footprints of a man? I remember right well passing through that experience, and when I looked, lo, it was not merely the footprints of a man that I saw, but I thought I knew whose feet had left those imprints. They were the marks of One who had been crucified, for there was the print of the nails. So I thought to myself, "If He has been here, it is no longer a desert island. As His blessed feet once trod this wilderness-way, it blossoms now like the rose and it becomes to my troubled spirit as a very garden of the Lord!"
 
@@ -21,10 +21,10 @@ Now, as there could be, even for Christ, no exemption from suffering, I gather t
 
 Pray that you may be perfect in every good work to do the Lord's will, but even if you are, do not conclude that you shall, therefore, have a life of ease. Your Master's footsteps were surer than yours are, yet the stones were sharp to His dear feet. He was purer in heart and conversation than you are, yet many arrows pierced His soul and reproach broke His heart. God may, in His mercy, give you a long exemption from any severe affliction, but that will not be because your character is better than that of others, for it is written, "Every branch that bears fruit, He purges it, that it may bring forth more fruit." If there are some others that He does not prune, He is sure to deal thus with the fruit-bearing branches, so, perhaps, the more pure you are in your life and the more you are doing for the honor of His name, the more you may feel the cutting of that sharp knife which takes away that excess of wood to which we are apt to run:
 
-> Did I meet no trials here, 
-> No chastisement by the way, 
-> Might I not, with reason, fear 
-> I should prove a castaway? 
+> Did I meet no trials here,  
+> No chastisement by the way,  
+> Might I not, with reason, fear  
+> I should prove a castaway?  
 
 Do not imagine that any amount of prayer will have the effect of staving off all trouble, for surely never did anyone pray like our Lord Jesus Christ did! He was a Son who held much communion with His Father: "Cold mountains and the midnight air Witnessed the fervor of His prayer."
 

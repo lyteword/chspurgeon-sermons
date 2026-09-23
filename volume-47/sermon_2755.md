@@ -1,7 +1,7 @@
 # Sermon 2755 | Must He?
 
-> And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must stay at your house. 
-> Luke 19:5 
+> And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must stay at your house.  
+> Luke 19:5  
 
 I think this is the only instance in which our Lord invited Himself to anybody's house. He often went when He was invited, but this time, if I may use the expression, He did the inviting Himself! Usually we must seek the Lord if we want to find Him. To the eye, at any rate, the apparent work of Grace goes on in this way, a man begins to cry for mercy, as the blind man who heard that Jesus of Nazareth was passing by, cried to Him, "You Son of David, have mercy on me." But God is so rich in Grace that He does not restrict Himself to this usual method! Generally, He is found of them that seek Him, but, sometimes, He is found of them that seek Him not. Yes, if I tell the whole Truth of God, if you go down to the bedrock of actual fact, it is always God who seeks sinners. He always calls them a people who are not a people and the first movement between God and the sinner is never on the sinner's part, but on God's part. Still, apparently, men begin to pray to God and begin to seek the Lord, and this is the usual order in which salvation comes to them. The prodigal said, "I will arise and go to my father," and he arose and came to his father." The blind man cried, "Jesus, you Son of David, have mercy on me."
 
@@ -61,19 +61,19 @@ How welcome He ought always to be when He comes, as our blessed Savior, to put a
 
 Now the time has gone, but I must say just these few words more. I remember that when I was crying to God for mercy and I could get no answer to my supplication, so that I feared I must really give up prayer as hopeless, the thought which kept me praying was this, "Well, if I do not get salvation, I shall perish." I seemed to fancy that the Lord had kept me waiting, that was only my foolish way of thinking and it was not true, but I said to myself, "If the Lord keeps me waiting, I also kept Him waiting a long while. Was I not for many years resisting Him and refusing Him? So if He makes me wait for salvation, I must not complain." Then I thought, "Well, now, if I were to keep on praying and I did not find Christ for 20 years, yet, if I found Him at last, the blessing would be well worth having and worth waiting for, so I will never leave off praying for it." And then I thought, "Why should I expect that I must be heard the moment I choose to come to the Mercy Seat, when I would not hear God's call when He so often spoke to me?" So I still persevered in prayer, yet with this thought, what else can I do, like a whip always upon my back. I felt that this must be my resolve,
 
-> I can but perish if I go. 
-> I am resolved to try! 
-> For if I stay away, 
-> I know I must forever die. 
+> I can but perish if I go.  
+> I am resolved to try!  
+> For if I stay away,  
+> I know I must forever die.  
 
 I like that plan which I have known to be followed by some who have gone to their room and shut the door, determined not to go out till they had found the Savior. They have read the Word, especially such passages as these, "Believe on the Lord Jesus Christ and you shall be saved." "He that believes on the Son has everlasting life." And they have gone down on their knees and have said, "Lord, this is Your promise. Help me now to believe in Jesus and give me salvation for His sake, for I will not leave this place without Your blessing!" Such vehemence, such importunity is sure to prevail! How dare anyone of you continue to live unsaved? How dare you, Sir, again close your eyes in sleep while you are unreconciled to God? What if, instead of waking up in that bedroom of yours, you should lift up your eyes and say, "Where am I? What is this dreadful place? Where are the things I once loved? Where are the things I lived for? Where am I? Where is Christ! Where is the Gospel? Where are Sabbath days? Where are the warning words I used to despise? Where is the power to pray? Is all this gone forever? And where am I? In dark, dark, dire despair, an enemy to You, O God, and an enemy to You forever! Horror and dismay have taken hold upon me."
 
 The very attempt to depict that awful scene makes me feel as though dread would stop my tongue. Oh, I pray you, go not there! There are some who deny the eternity of future punishment, but, for my part, I would not risk such suffering for an hour even if it should end then. What woe it would be to be only an hour in Hell! Oh, how you would then wish that you had sought the Savior and had found Him! But, alas, there is no such thing as an hour in Hell! Once lost, you are lost forever! Therefore seek the Lord now! Cry with Jeremiah, "O Lord our God, we will wait upon You!" You cannot fight it out! You cannot escape from everlasting wrath unless you trust in Jesus, so let this be your cry,
 
-> "You, O Christ, are all I need 
-> More than all in You I find! 
-> Other refuge have I none, 
-> Hangs my helpless soul on You!" 
+> "You, O Christ, are all I need  
+> More than all in You I find!  
+> Other refuge have I none,  
+> Hangs my helpless soul on You!"  
 
 So, Christ of God, we cast ourselves into Your arms! Save us, save us, save us for Your sweet mercy's sake! Amen.
 

@@ -1,7 +1,7 @@
 # Sermon 2749 | Rehoboam the Unready
 
-> And he did evil, because he did not prepare his heart to seek the Lord. 
-> 2 Chronicles 12:14 
+> And he did evil, because he did not prepare his heart to seek the Lord.  
+> 2 Chronicles 12:14  
 
 You have probably noticed that, as a general rule, the sacred historians, at the end of each king's reign, sum up the character of the monarch and describe him as either doing evil in the sight of the Lord or doing that which was right in the sight of the Lord. They give a summary of his whole life in one or other of these sentences, and there will come a day when there will be a summary of your life, and mine, and when it is given, it will run on this wise, "He did evil in the sight of the Lord," or else on this blessed fashion, "He did that which was right in the sight of the Lord." There is no other course beside these two! These characteristics comprehend all of us and the summary given in our case, as it was in the case of Rehoboam, will be given with great accuracy. It will be Infallible and it will be irreversible. This man Reho-boam was not half as bad as some other kings, still, the Inspired historian was compelled to say, "He did evil." He was not such an obstinate and outrageous sinner as some were. He was not an Ahab. He was not even a Manasseh, he did not live as that king did in his evil time, yet, "he did evil." That is the summary of his whole career.
 
@@ -39,14 +39,14 @@ If it had been a prophet of Baal who had come to him, I am afraid that Rehoboam 
 
 I like to see people go tripping to God's House with sacred joy, as if it were the merriest place in all the world. When I come into the Tabernacle, I often repeat those lines by Dr. Watts,
 
-> Peace be within this sacred place, 
-> And joy a constant guest! 
-> With holy gifts and heavenly Grace, 
-> Be her attendants blest! 
-> My soul shall pray for Zion still, 
-> While life or breath remains! 
-> There my best friends, my kindred, dwell, 
-> There God my Savior reigns. 
+> Peace be within this sacred place,  
+> And joy a constant guest!  
+> With holy gifts and heavenly Grace,  
+> Be her attendants blest!  
+> My soul shall pray for Zion still,  
+> While life or breath remains!  
+> There my best friends, my kindred, dwell,  
+> There God my Savior reigns.  
 
 It is well to worship the Lord heartily, with a zest, with holy fervor, to do it because you like to do it and take a delight in it. It is one thing to be right in appearance and another thing to be right in your soul. "But," says one, "I thought it was best to do right when you do not like to do it. I thought there was something very meritorious if a person was religious though he could not endure it." No. That is hypocrisyand nothing else!
 

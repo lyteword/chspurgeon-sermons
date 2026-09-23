@@ -1,7 +1,7 @@
 # Sermon 2742 | Question and Exclamation
 
-> But I said, How can I put you among the children, and give you a pleasant land, a godly heritage of the hosts of nations? And I said, You shall call Me, My Father; and shall not turn away from Me. 
-> Jeremiah 3:19 
+> But I said, How can I put you among the children, and give you a pleasant land, a godly heritage of the hosts of nations? And I said, You shall call Me, My Father; and shall not turn away from Me.  
+> Jeremiah 3:19  
 
 Men think very lightly of sin unless it brings them under the eyes of the law of the land. They smile at it, as though it were a trifle, but God thinks not as they do. He calls sin by very black names. In this chapter, from which our text is taken, the Lord uses very strong terms in describing sin and He knows what sin is. He is a better judge of it than we are, so He does not regard it as a trifle, but He calls it "adultery," which among men is regarded as one of the grossest of wrongs and the foulest of crimes. Oh, if some here who think themselves righteous, could only see themselves, not as their fellow creatures see them, but as God sees them, the sight would appall them!
 
@@ -65,12 +65,12 @@ Of whom does my Master speak this? Soul, do you feel guilty? Does your heart rep
 
 Does it seem too good to be true? Listen to my own testimony. Had anybody told me, when I was seeking the Lord's face nearly 30 years ago, that I should be here tonight to tell these thousands of people all that His love has done, in putting me among the children, I should not have thought it possible! Then, arise, young man, for the Lord can do the same for you! Look to Jesus, for the opened fountain has not yet been closed, nor shall it be till the last of His elect i s washed whiter than snow, and that time has not yet arrived. Believe and live! All difficulties are removed by the atoning Sacrifice of Christ. And among the children of God you shall stand and He shall delight in all that His mighty love, His superlative Grace has done for you,
 
-> "Cast your guilty soul on Him, 
-> Find Him mighty to redeem! 
-> At His feet your burden lay, 
-> Look your doubts and cares away! 
-> Now by faith the Son embrace, 
-> Plead His promise, trust His Grace!" If I had to tell you of a hard master, if I had to stand here, like Moses, to tell of the thunders of the Law of God, I would do it, though it would go hard with me to deliver such a message. But when I have only to tell you that all manner of sin and of blasphemy shall be forgiven unto men, that the blood of Jesus Christ, God's Son, cleanses us from all sin. When I have to quote His words, "Look unto Me, and be you saved, all the ends of the earth," and tell you that, as high as the heavens are above the earth, so high are His ways above your ways, and His thoughts above your thoughts, "let the wicked forsake his ways and the unrighteous man his thoughts: and let him return unto the Lord and He will have mercy upon him; and to our God, for He will abundantly pardon!" When I have such a Gospel as this to proclaim to you, oh, I think you should accept it! No, I am sure you should accept it! 
+> "Cast your guilty soul on Him,  
+> Find Him mighty to redeem!  
+> At His feet your burden lay,  
+> Look your doubts and cares away!  
+> Now by faith the Son embrace,  
+> Plead His promise, trust His Grace!" If I had to tell you of a hard master, if I had to stand here, like Moses, to tell of the thunders of the Law of God, I would do it, though it would go hard with me to deliver such a message. But when I have only to tell you that all manner of sin and of blasphemy shall be forgiven unto men, that the blood of Jesus Christ, God's Son, cleanses us from all sin. When I have to quote His words, "Look unto Me, and be you saved, all the ends of the earth," and tell you that, as high as the heavens are above the earth, so high are His ways above your ways, and His thoughts above your thoughts, "let the wicked forsake his ways and the unrighteous man his thoughts: and let him return unto the Lord and He will have mercy upon him; and to our God, for He will abundantly pardon!" When I have such a Gospel as this to proclaim to you, oh, I think you should accept it! No, I am sure you should accept it!  
 
 I have not to impose hard terms upon you. I do not come with threats of war and destruction. Mercy fills the Throne of God and wrath stands silently by. Oh, come and accept the mercy of your God! Some of you will do so, I know. The Lord shall lead you to do it by His gracious Spirit, and to His name shall be the praise forever. Amen and Amen!
 

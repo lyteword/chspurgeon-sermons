@@ -1,7 +1,7 @@
 # Sermon 2730 | The Secret of Love to God
 
-> We love Him, because He first loved us. 
-> 1 John 4:19 
+> We love Him, because He first loved us.  
+> 1 John 4:19  
 
 This morning, those of us who were here meditated upon the connection between faith and love, so I thought we had better pursue the same subject somewhat further, hoping that we might still receive Divine instruction upon that important theme.
 

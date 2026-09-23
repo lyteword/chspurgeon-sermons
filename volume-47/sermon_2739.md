@@ -1,7 +1,7 @@
 # Sermon 2739 | "I Have Enough"
 
-> Esau said, I have enough. Jacob said, I have enough. 
-> Genesis 33:9,11 
+> Esau said, I have enough. Jacob said, I have enough.  
+> Genesis 33:9,11  
 
 It is a very rare thing to meet with people who say that they have enough, for those who have most generally desire more, and those who have little feel that contentment is a thing which cannot reasonably be expected from them. For any person honestly and truthfully to say, "I have enough," is so unusual a circumstance that I do not remember having heard it often. I have done so a few times, at long intervals. This being the case as a rule, it is very remarkable that there should be, in this chapter, a record of two persons who each said, "I have enough." It is specially noteworthy that this was said by two brothers, for, generally, if one of two brothers is contented, the other is of quite a different disposition. One may be of a very happy and easy-going spirit, but the other possesses enough worry and care to have stocked the two. But here are two brothers, twins, yet each one says, "I have enough."
 
@@ -71,11 +71,11 @@ My least and greatest need! And so
 
 Your Grace is enough for me." You remember how Paul says the Lord spoke to him, "My Grace is sufficient for you: for My strength is made perfect in weakness?" Think what Grace there is in Christ Jesus our Lord, electing Grace, calling Grace, forgiving Grace, renewing Grace, preserving Grace, sanctifying Grace, perfecting Grace, Grace upon Grace, Grace that leads to Heaven! O Beloved, all this Grace is yours and surely there is Grace enough for you! Why do you fear that you will fail? Will God's Grace fail you? Will God's Grace forsake you and permit you to perish by the hand of the enemy? No, verily, then let each Believer say to Him, "Your Grace is enough for me." Miss Havergal next writes:
 
-> It is so sweet to trust Your Word alone, 
-> I do not ask to see 
-> The unveiling of Your purpose, or the shining 
-> Of future light on mysteries untwining, 
-> Your promise-roll is all my own! Your Word is enough for me! 
+> It is so sweet to trust Your Word alone,  
+> I do not ask to see  
+> The unveiling of Your purpose, or the shining  
+> Of future light on mysteries untwining,  
+> Your promise-roll is all my own! Your Word is enough for me!  
 
 It is very sweet to be able to say of the Lord's promise, "That is enough for me, even if I do not see the fulfillment of it for many a day, the promise itself is enough for me. If the Lord seems to do nothing at all for my help, yet, since He has said, 'I will never leave you, nor forsake you,' His Word is enough for me." Why, Beloved, you sometimes make a man's word enough for you, the word of a man whom you can trust. And you say, "His word is his bond." But God's Word is backed by His oath, is not that Word enough for you? If so, why do you fret and worry? Rather, you should say to the Lord, "Your Word is enough for me." Then the gracious poetess continues: "The human heart asks love, but now I know
 
@@ -93,10 +93,10 @@ Can you say that, you who have lost some dear one, you who are widowed, you who 
 
 The sweet poem closes thus:
 
-> There were strange soul-depths, restless, vast and broad, 
-> Unfathomed as the sea! 
-> An infinite craving for some infinite stilling, 
-> But now Your perfect love is perfect filling! Lord Jesus Christ, my Lord, my God, You, You are enough for me! 
+> There were strange soul-depths, restless, vast and broad,  
+> Unfathomed as the sea!  
+> An infinite craving for some infinite stilling,  
+> But now Your perfect love is perfect filling! Lord Jesus Christ, my Lord, my God, You, You are enough for me!  
 
 So may it be with each of us, for Christ's sake! Amen.
 

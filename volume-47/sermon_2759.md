@@ -1,7 +1,7 @@
 # Sermon 2759 | The Pleasures of Piety
 
-> My meditation of Him shall be sweet. 
-> Psalm 104:34 
+> My meditation of Him shall be sweet.  
+> Psalm 104:34  
 
 It has often been insinuated, if it has not been openly affirmed, that the contemplation of Divine things has a tendency to depress the spirits. Religion, many thoughtless persons have supposed, is not becoming to the young, it checks the ardor of their youthful blood. It may be very well for men with gray heads who need something to comfort and solace them as they descend the hill of life into the grave. It may be suitable for those who are in poverty and deep trial, but that it is at all congruous with the condition of a healthy, able-bodied, successful and happy young man, this is generally said to be out of the question!
 
@@ -37,22 +37,22 @@ Ah, Christian, you are not afraid to be alone a little while, now, for lack of s
 
 We shall behold all the wonders of creation! We shall explore the depths of science, so they tell us, and they say that there are no limits to the mysteries we shall understand. My reply to people who imagine all this concerning Heaven is that I have no objection that it should be so, if it will afford them any pleasure. I hope you Christians all will have and I know my Heavenly Father will let you have whatever will make you happy. But while you are viewing stars, I will sit down and look at Jesus. And if you told me you had seen the inhabitants of Saturn and Venus, and the man in the moon, I would say, Ah, yes,
 
-> But in His looks a glory stands, The noblest labor of God's hands! 
-> God in the Person of His Son, Has all His mightiest works outdone. 
+> But in His looks a glory stands, The noblest labor of God's hands!  
+> God in the Person of His Son, Has all His mightiest works outdone.  
 
 But you will say, "You will become tired, surely, of looking at Him." No, I would reply, I have been looking at but one of His hands and I have not yet thoroughly examined the hole where one of the nails went in. And when I have lived ten thousand years more, I will take His other hand and sit down and look at each gaping wound. And then I may descend to His side, and His feet, and still I shall be able to say to Him,
 
-> "Millions of years my wondering eyes 
-> Shall over Your beauties rove 
-> And endless ages I'll adore 
-> The glories of Your love."
+> "Millions of years my wondering eyes  
+> Shall over Your beauties rove  
+> And endless ages I'll adore  
+> The glories of Your love."  
 
 You may go flitting about as far as you like. I will sit there and look at the God in Human flesh, for I believe that I shall learn more of God and more of His works in the Person of Jesus than you could with all the advantage of travelling on wings of light, though you would have the most elevated imaginations and the most gigantic intellects to help you in your search! Brothers and Sisters, our meditation of Christ will be sweet! There will be little else we shall need of Heaven beside Jesus Christ! He will be our bread, our food, our beauty and our glorious dress. The atmosphere of Heaven will be Christ, everything in Heaven will be Christ-like, yes, Christ is the Heaven of His people! To be in Christ and to be with Christ is the essence of Heaven,
 
-> "Not all the harps above 
-> Can make a heavenly place, 
-> Should Christ His residence remove, 
-> Or but conceal His face."
+> "Not all the harps above  
+> Can make a heavenly place,  
+> Should Christ His residence remove,  
+> Or but conceal His face."  
 
 So you see that Christ is the very precious subject of our meditation! Our meditation of Him shall be sweet. Now, in the second place, let me proceed to point out a blessed result of this meditation. "My meditation of Him shall be sweet"
 

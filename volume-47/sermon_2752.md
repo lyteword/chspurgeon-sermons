@@ -1,7 +1,7 @@
 # Sermon 2752 | The Door
 
-> I am the door. If anyone enters by Me, he will be saved, and will go in and out, and find pasture. 
-> John 10:9 
+> I am the door. If anyone enters by Me, he will be saved, and will go in and out, and find pasture.  
+> John 10:9  
 
 How very condescendingly the Lord Jesus Christ sets Himself forth! The noblest figures of speech are not too lofty to describe His merits. If we could speak with the tongues of poets and of angels, we could not adequately represent His loveliness and though the writers of the Scriptures, Inspired by the Holy Spirit, have used language which exceeds all other in majesty and beauty, even they are not able to tell all the excellence of the Glory of Christ Jesus our Lord.
 
@@ -69,8 +69,8 @@ Then notice the further privilege that is included in this liberty, that is, lib
 
 And he shall have liberty of egress, as well as liberty of access, for, after he has been with God in private, he shall go out and,
 
-> Tell to sinners round 
-> What a dear Savior he has found. 
+> Tell to sinners round  
+> What a dear Savior he has found.  
 
 He shall go out to bear his cross with joy and to lift up his Captain's banner with confidence. He shall go out farther and farther afield, learning more of the things of Christ, discovering more and more how great are the estates of God which cannot be enclosed within a fence, but which exceed all space and can only be compared with eternity and infinity!
 
