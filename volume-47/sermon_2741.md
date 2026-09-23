@@ -1,11 +1,11 @@
 # Sermon 2741 | Salvation by Grace
 
-> By Grace you are saved. 
-> Ephesians 2:5 
+> By Grace you are saved.  
+> Ephesians 2:5  
 
 The cardinal error against which the Gospel of Christ has to contend is the effect of the tendency of the human heart to rely upon salvation by works. The great antagonist to the Truth of God, as it is in Jesus, is that pride of man which leads him to believe that he can be, at least in part, his own savior. This error is the prolific mother of multitudes of heresies! It is through this falsehood that the pure stream of the Truth of God has been tainted so that, instead of flowing on in one clear pure river, it has been sadly polluted. There have been many who have sought to hinder the flowing of the Water of Life, or to divert the stream from its proper current. Many have tried to mingle the fancies and fallacies of men with the Truth as it is in Jesus, in order, thereby, to make it more palatable to poor, fallen, human nature.
 
-It is my belief that all great reforms in the Church of Christ must have for their basis the declaration of the Doctrine revealed in my text,"By Grace you are saved." The tendency of the Church, like that of the world, is to fly away from this Truth which is really the sum and substance of the Gospel. A departure from this Doctrine is, in my opinion, the essence of those many errors which, springing up from time to time, have troubled and divided the Church and marred the beauty of the spouse of Christ.
+It is my belief that all great reforms in the Church of Christ must have for their basis the declaration of the Doctrine revealed in my text, "By Grace you are saved." The tendency of the Church, like that of the world, is to fly away from this Truth which is really the sum and substance of the Gospel. A departure from this Doctrine is, in my opinion, the essence of those many errors which, springing up from time to time, have troubled and divided the Church and marred the beauty of the spouse of Christ.
 
 In all times, whenever this Doctrine has been obscured, the Church has become either heretical or Laodicean. She has either held some dangerous and damnable heresy, or she has held only a portion of the Truth and held it with so feeble a grasp that it has lost its ancient power in her hands, so that her enemies have prevailed against her. The mightiest men in all ages of the Church's history, those who have been the means of bringing the greatest good into her midst, and the most usefulness into the world, have been those who, rising up like Samson when called to do valiant deeds on behalf of Israel, have made this the distinguishing characteristic of their ministry, the Doctrine of Salvation by Grace in contradistinction of salvation by works.
 
@@ -29,18 +29,18 @@ No, my dear Friends, under the theory of salvation by works, whatever form it ma
 
 "But," asks someone, "do not Arminians rejoice to say that they are already saved?" Yes, but their assertion is contradicted by the assurance which they will give you directly afterwards, that they may finally perish. Although they are now saved, their safety is something like that of a wrecked mariner who, after being tossed to and fro in a stormy sea, is washed up on a rock, from which he may presently be hurled back into the raging billows! Their safety is not like that of the man who has been carried into the lighthouse, or brought to land in the lifeboat, for they believe that, after all they have experienced, they may be lost. It is not salvation that the Arminian possesses. He is only in a salvable state. His condition is that of a man who, if he continues to repent and believe, shall be saved, but he is not truly saved now, he has not been built upon that sure, certain, solid foundation upon which the true Believer is resting. He cannot sing, with Toplady:
 
-> The terrors of Law, and of God 
-> With me can have nothing to do! 
-> My Savior's obedience and blood 
-> Hide all my transgressions from view! 
-> My name from the palms of His hands 
-> Eternity will not erase, 
-> Impressed on His heart it remains 
-> In marks of indelible Grace. 
-> Yes, I to the end shall endure, 
-> As sure as the earnest is given, 
-> More happy, but not more secure, 
-> The glorified spirits in Heaven! 
+> The terrors of Law, and of God  
+> With me can have nothing to do!  
+> My Savior's obedience and blood  
+> Hide all my transgressions from view!  
+> My name from the palms of His hands  
+> Eternity will not erase,  
+> Impressed on His heart it remains  
+> In marks of indelible Grace.  
+> Yes, I to the end shall endure,  
+> As sure as the earnest is given,  
+> More happy, but not more secure,  
+> The glorified spirits in Heaven!  
 
 Such a salvation as that, a present one, enjoyed now in all its fullness, in all its riches, in all its boundless lengths, and breadths, and depths and heights, is not possible under any other system but that of salvation by Grace, and by Grace alone! We, of all men living, who preach the Doctrine of Salvation by Grace, can proclaim a present salvation in all its fullness.
 
@@ -50,8 +50,8 @@ For what is it to be saved? It is to have sin forgiven and to be "accepted in th
 
 To be saved, however, includes more than forgiveness of sins, it includes the imputation of the righteousness of Christ and, in this sense, also, the meanest Believer in Him is as much saved as the celestial spirits in the Paradise above. Is the robe of Christ's righteousness spread over the Apostles? So is it, at this hour, around the poorest person on earth who is trusting in Jesus! Are those who sing God's praises before His Throne in Glory clothed in the fair white linen which is the righteousness of the saints? Even so are all Believers here below! Each saint is, as John Kent says:
 
-> "With his spotless vesture on, 
-> Holy as the Holy One." 
+> "With his spotless vesture on,  
+> Holy as the Holy One."  
 
 Covered with Christ's righteousness, God sees no spot in His people!
 
@@ -83,23 +83,23 @@ Then, once again, here is a word of comfort If we are saved, are saved, mark you
 
 Now you do know it, for you are on the Rock and you are saved, so why are you sad? You may now be despised, but, remember, the time is coming when you shall be glorified with Christ! You may be now forgotten by your friends, but your Savior's eyes are on you and your name is on His heart! You are sad, yes, but you are secure! If you believe in Jesus, you may be cast down but you cannot be destroyed! You may be forsaken for a while, but you can never be cast away! Come then:
 
-> "Children of the heavenly King, 
-> As you journey, sweetly sing, 
-> Sing your Savior's worthy praise, 
-> Glorious in His works and ways." 
+> "Children of the heavenly King,  
+> As you journey, sweetly sing,  
+> Sing your Savior's worthy praise,  
+> Glorious in His works and ways."  
 
 Lastly, one word to those who cannot say that they are saved. My dear Friends, there is very much in this text that should cheer and comfort you. The men who are saved are saved by Grace, by God's free favor. There was nothing in them to recommend them to God. You have been confessing, "O Lord, I do not feel as I ought to feel" He does not want your feelings as a recommendation. If saved, you are to be saved as a matter of free favor and not as a matter of merit in any sense whatever. "But," says one, "I cannot repent, I cannot believe." My dear Friend, you are not going to be saved by anything that you can do in your own strength. You need repentance. Do not try to work it for yourself, the Lord will work repentance in you. You need faith. Do not go about to seek faith in yourself, you will never find it there, seek it from Christ. He is the Author as well as the Finisher of faith!
 
 "By Grace you are saved." Go and carry this text into every den and sty of pollution in London! Tell it to the murderer, the thief, the blasphemer, the harlot! Tell it to the man who cannot repent, and cannot pray, and cannot believe! Tell him that salvation is by Grace, and is worked in us by God the Holy Spirit and, as the hymn says:
 
-> "Heaven with the echo shall resound, 
-> And all the earth shall hear." 
+> "Heaven with the echo shall resound,  
+> And all the earth shall hear."  
 
 Go, then, my Brothers and Sisters, and spread the Doctrine of Salvation by Grace, for this old watchword of the Church is the source of her victory! And when once this shall be her battle-cry, her triumph is sure! The headstone of God's spiritual temple shall be brought forth with shouts, crying, "Grace, Grace unto it."
 
 ## Exposition by C. H. Spurgeon: 1 Corinthians 12; 13:1-3
 
-1 Corinthians 12:1, 2. Now concerning spiritual gifts, brethren, I would not have you ignorant You know that you were Gentiles, carried away unto these dumb idols, even as you were led. Although the members of the church at Corinth were highly favored with spiritual gifts, they do not seem to have known how to use them. Paul points out to them, in this chapter, how ignorant they were concerning the very gifts which they possessed. They did not know how to put them to proper use in the service of God. The Apostle, therefore, reminds these gift-exalted Corinthians that, only a little while before, they were heathens, carried away by lies and superstition, and worshipping dumb idols. They had nothing, therefore, to boast of and it is probable that if we look back to the hole of the pit from where we were dug, we shall find no more occasion for boasting than they had.
+Now concerning spiritual gifts, brethren, I would not have you ignorant You know that you were Gentiles, carried away unto these dumb idols, even as you were led. Although the members of the church at Corinth were highly favored with spiritual gifts, they do not seem to have known how to use them. Paul points out to them, in this chapter, how ignorant they were concerning the very gifts which they possessed. They did not know how to put them to proper use in the service of God. The Apostle, therefore, reminds these gift-exalted Corinthians that, only a little while before, they were heathens, carried away by lies and superstition, and worshipping dumb idols. They had nothing, therefore, to boast of and it is probable that if we look back to the hole of the pit from where we were dug, we shall find no more occasion for boasting than they had.
 
 Therefore I give you to understand, that no man speaking by the Spirit of God call Jesus accursed. I suppose that in their assemblies, where everybody talked who liked, there were some people who even spoke blasphemy. They professed to be under the guidance of the Spirit of God and yet they stood up and called Jesus accursed. Where there is no rule nor order, there is pretty sure to be something very mischievous before long. Paul gives them to understand that this kind of talk could not go unrebuked.
 
@@ -125,11 +125,11 @@ If the foot shall say, Because I am not the hand, I am not of the body; is it th
 
 And if the ear shall say, Because I am not the eye, I am not of the body; is it therefore not of the body? Oh, by no means! The ear has its proper purpose to fulfill. It is designed for a special service in the body which no other member can render. We must never compare ourselves among ourselves and wish to be somebody else. You are bad enough as you are, dear Friend, but you would probably be much worse if you were somebody else. You may think that you are a very poor ear, but you would decidedly make a much worse eye. Even if your ear is dull of hearing, it can, at any rate, hear better than it can see! It can do its own work better than it could do the work of any other member of the body, and so can you as a member of Christ's mystical body.
 
-If the whole body were an eye, where were the hearing? If the whole were hearing, where were the smelling? But now has God set the members, everyone of them in the body as it has pleased Him. That is the best rule for each part of our body,"as it has pleased Him." Could any of you suggest a better place for your eyes than where they are? We have read the old heathen fable of a giant who had one eye in the middle of his forehead, and whenever I have seen his portrait sketched by fancy, I have felt, at once, that it was no improvement upon the human face! No, the eyes are best where they are, and so the ears, and so is the mouth. They are all best just where they are. So are you, my Brother or my Sister, best where you are, if you are in the place where God evidently meant you to be.
+If the whole body were an eye, where were the hearing? If the whole were hearing, where were the smelling? But now has God set the members, everyone of them in the body as it has pleased Him. That is the best rule for each part of our body, "as it has pleased Him." Could any of you suggest a better place for your eyes than where they are? We have read the old heathen fable of a giant who had one eye in the middle of his forehead, and whenever I have seen his portrait sketched by fancy, I have felt, at once, that it was no improvement upon the human face! No, the eyes are best where they are, and so the ears, and so is the mouth. They are all best just where they are. So are you, my Brother or my Sister, best where you are, if you are in the place where God evidently meant you to be.
 
 Andifthey were all one member, where were the body? There would be no body at all!
 
-But now are they many members, yet but one body. And the eye cannot say unto the hand, I have no need of you. You know how very quick the hand always is to go up to the eye when it is in danger. You do not have to wait to tell it what to do, but in an instant, the hand is up, for there is a feeling between the members of the same body. "The eye cannot say unto the hand, I have no need of you." And the hand never feels that it may leave the eye to take care of it-self, it is ready to protect it at once.
+But now are they many members, yet but one body. And the eye cannot say unto the hand, I have no need of you. You know how very quick the hand always is to go up to the eye when it is in danger. You do not have to wait to tell it what to do, but in an instant, the hand is up, for there is a feeling between the members of the same body. "The eye cannot say unto the hand, I have no need of you." And the hand never feels that it may leave the eye to take care of itself, it is ready to protect it at once.
 
 Nor again the head to the feet, I have no need of you. No, much more those members of the body which seem to be more feeble are necessary: and those members of the body which we think to be less honorable, upon these we bestow more abundant honor; and our uncomely parts have more abundant comeliness. They are covered and concealed and so we take more trouble with them than we do with other parts of our body.
 
@@ -139,4 +139,4 @@ That there should be no schism in the body. That is, no division, no tear in the
 
 Now you are the body of Christ, and members in particular. And God has set some in the church, first Apostles, secondarily Prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues. Are all Apostles? Are all Prophets? Are all teachers? Are all workers of miracles? Have all the gifts of healing? Do all speak with tongues? Do all interpret? But covet earnestly the best gifts and yet show I unto you a more excellent way.
 
-1 Corinthians 13:1-3. Though I speak with the tongues of men and of angels and have not charity, I am become as sounding brass, or a tinkling cymbal And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, and have not charity, I am nothing. And though I bestow all my goods to feed the poor, and though I give my body to be burned, and have not charity, it profits me nothing. God grant us Grace, then, that we may abound in this most excellent Grace of a true Christian life which is infinitely more essential than the highest gifts or the most remarkable talents that God Himself can bestow upon us!
+Though I speak with the tongues of men and of angels and have not charity, I am become as sounding brass, or a tinkling cymbal And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, and have not charity, I am nothing. And though I bestow all my goods to feed the poor, and though I give my body to be burned, and have not charity, it profits me nothing. God grant us Grace, then, that we may abound in this most excellent Grace of a true Christian life which is infinitely more essential than the highest gifts or the most remarkable talents that God Himself can bestow upon us!

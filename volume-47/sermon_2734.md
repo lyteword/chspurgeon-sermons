@@ -1,7 +1,7 @@
 # Sermon 2734 | Out of Nothing Comes Nothing
 
-> Who can bring a clean thing out of an unclean? Not one. 
-> Job 14:4 
+> Who can bring a clean thing out of an unclean? Not one.  
+> Job 14:4  
 
 Job considered himself to be unclean in the sight of God. Yet, if we speak the plain truth about him, we must say that he was as clean as any man who lived in that age, or, indeed, in any other! We have the witness of the Holy Spirit, in this very Book, that Job, "was perfect and upright, and one that feared God, and eschewed evil." We have also the practical confirmation by the devil of the same fact, for, when the Lord said to him, "Have you considered My servant Job, that there is none like him in the earth, a perfect and an upright man, one that fears God, and eschews evil?" he could not deny it, but could only insinuate that there was an evil motive at the back of the Patriarch's uprightness, "Does Job fear God for nothing?" Sometimes the unwilling acknowledgment of an enemy is a stronger proof than the hearty declaration of a friend, and it was so in Job's case.
 
@@ -63,14 +63,14 @@ Notice, next, that there is a second provision to meet this human impossibility,
 
 What a blessing it is that, to meet our inability to put away our sin, there is provided a Redemption, an Atonement amply sufficient to remove it all forever! Think, then, not only of your sin, but of your Savior! Think not so much of your guilt as of His sufferings by which that guilt is put away! Oh, how earnestly would I press this advice upon any who are now troubled about their sin! I would almost say, do not look at your sin except you can see the Savior, too. Remember that the sin itself shall never condemn you if you trust in Jesus Christ, for He has taken it off all who believe in Him, and has cast it into the depths of the sea, to be remembered against them no more forever. You are saved, however guilty you may have been, as soon as you rely upon the infinite merit of Christ's atoning Sacrifice: "Not all the blood of beasts On Jewish altars slain, Could give the guilty conscience peace, Or wash away the stain! But Christ, the heavenly Lamb, Takes all our sins away, a sacrifice of nobler name, And richer blood than they." Then you shall be able to sing with Dr. Watts:
 
-> 'Twas He adorned my naked soul, 
-> And made salvation mine! 
-> Upon a poor polluted worm 
-> He makes His Graces shine. 
-> And lest the shadow of a spot 
-> Should on my soul be found, 
-> He took the robe the Savior worked, 
-> And cast it all around. 
+> 'Twas He adorned my naked soul,  
+> And made salvation mine!  
+> Upon a poor polluted worm  
+> He makes His Graces shine.  
+> And lest the shadow of a spot  
+> Should on my soul be found,  
+> He took the robe the Savior worked,  
+> And cast it all around.  
 
 There is a third provision made to meet this great emergency. We have spoken of the Father and the Son, but we must not omit to mention the renewing work of the Holy Spirit The Holy Spirit, so often forgotten and slighted, is the great Worker in the cleansing and renewing of man's nature. That blessed Spirit has the whole power of the Godhead and wherever He works effectually, He convinces of sin, making men see the guilt and evil of it. But He also convinces them of righteousness, so that they see that there is a righteousness to be had and they learn how they may righteously obtain it. The Holy Spirit spreads Christ near, reveals Him to the heart and then He enables the sinner to see the suitability of Christ to him. The Spirit also enables the man to see that he may trust Christ. No, He goes further and enables the poor guilty soul to actually trust Him who came to save Him! One of the first proofs of His working in the heart is the production of faith there, then, when He has worked that Grace in the soul, He helps the man to pray, to overcome temptation and to engage in holy service. The Spirit helps us all the way through. He creates all that is good within us. He works in us "both to will and to do of His good pleasure." And wherever the Holy Spirit comes, He acts like the fire that consumes the dross and purifies the metal.
 

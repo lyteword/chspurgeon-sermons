@@ -1,7 +1,7 @@
 # Sermon 2718 | The Tenses
 
-> Who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver us. 
-> 2 Corinthians 1:10 
+> Who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver us.  
+> 2 Corinthians 1:10  
 
 When children are learning their grammar, they have to pay particular attention to the tenses of the verbs. And it is also important for Christians to remember their tenses, to remember the past, the present and the future. Our text brings all three very vividly before us and reminds us that God has delivered, does deliver and will yet deliver.
 
@@ -105,9 +105,7 @@ My soul thirsts for You, my flesh longs for You in a dry and thirsty land, where
 
 To see Your power and Your Glory, so as I have seen You in the sanctuary. Past enjoyment of our Lord's Presence inspires us with earnest desire for fresh manifestations of His face. If we have ever seen God's power and Glory when we have come into the courts of His house, we long to see them again, whether we are in the wilderness or in the sanctuary.
 
-Because Your loving kindness is better than life, my lips shall praise You. Is not that word "loving kindness" one of the noblest terms in our own or in any other language? The word, kin, is at the root of kind and kindred, so that loving kindness, or loving kinness, is such conduct as we may expect from those who are akin to us. God's kindness to us,
-
-through Jesus Christ, His Son and our Savior, brings to us a loving kindness that is better than life, and for which our lips can never praise Him enough.
+Because Your loving kindness is better than life, my lips shall praise You. Is not that word "loving kindness" one of the noblest terms in our own or in any other language? The word, kin, is at the root of kind and kindred, so that loving kindness, or loving kinness, is such conduct as we may expect from those who are akin to us. God's kindness to us, through Jesus Christ, His Son and our Savior, brings to us a loving kindness that is better than life, and for which our lips can never praise Him enough.
 
 Thus will I bless You while I live: I will lift up my hands in Your name. "For very joy, I will lift them up, and clap them before You. Though, before, they hung down as though I were dispirited and could never work again, yet now, 'I will lift up my hands in Your name.'"
 

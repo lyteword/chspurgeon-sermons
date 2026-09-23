@@ -1,7 +1,7 @@
 # Sermon 2728 | The High Rock
 
-> From the end of the earth will I cry unto You, when my heart is overwhelmed: lead me to the Rock that is higher than I. 
-> Psalm 61:2 
+> From the end of the earth will I cry unto You, when my heart is overwhelmed: lead me to the Rock that is higher than I.  
+> Psalm 61:2  
 
 It is supposed by many that David wrote this Psalm at the time when he fled from his son Absalom. That trial was one of the most grievous of all the afflictions of David's greatly checkered life. It was but a little thing for him to be hunted by Saul like a partridge upon the mountains. It was a small matter for him to have to take refuge with Achish, and to sojourn among the Philistines, an alien from his mother's children. No, all the afflictions of his preceding life were but light trials compared with the revolt of Absalom. He was his father's favorite son, one in whom his soul delighted, for he was a comely personage in his outward appearance and he had a lordly and kingly bearing, he was David's darling, although, in his moral character, utterly unworthy of this distinction. This child of his, who was the nearest to his heart, had the greatest opportunity to cut him to the quick. Those things which we allow to take the chief place in our bosoms have the most power to give us grief.
 
@@ -59,13 +59,13 @@ We have all various standards for measuring things and, after all, men must meas
 
 Come here, Beloved, and let us measure the Rock Christ Jesus as far as we can by comparison. Here is a man who is a great sinner. "Ah," he says, "I am, indeed, a great sinner. My iniquities reach so high that they have ascended above the very stars! They have gone before me to the Judgment Seat of God and they are clamoring for my destruction." Well, Sinner, come here and measure this Rock. You are very high, it is true, but this Rock is higher than you are. Estimate yourself at the greatest you possibly can. Set your sins down at some inconceivable height! If you have thought yourself to be a very Goliath in sin. If you say, "I am as big a sinner as Saul of Tarsus was," put your sin, pile on pile, tier on tier, no, borrow your neighbor's sins and take them all, and then remember that:
 
-> If all the sins that men have done 
-> In will, in word, in thought and deed 
-> Since worlds were made and time begun, 
-> Were laid on one poor sinner's head, 
-> The blood of Jesus Christ alone 
-> Could for this mass of sin atone, 
-> And sweep it all away. 
+> If all the sins that men have done  
+> In will, in word, in thought and deed  
+> Since worlds were made and time begun,  
+> Were laid on one poor sinner's head,  
+> The blood of Jesus Christ alone  
+> Could for this mass of sin atone,  
+> And sweep it all away.  
 
 However high your sin may be, there is the cover of a Rock in a weary land higher than you are, and under this you may shelter yourself!
 

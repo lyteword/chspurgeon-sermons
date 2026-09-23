@@ -1,7 +1,7 @@
 # Sermon 2719 | True Learning
 
-> But you have not so learned Christ, if, indeed, you have heard Him and have been taught by Him, as the truth is in Jesus. 
-> Ephesians 4:20,21 
+> But you have not so learned Christ, if, indeed, you have heard Him and have been taught by Him, as the truth is in Jesus.  
+> Ephesians 4:20,21  
 
 The first two words of our text call attention to the distinction which must always be drawn between true Christians and other people, "But you." The Apostle had been writing concerning other Gentiles and the evil lives they lived, so, to the Believers at Ephesus, he said that they were not to walk as unbelievers ordinarily did. Thus we learn at the very opening of our subject that if we are, indeed, Christians, there is a manifest distinction between us and the men of the world. I may be told that, of course, there was a great contrast between Christ's followers and the heathen who lived in the Apostle's day. And some persons will, perhaps, say that we cannot expect that there should now be the same difference between Christian men and unbelievers. I reply that there may be a variation as to the outward form of that contrast, but, essentially, it must be quite as true and real.
 
@@ -87,9 +87,7 @@ But he shall say, I am no prophet, I am an husbandman; for a man taught me to ke
 
 Then he shall answer, Those with which I was wounded in the house of my friends. Idolatry shall become so detestable a thing that he will say anything rather than acknowledge that he has had anything to do with idols. Those very marks in which the false prophets once gloried, they shall loathe. The Brahmin shall throw away his sacred thread and those who have been tattooed in honor of other false gods shall hate the marks of shame that are upon their persons. Now, Brothers and Sisters, inasmuch as the heathen prophets received in their bodies the marks of their gods, we understand something of what Paul meant when he wrote to the Galatians, "From henceforth let no man trouble me: for I bear in my body the marks of the Lord Jesus." He regarded his Baptism as a kind of watermark that could not be removed. He looked upon the marks of the scourge, with which he had been beaten again and again for Christ's sake, as being proofs that he belonged to Jesus. They stamped him with the broad arrow of the great King, so that all men might know that he was dedicated to Him and to His service, tattooed with marks in his flesh that were indelible and never to be removed!
 
-Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones. And it shall come to pass,
-
-that in all the land, says the Lord, two parts therein shall be cut off and die; but the third shall be left therein. So, in the times of God's fiercest judgments, He has a remnant according to the election of Grace who shall escape the sword because that sword has been awakened against Him who was their Representative, their Surety, and who stood as Substitute in their place.
+Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones. And it shall come to pass, that in all the land, says the Lord, two parts therein shall be cut off and die; but the third shall be left therein. So, in the times of God's fiercest judgments, He has a remnant according to the election of Grace who shall escape the sword because that sword has been awakened against Him who was their Representative, their Surety, and who stood as Substitute in their place.
 
 And I will bring the third part through the fire. Saved, yet so as by fire." This is true in a certain sense of all the righteous. They shall certainly be saved and though the fires of persecution should rage around, the Lord will bring them through the fire. They shall not perish in it, but they shall even derive good from it, "I will bring the third part through the fire."
 
