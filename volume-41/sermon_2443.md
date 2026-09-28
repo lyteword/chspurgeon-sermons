@@ -1,7 +1,7 @@
 # Sermon 2443 | The Determination of Christ to Suffer for His People
 
-> And they gave Him to drink wine mingled with myrrh: but He received it not.
-> Mark 15:23
+> And they gave Him to drink wine mingled with myrrh: but He received it not.  
+> Mark 15:23  
 
 Our Savior, before He was nailed to the Cross, and on the Cross, several times had drinks of different sorts offered to Him. While they were nailing Him to the Cross, they endeavored to make Him drink wine, or vinegar as it is called, mingled with gall. But when He had tasted of it; He did taste it; He would not drink it. When He was on the Cross, the soldiers, mocking Him, offered Him vinegar, or their weak drink of which they ordinarily partook, pledging Him in their cups with scorn. And once more, when He said, "I thirst," they took a sponge filled with vinegar, dipped it in hyssop and put it to His lips.
 

@@ -1,7 +1,7 @@
 # Sermon 2409 | A Great Sermon by the Greatest Preacher
 
-> And lo, a voice came from Heaven, saying, This is My beloved Son, in whom I am well pleased.
-> Matthew 3:17
+> And lo, a voice came from Heaven, saying, This is My beloved Son, in whom I am well pleased.  
+> Matthew 3:17  
 
 A certain divine, who had taken this verse as his text, spoke upon it under these three heads. "First," he said, "here is a great pulpit; the voice was from Heaven. Secondly, here is a great Preacher; it was the Father who spoke as only God can speak. And, thirdly, here is a great sermon: 'This is My beloved Son, in whom I am well pleased.'"
 

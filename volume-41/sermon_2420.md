@@ -1,7 +1,7 @@
 # Sermon 2420 | "The King Can Do No Wrong"
 
-> And all the people took notice of it, and it pleased them: as whatever the king did pleased all the people.
-> 2 Samuel 3:36
+> And all the people took notice of it, and it pleased them: as whatever the king did pleased all the people.  
+> 2 Samuel 3:36  
 
 David was a great king and a good king, but his character was compromised by the conduct of Joab, who had been one of his chief friends and supporters. Abner came to David, in Hebron, and proposed terms of peace which David accepted. But Joab could not bear that Abner should be his rival and, therefore, he most treacherously murdered him. This abominable act was greatly to the detriment of David's character; he could not prevent the crime, certainly he had not instigated it, and yet it was only natural that all the people would suppose that David had a hand in it because Joab was not merely one of his subjects, but his prime minister!
 
@@ -60,8 +60,8 @@ As he could not be brought to reason, and kicked and rebelled against God's deal
 Well, now, if we can get as far as that, and God grant that we may; we are on the road to peace! Let us come, then, to this point, and absolutely leave all things with Him as to the future. "Whatever the king did pleased all the people" and if we are willing that our King should go on doing as He pleases, let us leave it so. I wish that our whole nature would consent to God's will, not one faculty, only, but our whole being. Let all that God does please all of us. Yield your understanding, your will, your affections, your desires, your memory; yield yourself up fully unto the Christ who loves you; then shall you have perfect rest, but not till then!
 
 It may be, dear Friends, that some of us will soon die; let us have no questions about that matter, but yield ourselves to whatever the King pleases. Perhaps some of us may live to an extreme old age, when sight and hearing will fail, and it will be undesirable to survive. Let us raise no question whatever about that. If it is so, let it be so. I have heard of one good woman, a child of God, who was asked whether she did not wish to depart, for she was such a sufferer. Said she, "The Lord's will be done! I have no wish about it." "Well," said one, "but if the Lord would say to you that you might choose, what would you choose?" "Oh," she answered, "I have been so little accustomed to think about choosing that I should turn round and say to Him, 'Choose You, Lord Jesus, for me.'" Why, dear Friends, if we had to choose our own lot and got into trouble, we would have the responsibility of it. Is it not far better for us to say to the Lord, "You shall choose our inheritance for us"! "I dare not choose my lot, I would not if I might!"
-> But You choose for me, O my God,
-> So shall I walk aright.
+> But You choose for me, O my God,  
+> So shall I walk aright.  
 
 If we take our own way and get into difficulties, then we may say, "How foolish we were to make this choice!" But if, instead, we yield ourselves up to the supreme Director, to be led wherever He pleases, and follow Him as the sheep follow the shepherd, it is amazing what a sweet contentment our spirit will feel! The Lord bring us all to enjoy that rest and peace!
 
