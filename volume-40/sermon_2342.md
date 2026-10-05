@@ -1,7 +1,7 @@
 # Sermon 2342 | A New Year's Retrospect And Prospect
 
-> Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear.
-> Psalm 10:17
+> Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear.  
+> Psalm 10:17  
 
 It has been sometimes said that a good Sabbath makes a good week. Sir Matthew Hale long ago said: "A Sabbath well spent Brings a week of content," while George Herbert quaintly wrote: "The Sundays of man's life Threaded together on Time's string, Make bracelets to adorn the wife Of the eternal, glorious King. On Sunday, Heaven's gate stands ope, Blessings are plentiful and rife; More plentiful than hope."
 
