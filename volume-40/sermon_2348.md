@@ -1,7 +1,7 @@
 # Sermon 2348 | The Lord Leading; David Following
 
-> And let it be, when you hear the sound of a going in the tops of the mulberry trees, that then you shall bestir yourself: for then shall the Lord go out before you, to smite the host of the Philistines. And David did so, as the Lord had commanded him and smote the Philistines from Geba until you come to Gazer.
-> 2 Samuel 5:24,25
+> And let it be, when you hear the sound of a going in the tops of the mulberry trees, that then you shall bestir yourself: for then shall the Lord go out before you, to smite the host of the Philistines. And David did so, as the Lord had commanded him and smote the Philistines from Geba until you come to Gazer.  
+> 2 Samuel 5:24,25  
 
 In anticipation of an Evangelistic Mission to be conducted by Messrs. Fullerton and Smith.
 
