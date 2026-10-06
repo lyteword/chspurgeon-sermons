@@ -1,8 +1,8 @@
 # Sermon 2297 | Sealed and Open Evidences
 
-> Thus says the Lord of Hosts, the God of Israel; Take these deeds, this deed of the purchase, which is sealed, and this deed which is open; and put them in an earthen vessel, that they may last many days.
+> Thus says the Lord of Hosts, the God of Israel; Take these deeds, this deed of the purchase, which is sealed, and this deed which is open; and put them in an earthen vessel, that they may last many days.  
 
-> Jeremiah 32:14
+> Jeremiah 32:14  
 
 The discourse of this evening is suggested by the transaction of Jeremiah with his uncle's son in the purchase of a field at Anathoth which he conducted in a business-like and legal way. I will begin with just a few remarks upon the transaction itself.
 
