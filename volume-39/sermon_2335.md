@@ -1,8 +1,8 @@
 # Sermon 2335 | Three Texts, But One Subject: Faith
 
-> In the shadow of Your wings will I make my refuge.
+> In the shadow of Your wings will I make my refuge.  
 
-> Psalm 57:1
+> Psalm 57:1  
 
 "Cast your burden upon the Lord, and He shall sustain you." Psalm 55:22.
 
