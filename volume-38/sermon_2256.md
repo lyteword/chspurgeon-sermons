@@ -85,7 +85,7 @@ Your courage rise with danger, and strength to strength oppose." No man need wis
 
 A strong stream is running in opposition to the Truth of God. Many say that the Bible is not half Inspired. Many are turning away from Christ, refusing to acknowledge His Deity, and some blasphemously speak of His precious blood as a thing of the shambles. O Sirs! If somebody does not stand out today for the cause of God and His Truth, what is to become of the nominal Church and of a guilty world? If you are loyal to Christ, show it! If you love Him and His Infallible Word, prove it! Then shall you hear Him say to you, also, "O man greatly beloved, go you your way till the end is: for you shall rest, and stand in your lot at the end of the days." God grant it for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Charles H. Spurgeon 1 John4:9221
+## Exposition by C. H. Spurgeon: 1 John 4:9-21
 
 In this was manifested the love of God toward us, because that God sent His only begotten Son into the world, that we might live through Him. There is love in our creation. There is love in Providence. But most of all there is love in the gift of Christ for our redemption! The Apostle, here, seems to say, "Now that I have found the great secret of God's love to us, here is the clearest evidence of Divine Love that ever was or ever can be manifested toward the sons of men."
 

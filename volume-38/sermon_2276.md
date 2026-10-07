@@ -73,7 +73,7 @@ One thing I feel sure of and that is if the Lord sets us free, we shall want to 
 
 The Lord bless these words to many, for Jesus' sake! Amen.
 
-## Exposition by C. H. Spurgeon: Leviticus25:1-7,17-22, and Deuteronomy 15:1-18
+## Exposition by C. H. Spurgeon: Leviticus 25:1-7, 17-22, and Deuteronomy 15:1-18
 
 And the Lord spoke unto Moses on Mount Sinai, saying, Speak unto the children of Israel, and say unto them, When you come into the land which I give you, then shall the land keep a sabbath unto the Lord. The Jews had much rest provided for them. If they had had faith enough to obey God's commands, they might have been the most favored of people, but they were not a spiritual people and the Lord often had to lament their disobedience as in the words recorded by Isaiah, "O that you had hearkened to My Commandments! Then had your peace been as a river, and your righteousness as the waves of the sea."
 
