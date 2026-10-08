@@ -1,6 +1,5 @@
 # Sermon 2146 | Joy, Joy Forever
 
-
 > "But let all those that put their trust in You rejoice: let them always shout for joy, because You defend them: let those also that love Your name be joyful in You."  
 > Psalm 5:11.  
 

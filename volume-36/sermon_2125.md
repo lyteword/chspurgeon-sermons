@@ -1,6 +1,5 @@
 # Sermon 2125 | Hope for Your Future
 
-
 > I am forgiven! I am forgiven!  
 > We wanted to tell the angels this strange wonder of almighty love.  
 

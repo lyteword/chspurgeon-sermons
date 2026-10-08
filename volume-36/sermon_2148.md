@@ -1,6 +1,5 @@
 # Sermon 2148 | The Tenderness of Jesus
 
-
 > "We have not a High Priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin."  
 > Hebrews 4:15.  
 

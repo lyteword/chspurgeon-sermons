@@ -1,6 +1,5 @@
 # Sermon 2144 | Believers Sent by Christ, As Christ Is Sent By the Father
 
-
 > "As You have sent Me into the world, even so have I also sent them into the world."  
 > John 17:18.  
 

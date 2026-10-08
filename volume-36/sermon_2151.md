@@ -1,6 +1,5 @@
 # Sermon 2151 | Holy Longings
 
-
 > "I opened my mouth, and panted: for I longed for Your commandments. Look You upon me, and be merciful unto me, as You used to do unto those that love Your name. Order my steps in Your Word: and let not any iniquity have dominion over me."  
 > Psalm 119:131,132,133.  
 

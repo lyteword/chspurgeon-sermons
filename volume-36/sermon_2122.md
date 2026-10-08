@@ -1,6 +1,5 @@
 # Sermon 2122 | A Straight Talk
 
-
 > "I cannot come."  
 > Luke 14:20.  
 

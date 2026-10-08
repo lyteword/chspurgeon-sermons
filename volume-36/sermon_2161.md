@@ -1,6 +1,5 @@
 # Sermon 2161 | Self Low, But Christ High
 
-
 > "The centurion answered and said, Lord, I am not worthy that You should come under my roof: but speak the word only, and my servant shall be healed."  
 > Matthew 8:8.  
 

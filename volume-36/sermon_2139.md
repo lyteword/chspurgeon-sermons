@@ -1,6 +1,5 @@
 # Sermon 2139 | The Prince of Life
 
-
 > "And killed the Prince of Life, whom God has raised from the dead, of which we are witnesses."  
 > Acts 3:15.  
 

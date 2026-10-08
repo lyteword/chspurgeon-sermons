@@ -1,6 +1,5 @@
 # Sermon 2166 | Experience and Assurance
 
-
 > "Because You have been my help, therefore in the shadow of Your wings will I rejoice."  
 > Psalm 63:7.  
 

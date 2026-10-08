@@ -1,6 +1,5 @@
 # Sermon 2126 | Something Done for Jesus
 
-
 > "She has worked a good work upon Me."  
 > Matthew 26:10.  
 

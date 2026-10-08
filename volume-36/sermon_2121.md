@@ -1,6 +1,5 @@
 # Sermon 2121 | The Keynote of the Year
 
-
 > "Bless the Lord, O my Soul: and all that is within me, bless His holy name."  
 > Psalm 103:1.  
 

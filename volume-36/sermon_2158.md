@@ -1,6 +1,5 @@
 # Sermon 2158 | Christ's Testimony Received
 
-
 > "He that has received His testimony has set to his seal that God is true."  
 > John 3:33.  
 

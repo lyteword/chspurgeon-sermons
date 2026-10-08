@@ -1,6 +1,5 @@
 # Sermon 2167 | Jehovah's Valuation of His People
 
-
 > "I am the Lord your God, the Holy One of Israel, your Savior: I gave Egypt for your ransom, Ethiopia and Seba for you."  
 > Isaiah 43:3.  
 

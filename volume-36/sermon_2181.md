@@ -1,6 +1,5 @@
 # Sermon 2181 | God Forgiving Sin
 
-
 > "He will abundantly pardon. For My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts."  
 > Isaiah 55:7-9.  
 

@@ -1,6 +1,5 @@
 # Sermon 2152 | Three Important Precepts
 
-
 > "Hear you, my son, and be wise, and guide your heart in the way."  
 > Proverbs 23:19.  
 
