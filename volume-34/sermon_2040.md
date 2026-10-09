@@ -1,10 +1,10 @@
 # Sermon 2040 | Sown Among Thorns
 
-> "And some fell among thorns; and the thorns sprung up, and choked them"
+> "And some fell among thorns; and the thorns sprung up, and choked them"  
 > Matthew 13:7.  
 
-> "He also that received seed among the thorns is he that heareth the word; and the care of this world, and the deceitfulness of riches, choke the word, and he becometh unfruitful."
-> Matthew 13:22.
+> "He also that received seed among the thorns is he that heareth the word; and the care of this world, and the deceitfulness of riches, choke the word, and he becometh unfruitful."  
+> Matthew 13:22.  
 
 When that which comes of his sowing is unfruitful, the sower's work is wasted: he has spent his strength for nothing. Without fruit the sower's work would even seem to be insane, for he takes good wheat, throws it away, and loses it in the ground. Preaching is the most idle of occupations if the Word is not adapted to enter the heart, and produce good results. O my hearers, if you are not converted, I waste time and energy in standing here! People might well think it madness that one whole day in the week should be given up to hearing speeches; madness, indeed, it would be if nothing came of it to conscience and heart. If you do not bring forth fruit to holiness, and the end is not everlasting life, I would be better employed in breaking stones on the road-side than in preaching to you.
 

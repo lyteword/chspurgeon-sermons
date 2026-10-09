@@ -124,4 +124,4 @@ Let the text be a reason for adoration. O You to whom nothing is hard, we adore 
 > A guilty, weak and helpless worm,   
 > On Your kind arms I fall;   
 > Be You my strength and righteousness,   
-> My Jesus and my All.
+> My Jesus and my All.  
