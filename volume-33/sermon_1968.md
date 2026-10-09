@@ -53,10 +53,10 @@ When He had given this supreme proof of love, He was not yet satisfied. Having s
 
 pledges of His affection in His hands, feet and side. He entered Glory to carry on His intercession within the veil. His royal life is now spent in pleading for transgressors! All His thoughts are of His people, all His power is for His people, all His glory is in His people! I pray you, think not of my Lord and King according to the measure of my faltering speech, but joy in Him according to that love of His which passes knowledge:
 
-> Love which will not let Him rest   
-> Till His people all are blest!   
-> Till they all for whom He died   
-> Live rejoicing at His side.   
+> Love which will not let Him rest  
+> Till His people all are blest!  
+> Till they all for whom He died  
+> Live rejoicing at His side.  
 
 Let us think a moment further of the glorious achievements of our King, that we may the more fully be joyful in Him. This King of ours has fought for us and won great victories on our account. Our King met the battalions of our sins in conflict. He encountered Satan, that tremendous foe. He fought hand to hand with Death itself! The shock of battle was terrible. The sun was darkened, the earth shook, even the dead arose from their sepulchers to behold the war. Our hero stood alone, "of the people there was none with Him", yet He trampled down all our enemies as the treader of grapes crushes the clusters in the winepress. Thus He made an end of sin, broke the head of the old dragon and put Death, itself, to death and led our captivity captive! Behold He comes from Edom with dyed garments from Bozrah, traveling in the greatness of His strength, mighty to save! Shall we not salute Him with hosannas? Will we not be joyful in Him? Daughters of Jerusalem, will you not go forth to meet Him, even as the maidens of old went forth to meet young David when he returned with Goliath's head? Will you not, also, sing, "Saul has slain his thousands and David his ten thousands?" Remember how Miriam and the virgins sounded their timbrels at the Red Sea and spoke saying, "Sing unto the Lord, for He has triumphed gloriously!?" In like joyous manner sing unto the Lord, your King, and magnify His name!
 

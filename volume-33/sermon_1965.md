@@ -35,10 +35,10 @@ We dare not profess to understand the ways of God to man, they are past finding 
 
 Despite our ignorance, nothing can go wrong while the Lord, in infinite knowledge, rules over all. The child playing on the deck does not understand the tremendous engine whose beat is the throbbing heart of the stately Atlantic liner, but all is safe, for the engineer, the captain and the pilot are in their places and well know what is being done! Let not the child trouble itself about things too great for it. And you leave the discovery of doubtful causes to Him whose understanding is infinite, and be you still and know that Jehovah is God! Unbelief misinterprets the ways of God. Hasty judgment jumps at wrong conclusions about them. But the Lord knows His own thoughts. We are doubtful where we ought to be sure and we are sure where we have no ground for certainty, thus we are always in the wrong. How should it be otherwise with us, since vain man would be wise and yet he is born like a wild ass's colt? We are hard to tame and to teach! But as for the Lord, "His way is perfect."
 
-> His thoughts are high, His love is wise,   
-> His wounds a cure intend.   
-> And though He does not always smile,   
-> He loves unto the end.   
+> His thoughts are high, His love is wise,  
+> His wounds a cure intend.  
+> And though He does not always smile,  
+> He loves unto the end.  
 
 Let us go a step further, The Lord would have us know that His thoughts toward us are settled and definite. This is part of the intent of the words, "I know the thoughts that I think toward you, says the Lord." Sometimes a man may hardly know his own thoughts because he has scarcely made up his mind. There are several subjects now upon the public mind concerning which it is wise to say little or nothing because it is not easy to decide about them. Upon a certain matter, one asks you this question and another asks you another question. And it is possible that you have so carefully weighed and measured the arguments both pro and con that you cannot come to a conclusion either way! Your thoughts differ from day to day and, therefore, you do not yet know them.
 
@@ -76,8 +76,8 @@ Next, let our position be one of great hopefulness, seeing the end of God, in al
 
 in the Christian's life. Let us not look towards the future nor regard the present with any kind of dread. There is nothing for us to dread:
 
-> If sin is pardoned, I'm secure; Death has no sting beside;   
-> The Law ga ve sin its damning power, But Christ, my ransom, died.   
+> If sin is pardoned, I'm secure; Death has no sting beside;  
+> The Law ga ve sin its damning power, But Christ, my ransom, died.  
 
 The death of Christ is the death of evil to the child of God! Let us trust and not be afraid. Let us not be content with sullenly making up our minds to stoical endurance. We must not only bear the will of the Lord, but rejoice in it! It is a blessed thing when we come to rejoice in tribulations and to glory in infirmities. It is fine music when we can sing,
 

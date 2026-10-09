@@ -55,10 +55,10 @@ How terrible were the blades that sheathed themselves in His body and mind! They
 
 As on this Resurrection Day we see our Lord come back to us, we perceive His garments sprinkled with the blood of all who fought against us. I beseech you to lay hold of this and trust my blessed Lord, for He has fought with all the enemies of our souls and He has returned from the enemy's country, leading captivity captive. We may look at Him this day right trustfully, for His fight is over and His enemies are crushed as grapes in the winepress. We not only trust our Lord, but we worship Him this day as King of Kings and Lord of Lords:
 
-> Bruised is the serpent's head,   
-> Hell is vanquished, death is dead,   
-> And to Christ gone up on high,   
-> Captive is captivity. Alleluia!   
+> Bruised is the serpent's head,  
+> Hell is vanquished, death is dead,  
+> And to Christ gone up on high,  
+> Captive is captivity. Alleluia!  
 
 Next. notice that the Prophet in vision observes the color of the Conqueror's garments, "Who is this that comes from Edom, with dyed garments from Bozrah?" Red is not Christ's color, therefore the question arises, "Why are You red in Your apparel?" Our Beloved's garments are whiter than any fuller can make them. The glory of His purity is such that we say to ourselves, "Red, why, that is the color of Edom, the adversary! Red, that is the color of the earth of our manhood! Red is the color of our scarlet sins." Why is He red? Brothers and Sisters, although the text treats of the blood of His adversaries, yet I would have you devoutly think of our Lord literally as shedding His own blood, for His victory was thus accomplished. The text sets forth the result of that blood-shedding in the overthrow of His enemies and ours, but we cannot separate the effect from the cause. As a matter of fact, when our Lord's own blood was shed, sin and death and Hell were trod down and destroyed as grapes in the winepress.
 
@@ -104,7 +104,7 @@ It is a sad wonder that men do not believe in Jesus. It is a mournful wonder tha
 
 Let us finish by each one of us singing this verse from the heart and all of us together with our tongues:
 
-> A guilty, weak and helpless worm,   
-> On Christ's kind arms I fall:   
-> He is my strength and righteousness   
-> My Jesus and my All.
+> A guilty, weak and helpless worm,  
+> On Christ's kind arms I fall:  
+> He is my strength and righteousness  
+> My Jesus and my All.  

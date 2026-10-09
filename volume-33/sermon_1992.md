@@ -101,7 +101,7 @@ Praise Him with the heart He has changed, with the lips He has loosed, with the 
 
 Teach others to praise God. Influence them by your example. Fill your house with music from top to bottom, perfume every room with the fragrance of living devotion! Make your houses belfries and be, yourselves, the bells forever ringing out the loud praises of the Lamb of God. He bore your sins, you bear His praises. He died for you, therefore live for Him! He has heard your prayers, let Him hear your praises! Let us together sing "hallelujah to God and the Lamb." Let us stand upon our feet and with one voice and heart let us sing:
 
-> Praise God, from whom all blessings flow,   
-> Praise Him all creatures here below!   
-> Praise Him above, you heavenly host   
-> Praise Father, Son, and Holy Ghost!
+> Praise God, from whom all blessings flow,  
+> Praise Him all creatures here below!  
+> Praise Him above, you heavenly host  
+> Praise Father, Son, and Holy Ghost!  

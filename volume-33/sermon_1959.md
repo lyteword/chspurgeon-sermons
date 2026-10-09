@@ -29,10 +29,10 @@ the love of God which is in Christ Jesus, our Lord?" Do you know what it is to f
 
 This expression is very short, but very full. "In Christ." Does it not mean that we are in Christ as the birds are in the air which buoys them up and enables them to fly? Are we not in Christ as the fish are in the sea? Our Lord has become our element, vital and all surrounding! In Him we live, move and have our being. He is in us and we are in Him. We are filled with all the fullness of God because all fullness dwells in Christ and we dwell in Him. Christ to us is all. He is in all and He is All in All! Jesus to us is everything in everything. Without Him we can do nothing and we are nothing! Thus are we emphatically in Him. If you have reached this point, "stand fast" in it! If you dwell in the secret place of the tabernacles of the Most high, abide under the shadow of the Almighty! Do you sit at His table and eat of His dainties? Then prolong the visit and think not of removal. Say in your soul:
 
-> Here would I find a settled rest,   
-> While others go and come;   
-> No more a stranger, or a guest,   
-> But like a child at home.   
+> Here would I find a settled rest,  
+> While others go and come;  
+> No more a stranger, or a guest,  
+> But like a child at home.  
 
 Has Jesus brought you into His green pastures? Then lie down in them. Go no further, for you will never fare better. Stay with your Lord, however long the night, for only in Him have you hope of morning!
 

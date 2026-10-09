@@ -49,18 +49,18 @@ Can you grasp it? It will make your heart dance for joy if you can! Never did a 
 
 Again I pray the Holy Spirit to make every Believer feel this and then we shall go home from this house glad in spirit! My heart will be as a wedding feast and the joy-bells of my soul will ring out the words:
 
-> White and ruddy is my Beloved   
-> All His heavenly beauties shine!   
-> Nature can't produce an object,   
-> So glorious, so Divine!   
-> He has wholly   
-> Won my soul to realms abo ve.   
-> Such as find You, find such sweetness   
-> Deep, mysterious and unknown,   
-> Far above all worldly pleasures,   
-> If they were to meet in one!   
-> My Beloved,   
-> O'er the mountains hasten away.   
+> White and ruddy is my Beloved  
+> All His heavenly beauties shine!  
+> Nature can't produce an object,  
+> So glorious, so Divine!  
+> He has wholly  
+> Won my soul to realms abo ve.  
+> Such as find You, find such sweetness  
+> Deep, mysterious and unknown,  
+> Far above all worldly pleasures,  
+> If they were to meet in one!  
+> My Beloved,  
+> O'er the mountains hasten away.  
 
 To a second thought I would call your attention. See in the text the security of the people of God in consequence of being what they are. "A garden enclosed is My Sister, My Spouse; a spring shut up, a fountain sealed." We are not only like a garden, but an enclosed garden. If the garden were not enclosed, the wild boar
 

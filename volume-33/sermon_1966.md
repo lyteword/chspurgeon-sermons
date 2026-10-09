@@ -105,14 +105,14 @@ Then he gathered the tribes together and blessed them in prophetic words, pourin
 
 He did all that remained to be done and then went willingly to his end:
 
-> Sweet was the journey to the sky,   
-> The wondrous Prophet tried.   
-> 'Climb up the mount,'says God, ' and die.'   
-> The Prophet climbed and died.   
-> Softly his fainting head he lay   
-> Upon his Maker's breast.   
-> His Maker kissed his soul away,   
-> And laid his flesh to rest.   
+> Sweet was the journey to the sky,  
+> The wondrous Prophet tried.  
+> 'Climb up the mount,'says God, ' and die.'  
+> The Prophet climbed and died.  
+> Softly his fainting head he lay  
+> Upon his Maker's breast.  
+> His Maker kissed his soul away,  
+> And laid his flesh to rest.  
 
 We, my Brothers, also expect to die. Let us not fear it, but let us awaken ourselves to labor more abundantly. Let us preach more boldly, let us sing more sweetly, let us pray more ardently. As flowers, before they shed their leaves, pour out all their perfumes, so let us pour out our souls unto the Lord! Let us live while we live! And dying, let us die unto the Lord! May our life-work close as the sun sets, looking greater when he sinks into the west than when he shines at full meridian height!
 
@@ -134,9 +134,9 @@ Glory!
 
 Soon our turn shall come.  Do we dread it? As we are favored to serve our Lord, we shall be favored to be called Home in due season. Let us always be ready. Yes, joyfully ready! When we are dying, we shall not see the land of Naphtali and Ephraim, but the Covenant, and the infinite provisions of its promises will be spread out before our soul, as Canaan at the feet of Moses! Wrapt in happy enjoyment of precious promises, we shall, with surprise, find ourselves ushered into the place where the promises are all fulfilled:
 
-> There shall we see His face,   
-> And never, never sin!   
-> But from the rivers of His Grace,   
-> Drink endless pleasures in.   
+> There shall we see His face,  
+> And never, never sin!  
+> But from the rivers of His Grace,  
+> Drink endless pleasures in.  
 
 To the Believer it is not death to die! Since Jesus has died and risen again, the sting of death is gone, therefore let us prepare ourselves to climb where Moses stood and view the landscape! Amen.

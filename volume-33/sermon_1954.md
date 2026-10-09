@@ -29,10 +29,10 @@ joy.
 
 They are everywhere, my Brethren, these lost sheep! They seem to have chosen, as if deliberately, the most dangerous places! They stumble on the dark mountains; they are caught in the tangled thickets; they have fallen into pits. O Sin, what have you done? Rather, what have you not done? For men seem to have gone to the utmost extreme of rebellion against God and to have done evil with both hands! Therefore does God, Himself, come to the rescue! He, Himself, shall assemble Jacob and gather the remnant of Israel! Driving with the terrors of His Law, drawing with the sweetness of His Gospel, He shall surely bring them in! By one instrumentality or by another and, in some cases, apparently, without instrumentality at all, He will bring them from all points of the compass to the place where He will meet with them:
 
-> There is a period known to God   
-> When all His sheep, redeemed by blood,   
-> Shall leave the hateful ways of sin,   
-> Turn to the fold and enter in.   
+> There is a period known to God  
+> When all His sheep, redeemed by blood,  
+> Shall leave the hateful ways of sin,  
+> Turn to the fold and enter in.  
 
 This is the result of the Divine working and of that alone! Our hope for the salvation of God's elect lies in the fact that it is God, Himself, who undertakes to gather them! Remember His Word by the Prophet Ezekiel, "For thus says the Lord God; Behold, I, even I, will both search My sheep and seek them out."
 

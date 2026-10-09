@@ -81,10 +81,10 @@ I attended every place of worship within my reach, but I heard nothing which gav
 
 went on and said, "Look, look, look!" He added, "There is a young man, under the left-hand gallery there, who is very miserable. He will have no peace until he looks to Jesus", and then he cried, "Look! Look! Young man, look!" I did look and, in that moment, relief came to me and I felt such overflowing joy that I could have stood up and cried, "Hallelujah! Glory be to God! I am delivered from the burden of my sin!" Many days have passed since then, but my faith has held me up and compelled me to proclaim the story of Free Grace and dying Love. I can truly say:
 
-> Ever since by faith I saw the stream   
-> Your flowing wounds supply,   
-> Redeeming lo ve has been my theme,   
-> And shall be till I dee.   
+> Ever since by faith I saw the stream  
+> Your flowing wounds supply,  
+> Redeeming lo ve has been my theme,  
+> And shall be till I dee.  
 
 I hope to sit up in my bed in my last hours and tell of the stripes that healed me! I hope some young men, yes, and old men before me, will at once try this remedy, it is good for all characters and all ages, "By His stripes we are healed." Thousands upon thousands of us have tried and proved this remedy! We speak what we know and testify what we have seen. God grant that men may receive our witness through the power of the Holy Spirit!
 

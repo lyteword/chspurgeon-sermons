@@ -57,21 +57,21 @@ This tragedy exceeds all others! However dark man's ingratitude may seem in othe
 
 But why? Why is the good God thus persecuted? By the loving kindness of the Lord Jesus, by the glory of His Person and by the perfection of His Character, I beseech you be amazed and ashamed that He should be pierced! This is no common death! This murder is no ordinary crime. O Man, He that was pierced with the spear was your God! On the Cross behold your Maker, your Benefactor, your best Friend!
 
-> Alas, and did my Savior bleed?   
-> And did my Savior die?   
-> Would He devote that sacred head   
-> For such a worm as I?   
+> Alas, and did my Savior bleed?  
+> And did my Savior die?  
+> Would He devote that sacred head  
+> For such a worm as I?  
 
 Look steadily at the Pierced One and note the suffering which is covered by the word, "pierced." Our Lord suffered greatly and grievously. I cannot, in one discourse, rehearse the story of His sorrows; the griefs of His life of poverty and persecution; the griefs of Gethsemane and the bloody sweat; the griefs of His desertion, denial and betrayal; the griefs of Pilate's Hall, the scourging, the spitting and the mockery; the griefs of the Cross with its dishonor and agony. The sufferings of our Lord's body were only the body of His sufferings:
 
-> It was not the insulting voice of scorn   
-> So deeply wrung His heart.   
-> The piercing nail, the pointed thorn,   
-> Caused not the saddest smart,   
-> But every struggling sigh betrayed   
-> A heavier grief within,   
-> How on His burdened soul was laid   
-> The weight of human sin.   
+> It was not the insulting voice of scorn  
+> So deeply wrung His heart.  
+> The piercing nail, the pointed thorn,  
+> Caused not the saddest smart,  
+> But every struggling sigh betrayed  
+> A heavier grief within,  
+> How on His burdened soul was laid  
+> The weight of human sin.  
 
 Our Lord was made a curse for us! The penalty for sin, or that which was equivalent thereto, He endured. "He Himself bore our sins in His own body on the tree." "The chastisement of our peace was upon Him and with His stripes we are healed." Brothers and Sisters, the sufferings of Jesus ought to melt our hearts! I mourn this morning that I do not mourn as I should! I accuse myself of that hardness of heart which I condemn, since I can tell you this story without breaking down! My Lord's griefs are untellable! Behold and see if there was ever sorrow like His sorrow! Here we lean over a dread
 

@@ -85,10 +85,10 @@ I see much more in this fact than I will now attempt to tell. O world, the Chris
 
 But I must hurry on. I can also see in this passage the safety of the saints. It is marvelous how full of eyes the things of Jesus are, for His unbroken bones look backward to the Paschal lamb, but they also look forward throughout all the history of the Church to that day when He shall gather all His saints in one body and none shall be missing. Not a bone of His mystical body shall be broken! There is a text in the Psalms which says of the righteous man, and all righteous men are conformed unto the image of Christ, "He keeps all His bones: not one of them is broken." I rejoice in the safety of Christ's elect! He shall not permit a bone of His redeemed body to be broken:
 
-> For all the chosen seed   
-> Shall meet around the Throne,   
-> Shall bless the conduct of His Grace,   
-> And make His glories known.   
+> For all the chosen seed  
+> Shall meet around the Throne,  
+> Shall bless the conduct of His Grace,  
+> And make His glories known.  
 
 A perfect Christ there shall be in the day of His appearing, when all the members of His body shall be joined to their glorious Head, who shall be crowned forever! Not one living member of Christ shall be absent, "Not a bone of Him shall be broken." There shall be no lame, maimed Christ, no half-worked redemption! The purpose for which He came to accomplish shall be perfectly achieved to the glory of His name!
 

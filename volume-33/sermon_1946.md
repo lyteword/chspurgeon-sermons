@@ -73,14 +73,14 @@ I would that all men at this hour abounded in almsgiving, but specially those wh
 
 Brothers and Sisters, some men spend so much upon themselves and so little for the Lord, that they seem to me to eat the apple and give Christ the parings! They hoard up the flour and give the Lord a little of the bran. Happy man who can carry out in life what he has dared to say in song:
 
-> All that I am and all I have,   
-> Shall be forever Yours!   
-> Whatever my duty bids me give,   
-> My cheerful hands resign.   
-> Yet if I might make some reserve,   
-> And duty did not call   
-> I love my God with zeal so great,   
-> That I should give Him all.   
+> All that I am and all I have,  
+> Shall be forever Yours!  
+> Whatever my duty bids me give,  
+> My cheerful hands resign.  
+> Yet if I might make some reserve,  
+> And duty did not call  
+> I love my God with zeal so great,  
+> That I should give Him all.  
 
 The Apostle means, when he says, "lay hold on eternal life," get beyond today and tomorrow. Leap out of this month and this year. Live for the future; for eternity. Live not as insects that die in a day, but as men that live forever. This life is as a prick made on paper by a pin; it is too small a thing to compare with the everlasting future. The forever, whether of misery or bliss, dwarfs this life to nothing.
 

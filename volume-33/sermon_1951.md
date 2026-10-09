@@ -39,12 +39,12 @@ I have already said that He is so glorious that I cannot describe Him. I will, t
 
 It is this lover of souls that becomes God's Advocate with us and pleads with us that we would cease from our rebellion. Do not refuse Him! If He were stern and unloving I could imagine that all the obstinacy of your nature might be awakened, but His love, which passes the love of women, deserves another treatment. If you reject Him, He answers you with tears. If you wound Him, He bleeds out cleansing. if you kill Him, He dies to redeem. If you bury Him, He rises again to bring us resurrection. Jesus is Love made manifest:
 
-> Heart of stone, relent, relent;   
-> Break, by Jesus' Cross subdued!   
-> See His body, mangled, rent,   
-> Covered with a gore of blood!   
-> Sinful soul, what have you done?   
-> Crucified God's only Son!   
+> Heart of stone, relent, relent;  
+> Break, by Jesus' Cross subdued!  
+> See His body, mangled, rent,  
+> Covered with a gore of blood!  
+> Sinful soul, what have you done?  
+> Crucified God's only Son!  
 
 Furthermore, His manner is most winning. When I have been pleading for men with God and I have ceased my pleading, I have feared that something in my tone or in my manner would cause my pleading to fail. I am not, perhaps, so tender as I should be, nor is there sufficient pathos in my tones. If I could do better, I would go to any school to learn. God has put me often to the school of suffering to instruct me in this respect and yet I do confess my failings with deep regret. But when Jesus, my Lord, pleads with you, this charge cannot be laid against Him! His pleading is perfect. When Jonah preaches, his tones are harsh and his spirit forbidding, but that can never be said of Jesus. When Jeremiah weeps, there is an undertone of bitter complaint within the sweet sorrow of his love, but it is never so with Jesus. "Never men spoke like this Man." If ever His words thunder, as they often do, even in that thunder there is heard the voice of love! When He flashes with the lightning of judgment against Scribes and Pharisees, yet soft drops of mercy follow every flame of fire. He is stern because He is tender, His utterances of terror are born of a love which dares not conceal the Truth of God, even though it breaks its heart in the telling of it. God is Love, and Christ is God's love Incarnate among men. Therefore, my Hearer, if you see anything about me of which you disapprove, censure me if you will, but be all the more attentive to my Lord, about whom there is nothing but what is wooing and melting. God has sent to you His own Well-Beloved Son, I implore you, do not refuse Him! My heart trembles at the bare suspicion that even one of you should reject the pleading of one so jealous for your eternal welfare!
 
@@ -56,12 +56,12 @@ Thus, this amazing mission is set forth before you and I pray you, as you love y
 
 I beg your attention while I look, in the second place, to the astounding crime. It was nothing less than an astounding crime, that when this householder sent his well-beloved son, the vinedressers said one, to another, "This is the heir; come, let us kill him, and the inheritance shall be ours. And they took him, and cast him out of the vineyard." "No," says one, "we never killed the Son of God." I will not charge you with having done so literally, that were to make myself chargeable with exaggeration. But a man may do virtually what he cannot do actually. If a murder is committed and I approve of it. If my own principles lead up to it; if I feel no indignation against it, but express myself very coolly about it. If there is reason to believe that if I had been there, I would have done the same, then I may be, in the sight of God, a partaker in the crime. There are many among us who are guilty of the body and blood of Christ. The hymn we just now sung does not bring a groundless charge:
 
-> Yes, your sins have done the deed,   
-> Driven the nails that fixed Him there,   
-> Crowned with thorns His sacred head,   
-> Plunged into His side the spear,   
-> Made His soul a sacrifice,   
-> While for sinful man He dies!   
+> Yes, your sins have done the deed,  
+> Driven the nails that fixed Him there,  
+> Crowned with thorns His sacred head,  
+> Plunged into His side the spear,  
+> Made His soul a sacrifice,  
+> While for sinful man He dies!  
 
 Now, I say this, that all those who persistently deny the Deity of Christ, virtually kill Him, for the Son of God is not alive if His Godhead is not in existence. It is essential to the idea of Christ, the Heir of all things, that He is God, and to deny His Godhead is to stab at His heart.
 

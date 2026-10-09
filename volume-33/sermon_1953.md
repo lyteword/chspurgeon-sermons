@@ -19,10 +19,10 @@ escape from deaths often, yes, and from the very belly of Hell, and still we liv
 
 I have said that this glorious salvation, which is of the Lord, is the peculiar heritage of Believers. They alone know their need of it and they alone participate in it. Look at the ungodly man who is pictured in this Psalm. He does not want salvation. He flourishes like the green bay tree, he spreads his branches to overshadow everybody else. Such men need no salvation. "Their eyes stand out with fatness: they have more than heart could wish." They want no salvation, their lands are abundant, their house is full of treasure and they leave the rest of their substance to their babes. They put no trust in the name of the Lord. "They call their lands after their own names." They want no God, they have no sighs after Him. They never cry, "As the hart pants after the water-brooks, so pants my soul after You, O God!" They have no trials in their lives and "there are no bands in their death: but their strength is firm. They are not in trouble as other men; neither are they plagued like other men." The rod of God's children does not fall upon them, "Whom the Lord loves, He chastens", but often those whom He loves not, He leaves to indulge in such pleasure as they can find. He gives His swine good measure of husks, for He would not be unkind even to them! And there they lie and feed without fear, knowing nothing of another world, nor caring for it:
 
-> Fools never raise their thoughts so high,   
-> Like brutes they live, like brutes they die!   
-> Like grass they flourish, till Your breath   
-> Blasts them into everlasting death.   
+> Fools never raise their thoughts so high,  
+> Like brutes they live, like brutes they die!  
+> Like grass they flourish, till Your breath  
+> Blasts them into everlasting death.  
 
 See the distinction between the righteous man who fears God and he that fears Him not! Were it not for this word, "salvation," their ease and prosperity might make us envy the ungodly, but this turns the scale. Because "the salvation of the righteous is of the Lord," we would take the worst portion that ever was meted out to them in preference to the best that was ever given to the ungodly! Taking all for all, God's worst is better than the devil's best and the portion of God's saints at the lowest ebb is better than the portion of the wicked, even when their joys are at the flood!
 

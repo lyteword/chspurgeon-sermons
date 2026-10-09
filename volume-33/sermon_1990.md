@@ -41,10 +41,10 @@ The love of God to us is undisturbed: "The peace of God, which passeth all under
 
 Sometimes also the Lord does not speak to his people: we cannot get a cheering word from him; and then we sigh for a promise, and long for a visit of his love; but if he be thus silent, let us know that, he is only silent in his love. It is not the silence of wrath, but of love. His love is not changed, even though he does not comfort us.
 
-> His thoughts are high, his love is wise,   
-> His wounds a cure intend;   
-> And though he does not always smile,   
-> He loves unto the end.   
+> His thoughts are high, his love is wise,  
+> His wounds a cure intend;  
+> And though he does not always smile,  
+> He loves unto the end.  
 
 When he does not answer our prayers with his hand, he yet hears them with his heart. Denials are only another form of the same love which grants our petitions. He loves us, and sometimes shows that love better by not giving us what we ask than he could do if he spoke the sweetest promise which the ear has ever heard. I prize this sentence: "He shall rest in his love." My God, thou art perfectly content with thy church after all, because thou knowest what she is to be. Thou seest how fair she will be when she comes forth from the washing, having put on her beautiful garments. Lo, the sun goes down, and we mortals dread the endless darkness; but thou, great God, seest the morning, and thou knowest that in the hours of darkness dews will fall which shall refresh thy garden. Ours is the measure of an hour, and thine the judgment of eternity, therefore we will correct our short-sighted judgment by thine infallible knowledge, and rest with thee.
 
