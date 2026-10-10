@@ -1,7 +1,7 @@
 # Sermon 1935 | "Where Are The Nine?"; or, Praise Neglected
 
-> And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face at His feet, giving Him thanks. And he was a Samaritan. And Jesus answering said, Were there not 10 cleansed? But where are the nine? Were there not any found that returned to give glory to God, except this foreigner? And He said to him, Arise, go your way: your faith has made you whole.
-> Luke 17:15 -19
+> And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face at His feet, giving Him thanks. And he was a Samaritan. And Jesus answering said, Were there not 10 cleansed? But where are the nine? Were there not any found that returned to give glory to God, except this foreigner? And He said to him, Arise, go your way: your faith has made you whole.  
+> Luke 17:15 -19  
 
 You have often heard the leprosy described; it was a very horrible disease, I should think the worst that flesh is heir to. We ought to be much more grateful than we are that this fell disease is scarcely known in our favored country. You have also heard what an instructive symbol it is in human flesh of what sin is in the human soul, how it pollutes, how it destroys. I need not go into that sad subject. But here was a sight for the Savior, 10 men that were lepers! A mass of sorrow, indeed! What sights our Lord still sees every day in this sin-defiled world! Not 10 men that are sinners, nor even merely 10 millions are to be found all the world over, but on this earth there are a thousand millions of men diseased in soul! It is a miracle of condescension that the Son of God should set foot in such a lazar house as this.
 
@@ -32,10 +32,10 @@ I have said enough, I think, upon the scantiness of thanksgiving. Let us go over
 I have a great deal to say and little time to say it in, therefore, briefly let us note the characteristics of true thankfulness. This man's simple act may show the character of praise. It does not take the same shape in everybody. Love to Christ, like living flowers, wears many forms; only artificial flowers are all alike. Living praise is marked by individuality. This man was one of 10 when he was a leper, but he was all alone when he returned to praise God. You can sin in company, you can go to Hell in company, but when you obtain salvation, you will come to Jesus all alone. And when you are saved, though you will delight to praise God with others if they will join you, yet if they will not, you will delight to sing a solo of gratitude! This man quits the company of the other nine and comes to Jesus. If Christ has saved you and your heart is right, you will say, "I must praise Him! I must love Him!" You will not be kept back by the chilly state of nine out of 10 of your old companions, nor by the worldliness of your family, nor by the coldness of the Church. Your personal love to Jesus will make you speak even if Heaven, earth and sea are all wrapped in silence.
 
 You have a heart burning with adoring love and you feel as if it were the only heart under Heaven that had love to Christ in it and, therefore, you must feed the heavenly flame. You must indulge its desires, you must express its longings. The fire is in your bones and must have vent. Since there is an individuality about true praise, come, Brothers and Sisters in Christ, let us praise God, each one, in his own way! 
-> Oh, may the sweet, the blissful theme, 
-> Fill every heart and tongue, 
-> Till strangers love Your charming name, 
-> And join the sacred song! 
+> Oh, may the sweet, the blissful theme,  
+> Fill every heart and tongue,  
+> Till strangers love Your charming name,  
+> And join the sacred song!  
 
 The next characteristic of this man's thankfulness was promptness. He went back to Christ almost immediately, for I cannot suppose the Savior lingered at the village gate for hours that day. He was too busy to be long in one spot; the Master went about doing good. The man was soon back and when you are saved, the quicker you can express your gratitude the better. Second thoughts are best, they say, but this is not the case when the heart is full of love to Christ! Carry out your first thoughts. Do not stop for the second, unless, indeed, your heart is so on fire with heavenly devotion that second ones consume the first! Go at once and praise the Savior. What grand designs some of you have formed of future service for God! What small results have followed! Ah, it is better to lay one brick, today, than to propose to build a palace next year! Magnify your Lord in the present for present salvation. Why should His mercies lie in quarantine? Why should your praises be like aloes which take a century to flower? Why should praise be kept waiting at the door, even for a night? The manna came fresh in the morning, so let your praises rise early! He praises twice who praises at once, but he who does not praise at once never praises.
 
@@ -50,13 +50,13 @@ Added to this there was worship. He fell down at Jesus' feet, glorifying God and
 One thing more about this man I want to notice as to his thankfulness and that is, his silence as to censuring others. When the Savior said, "Where are the nine?" I notice that this man did not reply. The Master said, "Where are the nine? Were there not any found that returned to give Glory to God, except this foreigner?" But the adoring stranger did not stand up and say, "O Lord, they are all gone off to the priests! I am astonished at them that they did not return to praise You!" O Brothers and Sisters, we have enough to do to mind our own business when we feel the Grace of God in our own hearts! If I can only get through my service of praise, I shall have no mind to accuse any of you who are ungrateful. The Master asks, "Where are the nine?" but the poor healed man at His feet has no word to say against those cruel nine! He is too much occupied with his personal adoration!
 
 I have not half done and yet you cannot possibly stay beyond the appointed hour of closing. Therefore I must compress my third division as closely as I possibly can; let us consider the blessedness of thankfulness. This man was more blessed, by far, than the nine. They were healed, but they were not blessed as he was. There is a great blessedness in thankfulness. First, because it is right. Should not Christ be praised? This man did what he could and there is always an ease of conscience and a rest of spirit when you feel that you are doing all you can in a right cause, even though you fall far short of your own desire. At this moment, my Brethren, magnify the Lord: 
-> Meet and right it is to sing, 
-> In every time and place, 
-> Glory to our heavenly King, 
-> The God of truth and Grace. 
-> Join we, then, with sweet accord, 
-> All in one thanksgiving join! 
-> Holy, holy, holy Lord, Eternal praise be Yours. 
+> Meet and right it is to sing,  
+> In every time and place,  
+> Glory to our heavenly King,  
+> The God of truth and Grace.  
+> Join we, then, with sweet accord,  
+> All in one thanksgiving join!  
+> Holy, holy, holy Lord, Eternal praise be Yours.  
 
 Next, there is this blessing in thankfulness, that it is a manifestation of personal love. I love the Doctrines of Grace, I love the Church of God, I love the Sabbath, I love the ordinances, but I love Jesus most. My heart never rests until I can glorify God, personally, and give thanks unto the Christ, personally. The indulgence of personal love to Christ is one of the sweetest things out of Heaven and you cannot indulge that personal love so well as by personal thankfulness both of heart and mouth and act and deed!
 

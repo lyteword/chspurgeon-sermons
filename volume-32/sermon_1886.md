@@ -1,15 +1,15 @@
 # Sermon 1886 | God's Remembrance of His Covenant
 
-> Nevertheless He regarded their affliction, when He heard their cry: And He remembered, for their sake, His Covenant, and repented according to the multitude of His mercies.
-> Psalm 106:44,45
+> Nevertheless He regarded their affliction, when He heard their cry: And He remembered, for their sake, His Covenant, and repented according to the multitude of His mercies.  
+> Psalm 106:44,45  
 
 This Psalm deserves to be read very carefully. It mentions many of the afflictions of God's ancient people, but it clearly sets forth that their afflictions were the distinct result of their rebellions and sins. It is not so with all the afflictions of God's people. It is written, "As many as I love I rebuke and chasten." And again, "Every branch in me that bears fruit, He purges it, that it may bring forth more fruit." Yet it is often so to this day that the servants of God smart because of disobedience. They are chastened for their sin, as it is written, "You only have I known of all the people of the earth, therefore I will punish you for your iniquities." Sin in a child of God cannot go unchastened. The rod of chastisement is included in the Covenant and, if we are in the Covenant, the Lord will keep His promise. "If his children forsake My law, and walk not in My judgments, then will I visit their transgression with the rod, and their iniquity with stripes." The miseries of Israel of old were distinctly the result of their sins. They lived under a dispensation in which there was a visible reward for obedience and a prompt temporal punishment for disobedience. Therefore one might suppose that if the people fell into affliction willfully and through their own fault, the Lord might see fit to leave them in it. Did they not procure it unto themselves? Yet such is the abundant compassion of our God, that as soon as ever these people, smarting under the result of their sin, began to cry to Him, "He regarded their affliction when He heard their cry." He might have justly said, "Go to the gods that you have set up; tell your sorrows to the calves that you have made. Ask succor at the hands of the dead whom you have consulted, or of the cruel deities to whom you have sacrificed your sons and your daughters." But instead of thus meeting them in righteous wrath, He is tender and full of compassion for them!
 
 I will read you the words again, for they are inexpressibly sweet: "Nevertheless He regarded their affliction, when He heard their cry." There is something very powerful about the cry of a child to its own parent and God, the most tender of all fathers, cannot bear to hear His children cry: 
-> Such pity as a father has 
-> Unto his children dear, 
-> Like pity shows the Lord to such 
-> As worship Him in fear. 
+> Such pity as a father has  
+> Unto his children dear,  
+> Like pity shows the Lord to such  
+> As worship Him in fear.  
 
 If there are any here who are brought low and sorely distressed through their own wrong-doing, let them, nevertheless, cry unto the Lord. Though it is because of your transgressions and your iniquities that you are afflicted, yet you may cry unto the Lord in your trouble and He will save you out of your distresses. Turn unto the hand that wounds you and that hand will bind you up. Turn unto the Lord in repentance and He will turn unto you in loving kindness.
 
@@ -54,10 +54,10 @@ Sometimes, too, and in the case of Israel it was so, we get away from that Coven
 These people had forgotten their God for another reason, namely, in the depth of their sorrow. A great sorrow stuns men and makes them forget the best sources of consolation. A little blow will cause great pain, but I have frequently heard, in reports of assaults, that far more serious blows have occasioned no pain, whatever, because they have destroyed consciousness. So do extreme distresses rob men of their wits and cause them to forget the means of relief. Under the chastening rod, the smart is remembered and the healing promise is forgotten! The people of Israel, when they were under the afflicting visitations of God, failed to remember His Covenant from the crushing effect of their sorrow and despair. Is it so with any of us? I may be addressing at this moment an ear which has grown dull through grief, a heart that is forgetful because of heaviness. Do not men even forget to eat bread in the hour of dire calamity? Ah, my Brother! Your affliction seems more present to you than even God, Himself! The black sorrow that lowers over you eclipses all the lamps of Heaven and earth!
 
 May I be my Master's messenger to you, to remind you that He is still in covenant with you and though He causes grief, yet will He have compassion? He has said, "All things work together for good to them that love God," and He will keep His Word. He has also said, "When you pass through the waters, I will be with you, and through the rivers, they shall not overflow you; when you walk through the fire, you shall not be burned, neither shall the flame kindle upon you." Depend upon it, He will preserve you! "Cast your burden upon the Lord, and He shall sustain you; He shall never suffer the righteous to be moved." Remember, "He does not afflict willingly, nor grieve the children of men," but in love He corrects and chastens. Therefore, brush those tears away, anoint your head, wash your face and be of good courage, for the Lord will strengthen your heart: 
-> What cheering words are these! 
-> Their sweetness who can tell? 
-> In time and to eternal days, 
-> 'Tis with the righteous well. 
+> What cheering words are these!  
+> Their sweetness who can tell?  
+> In time and to eternal days,  
+> 'Tis with the righteous well.  
 
 Oh that you could learn to sing in the dark like the nightingale and praise God out of the midst of the furnace like the three holy children! Oh that you may cry with Job, "Though He slay me, yet will I trust in Him!" This is what you should do and it may help you to do it if you will remember the Covenant which God has not forgotten.
 

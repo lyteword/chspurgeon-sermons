@@ -1,7 +1,7 @@
 # Sermon 1923 | The Annual Atonement
 
-> For on that day shall the priest make an atonement for you, to cleanse you, that you may be clean from all your sins before the Lord.
-> Leviticus 16:30
+> For on that day shall the priest make an atonement for you, to cleanse you, that you may be clean from all your sins before the Lord.  
+> Leviticus 16:30  
 
 Before Adam transgressed, he lived in communion with God, but after he had broken the Covenant and grieved God's Spirit, he could have no more familiar fellowship with God. Under the Mosaic dispensation, in which God was pleased, in His Grace, to dwell among His people and walk with them in the wilderness, it was still under a reserve; there was a Holy Place wherein the symbol of God's Presence was hidden away from mortal gaze. No man might come near to it except in one way, only, and then only once in the year, "The Holy Spirit this signifying, that the way into the Holiest of All was not yet made manifest, while as the first Tabernacle was yet standing." Our subject today illustrates the appointed way of access to God. This chapter shows that the way of access to God is by Atonement and by no other method. We cannot draw near unto the Most High except along the blood-besprinkled way of sacrifice. Our Lord Jesus said, "No man comes unto the Father, but by Me." And this is true in many senses and in this, among them, that our way to God lies only through the Sacrifice of His Son.
 
@@ -54,22 +54,22 @@ Worship our Lord as working salvation by His own single arm! Do not tolerate tho
 Lastly, what were the people to do for whom this atonement was made? There were two things they had to do that day, only I must add that one of them was doing nothing. For the first thing, they had to afflict their souls that day. Brothers and Sisters, does it seem a strange thing to you that on a day of rest they were to afflict their souls? Think of it a little and you will see that there was cause for it. We most rightly sing: "Here let our hearts begin to melt, While we, His death record And with our joy for pardoned guilt Mourn that we pierced the Lord." It was a day of confession of sin. And should not confession be made with sorrowful repentance? A dry-eyed confession is a hypocritical confession! To acknowledge sin without grieving over it is to aggravate sin. We cannot think of our sin without grieving, and the more sure we are that it is forgiven, the more sorry we are that ever it was committed! Sin seems all the greater because it was committed against a sin-forgiving God. If you do wrong to a person and he grows angry, you may be wicked enough to persist in the wrong. But if, instead of growing angry, he forgives and does you good in return, then you will deeply regret that ever you had an unkind thought towards him. The Lord's pardoning love makes us feel truly sorry to have offended Him.
 
 Not only was it a day of confession, but it was a day of sacrifice. No tender-hearted Israelite could think of that bullock, ram and goat dying for him without saying, "That is what I deserve." If he heard the moans of the dying creature he would say, "My own heart groans and bleeds." When we think of our dying Lord, our emotions are mingled; we feel a pleasing grief and a mournful joy as we stand at Calvary. Thus it is we sing: 
-> Alas! And did my Savior bleed? 
-> And did my Sovereign die? 
-> Could He devote that sacred head 
-> For such a worm as I? 
-> Was it for crimes that I have done 
-> He died upon the tree? 
-> Amazing pity, Grace unknown, 
-> And love beyond degree! 
-> Well might the sun in darkness hide 
-> And shut his glories in, 
-> When God the mighty Maker died 
-> For man, the creature's sin! 
-> Well might I hide my blushing face 
-> When His dear Cross appears, 
-> Dissolve my heart in thankfulness, 
-> And melt my eyes to tears. 
+> Alas! And did my Savior bleed?  
+> And did my Sovereign die?  
+> Could He devote that sacred head  
+> For such a worm as I?  
+> Was it for crimes that I have done  
+> He died upon the tree?  
+> Amazing pity, Grace unknown,  
+> And love beyond degree!  
+> Well might the sun in darkness hide  
+> And shut his glories in,  
+> When God the mighty Maker died  
+> For man, the creature's sin!  
+> Well might I hide my blushing face  
+> When His dear Cross appears,  
+> Dissolve my heart in thankfulness,  
+> And melt my eyes to tears.  
 
 It was a day of sacrifice and, therefore, a day of affliction of their souls and herein we are in sympathy with them.
 

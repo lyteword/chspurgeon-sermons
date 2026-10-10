@@ -1,7 +1,7 @@
 # Sermon 1930 | Is It True?
 
-> Nebuchadnezzar spoke and said to them, Is it true, O Shadrach, Meshach, and Abednego, that you do not serve my gods, nor worship the golden image which I have set up?
-> Daniel 3:14
+> Nebuchadnezzar spoke and said to them, Is it true, O Shadrach, Meshach, and Abednego, that you do not serve my gods, nor worship the golden image which I have set up?  
+> Daniel 3:14  
 
 Dear Friends who are not yet decided, if you would become followers of the Lord Jesus Christ it will be well for you to count the cost. It was our Lord's custom to bid men consider what His service might involve. His frequent declaration was, "He that takes not his cross, and follows after Me, is not worthy of Me." He knew and would have us know that it is no child's play to be a soldier of the Cross. If we count upon ease in this warfare, we shall be grievously disappointed. We must fight if we would reign.
 
@@ -52,10 +52,10 @@ But now, thirdly, let us consider what follows if it is true. I hope that many h
 This word is meant for certain Christian people who come in and out of this house and join with us in public worship, but have never openly acknowledged themselves to be disciples of the Lord Jesus. Whenever we gather to the remembrance of our dying Lord, they either take their seats among the onlookers, or else they go home. This raises many anxious thoughts in our minds. We are especially exercised with this question, these people have a faith which they refuse to acknowledge, will such a faith save them? Scripture evidently lays great stress upon obedience to the Lord and taking up His Cross and following Him. Will Jesus save those who will not come out and bear His reproach? He claims of all His followers that they follow Him in the daylight. It is written, "If you shall confess with your mouth, the Lord Jesus, and shall believe in your heart that God has raised Him from the dead, you shall be saved. For with the heart man believes unto righteousness; and with the mouth confession is made unto salvation." He bade us preach this as His Gospel: "He that believes, and is baptized, shall be saved." These are not words of mine, but of the Lord Jesus, Himself! Take heed unto yourselves that you do not slight them! I dare not leave out part of His Gospel command when I am preaching it. If you believe in the Lord Jesus, stand on His side! Why are you slow to do so? I compared one, the other day, to a rat behind the wainscot which only comes out at night when the candles are put out and there are crumbs to be picked up. Too many Christians attempt to live in that style. Dare I call them Christians?
 
 Do not be such miserable creatures, but quit yourselves like men! Tremble lest you perish among "the fearful and unbelieving." Join with me, I pray you, in singing: 
-> I'm not ashamed to acknowledge my Lord, 
-> Or to defend His cause! 
-> Maintain the honor of His Word, 
-> The Glory of His Cross. 
+> I'm not ashamed to acknowledge my Lord,  
+> Or to defend His cause!  
+> Maintain the honor of His Word,  
+> The Glory of His Cross.  
 
 There are many dear children in this place, both boys and girls, who have not been ashamed in their early days to come forward and confess the Lord Jesus Christ! God bless the dear children! I rejoice in them. I am sure that the Church will never have to be ashamed of having admitted them. They, at least, show no cowardice, they take a solemn delight in being numbered with the people of God, and count it an honor to be associated with Christ and His Church. Shame on you older ones who still hold back! What ails you, that babes and sucklings are braver than you? By the love you bear to Christ, I charge you; come forth and confess His name among this evil and perverse generation!
 

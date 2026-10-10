@@ -1,11 +1,11 @@
 # Sermon 1891 | The Sermon of the Seasons
 
-> "While the earth remaineth, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease." 
-> Genesis 8:22. 
+> "While the earth remaineth, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease."  
+> Genesis 8:22.  
 
 Our savior constantly taught the people by parables, and I think he would have his ministers do the same. The condition of things just now, both as to weather and business, furnishes a very plain and instructive parable which it would not be wise to pass over. Every morning when we wake we hope for a change of wind, a glimpse of the sun, and the end of the frost; but still we moan with the poet: 
-> Oh, the long and dreary Winter! 
-> Oh, the cold and cruel Winter! 
+> Oh, the long and dreary Winter!  
+> Oh, the cold and cruel Winter!  
 
 We say to ourselves, Will spring-time never come? In addition to this, trade and commerce continue in a state of stagnation; crowds are out of employment, and where business is carried on, it yields little profit. Our watchmen are asked if they discern any signs of returning day, and they answer, "No." Thus we bow our heads in a common affliction, and ask each man comfort of his fellow; for as yet we see not our signs, neither does the eastern sky grow grey with the hopeful light of the long-expected morning. Having faith in God we faint not, but believe that a lesson of love for us is written by his hand in these black characters. Let us spell it out with childlike confidence.
 
@@ -56,10 +56,10 @@ The abiding of the ordinances of heaven is equally a token of the continuance of
 A third thing was also assured by the same token. The Lord said that as long as his covenant with day and night remained he would not put away the seed of Abraham. Since a son of David must rule them, they must exist to be ruled. There will for ever be a chosen people; a people for whom Jesus lives as king and priest. The Lord hath not cast away the people whom he did foreknow, nor will he do so, come what may. While seedtime and harvest, cold and heat abide, the Lord will maintain a church, against which the gates of hell shall not prevail. What a mercy is this! Alas! men whom I hoped were faithful have turned aside from the truth; ministers who were regarded as pillars have fallen, and persons esteemed to be saints turned out to be hypocrites: yet "there is a remnant according to the election of grace." The Lord hath a reserve of men who have not bowed the knee to Baal. Therefore, let us be of good courage, and never tremble for the ark of the Lord.
 
 To end all, let our prayer be that the Lord would abide with us, and then the heat shall not smite us, nor the cold molest us. The presence of God makes fair weather. Let us sing with quaint John Ryland: 
-> Rise then, Sun of righteousness, 
-> Me with thy sweet beamings bless; 
-> Winter then may stay or flee, 
-> Lord, 'tis all alike to me. 
+> Rise then, Sun of righteousness,  
+> Me with thy sweet beamings bless;  
+> Winter then may stay or flee,  
+> Lord, 'tis all alike to me.  
 
 Oh, you that know not our God, I feel heartily sorry for you! To you all seasons must be blank, for God is not in them. Oh that you knew Jesus. The world is a bleak house, a chill and empty corridor without God; and men are orphans, and life is hopeless, and death is starless night, if Jesus is not known and loved. He who trusts his soul with Jesus has found the key of the great secret, the clue of the maze. Henceforth he shall see, in all that smiles or rages around him in our changeful weather, pledges of the love of the Father, tokens of the grace of the Son, and witnesses of the work of the Holy Ghost. To the one God be glory for ever! Amen.
 

@@ -1,7 +1,7 @@
 # Sermon 1903 | Who Found It Out?
 
-> And there were four leprous men at the entrance of the gate and they said to one another, Why are we sitting here until we die? If we say, We will enter into the city, then the famine is in the city, and we shall die there. And if we sithere, we die also. Now therefore, come, let us surrender to the army of the Syrians. If they keep us alive, we shall live, and if they kill us, we shall only die. And they rose at twilight, to go to the camp of the Syrians: and when they had come to the outskirts of the Syrian camp, to their surprise, no one was there. For the Lord had made the host of the Syrians to hear a noise of chariots, and a noise of horses even the noise of a great host: and they said to one another, Look the king of Israel has hired against us the kings of the Hittites, and the kings of the Egyptians, to come upon us. Therefore they arose and fled in the twilight, and left their tents, and their horses, and their asses, even the camp as it was, and fled for their lives.
-> 2 Kings 7:3-7
+> And there were four leprous men at the entrance of the gate and they said to one another, Why are we sitting here until we die? If we say, We will enter into the city, then the famine is in the city, and we shall die there. And if we sithere, we die also. Now therefore, come, let us surrender to the army of the Syrians. If they keep us alive, we shall live, and if they kill us, we shall only die. And they rose at twilight, to go to the camp of the Syrians: and when they had come to the outskirts of the Syrian camp, to their surprise, no one was there. For the Lord had made the host of the Syrians to hear a noise of chariots, and a noise of horses even the noise of a great host: and they said to one another, Look the king of Israel has hired against us the kings of the Hittites, and the kings of the Egyptians, to come upon us. Therefore they arose and fled in the twilight, and left their tents, and their horses, and their asses, even the camp as it was, and fled for their lives.  
+> 2 Kings 7:3-7  
 
 The story of four leprous men inserted in the Book of the Kings of Israel; is it not amazing? No, it is not amazing for the Bible. If you were to take out of the Scriptures all the stories that have to do with poor afflicted men and women, what a very small book the Bible would become, especially if together with the stories, you removed all the Psalms of the sorrowful, all the promises for the distressed and all the passages which belong to the children of grief! This Book, indeed, for the most part is made up of the annals of the poor and despised! Think for a minute what space is occupied with the life of the man who was separated from his brothers, sold for a slave and put in prison in Egypt! What a large part of the Bible is occupied by the writings of one who was a babe exposed on the Nile and afterwards kept a flock for 40 years in the wilderness! We could not part with the account of the man who lost all his property and children in one day, and sat among the ashes, covered with sore boils. We could not spare the story of the two widows who came together empty-handed from the land of Moab, one of whom went to glean in the fields of Boaz. Nor the history of that woman of a sorrowful spirit and her little boy, around whom the hope of Israel gathered in the dark days of Eli's feeble rule.
 
@@ -50,9 +50,9 @@ Yet the people within the walls could do something or other to palliate their hu
 I understand that right well. I would to God that some of you were reduced to so great a necessity that you were driven to the only One who can help you. Oh, that you were utterly bankrupt! Not a kind wish, you say? Yes, it is. Our complete emptiness constrains us to seek the Divine fullness. Look at the prodigal son, so long as he had anything left he did not go home to his Father, but when he had spent all his substance and had become so hungry that he envied the very hogs he fed, then he said, "I will arise, and go to my Father." Spiritual necessity is that which nerves the soul with courage to cast itself upon Sovereign Grace in Jesus Christ!
 
 These lepers were driven to go to make the discovery because they felt that they could not be any worse than they were. They said, "If we sit here, we shall die; and if the Syrians kill us, we shall only die." That feeling has often driven souls to Christ: 
-> I can but perish if I go. I am resolved to try 
-> For if I stay away, 
-> I know I must forever die. 
+> I can but perish if I go. I am resolved to try  
+> For if I stay away,  
+> I know I must forever die.  
 
 They could but die and they were sure to die if they sat where they were. Poor Soul, are you within reach of my voice? Is your case desperate? Well, then, try faith! You cannot be any worse and you may be better. Believe in the Lord Jesus Christ. If He should reject you, you cannot be any worse, but then, He cannot reject you, for He says, "Him that comes to Me, I will in no wise cast out." I would pray for mercy if I were you! Suppose you are not heard; you cannot be the worse for praying. I would cast myself on Jesus if I were you! You could not be the worse for doing so. Every day I say to myself: "Though my eye of faith is dim, I'll hold on Jesus, sink or swim." I cannot be blamed for trusting to One who has saved so many! O my Hearer, there is no risk in the matter! You must be infinitely better for coming to the appointed Savior! Come and try Him! Come at this moment!
 
@@ -63,14 +63,14 @@ You remember how the people of Nineveh humbled themselves before God with nothin
 These lepers went to the camp of the Syrians because they were shut up to that one course: "If we say, we will enter into the city, then the famine is in the city and we shall die there. And if we sit here, we die also." Only one road was open. I am always glad when I am in that condition. If many courses are open to me, I may make a mistake. But when I see only one road, I know which way to go. It is a blessed thing to be shut up to faith in Christ; to be compelled to look to Grace, alone. I spoke to a friend this week who is sorely sick and I said, "You are resting in Christ, my Brother." He replied, "I have nothing else to rest in." I said, "Your hope is in the atoning Sacrifice of Christ," and he answered, "What other hope could I have?" While we have 50 ways of salvation, we shall be lost. But when we see that "other foundation can no man lay than that which is laid, even Jesus Christ the Righteous," then we shall build upon it and be safe!
 
 These lepers were not the men to theorize. They were in such a plight that they must come to prompt action. Many ladies and gentlemen treat religion as a science and, therefore, they never know its real powers. Many professors and learned doctors speculate upon theology as if it were part of a liberal education, but by no means a practical matter. People who have no sin to wash away and no great spiritual trouble to bear, play at religion, but those who are ready to perish look on matters in another light! We are not chemists analyzing the Bread of Life; we are fainting men and women who feed on it with eagerness! Our resolve is: 
-> I'll go to Jesus, though my sin 
-> Has, like a mountain, rose. 
-> I know His courts, I'll enter in, 
-> Whatever may oppose. 
-> Perhaps He will admit my plea, 
-> Perhaps will hear my prayer. 
-> But if I perish, I will pray 
-> And perish only there. 
+> I'll go to Jesus, though my sin  
+> Has, like a mountain, rose.  
+> I know His courts, I'll enter in,  
+> Whatever may oppose.  
+> Perhaps He will admit my plea,  
+> Perhaps will hear my prayer.  
+> But if I perish, I will pray  
+> And perish only there.  
 
 These lepers discovered what the Lord had done because they did not give themselves up to dreams and guesses, but came to downright matters of fact. May God drive every unconverted sinner into a corner and so compel him to yield to Divine Grace! May He bring you to act in earnest! May He drive you by the extreme necessities of your case to seek and to find, to search and to discover!
 

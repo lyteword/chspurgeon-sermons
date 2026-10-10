@@ -1,7 +1,7 @@
 # Sermon 1926 | Love's Complaining
 
-> "Nevertheless I have somewhat against thee, because thou hast left thy first love. Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent" 
-> Rev 2:4,5. 
+> "Nevertheless I have somewhat against thee, because thou hast left thy first love. Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent"  
+> Rev 2:4,5.  
 
 It was the work of the priest to go into the holy place and to trim the seven-branched lamp of gold: see how our Great High Priest walketh in the midst of the seven golden candlesticks: his work is not occasional, but constant. Wearing robes which are at once royal and priestly, he is seen lighting the holy lamps, pouring in the sacred oil, and removing impurities which would dim the light.
 

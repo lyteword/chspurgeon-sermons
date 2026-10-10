@@ -1,7 +1,7 @@
 # Sermon 1897 | Holding Fast Our Profession
 
-> Let us hold fast the profession of our faith without wavering; (for He is faithful who promised).
-> Hebrews 10:23
+> Let us hold fast the profession of our faith without wavering; (for He is faithful who promised).  
+> Hebrews 10:23  
 
 The Apostle is drawing certain inferences from the Covenant of Grace upon which he has been enlarging. He shows that God has made a Covenant with His people by which they are effectually preserved. "This is the covenant that I will make with them after those days, says the Lord, I will put My Laws into their mind, and write them in their hearts; and their sins and their iniquities will I remember no more." He shows that by this Covenant the fear of returning to our old sin is removed and the guilt of our sin is forever put away. He bids us, therefore, be bold in our approaches to God. As pardoned men, upon whom there is no sin, he bids us exercise the freedom of near access to God, who has accepted us in Christ. Then he tells us that since we are put in such a blessed position, a position which is altogether unique, it becomes us to hold fast to what we have received. Since the glorious Gospel has done so much for us, let us never quit it. Since it has brought us into a condition which angels might envy, let us never think of leaving it. Let us not dream of giving up that Divine principle which has worked us such blessedness, but, "Let us hold fast the profession of our faith without wavering." I pray God the Holy Spirit to bless these words as we shall think them over. May He make this evening's meditation a means of establishment to us that, while we hold fast the profession of our faith, the blessed Truths of that faith may also hold us fast as an anchor holds a ship! Never was there a time in which this was more necessary. That exhortation, "Let us hold fast," might well be written on the cover of every Christian's Bible. We live in such a changing age that we need all to be exhorted to be rooted and grounded, confirmed and established in the Truth of God. I shall call your attention, first, to this point; what we have. We have faith and, according to the second rendering, which is adopted by the revisers, we have hope. Then, secondly, what we have done. We have made a profession of that faith; a confession of that hope. Then, thirdly, what we are now to do; to hold fast that profession of faith and hope. And if you ask me, in the fourth place, why we are to do if!
 
@@ -62,8 +62,8 @@ The ships in yonder port are swinging with the tide just now. Please God they wi
 Hold, next to your hope. Hope in Christ and in His coming and in the victory of the Truth of God. If the storms lower, believe that there is fair weather ahead. And if the night darkens into a seven-fold blackness, believe that the morning comes despite the darkening glooms! Have faith and trust in Him that lives, and was dead, and is alive forever-more! Let your hope begin to hear the hallelujahs which proclaim the reign of the Lord God Omnipotent, for reign He must, and the victory shall be unto Him and to His Truth. Hold fast your faith. Hold fast your hope.
 
 But that is not the text. It is hold fast your profession of faith, your confession of hope; that is to say, stand to what you have done by way of open declaration of these things. Constantly keep up your confession. You made it once. Renew it. Often and often say: 
-> I'm not ashamed to acknowledge my Lord, 
-> Nor to defend His cause; Maintain the honor of His Word, The Glory of His Cross. 
+> I'm not ashamed to acknowledge my Lord,  
+> Nor to defend His cause; Maintain the honor of His Word, The Glory of His Cross.  
 
 You are Christians, not for a time, but for eternity1 Your new birth is not into a dying existence, but into life everlasting! You are born again of a living and incorruptible seed that lives and abides forever! Therefore, quit yourselves like men and be strong. Stand fast, "Be steadfast, unmovable, always abounding in the work of the Lord." Continue your confession and never conceal it.
 

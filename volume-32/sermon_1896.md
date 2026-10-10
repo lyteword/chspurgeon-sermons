@@ -1,15 +1,15 @@
 # Sermon 1896 | The Three Hours of Darkness
 
-> Now from the sixth hour there was darkness over all the land unto the ninth hour.
-> Matthew 27:45
+> Now from the sixth hour there was darkness over all the land unto the ninth hour.  
+> Matthew 27:45  
 
 From nine till noon the usual degree of light was present, so that there was time enough for our Lord's adversaries to behold and insult His sufferings. There could be no mistake about the fact that He was really nailed to the Cross, for He was crucified in broad daylight. We are fully assured that it was Jesus of Nazareth, for both friends and foes were eyewitnesses of His agonies, for three long hours the Jews sat down and watched Him on the Cross, making jests of His miseries. I feel thankful for those three hours of light, for otherwise the enemies of our faith would have questioned whether, in very deed, the blessed body of our Master was nailed to the tree and would have started false rumors as many as the bats and owls which haunt the darkness! Where would have been the witnesses of this solemn scene if the sun had been hidden from morn till night? As three hours of light gave opportunity for inspection and witness-bearing, we see the wisdom which did not allow it to close too soon.
 
 Never forget that this miracle of the closing of the eye of day at high noon was performed by our Lord in His weakness. He had walked the sea, raised the dead and healed the sick in the days of His strength, but now He has come to His lowest, the fever is on Him, He is faint and thirsty. He hangs on the borders of dissolution. Yet He has power to darken the sun at noon! He is still very God of very God: 
-> Behold, a purple torrent runs 
-> Down from His hands and head! 
-> The crimson tide puts out the sun! 
-> His groans awake the dead! 
+> Behold, a purple torrent runs  
+> Down from His hands and head!  
+> The crimson tide puts out the sun!  
+> His groans awake the dead!  
 
 If He can do this in His weakness, what is He not able to do in His strength? Fail not to remember that this power was displayed in a sphere in which He did not usually put forth His might. The sphere of Christ is that of goodness and benevolence and, consequently, of light. When He enters the sphere of making darkness and of working judgement, He engages in what He calls His strange work. Wonders of terror are His left-handed deeds. It is but now and then that He causes the sun to go down at noon and darkens the earth in the clear day (Amos 8:9). If our Lord can make darkness at will as He dies, what Glory may we not expect now that He lives to be the Light of the city of God forever? The Lamb is the Light and what a Light! The heavens bear the impress of His dying power and lose their brightness! Shall not the new heavens and the new earth attest the power of the risen Lord? The thick darkness around the dying Christ is the robe of the Omnipotent. He lives again! All power is in His hands and all that power He will put forth to bless His chosen!
 
@@ -34,10 +34,10 @@ How should the Holy One have sin laid upon Him? That, also, I do not know. A wis
 Concerning this miracle, I have also further to remark that this darkening of the sun surpassed all ordinary and natural eclipses. It lasted longer than an ordinary eclipse and it came in a different manner. According to Luke, the darkness all over the land came first and the sun was darkened afterwards; the darkness did not begin with the sun, but mastered the sun! It was unique and supernatural. Now, among all grief, no grief is comparable to the grief of Jesus; of all woes, none can parallel the woes of our great Substitute! As strongest light casts deepest shade, so has the surprising love of Jesus cost Him a death such as falls not to the common lot of men. Others die, but this Man is "obedient unto death." Others drink the fatal draught, yet reckon not of its wormwood and gall, but my Master "tasted death." "He poured out His soul unto death." Every part of His Being was darkened with that extraordinary death-shade, and the natural darkness outside of Him did but shroud a special death which was entirely by itself.
 
 And now, when I come to think of it, this darkness appears to have been most natural and fitting. If we had to write out the story of our Lord's death, we could not omit the darkness without neglecting a most important item. The darkness seems a part of the natural furniture of that great transaction. Read the story through and you are not at all startled with the darkness. After once familiarizing your mind with the thought that this is the Son of God and that He stretches His hands to the cruel death of the Cross, you do not wonder at the rending of the veil of the Temple! You are not astonished at the earthquake or at the rising of certain of the dead. These are proper attendants of our Lord's passion, and so is the darkness. It drops into its place, it seems as if it could not have been otherwise: 
-> That Sacrifice! The death of Him, 
-> The high and ever Holy One! 
-> Well may the conscious Heaven grow dim, 
-> And blacken the beholding sun. 
+> That Sacrifice! The death of Him,  
+> The high and ever Holy One!  
+> Well may the conscious Heaven grow dim,  
+> And blacken the beholding sun.  
 
 For a moment think again. Has it not appeared as if the death which that darkness shrouded was also a natural part of the great whole? We have grown, at last, to feel as if the death of the Christ of God were an integral part of human history. You cannot take it out of man's chronicles, can you? Introduce the Fall and see Paradise Lost, and you cannot make the poem complete till you have introduced that greater Man who did redeem us, and by His death gave us our Paradise Regained. It is a singular characteristic of all true miracles, that though your wonder never ceases, they never appear to he unnatural; they are marvelous, but never monstrous! The miracles of Christ dovetail into the general run of human history. We cannot see how the Lord could be on earth and Lazarus not be raised from the dead when the grief of Martha and Mary had told its tale. We cannot see how the disciples could have been tempest-tossed on the Lake of Galilee and the Christ not walk on the water to deliver them! Wonders of power are expected parts of the narrative where Jesus is! Everything fits into its place with surrounding facts.
 

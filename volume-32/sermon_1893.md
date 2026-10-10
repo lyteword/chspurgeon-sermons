@@ -1,7 +1,7 @@
 # Sermon 1893 | Jesus Angry with Hard Hearts
 
-> "And when he had looked round about on them with anger, being grieved for the hardness of their hearts, he saith unto the man, Stretch forth thine hand." 
-> Mark 3:5. 
+> "And when he had looked round about on them with anger, being grieved for the hardness of their hearts, he saith unto the man, Stretch forth thine hand."  
+> Mark 3:5.  
 
 My text will really consist of these words: "He looked round about on them with anger, being grieved for the hardness of their hearts." It is the divine Lord, the pitiful Jesus, the meek and lowly in heart, who is here described as being angry. Where else do we meet with such a statement while he was here among men? A poor man was present in the synagogue who had a withered hand: it was his right hand, and he who has to earn his daily bread can guess what it must be to have that useful member dried up or paralyzed. In the same synagogue was the Savior, ready to restore to that hand all its wonted force and cunning. Happy conjunction! The company that had gathered in the synagogue, professedly to worship God, would they not have special cause to do so when they saw a miracle of divine goodness? I can imagine them whispering one to another, "We shall see our poor neighbor restored to-day; for the Son of God has come among us with power to heal, and he will make this a very glorious Sabbath by his work of gracious power." But I must not let imagination mislead me: they did nothing of the kind. Instead of this, they sat watching the Lord Jesus, not to be delighted by an act of his power, but to find somewhat of which they might accuse him. When all came to all, the utmost that they would be able to allege would be that he had healed a withered hand on the Sabbath. Overlooking the commendation due for the miracle of healing, they laid the emphasis upon its being done on the Sabbath; and held up their hands with horror that such a secular action should be performed on such a sacred day. Now, the Savior puts very plainly before them the question, "Is it right to do good on the Sabbath-day?" He put it in a form which only allowed of one reply. The question could, no doubt, have been easily answered by these Scribes and Pharisees, but then it would have condemned themselves, and therefore they were all as mute as mice. Scribes most skilled in splitting hairs, and Pharisees who could measure the border of a garment to the eighth of an inch, declined to answer one of the simplest questions in morals. Mark describes the Savior as looking round upon them all with anger and grief, as well he might.
 
@@ -65,16 +65,16 @@ Let us be careful to keep away from all hardening influences, whether of books, 
 
 Lastly, use all softening influences. Ask to have your heart daily rendered sensitive by the indwelling of the quickening Spirit. Go often to hear the word: it is like a fire, and like a hammer breaking the rock in pieces. Dwell at the foot of the cross it is there that tenderness is born into human hearts. Jesus makes all hearts soft, and then stamps his image on them. Entreat the Holy Ghost to give you a very vivid sense of sin, and a very intense dread of it. Pray often according to the tenor of Charles Wesley's hymn, in which he cries: "Quick as the apple of an eye, O God, my conscience make! Awake my soul when sin is nigh, And keep it still awake.
 
-> Oh, may the least omission pain 
-> My well-instructed soul 
-> And drive me to the blood again, 
-> Which makes the wounded whole! 
+> Oh, may the least omission pain  
+> My well-instructed soul  
+> And drive me to the blood again,  
+> Which makes the wounded whole!  
 
 If such be the condition of our heart our Lord will not be angry with us. He will look round upon us with joy, and take a delight in us.
 
 So far I have kept to the text, bearing all the while the burden of the Lord. If it be not heavy hearing to you, it is certainly painful preaching to me. That same love which made the loving Jesus grieved has driven me to speak after this fashion. Not that I love men as much as he did; but a spark from his fire has kindled in my soul, and is burning there according to the measure of grace given. But now, my dear hearers, let me indulge myself with a word of gospel. Surely there are some among you who desire to lose your hardness. You are crying to yourselves: 
-> Heart of stone, relent! relent! 
-> Melt by Jesus' love subdued! 
+> Heart of stone, relent! relent!  
+> Melt by Jesus' love subdued!  
 
 To you there is abundant cause of hope. He who made the heart can melt it. Job said, "God maketh my heart soft." It is the peculiar office of the Holy Spirit to renew our nature; indeed, he makes us to be born again, working on the behalf of our Lord Jesus, whose royal word is, "Behold I make all things new." The Holy Ghost can work in us conviction of sin, the new birth, faith in the Lord Jesus, deep contrition, and holy tenderness. Do you desire that it should be so? Will you join me in a silent prayer that his melting operations may at this moment be felt in your soul?
 

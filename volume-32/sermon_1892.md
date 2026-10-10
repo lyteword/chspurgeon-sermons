@@ -1,7 +1,7 @@
 # Sermon 1892 | Why They Leave Us
 
-> Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.
-> John 17:24
+> Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.  
+> John 17:24  
 
 The prayer of the savior rises as it proceeds. He asked for his people that they might be preserved from the world, then that they might be sanctified, and then that they might be made manifestly one; and now he reaches his crowning point; that they may be with him where he is, and behold his glory. It is well when in prayer the spirit takes to itself wings. The prayer that swings to and fro like a door upon its hinges may admit to fellowship; but that prayer is more after the divine pattern which, like a ladder, rises round by round, until it loses itself in heaven.
 
@@ -21,10 +21,10 @@ The whole of this sermon through, I want to show you that it is right that we sh
 
 This is the consummation which the First-born looks for, and to which all of us who are like him are aspiring also, namely, that God may be all in all: that the great Father may be had in honor, and may be worshipped in every place. Since, then, we are from him, and of him, and to him, and for him, this word "Father" calls us to gather at his feet. Shall any one of us lament the process? No; we dare not complain that our choicest brethren are taken up to gladden the great Father's house. Our brother is gone; but we ask, "Where is he gone?" and when the answer comes, "He is gone to the Father," all notion of complaint is over. To whom else should he go? When the great First-born went away from us, he told his sorrowing followers that he was going to their Father and his Father; and that answer was enough. So, when our friend, or our child, or our wife, or our brother is gone, it is enough that he is with the Father. To call them back does not occur to us; but rather we each one desire to follow after them.
 
-> Father, I long, I faint to see 
-> The place of thine abode; 
-> I'd leave thine earthly courts and flee 
-> Up to thy seat, my God. 
+> Father, I long, I faint to see  
+> The place of thine abode;  
+> I'd leave thine earthly courts and flee  
+> Up to thy seat, my God.  
 
 A child may be happy at school, but he longs for the holidays. Is it merely to escape his lessons? Ah, no! Ask him, and he will tell you, "I want to go home to see my father." The same is equally true, and possibly more so, if we include the feminine form of parentage. What a home-cry is that of "mother!" The sight of that dear face has been longed and hungered for by many a child when far away. Mother or father, which you will; they are blended in the great Fatherhood of God. Let it but be said that any one has gone to his father, and no further question is asked as to the right of his going thither. To the father belongs the first possession of the child; should he not have his own child at home? The Savior wipes our tears away with a handkerchief which is marked in the corner with this word: "Father." Secondly, I want your thoughts upon the home impetus. The force which draws us home lies in the word, "I will." Jesus Christ, our most true God, veiled in human form, bows his knee and prays, and throws his divine energy into the prayer for the bringing home of his redeemed. This one irresistible, everlastingly almighty prayer carries everything before it. "Father, I will that they also, whom thou hast given me, be with me where I am," is the centripetal energy which is drawing all the family of God towards its one home.
 

@@ -1,7 +1,7 @@
 # Sermon 1884 | Exhortation: "Set Your Heart"
 
-> Now set your heart and your soul to seek the Lord your God.
-> 1 Chronicles 22:19
+> Now set your heart and your soul to seek the Lord your God.  
+> 1 Chronicles 22:19  
 
 This exhortation may be most fitly directed to those who are already saved. It was first given to the elders of Israel and we would gladly hope that they were already good men and true, but, secondly, the language might be very fitly addressed to the unconverted. There may be a little straining in this latter case, for we can hardly call the Lord, their God as yet, but still we shall venture to say to the unconverted who have come up with God's people, "Set your heart and your soul to seek the Lord your God." Let us take it, first, in its reference to God's own people. You have already found the Lord. There is a sense in which you have not to seek Him, for you already know Him, but, in another sense, you are still to seek Him, for seeking the Lord is a description of the whole of the Believer's life. After he has found God as his salvation, he has to seek him as his Friend, as his Sanctifier, as his Example. Until they come to that glorious perfection which belongs to the better world, Christian men have something, still, to seek.
 

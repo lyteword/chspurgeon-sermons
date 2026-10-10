@@ -1,7 +1,7 @@
 # Sermon 1894 | The Two Appearings and the Discipline of Grace
 
-> For the Grace of God that brings salvation has appeared to all men, teaching us that denying ungodliness and worldly lusts, we should live soberly, righteously and godly in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Savior Jesus Christ, who gave Himself for us, that He might redeem us from alliniquity, and purify unto Himself a peculiar people, zealous of good works.
-> Titus 2:11-14
+> For the Grace of God that brings salvation has appeared to all men, teaching us that denying ungodliness and worldly lusts, we should live soberly, righteously and godly in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Savior Jesus Christ, who gave Himself for us, that He might redeem us from alliniquity, and purify unto Himself a peculiar people, zealous of good works.  
+> Titus 2:11-14  
 
 Upon reading this text, one sees at a glance that Paul believed in a Divine Savior. He did not preach a Savior who was a mere man. He believed the Lord Jesus Christ to be truly Man, but he also believed Him to be God over all and he, therefore, uses the striking words, "the glorious appearing of the great God and our Savior Jesus Christ." There is no appearing of God the Father; there is no such expression in Scripture! The appearing is the appearing of that second Person of the blessed Trinity in unity who has already once appeared and who will appear a second time without a sin offering unto salvation in the latter days. Paul believed in Jesus as "the great God and our Savior." It was his high delight to extol the Lord who once was crucified in weakness. He calls Him, here, "the great God," thus specially dwelling upon His power, dominion and Glory. And this is the more remarkable because he immediately goes on to say, "who gave Himself for us, that He might redeem us from all iniquity." He that gave Himself. He that surrendered life, itself, upon the accursed tree. He that was stripped of all honor and Glory and entered into the utmost depths of humiliation was, assuredly, the great God notwithstanding all! O Brothers, if you take away the Deity of Christ, what in the Gospel is left that is worth preaching? None but the great God is equal to the work of being our Savior!
 
@@ -58,10 +58,10 @@ A certain warrior was found in prayer and when his king sneered, he answered tha
 A second encouragement is that another appearing is coming. He who bowed His head in weakness and died in the moment of victory, is coming in all the Glory of His endless life! Do not question it, the world is not going to darken into an eternal night, the morning comes as well as the night and though sin and corruption abound, and the love of many waxes cold, these are but the tokens of His near advent who said that it would be so before His appearing! The right with the might and the might with the right shall be! As surely as God lives, it shall be so. We are not fighting a losing battle. The Lord must triumph. Oh, if His suffering life and cruel death had been the only appearing, we might have feared. But it is not, it is but the first, and the prefatory part of His manifestation. He comes! He comes! None can hinder His coming! Every moment brings Him nearer! Nothing can delay His Glory! When the hour shall strike, He shall appear in the majesty of God to put an end to the dominion of sin and bring in endless peace! Satan shall shortly be bruised under our feet; therefore comfort one another with these words and then prepare for further battle! Sharpen your swords and be ready for close fighting! Trust in God and keep your powder dry! This must always be our war cry, "He must reign." We are looking for the appearing of the great God and Savior Jesus Christ!
 
 Another encouragement is that we are serving a glorious Master. The Christ whom we follow is not a dead Prophet like Mohamed. Truly, we preach Christ Crucified, but we also believe in Christ risen from the dead, in Christ gone up on high, in Christ soon to come a second time! He lives and He lives as the great God and our Savior. If, indeed, you are soldiers of such a Captain, throw fear to the winds! Can you be cowards when the Lord of Hosts leads you? Dare you tremble when at your head is The Wonderful, The Counselor, The Mighty God, The Everlasting Father, The Prince of Peace? The trumpet is already at the lip of the archangel; who will not play the man? The great drum which makes the universe to throb, summons you to action: 
-> Stand up, stand up for Jesus, 
-> You soldiers of the Cross! 
-> Lift high His royal banner, 
-> It must not suffer loss. 
+> Stand up, stand up for Jesus,  
+> You soldiers of the Cross!  
+> Lift high His royal banner,  
+> It must not suffer loss.  
 
 His Cross is the old Cross, still, and none can overthrow it. Hallelujah, hallelujah to the name of Jesus!
 

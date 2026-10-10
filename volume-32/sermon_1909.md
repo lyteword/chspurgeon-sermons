@@ -1,7 +1,7 @@
 # Sermon 1909 | A Seasonable Exhortation
 
-> Therefore gird up the loins of your mind, be sober and hope to the end for the Grace that is to be brought unto you at the revelation of Jesus Christ.
-> 1 Peter 1:13
+> Therefore gird up the loins of your mind, be sober and hope to the end for the Grace that is to be brought unto you at the revelation of Jesus Christ.  
+> 1 Peter 1:13  
 
 To read the whole chapter is most helpful to the understanding of our text. If we have studied it carefully, we must have said to ourselves, "How full of their Lord were the minds of these holy writers!" Peter can scarcely write a verse without an allusion to the Lord Jesus Christ. He was not only, "Peter, an Apostle of Jesus Christ," but you can see that his heart was steeped and saturated in memories of his Master; he could hardly get through a sentence without some allusion to the death, the Resurrection, or the Second Coming of his beloved Lord. Oh that my ministry might always be of the same sort, dripping with the holy unction of the Savior's name! Brethren, may your conversations and your lives be full of the Lord Jesus Christ, that men may take knowledge of you; that you have been with Jesus and have learned of Him.
 
@@ -46,8 +46,8 @@ The exact meaning of the metaphor, "Therefore gird up the loins of your mind," i
 Does it not also mean preparedness? When a man has girt his garments about him, he is ready for his work. A true Believer should be ready for suffering or service; ready, indeed, for anything. A servant standing with his loins girt signifies that whatever the message may be from his Master, he is ready to deliver it. Whatever the errand, he is ready to run upon it. He only needs the word and he will not hesitate, but will obey at once. This is the position which Christian people should always occupy; you should be earnestly prepared for the will of the Lord, let it be what it may. The future is unknown to you, but you are in a fit condition to meet it, whatever form it may assume.
 
 But the figure means more than this, does it not? It means determination and hearty resolution. The man who girds himself up for a work means that he is resolved to do it at once. He has made up his mind, no shilly shallying remains with him, no hesitancy, no questioning, no holding back, he is set upon his course and is not to be moved from it. You will never get to Heaven, any of you, by playing at religion! There will be no climbing the hill of the Lord without effort; no going to Glory without the violence of faith. I believe that the ascent to Heaven is still as Bunyan described it; a staircase, every step of which will have to be fought for. He heard sweet singers on the roof of the palace singing: "Come in! Come in! Eternal Glory you shall win." Many had a mind to enter the palace and win that eternal Glory, but then, at the doorway stood a band of warlike men, with drawn swords, to wound and kill every man that ventured to enter! Therefore many who would have liked to have walked on the top of the palace did not care for so dangerous an enterprise; they desired the end but not the way to it! At last there came one with a determined countenance and he said to the writer with the inkhorn by his side, "Set down my name, Sir." And when his name was duly recorded, he drew his sword and rushed upon the armed men with all his might! It was a fierce conflict, but he meant to conquer or die, and he did conquer! He cut a lane through his enemies and, by-and-by, he, too, was heard singing with the rest: 
-> Come in! Come in! 
-> Eternal Glory you shall win. 
+> Come in! Come in!  
+> Eternal Glory you shall win.  
 
 By conflict throughout a whole life we come to our rest; there is no other way. You cannot go round to a back door and enter into Heaven by stealth! You must fight if you would reign! Therefore, gird up the loins of your mind.
 

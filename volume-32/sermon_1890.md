@@ -1,7 +1,7 @@
 # Sermon 1890 | Our Lord's Prayer for His People's Sanctification
 
-> "Sanctify them through thy truth: thy word is truth." 
-> John 17:17. 
+> "Sanctify them through thy truth: thy word is truth."  
+> John 17:17.  
 
 Our Lord Jesus prayed much for his people while he was here on earth. He made Peter the special subject of his intercession when he knew that he was in extraordinary danger. The midnight wrestlings of the Son of man were for his people. In the sacred record, however, much more space is taken up by our Lord's intercessions as he nears the end of his labors. After the closing supper, his public preaching work being ended, and nothing remaining to be done but to die, he gave himself wholly unto prayer. He was not again to instruct the multitude, nor to heal the sick, and in the interval which remained, before he should lay down his life, he girded himself for special intercession. He poured out his soul in life before he poured it out unto death.
 

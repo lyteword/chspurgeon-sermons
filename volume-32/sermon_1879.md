@@ -1,7 +1,7 @@
 # Sermon 1879 | A Plain Man's Sermon
 
-> It must be perfect to be accepted; there shall be no defect in it.
-> Leviticus 22:21
+> It must be perfect to be accepted; there shall be no defect in it.  
+> Leviticus 22:21  
 
 The Ceremonial Law, as ordained by the hand of Moses and Aaron, called the worshippers of God to great carefulness before Him. Before their minds that solemn Truth was always made visible, "I the Lord your God am a jealous God." Nothing might be done thoughtlessly. Due heed was the first requisite in a man who would draw near unto the Thrice-Holy God, whose perfections demand lowly and considerate reverence from all those who are round about Him. The spirit must be awake and on the stretch if it would please the great Father of Spirits. There were little points, I may truthfully call them minute, upon which everything would depend as to right worship and its acceptance with the Lord. No Israelite could come to the tabernacle door aright without thinking of what he had to do and thinking it over with an anxious fear lest he should, by omission or error, make his offering into a vain oblation. He must draw near unto the Lord with great carefulness, or else he might miss his aim, spend his money upon a sacrifice, cause labor to the priest and go home unaccepted. He might duly perform a large portion of a ceremony and yet no good might come to him through it because he had omitted a point of detail, for the Lord would be sought according to the due order, or He would not be found by the worshipper. Of every ceremony it might be said, "It must be perfect to be accepted." There was the rule and the rule must be followed with the most careful exactness. God must have the minds and thoughts of men, or He counts that they are no worshippers!
 
@@ -54,8 +54,8 @@ It is then added, "or having a scab." It does not look as though it would hurt t
 The sacrifice was not to be scabbed, or to have the scurvy. That is to say, it was to be without any sort of outward fault. I have heard men say, "It is true I did not do that thing well, but my heart was right." That may be, my dear Brother, but you must try and make the whole matter as good as it can be! What a deal of scabbed service our Lord gets! Men try to be benevolent to their fellow creatures with an irritable temper. Certain people try to serve God and write stinging letters to promote brotherly love, and dogmatic epistles in favor of large-mindedness! Too many render to the Lord hurried, thoughtless worship and many more give for offerings their smallest coins and such things as they will never miss! God has many a scurvy sheep brought before Him.
 
 Did you never bring any, my Brother? Did I never bring any? Ah, me! Ah, me! But still, let us mend our ways and, since the Lord Jesus offered Himself without spot, let us try to serve Him with our utmost care. The best of the best should be given to the Best of the best! We sometimes sing: 
-> All that Iam, and all Ihave, 
-> Shall be forever Yours.' 
+> All that Iam, and all Ihave,  
+> Shall be forever Yours.'  
 
 Oh, that we practiced it as well as sang it! Would God that the best of our lives, the best hours of the morning, the best skill of our hands, the best thoughts of our minds, the very cream of our being were given to our God! But, alas, Christ's cause is sent round to the back door to get the broken meat and, "Mind you do not leave too much meat on the bone," is the kind of instruction that is given to her who hands it out! Christ Jesus is sent to the dung heap for the odds and ends! Cheese parings and candle ends are given to the Missionary Society. Perhaps the statement is too liberal; it would be well if they were! Three-pennies and four-pennies are gracious gifts from struggling tradesmen and poor work people, but they are hardly decent when sent in by folk who spend hundreds of pounds upon their own pleasure! To God's altar we ought to bring the best bullock from the stall and the best sheep from the fold!
 
