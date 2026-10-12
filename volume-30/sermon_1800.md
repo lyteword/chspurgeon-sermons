@@ -1,7 +1,7 @@
 # Sermon 1800 | Heaven Below
 
-> They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them and shall lead them unto living fountains of waters.
-> Revelation 7:16,17
+> They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them and shall lead them unto living fountains of waters.  
+> Revelation 7:16,17  
 
 LET us think of this happiness, that we may be comforted in the prospect of it. All this is already enjoyed by tens of millions of the redeemed! Some of those who were very dear to us on earth, whose faith we desire to follow, are now forever with the Lord and this is their joyful portion: "They shall hunger no more, neither thirst anymore; neither shall the sun light on them, nor any heat." Our comfort lies in the sweet reflection that we are journeying to this goodly land! This Divine inheritance is ours; we have the seal of the Holy Spirit upon our title deeds; we have tasted of the grapes of its Eshcol and we already rejoice in the light and warmth of its celestial city to which we draw near! In a little time we shall be actually within the gate of pearl and shall know, in an instant, infinitely more of its glory than an Apostle could teach us here below. We are like one who has, in his hands, the guidebook of a country to which he is journeying; he finds in it fair pictures of the scenery of the land and the architecture of the cities, and as he reads each page, he says to himself, "I am going there! This is what I shall soon behold!"
 
@@ -15,10 +15,10 @@ But I want you to do, this morning, and, by God's Grace I think we shall accompl
 
 Now, I want you, today, to see "the patterns of things in the heavens." We have much of Heaven here; at any rate, we have the Lamb who is the Glory of the Eternal City! We have the Presence of Him that sits upon the Throne of God among us, even now! We have, if not the perfect holiness of Heaven, yet a justification quite as complete as that of the glorified! We have the "white robes," for, "the blood of the Lamb" has washed them even now! And if we have not yet the palm branches of final victory, yet, thanks be to God, we are led in triumph in every place, and even now, "this is the victory that overcomes the world, even our faith." Therefore:
 
-> I would begin the music here,
-> And so my soul should rise!
-> Oh, for some heavenly notes to bear
-> My passions to the skies.
+> I would begin the music here,  
+> And so my soul should rise!  
+> Oh, for some heavenly notes to bear  
+> My passions to the skies.  
 
 Our voices are not clear as yet; they are half-choked with the fogs and smoke of earth. They will be perfectly attuned before long! At any rate, let us go over the notes, and if we cannot reach to the full melody of the heavenly music, yet let us run up and down the scale and try some easy passages. Come, let us worship, adore and rejoice, as our departed ones are doing, and thus enjoy some of "the days of Heaven upon the earth." That shall be my drift this morning, as the Holy Spirit shall instruct me.
 
@@ -94,18 +94,18 @@ Still, there is a third meaning which must not be overlooked. "The Lamb" must re
 
 I beg you to dwell upon that word, "Lamb," till you feed upon it with your whole souls. Jesus has joined Himself to His flock: "As the children are partakers of flesh and blood, He, also, Himself, likewise took part of the same." As surely as He is God, He is also Man, indeed and of a truth, not in semblance, but in reality:
 
-> Itis my sweetest comfort, Lord,
-> And will forever be,
-> To muse upon the gracious truth
-> Of Your humanity.
-> Oh, joy! There sits in our flesh,
-> Upon a throne of light,
-> One of a human mother born,
-> In perfect Godhead bright!
-> Forever God, forever Man,
-> My Jesus shall endure
-> And fixed on Him, my hope remains
-> Eternally secure.
+> Itis my sweetest comfort, Lord,  
+> And will forever be,  
+> To muse upon the gracious truth  
+> Of Your humanity.  
+> Oh, joy! There sits in our flesh,  
+> Upon a throne of light,  
+> One of a human mother born,  
+> In perfect Godhead bright!  
+> Forever God, forever Man,  
+> My Jesus shall endure  
+> And fixed on Him, my hope remains  
+> Eternally secure.  
 
 He is also our Sacrifice: "The Lamb slain from the foundation of the world." What rest came unto our hearts when we first understood the meaning of that word: "Behold the Lamb of God which takes away the sin of the world"! Continue to behold Him and all your feverish heats will be abated, and your hunger and thirst of spirit will be done.
 

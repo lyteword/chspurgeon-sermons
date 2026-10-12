@@ -1,7 +1,7 @@
 # Sermon 1780 | The Sprinkling of the Blood of the Sacrifice
 
-> And the priest shall dip his finger in the blood, and sprinkle of the blood seven times before the Lord, before the veil of the sanctuary. And the priest shall put some of the blood upon the horns of the altar of sweet incense before the Lord, which is in the tabernacle of the congregation; and shall pour all the blood of the bullock at the bottom of the altar of the burnt offering, which is at the door of the tabernacle of the congregation.
-> Leviticus 4:6, 7
+> And the priest shall dip his finger in the blood, and sprinkle of the blood seven times before the Lord, before the veil of the sanctuary. And the priest shall put some of the blood upon the horns of the altar of sweet incense before the Lord, which is in the tabernacle of the congregation; and shall pour all the blood of the bullock at the bottom of the altar of the burnt offering, which is at the door of the tabernacle of the congregation.  
+> Leviticus 4:6, 7  
 
 I have preached, before, to you upon the types of our Lord's Sacrifice; the subject is as large as it is important. We began with the laying of the hands upon the offering and we went on to the all-important matter of the slaying of the victim. Now we come to the use which was made of the blood of the sacrifice after it had been slain. In thinking upon this subject, I seem to hear a voice saying to me, "Put off your shoes from off your feet, for the place whereon you stand is holy ground." This is the central mystery of our religion. It becomes us to be reverent in heart as we approach it. The Doctrine of Substitution is the heart of the whole matter; our whole heart needs to be awakened while we speak upon it. The Son of God, Himself, assuming human nature and, in that Nature bleeding and dying in our place, is the Revelation of Revelation, the wonder of wonders, the Glory of the glorious God! Solemnity and awe may well fill us while we meditate on such a theme.
 
@@ -39,10 +39,10 @@ But let him beware of trusting to a faith which does not look to the great Propi
 
 Note next, that not only is the Atonement, itself, perfect, but that the presentation of that Atonement is perfect, too. The sevenfold sprinkling was typical of Christ, as a Priest, presenting Himself unto the Father as a Sacrifice for sin. This has been fully done. Jesus has, in due order, carried the Propitiation into the sanctuary and appeared in the Presence of God on our behalf. Here are the Apostle's own words, "by His own blood He entered in once into the Holy Place, having obtained eternal redemption for us." It is not our presenting of the blood, but Christ's presenting of the blood which has made the Atonement, even as it is not our sight of the blood, but Jehovah's sight of it which causes us to escape, as it was written concerning the Passover, "When I see the blood, I will pass over you." Jesus at this moment sets His Atonement within view of a righteous God and, therefore, the Judge of all the earth is able to look on the guilty with eyes of mercy! Let us rest perfectly satisfied that all we require to bring us near to God has been done for us, and we may now come boldly unto the Throne of the heavenly Grace:
 
-> No longer far from God, but now,
-> By precious blood made nigh,
-> Accepted in the Well-Beloved
-> Near to His heart we lie.
+> No longer far from God, but now,  
+> By precious blood made nigh,  
+> Accepted in the Well-Beloved  
+> Near to His heart we lie.  
 
 We now pass on to a few thoughts about ourselves in relation to this type. This sevenfold sprinkling of the blood upon the veil meant that the way of our access to God is only by virtue of the precious blood of Christ. Do you ever feel a veil hanging between you and God? In very truth, there is none, for Jesus has taken it away through His flesh. In the day when His blessed body was offered up, the veil of the Temple was torn in two from the top to the bottom, showing that there is now nothing to divide the Believer from his God. But still, if you think there is such a separating veil; if you feel as if the Lord had hidden Himself; if you are so despondent that you are afraid you will never draw near to the Mercy Seat, then sprinkle the blood towards the Throne of Grace; cast it on the very veil which appears to conceal your God from you! Let your heart go towards God, even if you cannot reach Him, and let this blood go before you, for rest assured nothing can dissolve obstacles and furnish you with an open access to God except the blood of Jesus Christ the Son of
 

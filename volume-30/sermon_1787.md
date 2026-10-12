@@ -1,7 +1,7 @@
 # Sermon 1787 | Humility, the Friend of Prayer
 
-> I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan; and now I am become two bands.
-> Genesis 32:10
+> I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan; and now I am become two bands.  
+> Genesis 32:10  
 
 JACOB's character was far from faultless, but equally removed from despicable. He possessed great strength of character and force of judgment, but this became somewhat of a snare to him, so that he did not always move through life with the childlike repose of Isaac, or the royal serenity of Abraham, but was, at times, crafty and critical like his relatives on his mother's side. Yet I object to that depreciation of Jacob's character which is so common in certain quarters because he used the means, as well as prayed. Our God is the God of Abraham, of Isaac, and of Jacob, and, very frequently, He is called the God of Israel, and even the God of Jacob. "He is not ashamed to be called their God." And if He is not ashamed to be called Jacob's God, no fellow Believer has any right to be ashamed of Jacob! With all his imperfections, and he certainly had them, he was a noble man.
 
@@ -59,8 +59,8 @@ why, the next thing he will do is sit down and weep that this can be possible! S
 
 If we had a little Savior, and a little Heaven, and little mercy, we might still hang out our flags. But with a great Savior, and great mercy, and a great Heaven, we can only go in, like David, and sit before the Lord and say, "Why all of this for me?" I have a dear Brother in Christ who is now sorely sick, the Rev. Mr. Curme, the vicar of Sandford in Oxfordshire, who has been my dear friend for many years. He is the mirror of humility and he divides his name into two words, Cur me? which means, "Why me?" Often did he say, in my hearing, "Why me, Lord? Why me?" Truly I can say the same, Cur me?
 
-> Why was I made to hear Your voice And enter where there's room,
-> While thousands make a wretched choice And rather starve than come?
+> Why was I made to hear Your voice And enter where there's room,  
+> While thousands make a wretched choice And rather starve than come?  
 
 This exceeding kindness of the Lord all tends to promote humility and, at the same time, to help us in prayer, for if the Lord is so greatly good, we may adopt the language of the Phoenician woman when the Master said to her, "It is not meet to take the children's bread, and to cast it to dogs." She answered, "Truth, Lord. Yet the dogs eat of the crumbs which fall from their masters' table."
 

@@ -1,7 +1,7 @@
 # Sermon 1813 | Jonah's Resolve, or "Look Again!"
 
-> Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple.
-> Jonah 2:4
+> Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple.  
+> Jonah 2:4  
 
 WHAT a complex creature is man! Those who fancy that they can fully describe him, do not understand him. He is a riddle and a contradiction. As says Ralph Erskine:
 
@@ -103,8 +103,8 @@ Those who boast of perfection will have much to grieve over when once they come 
 
 Brothers and Sisters, whether you will do so or not, I flee to the Cross again! In the Rock of Ages I again hide myself! Who among us dares to come forth from that Divine shelter? "Jesus, lover of our soul, let us to Your bosom fly." Let all of us sing as though it were for the first time:
 
-> Just as I am, without one plea But that Your blood was shed for me, And that You bid me come to You,
-> O Lamb of God, I come.
+> Just as I am, without one plea But that Your blood was shed for me, And that You bid me come to You,  
+> O Lamb of God, I come.  
 
 Dear Friends, it is due to God, it is due to Christ, it is due to the Gospel that we should, every day, believe with the same simplicity of undivided trust. Keep on believing in Christ, "to whom coming as unto a living stone." We are to live by faith! You may be quite sure that you are permitted to do this, for Christ is always a sinner's Savior. If you cannot come to Him as saints, come to Him as sinners! If your unfitness for fellowship as a servant comes before your mind and breaks your heart, yet remember that you may always return as a prodigal son! If you cannot feed in green pastures as sheep of the fold, yet yield to the strong hand of Him who seeks the lost sheep. If you cannot come to Jesus as you should, yet come just as you are. If your garments are not clean as they should be, yet come and wash them white in the blood of the Lamb.
 

@@ -1,7 +1,7 @@
 # Sermon 1790 | Receiving the Holy Spirit
 
-> He said unto them, Have you received the Holy Spirit since you believed?
-> Acts 19:2
+> He said unto them, Have you received the Holy Spirit since you believed?  
+> Acts 19:2  
 
 IT may be well to notice what question the Apostle did not put to these Ephesian disciples of John. He did not say to them, "Have you believed?" This would have been a very important question and it ought to be settled once and for all. Our faith must either be boldly affirmed or sorrowfully denied; it should not remain the subject of question. It is a great pity that so many Christians are always saying, "Have I believed?" and allowing that most vital point to be a matter of debate, for as long as the existence of faith within our souls is the subject of question, we must be unhappy. Faith is the cornerstone of the edifice of godliness; if it is not well laid and known to be well laid, there can be no sense of security to the inhabitant of the house. We not only ought to know that we believe, but to know Whom we believe! And it would be well for us to advance beyond common believing to assurance, and then to full assurance, the assurance of faith, the assurance of hope and the assurance of understanding.
 
@@ -71,8 +71,8 @@ Permit me to say here that there are many professors to whom this question is in
 
 Is there anything dreary? He delights in it as much as he can delight in anything! He is sure of nothing but the horrible; everything that is pleasant he is afraid of. His life is one protracted groan. Come along, Brother, and shake hands as cheerfully as you can. Please tell me, have you received the Holy Spirit since you believed? How he hesitates! Poor Soul, he is perplexed. He is not well acquainted with the Comforter. Here is a hymn for him; let us sing it to a gladsome tune:
 
-> Why should the children of a King Go mourning all their days? Great Comforter, descend and bring
-> Some tokens of Your Grace! Do You not dwell in all the saints And seal the heirs of Heaven? When will You banish my complaints, And show my sins forgiven?
+> Why should the children of a King Go mourning all their days? Great Comforter, descend and bring  
+> Some tokens of Your Grace! Do You not dwell in all the saints And seal the heirs of Heaven? When will You banish my complaints, And show my sins forgiven?  
 
 Surely, if we have the earnest of the Spirit, the first fruits of Heaven, we ought to rejoice in the Lord always! Brother, you look comfortless; how can this be when the Comforter has come to you?
 

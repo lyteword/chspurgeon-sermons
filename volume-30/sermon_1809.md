@@ -1,7 +1,7 @@
 # Sermon 1809 | May I?
 
-> If I may.
-> Matthew 9:21
+> If I may.  
+> Matthew 9:21  
 
 THE woman in the narrative was fully persuaded that if she did but touch our Lord's garment, she would be made whole. What she had heard and seen concerning Jesus made her sure of His superabundant power to heal the sick. A touch would do it. Yes, even a touch of His clothes. Her one and only question was, might she touch Him? Could she touch Him? She would surely be healed if she could touch, but was this allowable? Was this possible? I know that multitudes of sin-sick men and women are vexed with this same question. Oh that I could help them over the difficulty! May the Holy Spirit, the Comforter, aid me!
 
@@ -47,10 +47,10 @@ would still remain! Let me tell you that if you come to Jesus and just trust Him
 
 And might not this, also, help you: others just like you have ventured to Him and there has not been a case in which they have been refused. I thought, like you, when I was a child, that the Gospel was a very wonderful thing, and free to everybody but myself! I should not have wondered at all if my brother and sisters, as well as my father and mother had been saved. But, somehow, I could not get a hold of it, myself. It was a precious thing, quite as much out of my reach as the Queen's diamonds. So I thought. To many the Gospel is like a tram-car in motion and they cannot jump upon it. I thought, surely, everybody would be saved, but I would not! And yet, soon after I began to cry for mercy, I found it! My expectations of difficulty were all sweetly disappointed. I believed and found immediate rest unto my soul. When I once understood that there was life in a look at the Crucified One, I gave that look, by His Grace, and I found eternal life! And up to now I have never met with anybody who gave that look and was repulsed! No, they all say:
 
-> I came to Jesus as I was,
-> Weary and worn and sad.
-> I found in Him a resting place,
-> And He has made me glad.
+> I came to Jesus as I was,  
+> Weary and worn and sad.  
+> I found in Him a resting place,  
+> And He has made me glad.  
 
 Nobody ever bears a contrary witness. I challenge the universe to produce a man who was chased from Christ's door, or forbidden to find in Him a Savior! I pray you, therefore, observe that since others have come this way to life and peace, God has appointed it to be the common thoroughfare of Grace. Poor guilty Sinners, there is a sign set up: "This way for sinners! This way for the guilty! This way for the hungry! This way for the thirsty! This way for the lost! Come unto Me, all you that labor and are heavy laden, and I will give you rest." Why, surely, you need not say, "If I may."
 
@@ -106,10 +106,10 @@ What should I do in this case? If it were pressing that I should believe his sta
 
 Now, if there is anything in the teaching of the Lord Jesus Christ, or anything about Him that you question, let me invite you to read over the four Gospels, again, especially the story of His crucifixion. That Cross of His is a very wonderful thing, for not only does it save those who have faith in it, but it breeds faith in those who look at it:
 
-> When I see Him wounded, bleeding,
-> Dying on the accursed tree,
-> Then I feel my heart believing
-> That He suffered thus for me.
+> When I see Him wounded, bleeding,  
+> Dying on the accursed tree,  
+> Then I feel my heart believing  
+> That He suffered thus for me.  
 
 There is life in a look at Christ, because in the very considering of Christ there is the breeding of a living faith! We listen to the Word of God and faith comes by hearing. We read the Word of God and picture the whole thing before our eyes, and we say, "Yes, I do believe it. I never saw it quite in this fashion, before, but I now believe it and I will risk my soul on
 

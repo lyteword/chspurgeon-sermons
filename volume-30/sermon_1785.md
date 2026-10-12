@@ -1,7 +1,7 @@
 # Sermon 1785 | The Children and Their Hosannas
 
-> But when the chief priests and scribes saw the wonderful things that He did, and the children crying in the Temple, and saying, "Hosanna to the son of David!" they were sorely displeased, and said unto Him, "Do You hear what these are saying?" And Jesus said unto them, "Yes. Have you never read, Out of the mouth of babes and sucklings you have perfected praise?"
-> Matthew 21:15,16
+> But when the chief priests and scribes saw the wonderful things that He did, and the children crying in the Temple, and saying, "Hosanna to the son of David!" they were sorely displeased, and said unto Him, "Do You hear what these are saying?" And Jesus said unto them, "Yes. Have you never read, Out of the mouth of babes and sucklings you have perfected praise?"  
+> Matthew 21:15,16  
 
 (By request of the Sunday school union).
 

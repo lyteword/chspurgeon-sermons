@@ -1,7 +1,7 @@
 # Sermon 1769 | Before Daybreak with Christ
 
-> And in the morning, rising up a great while before day, He went out, and departed into a solitary place, and there prayed. And Simon and they that were with Him followed after Him. And when they had found Him, they said unto Him, All men seek for You. And He said unto them, Let us go into the next towns, that I may preach there also for therefore came I forth. And He preached in their synagogues throughout all Galilee, and cast out devils.
-> Mark 1:35-39
+> And in the morning, rising up a great while before day, He went out, and departed into a solitary place, and there prayed. And Simon and they that were with Him followed after Him. And when they had found Him, they said unto Him, All men seek for You. And He said unto them, Let us go into the next towns, that I may preach there also for therefore came I forth. And He preached in their synagogues throughout all Galilee, and cast out devils.  
+> Mark 1:35-39  
 
 A WONDERFUL day was closed and crowned by a wonderful evening. Capernaum had been exalted to Heaven that day, for deeds worthy of Heaven had been worked in her. Within the synagogue the power and authority of the new Teacher had been seen, but at the close of the Sabbath, when the people felt more free to lay their sick before Him, His Divine Majesty was glorified before all in the open streets of the little town. Galilee had never before seen such a day of preaching, or such an eventide of healing. "At even, when the sun did set, they brought unto Him all that were diseased, and them that were possessed with devils. And all the city was gathered together at the door. And He healed many that were sick of different diseases, and cast out many devils."
 
@@ -89,8 +89,8 @@ He is under a necessity to do the Father's will in blessing the sons of men. All
 
 This absorption in His life-purpose is one great evidence and accompaniment of our Lord's perfect spiritual sanity. He could not repose in work done, for the work which remained drove Him always onward! I say not that the Master could possibly have gloried, He never did glory, never would have gloried with any sinful pride. But in your case and mine, the way to keep from ever glorying in what we have done is to think of what we have yet to do.
 
-> Forget the steps already trod,
-> And onward urge your way.
+> Forget the steps already trod,  
+> And onward urge your way.  
 
 You know what the general said when one of his officers rode up and cried, "Sir, we have taken a standard!" "Take another," he cried. Another officer salutes him and exclaims, "Sir, we have taken two guns." "Take two more," was the only reply. This way lies the reward of holy service; you have done much; you shall do more. Have you won a soul? Win another! Did you bring 50 to Christ? Bring 50 more! If you have been faithful in little, you shall be entrusted with much.
 

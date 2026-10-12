@@ -1,7 +1,7 @@
 # Sermon 1759 | The Spirit of Bondage and Adoption
 
-> For you have not received the Spirit of bondage again to fear, but you have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit, Himself, bears witness with our spirit, that we are the children of God.
-> Romans 8:15,16
+> For you have not received the Spirit of bondage again to fear, but you have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit, Himself, bears witness with our spirit, that we are the children of God.  
+> Romans 8:15,16  
 
 These two verses are full of the word "spirit," and they are also full of spiritual truth. We have read in previous verses about the flesh and of the result that comes of minding it, namely, death. But now, in this verse, we get away from the flesh and think only of the work of the Holy Spirit upon our spirits, and of the blessed privilege which comes of it, "that we should be called the sons of God." We cannot enter into this except by the power of the Holy Spirit, for the spiritual Truths of God must be spiritually discerned: our eyes need God's Light and our spirits need the Holy Spirit's quickening. We breathe our prayer to the Great Spirit that He would make us feel the full meaning of His Words.
 
@@ -87,7 +87,7 @@ Now let us begin at the beginning and bless Him that He has made us feel the bon
 
 Dear Friend, do you believe in the Lord Jesus Christ? If so, all the privileges of an heir of God are yours! If you do not believe in Christ, the Spirit of God will never bear witness to a lie and tell you that you are saved when you are not! If you are not saved and not yet a believer in Jesus, I tell you that you are like a blank document to which the Spirit of God will never set His hand and seal, for He is never so unwise as to sign a blank paper! If you have believed, you are a child of God and the Spirit of God sets His seal to your adoption! Go in peace and rejoice in the Lord forever!
 
-> Nor fret, nor doubt, nor suffer slavish fear;
-> Your spirit is released, your path is clear!
-> Let praise fill up your day and evermore
-> Live to love, to copy and adore!
+> Nor fret, nor doubt, nor suffer slavish fear;  
+> Your spirit is released, your path is clear!  
+> Let praise fill up your day and evermore  
+> Live to love, to copy and adore!  

@@ -1,7 +1,7 @@
 # Sermon 1812 | A Wonder Explained By Greater Wonders
 
-> You drew near in the day that I called upon You: You said, Fear not.
-> Lamentations 3:57
+> You drew near in the day that I called upon You: You said, Fear not.  
+> Lamentations 3:57  
 
 How different are our experiences from our fears! This man of God had said, "When I cry and shout He shuts out my prayer." He had said again, "You have covered Yourself with a cloud, that our prayer should not pass through." He had added to that, "Surely against me is He turned." But now he corrects his misapprehensions. Neither was prayer shut out, nor had God turned against him, for he joyfully confesses, "You drew near in the day that I called upon You: You said, Fear not." As much as to say: "Not only did You hear me, but You did come to me! Not only did You hear me speak, but You did speak, Yourself, and I heard You say, 'Fear not.' Not only were You not turned against me as an enemy, but You did prove Yourself my Friend by being my loving and tender Comforter."
 
@@ -63,15 +63,15 @@ I have thus shown you, I think, why Jesus so readily draws near to us at the voi
 
 There is a union between Christ and His Church which can only be shadowed out by the union between a husband and his bride. I scarcely dare speak of it in words, it is so holy and Divine. It has been said and thought, and I think correctly, that though Adam and Eve fell by the same sin, yet they came to it by different ways. Paul tells us in his Epistle to Timothy that, "Adam was not deceived, but the woman, being deceived, was in the transgression." She fell by being tempted and misled. But why did Adam eat? Was it not probably from excessive love of the creature, a love of his wife beyond his God, as great a sin as the other and, perhaps, more deliberate? Milton, we believe, was no dreamer when he pictured Adam as meeting Eve after she had eaten the forbidden fruit, and saying to her:
 
-> I with you have fixed my lot,
-> Certain to undergo like doom:
-> If death consorts with you,
-> Death is to me as life
-> So forcible within my heart I feel
-> The bond of Nature draw me to my own
-> My own in you, for what you are is mine.
-> Our state cannot be severed; we are one,
-> One flesh. To lose you were to lose myself.
+> I with you have fixed my lot,  
+> Certain to undergo like doom:  
+> If death consorts with you,  
+> Death is to me as life  
+> So forcible within my heart I feel  
+> The bond of Nature draw me to my own  
+> My own in you, for what you are is mine.  
+> Our state cannot be severed; we are one,  
+> One flesh. To lose you were to lose myself.  
 
 It was a desperate thing for Adam to do, to disobey his Maker and defy His wrath, but he felt he was so one with her that he would share her destiny. Will you now think of Him who is called the Second Adam? He could not sin, nor in any shape or form become partaker with iniquity. But when that Church of His, which was His bride, that God had given Him to be His forever, had fallen, He resolved to maintain the bond which bound Him to her and to suffer all the penalties which would inevitably follow:
 

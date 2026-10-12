@@ -1,7 +1,7 @@
 # Sermon 1772 | Slaying the Sacrifice
 
-> And he shall kill the bullock before the Lord.
-> Leviticus 1:5
+> And he shall kill the bullock before the Lord.  
+> Leviticus 1:5  
 
 You will find this order continually repeated whenever a sacrifice is spoken of. As I said on the last occasion, I feel great satisfaction, in this time of my weakness, in being permitted to speak to you about essential things. It was always a stigma upon the character of Caligula that he gathered his warriors, fitted out his ships and, when the people of Rome looked for some great addition to the empire by the vast naval expedition, he simply anchored his vessels near the beach and bade his legions advance upon the shore and gather shells and pebbles, and carry them home as trophies of their undisputed conquest. He trifled where he should have struggled. He spent time and labor upon matters of no importance and neglected the weighty business of his kingdom.
 
@@ -47,14 +47,14 @@ terrible nature of sin as God judges it! It is not without a dreadful blood-shed
 
 Sin-bearing and suffering for sin can never be pleasant things, neither should the type which sets it forth be pleasing to the observer. On great days of sacrifice, the courts of the tabernacle must have seemed like a shambles, and fitly so, that all might be struck with the deadly nature of sin. If it is so, that the blood of Jesus is mentioned in the songs of Heaven, let it not be forgotten in the hymns of earth:
 
-> To Him that loved the souls of men,
-> And washed us in His blood,
-> To royal honors raised our head,
-> And made us priests to God.
-> To Him let every tongue be praise,
-> And every heart be love!
-> All grateful honors paid on earth,
-> And nobler songs above!
+> To Him that loved the souls of men,  
+> And washed us in His blood,  
+> To royal honors raised our head,  
+> And made us priests to God.  
+> To Him let every tongue be praise,  
+> And every heart be love!  
+> All grateful honors paid on earth,  
+> And nobler songs above!  
 
 The Church militant is called upon continually to commemorate the blood-shedding. So often as we gather to the Communion Table we may ask the question, "The cup of blessing which we bless, is it not the communion of the blood of Christ?"
 

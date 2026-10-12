@@ -1,17 +1,17 @@
 # Sermon 1775 | "My Lord and My God!"
 
-> And Thomas answered and said unto Him, 'My Lord and my God!'
-> John 20:28
+> And Thomas answered and said unto Him, 'My Lord and my God!'  
+> John 20:28  
 
 WHEN the Apostles met on the first Lord's Day after Jesus had risen, Thomas was the only disciple absent out of the eleven. On the second Lord's Day, Thomas was there and he was the only disciple doubting out of the eleven. How much the fact of his doubting was occasioned and helped by the fact of his former absence, I cannot say, but still, it looks highly probable that had he been there at the first, he would have enjoyed the same experience as the other 10, and would have been able to say as they did, "We have seen the Lord." Let us not forsake the assembling of ourselves together as the manner of some is, for we cannot tell what loss we may sustain thereby. Though our Lord may reveal Himself to single individuals in solitude as He did to Mary Magdalene, yet He more usually shows Himself to two or three, and He delights, most of all, to come into the assembly of His servants.
 
 The Lord seems most at home when, standing in the midst of His people, He says, "Peace be unto you." Let us not fail to meet with our fellow Believers! For my part, the assemblies of God's people shall always be dear to me. Where Jesus pays His frequent visits, there would I be found:
 
-> My soul shall pray for Zion still,
-> While life or breath remains.
-> There my best friends,
-> My kindred dwell.
-> There God my Savior reigns.
+> My soul shall pray for Zion still,  
+> While life or breath remains.  
+> There my best friends,  
+> My kindred dwell.  
+> There God my Savior reigns.  
 
 I know that full many of you can most heartily say the same. Oh, that we may behold the Lord Jesus in the present assembly! On the second occasion, Thomas is present, and he is the only one out of the 11 who is vexed with doubts. He cannot think it possible that the Lord Jesus, who was nailed to the Cross, and whose side was pierced, could have really risen from the dead. Observe joyfully the Lord's patience with him. All the others had been doubtful, too, and the Lord had gently upbraided them for their unbelief and the hardness of their hearts.
 
@@ -109,14 +109,14 @@ Such times you, also, have known. Jesus is often known of us in the breaking of 
 
 It was a long and weary night to those who watched you, but to you it was all too short and brimmed with sweetness, for the Lord was there, and He gave you songs in the night! When you awoke you were still with Him and felt ready to faint with overwhelming delight because of the brightness of the manifestation. At such a time you could have sung:
 
-> My Christ, He is the Lord of lords,
-> He is the King of kings!
-> He is the Sun of Righteousness,
-> With healing in His wings!
-> My Christ, He is the Heaven of heavens,
-> My Christ, what shall I call?
-> My Christ is first, my Christ is last,
-> My Christ is All in All!
+> My Christ, He is the Lord of lords,  
+> He is the King of kings!  
+> He is the Sun of Righteousness,  
+> With healing in His wings!  
+> My Christ, He is the Heaven of heavens,  
+> My Christ, what shall I call?  
+> My Christ is first, my Christ is last,  
+> My Christ is All in All!  
 
 I will tell you, yet again, when Jesus has been Lord and God both to me and to you, and that is in times when He has blessed our labors, and laid His arm bare in the salvation of men! When our report has been believed by those who rejected it, before, and the Lord has sent us a happy season of revival, we have given to Him the glory and rejoiced in His Omnipotent Love!
 

@@ -1,7 +1,7 @@
 # Sermon 1760 | "He Shall Be Great"
 
-> He shall be great.
-> Luke 1:32
+> He shall be great.  
+> Luke 1:32  
 
 Being his last sermon before his journey to the South of France.
 
@@ -15,8 +15,8 @@ Truly He was brought very low and a sword pierced through His mother's heart as 
 
 Still, while I think that our text most fitly applies to the manhood of Christ in the first place, I rejoice to think that:
 
-> He who on earth as Man was known, And bore our sins and pains, Now, seated on the eternal throne,
-> The God of Glory reigns.
+> He who on earth as Man was known, And bore our sins and pains, Now, seated on the eternal throne,  
+> The God of Glory reigns.  
 
 The very Man who was despised and spat upon, now sits glorious on His Father's Throne! As Man, He is anointed, "King of kings, and Lord of lords." As man, He has been lifted up from the lowest depths and set in the greatest heights to reign forever and ever! Peter and the Apostles testified, "This Jesus has God raised up, whereof we all are witnesses, He being by the right hand of God exalted." Stephen also said, "Behold, I see the heavens opened and the Son of Man standing at the right hand of God." While we believe that and rejoice in it, we shall be wise never to dissociate the Deity of Christ from His Humanity, for they make up one Person.
 
@@ -116,7 +116,7 @@ Again they say, "Hallelujah!" and the incense of their adoration goes up forever
 
 Come with a great hunger and a great thirst after Him and take Him into your very self, and say, "He is my bread; He is my drink! He is my life; He is my All." All the while let your spirit live by adoring and let every pulse of your body beat to His honor. Tune your hand, your heart, your tongue to this one song, "Hallelujah, hallelujah, hallelujah! Unto Him that loved us and died for us, and rose again, be glory forever and ever!"
 
-> To the Lamb that was slain all honor be paid,
-> Let crowns without number encircle His head!
-> Let blessing, and glory, and riches, and might,
-> Be ascribed evermore by angels of light.
+> To the Lamb that was slain all honor be paid,  
+> Let crowns without number encircle His head!  
+> Let blessing, and glory, and riches, and might,  
+> Be ascribed evermore by angels of light.  

@@ -1,7 +1,7 @@
 # Sermon 1798 | Sight For Those Who See Not
 
-> And Jesus said, For judgment I have come into this world, that they which see not might see and that they which see might be made blind.
-> John 9:39
+> And Jesus said, For judgment I have come into this world, that they which see not might see and that they which see might be made blind.  
+> John 9:39  
 
 THE great Day of Judgment is not as yet. God, in infinite long-suffering, waits to be gracious, giving men space wherein to repent and to be reconciled to Him. Jesus has come into the world for judgment, but not for that last and eternally unchangeable judgment which awaits us all. That hour and that advent will arrive; we have the declaration of God's Word for it. Read in Matthew 25: "When the Son of Man shall come in His glory and all the holy angels with Him, then shall He sit upon the throne of His Glory: and before Him shall be gathered all nations: and He shall separate them, one from another, as a shepherd divides His sheep from the goats." There is no question as to this sure fact; even if many more centuries should pass away, the dread assize will be held in due season.
 
@@ -81,14 +81,14 @@ You may have heard the story of the Negro slave and his master who were both und
 
 That is the whole truth of the matter. Some of you are not poor enough to be made rich by Christ! A man said to me the other day, "Sir, I despair of myself." "Give me your hand," I said. "You are on the right road, but I want you to go a little further. I want you to feel that you are too great a fool even to despair of yourself!" When you cry, "I cannot feel my own folly as I should," then I think your folly will be ended. I like to hear a man cry, "I feel unhappy because I cannot feel. I am grieved to think that I cannot grieve. I am in an agony because I cannot get into an agony." You are getting right, my Brother! You are the sort of man that God will bless. Now look away from yourself, agony and all, and just trust in Jesus Christ, who is able to save to the uttermost them that come unto God by Him! Admit your blindness and you shall find the Light of God come streaming into your eyes! Because you are content and willing to lean wholly upon God, the Lord will guide you into peace and joy. what a mercy it is when we are brought to our last resort and are compelled to hide in Jesus because we have no other shelter!
 
-> 'Tis perfect poverty alone
-> That sets the soul at large.
-> While we can call one mite our own,
-> We get no full discharge.
-> But let our debts be what they may,
-> However great or small,
-> As soon as we have nought to pay,
-> Our Lord forgives us all.
+> 'Tis perfect poverty alone  
+> That sets the soul at large.  
+> While we can call one mite our own,  
+> We get no full discharge.  
+> But let our debts be what they may,  
+> However great or small,  
+> As soon as we have nought to pay,  
+> Our Lord forgives us all.  
 
 Once more, our Lord Jesus Christ delights to work in those who are thoroughly blind in order to give them sight, it is high pleasure, His royal recreation! I know that a true man is never so glad as when he has helped those who need help. The plague and worry of this London life, to some of us, is that so many apply to us for help who ought never to be helped at all except by the policeman and the jailer. They cringe, fawn and make up lying stories. And when we say, "We will call upon you to see if it is true," they ask in mighty indignation, "Do you think I am a liar? Don't you believe what I say?" I have had to answer, "No, I do not believe a word of it, or you would gladly give your address that we might enquire into your statements." They do not want to be enquired into; that is their horror, for it spoils their game. They want to get money without work and they thirst for an opportunity to get drunk at other people's expense! A true man does not like to work among cants and cheats of this kind; it makes him sick and angry. Yet many a man has been well pleased to go down to the worst place in "horrible London" and to do good to those who are really poor and helpless. One does not like giving to impostors, but where there is real need, the generous heart is pleased to afford aid.
 

@@ -1,7 +1,7 @@
 # Sermon 1802 | Thought-Reading Extraordinary
 
-> Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear.
-> Psalm 10:17
+> Lord, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear.  
+> Psalm 10:17  
 
 NOTICE at the outset, the logic of this verse. It is very simple, very forcible, very accurate logic. It runs thus: "You have", "You will." "Lord, You have heard the desire of the humble: You will prepare their heart." When you know that the Lord God is immutable, "the same yesterday, today and forever," you may conclude without mistake that what He has done, He is prepared to do again. The argument from the past to the future would be a sorry one if you were dealing with fallible man, for what man has done is no sure guarantee of what he may do! He is such a creature of freaks and whims, but when you have to deal with the Eternal God, who is faithful and true, and changes not, you may reckon with safety that the thing which has been is the thing which shall be. Well did the Apostle say, "Who delivered us from so great a death, and does deliver: in whom we trust that He will yet deliver us."
 
@@ -63,8 +63,8 @@ It is an art which has been exercised by God in all ages. He does not merely pos
 
 ness and faults of the poor man's petition. The Lord still hears in the day of trouble, and the name of the God of Jacob defends us:
 
-> When God inclines the heart to pray He has an ear to hear!
-> To Him there's music in a groan, And beauty in a tear.
+> When God inclines the heart to pray He has an ear to hear!  
+> To Him there's music in a groan, And beauty in a tear.  
 
 Today let this be told! It ought not to be buried in ungrateful silence. It is mentioned in the text, let it be mentioned in your conversation. If some here present had the opportunity, we could tell you how God has heard our desires and how, at times, before the desire has actually been formed in the soul the answer has come, according to that Word of God, "Before they call, I will answer; and while they are yet speaking, I will hear." We had a desire laid upon our heart which we never communicated to any living person except the living God, and we carried that desire in our heart for weeks and months, constantly allowing it to burn in our bosom, and frequently letting it break out in groans and broken cries, and in due time our sighs reached the heart of God! As surely as we have sown in prayer, we have, in due season reaped a harvest of blessing!
 

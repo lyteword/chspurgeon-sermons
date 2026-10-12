@@ -1,7 +1,7 @@
 # Sermon 1779 | Grappling Irons
 
-> Quicken me after Your loving kindness; so shall I keep the testimony of Your mouth.
-> Psalm 119:88
+> Quicken me after Your loving kindness; so shall I keep the testimony of Your mouth.  
+> Psalm 119:88  
 
 When David wrote this part of the Psalm, he was evidently beset by many enemies who sought to destroy him. And it is exceedingly important to note what part of himself he guarded with the most care. Which part of his nature did he regard as the most vital? Where did he hold the shield that he might be screened from the darts of the foe? We observe that his prayer is very little about his body or his temporal interests. Like other men, he desired to be preserved in life and kept in prosperity, but his main prayer is not about these matters. Evidently his chief thought is concerning his soul, his character, his adherence to God's Word, his steadfastness in the faith.
 
@@ -33,10 +33,10 @@ That Law of God which was once so terrible to us, has lost its frowns through th
 
 along the triumphant way of sanctification, for holiness is life, light and liberty to us. "I will walk at liberty, for I seek Your precepts." Freedom from the power of evil is the highest liberty which we expect on earth. I am sure, my Friends, the prayer is rising in your hearts at this moment:
 
-> Teach me to run in Your commands,
-> 'Tis a delightful road.
-> Nor let my head, nor heart, nor hands,
-> Offend against my God.
+> Teach me to run in Your commands,  
+> 'Tis a delightful road.  
+> Nor let my head, nor heart, nor hands,  
+> Offend against my God.  
 
 David further desired that he might be preserved in perfect and unwavering confidence in the promises of God. The testimony of God's mouth is largely made up of exceedingly great and precious promises. Oh, what rich and eternal things has He promised to them that fear Him! No good thing will He withhold from them; all things work together for their good. He will give them of the dew of Heaven and of the deep that lies under! The chief things of the ancient mountains and the precious things of the lasting hills has He covenanted to give them! The sad fact is that sometimes His own people begin to question those promises, and if the vision tarries, they are in unbelieving haste and limit the Holy One of Israel! Yet the Covenant is ordered in all things and sure: "God is not a man, that He should lie; neither the son of man, that He should repent: has He said and shall He not do it? Or has He spoken and shall He not make it good?"
 
@@ -74,8 +74,8 @@ Is your life vigorous, dear Brother? Yet this prayer is still suitable for you. 
 
 If we desire to cleave to the Truth of God, let us pray that up to the highest point we may be filled with the life of God, since life and truth go together. Oh that we may become quick in every respect, quickened by Him who is the Resurrection and the Life. This is every way a suitable prayer, a very fitting one for lukewarm Laodiceans. It will not be out of place in the mouth of any of us! However full of life we may be, let us all together plead for this master blessing of quickening:
 
-> Revive Your work, O Lord! Disturb this sleep of death.
-> Quicken the smoldering embers now, By Your almighty breath.
+> Revive Your work, O Lord! Disturb this sleep of death.  
+> Quicken the smoldering embers now, By Your almighty breath.  
 
 It is a prayer which met David's condition. Carefully read the octave of verses with, "Caph," at the head of them, and see how well it fits in at the end of each. "My soul faints", "Quicken me." "My eyes fail", "Quicken me." "I am become like a bottle in the smoke", "Quicken me." "How many are the days of Your servant?", I seem near to death, "Quicken me." "The proud have dug pits for me", "Quicken me," that I may spy out their pitfalls and avoid them. "They persecute me wrongfully", "Quicken me," Lord; for they cannot hurt me, though they pour death upon me, if You pour life into me. "They had almost consumed me", "Quicken me," and then I may burn with fire, but I shall not be consumed.
 
