@@ -1,7 +1,7 @@
 # Sermon 1871 | Love's Transformations: A Communion Meditation
 
-> If you loved Me, you would rejoice because I said, I go unto the Father.
-> John 14:28
+> If you loved Me, you would rejoice because I said, I go unto the Father.  
+> John 14:28  
 
 The loving Jesus saw a shade of sadness fall upon the faces of the 12 while He talked to them of His departure. Though He was, Himself, to die, with His usual self-forgetfulness He only thought of them and He desired to comfort them, to comfort them about the present sorrow of His departure. See how skillfully, how wisely He drew upon their love for their comfort. The most common and usual source of comfort is Christ's love to us, but in this instance the most applicable and the most influential source of comfort was their love to Him. He said, therefore, to them, "If you loved Me, you would rejoice because I said, I go unto the Father." It was well and wisely spoken, for He touched them upon a point in which they were very tender, if anything could move them to comfort, it would be His appeal to their loyal love. He had appealed to that, before, when He said, "If you love Me, keep My commandments," but now, in softer, sweeter, more tender tones, He seems to say, "If you love Me, cease your sorrow and begin to rejoice."
 
@@ -78,3 +78,4 @@ Suppose that it should also happen that some of you are going to be deprived of 
 Brethren, if you should be sinking lower and lower in your own esteem, be not sorry for it. If Christ is rising higher and higher in your esteem, count it all gain! Sink, O self, down to death and the abyss! Sink, sink, till there is nothing left of you! Go down, pride, self-conceit, self-trust, self-seeking! Go even though your going should cause despondency, so long as Christ is crowned! Sink, sink, Soul, if Jesus rises! If you can trust Him better, love Him better and admire Him more, so let it be!
 
 As you come to His Table, say in your hearts, "Lord, make me glad, or make me sad, so long as You are exalted! Lord, let me have Your presence, but let me be without it, so long us You are exalted and extolled!"
+

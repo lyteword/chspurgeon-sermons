@@ -1,7 +1,7 @@
 # Sermon 1840 | The Bond of the Covenant
 
-> And I will bring you out from the people, and will gather you out of the countries where you are scattered, with a mighty hand, and with an outstretched arm, and with fury poured out. And I will bring you into the wilderness of the people, and there will I plead with you face to face. Like as I pleaded with your fathers in the wilderness of the land of Egypt, so will I plead with you, says the Lord God. And I will cause you to pass under the rod, and I will bring you into the bond of the Covenant: And I will purge out from among you the rebels, and them that transgress against Me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and you shall know that I am the Lord.
-> Ezekiel 20:34-38
+> And I will bring you out from the people, and will gather you out of the countries where you are scattered, with a mighty hand, and with an outstretched arm, and with fury poured out. And I will bring you into the wilderness of the people, and there will I plead with you face to face. Like as I pleaded with your fathers in the wilderness of the land of Egypt, so will I plead with you, says the Lord God. And I will cause you to pass under the rod, and I will bring you into the bond of the Covenant: And I will purge out from among you the rebels, and them that transgress against Me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and you shall know that I am the Lord.  
+> Ezekiel 20:34-38  
 
 This striking utterance was given forth by that renowned Seer, Ezekiel, at the time when the Israelites, scattered in every country, had begun to forget their nationality. They judged it prudent and wise, as much as possible, to disguise their distinctive character and melt their race into the Babylonian or Chaldean, and become like the heathen. But God, who chose His people of old, would not have it so, and He interposed with this striking passage, "And that which comes into your mind shall not be at all, that you say, we will be as the heathen, as the families of the countries, to serve wood and stone." The Lord tells them that He had them for a people and He meant to hold them for a people. Whether they delighted in it or not, He would not let them go! He pronounced a solemn oath concerning them, "As I live, says the Lord God, surely with a mighty hand, and with an outstretched arm, and with fury poured out, will I rule over you."
 
@@ -45,10 +45,10 @@ Christ, nailed up hands and feet so as to be incapable of following the wanderin
 
 But surely, it means, also, the security of the Covenant, "I will bring you under the bond of the Covenant," must mean, "I will bind you to the Lord Jesus, your Surety and Bondsman, and He shall secure you forever." This Covenant is everlasting, a Covenant of Salt, hence we sing
 
-> This bond shall never break,   
-> Though earth's old columns bow!   
-> Our sure foundations never shake,   
-> We're one with Jesus now!   
+> This bond shall never break,  
+> Though earth's old columns bow!  
+> Our sure foundations never shake,  
+> We're one with Jesus now!  
 
 One with Jesus we shall always be, for who shall separate us? That is a blessed phrase which speaks of our soul being bound up in the bundle of life with the soul of the Lord our God. This is what the Covenant has done for us, it has made us so one with Christ and in Christ; so one with the eternal Father, that it is written, "I will never leave you nor forsake you." Bound by everlasting bonds, who shall separate us from the love of God which is in Christ Jesus our Lord? I cannot linger longer over this precious Truth of God, but surely it is an unspeakable privilege to be brought into such a Covenant bond! I trust many of you know by experience what it means.
 
@@ -90,8 +90,8 @@ Moreover, we come under the rod of rulership, for a rod, in the old time, was th
 
 "I will bring you under the rod." That is, "I will make you to yield willing obedience to My Law and Word." It means, also, the rod of chastisement. "Happy is the man whom God corrects." Let the afflicted rejoice in his adversities instead of being cast down by them, for, "whom the Lord loves He chastens, and scourges every son whom He receives."
 
-> The path of sorrow, and that path alone,   
-> Leads to the land where sorrow is unknown.   
+> The path of sorrow, and that path alone,  
+> Leads to the land where sorrow is unknown.  
 
 "I will bring you under the rod."
 
@@ -116,3 +116,4 @@ Last of all, the great end of all is that we may know the Lord. I speak thoughtf
 When a man has smarted because of his sin and has been made to feel the burning coals of anguish in his own spirit. When the Lord has set him up as a target and shot at him with arrows which drink up his life. And, when afterwards he has been saved and the splendor of infinite love has shone upon him, then he knows Jehovah! When God has brought the contrite man into the place of security, comfort, joy and delight in Christ Jesus, then he knows the Lord! The full-orbed Deity is beheld by the broken and contrite in the day of his deliverance, neither does he know which to adore and admire most, the power, the wisdom, the justice, or the Grace of God! We love everything that is in God when we are brought under the bond of the Covenant. May God bless this word to many sorrowing spirits, for Jesus' sake! Amen.
 
 Portion of Scripture Read Before Sermon: Jeremiah 31:31-37; Ezekiel 36:25-32; 20:32-44.
+

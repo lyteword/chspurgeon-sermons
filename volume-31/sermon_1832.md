@@ -1,7 +1,7 @@
 # Sermon 1832 | Elijah's Plea
 
-> Let it be known that I have done all these things at Your word.
-> 1Kings 18:36
+> Let it be known that I have done all these things at Your word.  
+> 1Kings 18:36  
 
 The acts of Elijah were very singular. It had not been known, from the foundations of the earth, that a man could shut up the doors of the rain for the space of three years. Yet Elijah suddenly leaped upon the scene, announced the judgment of the Lord and then disappeared for a time. When he reappears, at the bidding of God, he orders Ahab to gather the priests of Baal and to put to the test the question as to whether Baal or Jehovah was, indeed, God. Bullocks shall be slain and laid upon the wood without fire, and the God who shall answer by fire shall be determined to be the one living and true God, the God of Israel. We might question within ourselves what right the Prophet had to restrain the clouds, or to put God's honor under test. Suppose the Lord had not willed to answer him by fire? Had he any right to make the Glory of God hang upon such terms as he proposed?
 
@@ -23,9 +23,9 @@ Real prosperity must come to any Church that walks according to Christ's rules, 
 
 The same principle may be applied, also, to any individual Believers who are in trouble through having done right. It happens often that a man feels, "I could make money, but I must not, for the course proposed would be wrong. Such a situation is open, but it involves what my conscience does not approve. I will rather suffer than I will make gain by doing anything that is questionable." It may be that you are in great trouble distinctly through obedience to God. Then you are the man above all others who may lay this case before the Most High, "Lord, I have done all these things at Your Word and You have said, 'I will never leave you nor forsake you.' I beseech you interpose for me." Somehow or other God will provide for you. If He means you to be further tried, He will give you strength to bear it, but the probabilities are, that now He has tested you, He will bring you forth from the fire as gold
 
-> Do good and know no fear,   
-> For so you in the land shall dwell,   
-> And God your food prepare,   
+> Do good and know no fear,  
+> For so you in the land shall dwell,  
+> And God your food prepare,  
 
 Once again. I would like to apply this principle to the seeking sinner. You are anxious to be saved. You are attentive to the Word of God and your heart says, "Let me know what this salvation is and how to come at it, for I will have it whatever stands in the way." You have heard Jesus say, "Strive to enter in at the strait gate." You have heard His bidding, "Labor not for the meat which perishes, but for that which endures to life eternal." You long to enter the strait gate and eat of the meat which endures. You would give worlds for such a gift! You have spoken well, my Friend. Now, listen, you cannot have Heaven through your doings, as a matter of merit. There is no merit possible to you, for you have sinned and are already condemned! But God has laid down certain lines upon which He has promised to meet you and to bless you. Have you followed those lines? For if you have, He will not be false to you!
 
@@ -84,3 +84,4 @@ That was the wrong order and spoiled the whole! And it will never do to put Chri
 You can then go to Him in your dying hour and say, "Lord, I have done all these things at Your Word. I claim no merit, but I do claim that You keep Your gracious promise to me, for You cannot run back from one Word which You have spoken."
 
 God bless you, Beloved, for Christ's sake. Amen and amen.
+

@@ -1,7 +1,7 @@
 # Sermon 1845 | The Pity of the Lord: The Comfort of the Afflicted
 
-> Behold, we count them happy which endure. You have heard of the patience of Job, and have seen the end of the Lord; that the Lord is full of pity, and of tender mercy.
-> James 5:11
+> Behold, we count them happy which endure. You have heard of the patience of Job, and have seen the end of the Lord; that the Lord is full of pity, and of tender mercy.  
+> James 5:11  
 
 We are far too apt to entertain hard thoughts of God. The horrible atheism of our depraved nature continually quarrels with the Most High and, when we are under His afflicting hand and things go cross to our will, the evil of our nature becomes sadly evident. When sorely distressed, we are too apt to think and to speak as we ought not to do concerning the Most High. Let us never forget that our hard speeches have all been false speeches and that our suspicions of our God have always been libels upon Him. When we have not thought and spoken well of His name, we have thought and spoken amiss! Looking back, we desire, if possible, to blot out every murmuring thought with our tears and we would cancel every complaining word with humble sorrow. We would eat our bitter words, they were all unwarranted and, therefore, with deep repentance we call them back. On taking a survey of our whole life, we see that the kindness of God has run all through it like a silver thread. Goodness and mercy have followed us all our days, always pursuing us even when we have wickedly fled from them.
 
@@ -72,10 +72,10 @@ As for the life to come, how little do we take it into our estimate! It is as th
 
 Secondly, our Apostle makes a consoling statement, "the Lord is full of pity, and of tender mercy." Observe that this is the teaching of God's Holy Word and, therefore, if we have, at this moment, no evidence of it perceptible to sight or sense, we are bound to believe it all the same. I ask the child of God to settle this in his mind. "Truly God is good to Israel, even to such as are of a clean heart." Though as for me, "my feet were almost gone; my steps had well near slipped," yet surely God is good to His own people. Whatever appears to conflict with this, nothing can possibly shake the certainty of this fact that, "the Lord is full of pity, and of tender mercy." O weeping heir of Heaven, though your Father scourges you, believe this, for He scourges every son whom He receives! And this also is true, that He receives every son whom He scourges! Rest your heart upon this. Do not be persuaded by man or devil to think ill of your God. He has a father's heart even when He makes you feel the strokes of His hand. Your God cannot be unkind to you. He cannot forsake you. Has He not said, "Can a woman forget her sucking child, that she should not have compassion on the son of her womb? Yes, they may forget, yet will I not forget you"?
 
-> Such pity as a father has   
-> Unto his children dear   
-> Like pity shows the Lord to such   
-> As worship Him in fear.   
+> Such pity as a father has  
+> Unto his children dear  
+> Like pity shows the Lord to such  
+> As worship Him in fear.  
 
 Do you believe this?
 
@@ -109,3 +109,4 @@ The last lesson is, be full of pity. If God is full of pity and of tender mercy,
 You that have been sick, yourselves, should give liberally, today, out of sympathy. You that have never been sick ought to give twice as much out of gratitude. Yet I must correct myself, those who have been afflicted and healed should feel both sympathy and gratitude, and so should give the double of those from whom I have asked double liberality. Let us try to give to this fourfold degree! When the box is passed round, be full of pity and of tender mercy, like your Father and your God, and then the hospitals will be largely helped this day.
 
 Portion of Scripture Read Before Sermon: Psalm 103.
+

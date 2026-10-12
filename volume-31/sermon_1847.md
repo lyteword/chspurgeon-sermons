@@ -1,7 +1,7 @@
 # Sermon 1847 | Before Sermon, At Sermon and After Sermon
 
-> Therefore lay aside all filthiness and superfluity of naughtiness, and receive with meekness the engrafted Word, which is able to save your souls. But be you doers of the Word, and not hearers only, deceiving yourselves.
-> James 1:21,22
+> Therefore lay aside all filthiness and superfluity of naughtiness, and receive with meekness the engrafted Word, which is able to save your souls. But be you doers of the Word, and not hearers only, deceiving yourselves.  
+> James 1:21,22  
 
 Brethren, it is a good thing to be under the sound of the Word of God. Even if the very lowest motive should induce persons to come to hear the Gospel, it is, nevertheless, a good thing that they should come. We have heard of some who have even come to steal, and yet the Word of God has stolen into their hearts. In many cases, in olden times, spies were sent to hear the Protestant divines who preached the Gospel, and these took notes of all that was said, with a view to accuse them of false doctrine that they might be punished, yet in several cases, the spies, themselves, were converted! Such is the power of the Gospel of Christ, that it woos and wins, even, its greatest enemies. He that comes near to its fire, even with the intent to quench it, may find himself overcome by its heat.
 
@@ -93,10 +93,10 @@ Oh that you would cease from this mocking of God and ruining of yourselves! Reme
 
 Over the cell of such a man write, "He knew his duty, but he did it not": and that cell will be found to be built in the very center of Gehenna, it is the innermost prison of Hell. Willful rejection of Christ ensures woeful rejection from Christ! Take heed, you that deny Him entrance now, lest
 
-> How they deserve the deepest Hell   
-> That slight the joys above!   
-> What chains of vengeance must they feel   
-> Who break the bonds of love!   
+> How they deserve the deepest Hell  
+> That slight the joys above!  
+> What chains of vengeance must they feel  
+> Who break the bonds of love!  
 
 The text closes with this solemn word, "deceiving yourselves." Whereupon says Bishop Brownrig, "To deceive is bad, to deceive yourselves is worse, to deceive yourselves about your souls is worst of all." Alas, there are many in that sad condition! A syllogism may be bad and yet it may look like logic, and such are the hopes which men fashion out of a bare hearing of the Word of God! It is very easy, when you get well accustomed to the Gospel, au fait at it, as they say, to be able to twist it so as to make it seem to favor you, though it condemns you. He who wills to be deceived can feign an acquittal out of a sentence of death! Many think it is all right with them, when it is all wrong with them. They always hear the Gospel, how can they be castaways? They sit under a thoroughly evangelical Divine, how can they be reprobates? They know what is what, they will not consent to hear false doctrine, they have a discriminating faculty and will not abide unorthodox teaching.
 
@@ -105,3 +105,4 @@ I am very glad they will not, but they seem to make a god of this discernment. A
 God grant to each one of us that when we go home we may attend to the doing of the sermon! You know the old story: I am half ashamed to repeat it, but it is so pat to the point. When Donald came out of church sooner than usual, Sandy said to him, "What? Donald, is the sermon all done?" "No," said Donald, "it is all said, but it is not begun to be done yet." Let my sermon be done in your chambers by prayer and in your lives by holiness! Let it be done all through the week by our, each one, seeking to put away all filthiness! Let us cling to the holy Christ, desiring to live His life and breathe His Spirit. God grant it may be so with you all, for Jesus Christ's sake. Amen.
 
 Portion of Scripture Read Before Sermon: James 1.
+

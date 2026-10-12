@@ -1,7 +1,7 @@
 # Sermon 1868 | Death and Life: The Wage and the Gift
 
-> For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord.
-> Romans 6:23
+> For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord.  
+> Romans 6:23  
 
 In the fifth chapter of this Epistle, Paul had shown, at considerable length, our justification from sin through the righteousness of Jesus Christ our Savior. Our Apostle goes on to speak of our sanctification in Christ, that as by the righteousness of Christ we have been delivered from the guilt and penalty of sin, so by the power and life of Christ in us we are delivered from the dominion of sin, so as not to live any longer therein. His objective is to show that true servants of God cannot live in sin, that by reason of our newness of life in Christ, it is not possible that we should continue to yield our members, instruments unto iniquity. We have passed out of the realm of death. We have come into the domain of life and, therefore, we must act according to that life and that life, being in its essence, pure, holy and heavenly, we must proceed from righteousness unto holiness.
 
@@ -98,3 +98,4 @@ Finally, are we now abiding in eternal life, trusting in the Son of God and clin
 As for others, let us anxiously ask the question, "Can these dry bones live?" Then let us be obedient to the heavenly vision when the Divine Word says to us, "Son of man, prophesy upon these bones." We must cherish the faith which will enable us to do this! Moreover, a sight of the universal death of unrenewed nature should drive us to prayer, so that we cry, "Come from the four winds, O Breath, and breathe upon these slain, that they may live." This prayer being offered, we should live in hopeful expectancy that the Lord will open the graves of His people and cause them to come forth and live by His Spirit. Oh for Grace to prophesy believingly upon these bones and say, "O you dry bones, hear the Word of the Lord! Thus says the Lord God unto these bones, Behold, I will cause breath to enter into you and you shall live." Beloved, we shall yet see them stand up an exceedingly great army, quickened of the Lord our God! He delights to burst the bonds of death! Resurrection is one of His chief glories. He heralds resurrection work with trumpets, angels and a glorious high throne because He delights in it!
 
 The living Jehovah rejoices to give life and especially to give it to the dead. Corruption flies before Him! Grave clothes are cut and sepulchers are broken open. "I am the resurrection and the life," says Jesus, and so He is, even at this hour! O God, save this congregation to the praise of the Glory of Your Grace, wherein You have made us to live and to be accepted in Your well-beloved Son! Amen and Amen.
+

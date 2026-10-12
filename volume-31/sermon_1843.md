@@ -88,3 +88,4 @@ Perhaps I speak to some dear brother who is very old and infirm; he can hardly h
 Portion of Scripture Read Before Sermon: Psalm 77.
 
 Hymns from Our Own Hymn Book: 196, 77, 502.
+

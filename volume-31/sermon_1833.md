@@ -1,7 +1,7 @@
 # Sermon 1833 | A Proclamation from the King of Kings
 
-> Go and proclaim these words toward the north, and say, Return, you backsliding Israel, says the Lord; and I will not cause My anger to fall upon you: for I am merciful, says the Lord, and I will not remain angry forever. Only acknowledge your iniquity, that you have transgressed against the Lord your God, and have scattered your ways to the strangers under every green tree, and you have not obeyed My voice, says the Lord.
-> Jeremiah 3:12,13
+> Go and proclaim these words toward the north, and say, Return, you backsliding Israel, says the Lord; and I will not cause My anger to fall upon you: for I am merciful, says the Lord, and I will not remain angry forever. Only acknowledge your iniquity, that you have transgressed against the Lord your God, and have scattered your ways to the strangers under every green tree, and you have not obeyed My voice, says the Lord.  
+> Jeremiah 3:12,13  
 
 Backsliders are very many. Departing from the living God is no strange thing. Every Church has to lament many that turn aside. In fact, it has become so common in many Churches, that they have not faith enough to hold to the Scriptural doctrine of the Perseverance of the Saints, as if the lack of perseverance in mere professors could alter the Truth of God that where the life and power of God are really in the soul, there it will abide and remain. Bitter are the disappointments which result from the apostasy of avowed disciples and the declension of true followers of the Lamb. We sow, but when we expect to reap, we fill not our bosoms with sheaves, for many of those who sprung up hastily from the stony ground are withered as soon as the sun has risen! The morning cloud charms us with the hope of rain, but it soon vanishes, the early dew gives us promise of moisture, but it is exhaled, and the earth is hot beneath our feet. Our hearts ache because of blighted hopes where we looked for blessed results.
 
@@ -11,8 +11,8 @@ Alas, that it should be so! Had it not been for the interposition of God's Grace
 
 Pray for me, that I may speak in the power of the Holy Spirit, so as to lead back benighted ones who are now stumbling upon the dark mountains. I feel deeply my need of such help and would breathe my own desire to God in the language of our sweet poetess
 
-> O strengthen me, that while I stand Firm on the Rock, and strong in Thee, I may stretch out a loving hand   
-> To wrestlers within the troubled sea.   
+> O strengthen me, that while I stand Firm on the Rock, and strong in Thee, I may stretch out a loving hand  
+> To wrestlers within the troubled sea.  
 
 I shall keep to the passage before us and we will commence with it at once and notice, first, in the text: The proclamation. The Prophet receives this message, "Go and proclaim these words toward the north, and say, Return, you backsliding Israel, says the Lord."
 
@@ -74,13 +74,13 @@ I find that the passage might be read, "I will not cause My face to fall upon yo
 
 But the great Father, here, shows that He will not continue to frown on you: He will not make His face to fall at the mention of you. He has said, "I will heal their backsliding, I will love them freely: for My anger is turned away from them." He might justly say, "you are My child, but I cannot speak comfortably to you, for you are so disobedient that I must send you to a distance and make you feel the evil of disobedience." But, instead of that, He says, "I will not cause My anger to fall upon you. I will not even cause my face to fall at the sight of you; but I will receive you graciously; I will, in tender mercy, put away your transgressions and reveal My love to you." "Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Will you not come to Him, when He speaks thus?
 
-> Return! O erring, yet beloved!   
-> I wait to bind your bleeding feet, for keen   
-> And rankling are the thorns where you have been.   
-> I wait to give you pardon, love, and rest.   
-> Is not My joy to see you safe and blest?   
-> Return! I wait to hear once more your voice   
-> To welcome you anew, and bid your heart rejoice.   
+> Return! O erring, yet beloved!  
+> I wait to bind your bleeding feet, for keen  
+> And rankling are the thorns where you have been.  
+> I wait to give you pardon, love, and rest.  
+> Is not My joy to see you safe and blest?  
+> Return! I wait to hear once more your voice  
+> To welcome you anew, and bid your heart rejoice.  
 
 A woman has a husband who has loved her as his own, but she has lent her ear to a serpent, to one who with words of flattery has beguiled her, and she has sinned against her fidelity. She has defiled herself with another and she has gone away, far away, and the man who has deceived her has forsaken her. She is now a woman of a sorrowful spirit, broken down and cast off. A friend whispers to her, "Return to your husband, for it was better with you then, than now." But this is her stumbling block, "Will he receive me? Can he receive me? I have dishonored him. Will he take me back? Can I expect the love that gladdened my girlish days to be lavished upon me again? Will he not call me an outcast and say that I have darkened his house and shall never enter it again?"
 
@@ -147,3 +147,4 @@ Confess also your hardness of heart. God has spoken and you would not hear. He h
 Confess, also, your ingratitude. His voice, which is your Father's voice, you have not heard or obeyed. What unnaturalness! Shall a wife not know her husband's voice? Shall a brother forget his brother's? Yet it is so with some of you who once used to be with us, you were our joy and we were your joy, and God the joy of us both but you have gone aside. You have left your first love. You have departed from the ways of the Lord. Yet remember at this moment there is no judgment for you, no threats, no scolding words, simply this, "Only return." The heart of love has room in it for you! Hasten home to Him who is your only resting place. You can never be happy where you are and as you are. You have tried it! Oh, how long you have tried it, but you are going downward and waxing worse and worse!
 
 Oh, that you would say, "I will end it! I will end it! Never more will I depart from Him who has redeemed me with His blood. I will yield myself to Him at once." Happy is the preacher if this has been effected by the Spirit of God. Happy shall you be, also, and happy are these Christian folk to know that such a thing has been done in their midst. God bless you, for Jesus' sake! Amen.
+

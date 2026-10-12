@@ -1,7 +1,7 @@
 # Sermon 1823 | Peter's Blunder: A Lesson for Ourselves
 
-> But Peter said, Not so, Lord; for I have never eaten anything that is common or unclean.
-> Acts 10:14
+> But Peter said, Not so, Lord; for I have never eaten anything that is common or unclean.  
+> Acts 10:14  
 
 "Not so, Lord." This is a very curious expression. I do not care how you turn it into English from the original, it is a very strange compound. If Peter had said, "Not so," there would have been a clear consistency in his language and tone. But "Not so, Lord," is an odd jumble of self-will and reverence, of pride and humility, of contradiction and devotion. Surely, when you say, "Not so," it ought not to be said to the Lord and if you say, "Lord," you ought not to put side by side with such an ascription the expression, "Not so." Peter always was a blunderer in his early days and he had not grown out of his old habits of honest impetuosity. He meant well and his expression was not intended to convey all that we might easily make of it. At any rate, it is not for us to condemn him. Who are we that we should sit in judgment on a saint of God? Besides, we are not without fault, ourselves, in the matter of incorrect speech.
 
@@ -108,3 +108,4 @@ Again, I doubt not that some are hindered in their usefulness by their great dig
 Love yourself less and less and love your God more! Love the soul of every man with all the intensity of your being. Struggle and agonize to bring sinners to the Savior's feet and God will help you. But if you stand on your dignity and say, "Lord, not so; for I have never eaten anything common or unclean," it will be a serious injury to you. I said to one of our classes, "Let I grow very small, and let J grow very great," and the Brothers and Sisters did not need an explanation. May we so love our Lord Jesus that we cease to care for dignity and are willing to be nothing for His sake!
 
 Are there any here who have not yet believed in Jesus? I hope they will trust their souls with Him at once and, when they have done so, let them come forward without delay and confess His name and be baptized into the sacred Three! Then let them try to grow downward lower and lower, till they sink into nothing, that Christ may be All in All!
+

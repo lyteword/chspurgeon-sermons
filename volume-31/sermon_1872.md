@@ -1,7 +1,7 @@
 # Sermon 1872 | My Comfort In Affliction
 
-> This is my comfort in my affliction, for Your Word has quickened me.
-> Psalm 119:50
+> This is my comfort in my affliction, for Your Word has quickened me.  
+> Psalm 119:50  
 
 It is almost needless for me to say that, in some respects, the same events happen unto all men alike, in the matter of afflictions it is certainly so. None of us can expect to escape trial. If you are ungodly, "many sorrows shall be to the wicked." If you are godly, "many are the afflictions of the righteous." If you walk in the ways of holiness, you shall find that there are stumbling blocks cast in the way by the enemy. If you walk in the ways of unrighteousness, you shall be taken in snares and held there even unto death. There is no escaping trouble! We are born to it as the sparks fly upward. When we are born the second time, though we inherit innumerable mercies, we are certainly born to another set of troubles, for we enter upon spiritual trials, spiritual conflicts, spiritual pains and so forth, and thus we get a double set of distresses, as well as twofold mercies.
 
@@ -74,3 +74,4 @@ Lastly, in the fifty-fifth verse, you see David was in darkness. He says, "I hav
 All along, then, dear Friends, your comfort and mine is the Word of God, laid home by God, the Holy Spirit, to our hearts, quickening us to an increase of spiritual life! Do not try to flee from your troubles. Do not fret under your cares. Do not expect this world to bring forth roses without thorns. Do not hope to prevent the springing up of briers and thistles. Ask for quickening! Ask for that quickening to come, not by new revelations nor by fanatical excitement, but by
 
 God's own Word quietly applied by His own Spirit! So shall you conquer all your troubles, overcome your difficulties and enter into Heaven singing hallelujahs unto the Lord's right hand and holy arm which have gotten Him the victory!
+

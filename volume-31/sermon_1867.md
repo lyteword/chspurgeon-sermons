@@ -1,7 +1,7 @@
 # Sermon 1867 | Untitled Sermon
 
-> Then sang Moses and the children of Israel this song unto the Lord, and spoke, saying, I will sing unto the Lord, for He has triumphed gloriously: the horse and his rider has He thrown into the sea. The Lord is my strength and song, and He is become my salvation: He is my God, and I will prepare Him an habitation, my father's God, and I will exalt him.
-> Exodus 15:1,2
+> Then sang Moses and the children of Israel this song unto the Lord, and spoke, saying, I will sing unto the Lord, for He has triumphed gloriously: the horse and his rider has He thrown into the sea. The Lord is my strength and song, and He is become my salvation: He is my God, and I will prepare Him an habitation, my father's God, and I will exalt him.  
+> Exodus 15:1,2  
 
 This is the first song unto the Lord which is recorded in Holy Scripture. In Jacob's blessing of his children there are verses which may be regarded as songs, but they are mere fragments and can scarcely be said to be sung unto the Lord. There are other couplets in the Book of Genesis, but this is the first connected song upon record. I should think that Abraham often sang unto the Lord, but we have no record of it. We can hardly doubt but that Isaac had his quiet Psalm, as Enoch had, and Noah and others who called upon the name of the Lord. But none of these hymns are left to us. This is the very first of those sacred songs preserved in Scripture and, in some respects, it is first in merit as well as in time. At any rate, its august occasion lifts it into the highest place among patriotic hymns.
 
@@ -126,3 +126,4 @@ say,
 The verse closes with, "He is my father's God, and I will exalt Him.''" How can we exalt Him who is already high above all thought? We cannot really make God any greater, but we can make Him greater in the estimation of our fellow men. Let it be the business of our lives to magnify Him. Let us tell our friends that which will make the Lord appear more glorious in their estimation. Let us lay ourselves out, by pen, tongue and life, to make our Lord Jesus Christ more honorable among those who surround us. Say, "I must and will exalt Him. Perhaps I have groaned too much over my trials. Perhaps I have been too depressed and heavy in spirit. But from this day on I will exalt my Lord and sound forth His praises! If He will permit me, I will make the Glory of the Lord the one objective of my being."
 
 Come, you young men and maidens, you old men and fathers, let us praise the Lord on the high-sounding cymbals, and spend the rest of our days in crying, "Sing unto the Lord, for He has triumphed gloriously." Amen.
+

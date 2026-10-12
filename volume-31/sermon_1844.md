@@ -49,8 +49,8 @@ I now ask your kind attention to the second part of my subject, which is a very 
 
 They went on from bad to worse as a nation; they turned aside grievously, but not in heart, so that when Christ came they were unable to discern him, for had they known him they would not have crucified the Lord of glory. This blindness was in part a punishment for their long rebellion. If men willfully shut their eyes, do you wonder that they become blind? If men will not hear, do you wonder that they grow deaf? He that perverts truth shall soon be incapable of knowing the true from the false. If you persist in wearing glasses that distort, everything will be distorted to you.
 
-> Hear the just law, the judgment of the skies!   
-> He that hates truth shall be the dupe of lies.   
+> Hear the just law, the judgment of the skies!  
+> He that hates truth shall be the dupe of lies.  
 
 But although this blindness was a punishment for former sin, it was itself a sin. They willfully rejected the testimony of God against themselves; they refused the self-evident Christ who would so greatly have blessed them. This wilful rejection was carried out so effectually that it became impossible to convert and heal them; they could not be instructed, or reformed, and therefore they were given over to destruction. Nothing remained but to allow the Romans to burn the temple and plough the site of the city. It was a dreadful thing that they should deliberately choose destruction, and obstinately involve themselves in the most tremendous of woes. Poor Israel, we pity thee! It was sad indeed to fall from so great a height! Yet we are bound to admit that God dealt with thee justly, for thou didst choose thine own delusions. The Lord cries, "Oh that my people had harkened unto me." Our Saviour weeps and cries, "O Jerusalem, Jerusalem, how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, but ye would not! Behold, your house is left unto you desolate."
 
@@ -67,3 +67,4 @@ Ere I have done, hear the sweet whisper which closes the sixth of Isaiah. Notwit
 Portion of Scripture Read Before Sermon: John 12:37-50.
 
 Hymns from Our Own Hymn Book: 93, 12, 518.
+

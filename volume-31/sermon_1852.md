@@ -1,7 +1,7 @@
 # Sermon 1852 | The Modern Dead Sea and the Living Waters
 
-> The waters shall be healed.
-> Ezekiel 47:8
+> The waters shall be healed.  
+> Ezekiel 47:8  
 
 Ezekiel is robed in dreadful tempest and his whole book is "as the terrible crystal" for brightness and for mystery, yet he often gives us visions of exceeding comfort. For instance, who can think without joy of that tender branch of the cedar which is to be planted by God in the mountain of the height of Israel, which shall grow so exceedingly that all fowl of every wing shall dwell in its branches? Do we not all rejoice that, whatever may become of the institutions of modern society, we have received a Kingdom which cannot be moved? The Kingdom of our Lord Jesus, which began as a tender slip, is yet to increase till it is likened to a goodly cedar "upon a high mountain and eminent": is not this an unspeakable joy? Think, also, of that other vision, so weird and strange, of a valley full of dead bones, "very many" and "very dry." What an answer does that vision give to the question of unbelief! "Can these dry bones live?" How plainly does the Lord answer, "I will put My Spirit in you and you shall live"! When I think of that goodly cedar, I see that the Kingdom will come unto Christ. And when I think of the valley of dry bones, I am comforted concerning the masses around me. We, too, as we walk through this morgue of a city, may hope that life will conquer death and an exceedingly great army, quickened by the Spirit of our God, shall yet rise from these dry bones!
 
@@ -102,3 +102,4 @@ Above all, we must not come to be the marshes of which we read just now. Certain
 When they are brought before the Judge, to have their true parentage discovered, they shall be cut in sunder! So the great Solomon will ordain! Oh, that you and I may be true-born children of God! May we never be among those mongrels who are neither heathen nor Jews, neither Christians nor outsiders! May we be one thing or the other! Let us heed the voice of the Prophet, "If the Lord is God, follow Him: but if Baal, then follow him." All the blessing that ever comes from Heaven will never save neutrals, for "the marshes thereof shall not be healed; they shall be given to salt." God deliver us from such a curse, for Jesus Christ's sake! Amen.
 
 Portion of Scripture Read Before Sermon: Genesis 9:8-15; Ezekiel 47:1-12; Revelation 22:1-15.
+

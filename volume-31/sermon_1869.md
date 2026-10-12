@@ -1,7 +1,7 @@
 # Sermon 1869 | Hagar at the Fountain
 
-> And she called the name of the Lord that spoke unto her, You-Are-the-God-Who-Sees: for she said, Have I, also, here looked after Him who sees me? Therefore the well was called Beer-Lahai-Roi.
-> Genesis 16:13,14
+> And she called the name of the Lord that spoke unto her, You-Are-the-God-Who-Sees: for she said, Have I, also, here looked after Him who sees me? Therefore the well was called Beer-Lahai-Roi.  
+> Genesis 16:13,14  
 
 You know the story of Hagar. I am not going to deal with the allegorical meaning of it, that would be apart from our subject this morning. I shall speak of the incident simply as it stands, but even then I shall not use it strictly as a case of sure conversion, for I am not certain that it was such. I suppose Hagar to have been an Egyptian woman, probably one of the maidservants who were given by the King of Egypt to Abram at that unhappy time when Abram's faith failed him and he went down into Egypt and requested Sarai to conceal the fact that she was his wife. Sin, whenever it is committed by the child of God, is sure to involve him in sorrow. In the long run, the result of any false dealing comes home to the Believer and it does so in very unexpected ways. Hagar became the special maid of Sarai. God had promised to Abram that he should have a son and that thus he should be the father of nations. That blessing did not appear likely to come to him, for there were no children born to Sarai, nor did there seem to be the possibility of any.
 
@@ -110,3 +110,4 @@ Better still, let this very name of God, "The Living and The Seeing One": be as 
 Did I hear you cry out in anguish, "Nobody cares for me?" Do you say, "Nobody knows me in this terrible city. Here I am in this great London as much deserted as Robinson Crusoe on his lone island?" I know what you mean. London is worse than a wilderness to many. A man may lay himself down and die in these streets and nobody will care for him. The millions will pass him by, not for lack of kindness, but from lack of thought! There is no such horrible wilderness as a wilderness of men. Yet, take comfort, the living God sees you! He sees not as man sees, with a mere gaze of cold notice, but His heart goes with His eyes. You have not prayed yet, but He hears your affliction. Oh, begin to pray and He will speedily deliver! Spread your case before Him and He will regard your petition!
 
 I would encourage you to get alone, if you are in sorrow and sin, and tell it all out before God and see if He does not deliver you. Some of us have gone to Him in plights as terrible as yours and we have ordered our cases before Him, and He has answered us. We can truly say, "He has delivered us" and, therefore, we encourage you to seek His face in the same manner. May the Lord bring you to seek Him at once, for His great love's sake, and then to Him shall be Glory forever and ever. Amen.
+

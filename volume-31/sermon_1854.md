@@ -1,7 +1,7 @@
 # Sermon 1854 | The Foundation and Its Seal: A Sermon for the Times
 
-> Nevertheless the foundation of God stands sure, having this seal, 'The Lord knows them that are His,' and, 'Let everyone that names the name of Christ depart from iniquity.
-> 2Timothy 2:19
+> Nevertheless the foundation of God stands sure, having this seal, 'The Lord knows them that are His,' and, 'Let everyone that names the name of Christ depart from iniquity.  
+> 2Timothy 2:19  
 
 Paul had met with many difficulties in his earnest career, but his most painful trials came from false brethren. It is battle, enough, for the Church to contend with the world, but what is she to do when she has to contend with herself? To go forth weeping, bearing precious seed and, in due time, to reap it in the heat of the sun is toil enough for the farmer, but what is he to do when the tares are sown among the wheat and they spring up and well-near choke the growing grain? He is distressed and knows not what to do! At first he is eager to root up the tares; then he fears that he might root up the wheat with them and so, at his Master's command, he lets both grow together until the harvest. This he does with tears in his eyes, for he foresees that those growing tares must do fearful mischief to the good seed and, in the end, where he looked for much, he will gather little.
 
@@ -100,3 +100,4 @@ Think, also, how much the world is injured by Christians who are not Christians!
 Last of all, how is Christ shamed and dishonored when we are not holy, but worldly, covetous, proud and unloving! Oh, Sirs, it seems to me that since the foundation of God was laid in agony and bloody sweat and, since God Himself became Incarnate that He might lay the foundation of holiness in the world, we ought to take heed how and what we build thereon! We must come to it, for, "other foundation can no man lay." And it behooves us to come very solemnly to it and to know what we mean by building thereon. True godliness is not to say, "I believe," but to believe! Not to talk of repentance, but to repent! It is not to speak of regeneration, but to be born again! It is not to talk about consecration, but really to live to God! It is not to speak about the Holy Spirit, but to have Him dwelling in you!
 
 Be it ours to have the Truth of God in the inward parts and Grace in the core of the heart. Oh, may God bring us to this! We ask it for our Lord Jesus Christ's sake. Amen.
+

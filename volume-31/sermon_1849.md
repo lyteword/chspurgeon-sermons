@@ -84,3 +84,4 @@ The judgment is according to our gospel, and in times of righteous indignation i
 Portion of Scripture Read Before Sermon: John 12:37-50.
 
 Hymns from Our Own Hymn Book: 93, 12, 518.
+

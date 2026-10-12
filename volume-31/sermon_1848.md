@@ -1,7 +1,7 @@
 # Sermon 1848 | The Looking Glass
 
-> For if anyone is a hearer of the Word, and not a doer, he is like unto a man beholding his natural face in a glass: for he beholds himself, and goes his way, and straightway forgets what manner of man he was. But he who looks into the perfect Law of liberty, and continues in it, he beingnot a forgetful hearer, but a doer of the work, this man shall be blessedin his deed.
-> James 1:23-25
+> For if anyone is a hearer of the Word, and not a doer, he is like unto a man beholding his natural face in a glass: for he beholds himself, and goes his way, and straightway forgets what manner of man he was. But he who looks into the perfect Law of liberty, and continues in it, he beingnot a forgetful hearer, but a doer of the work, this man shall be blessedin his deed.  
+> James 1:23-25  
 
 Last Lord's Day I tried to show the right way of hearing the Word of God. We spoke of how to behave before the sermon, at the sermon and after the sermon. May God grant that the word which I then spoke may continue in your minds and bring forth good fruit! At this time I shall draw a distinction between the true and blessed hearer of the Word and the person who misses the blessing because he hears to forget. You will forgive my coming back to this subject when I confess that I groan in my own heart with unutterable longings to be a channel of blessing to all who hear or read my discourses. To what purpose do I stand here so often and pour out my soul before you, if you are not the better for it? I am an unhappy sower if all the handfuls of seed which I scatter must fall upon unbroken soil, to be devoured of birds and never take root. Blessed be God, it is not altogether so! We, by His Grace, have reaped many harvests in this place. But still, our hearts ache for larger results!
 
@@ -108,3 +108,4 @@ You who do not get a blessing by hearing the Gospel may now see why it is so. Yo
 Behold I set before you, this morning, as they did of old upon Ebal and Gerizim, blessing and curse, the curse for those who peek into the looking glass, but do no more, the blessing for those who attentively look into the perfect Law of liberty and continue to do so until they are transformed into the image of the Lord! Which shall it be? May God the Eternal Spirit decide that question by leading you, now, solemnly, seriously, earnestly, to close in with Christ and His perfect Law of liberty. And to Him be glory forever and ever! Amen and amen.
 
 Portion of Scripture Read Before Sermon: Matthew 7:13-29.
+

@@ -1,7 +1,7 @@
 # Sermon 1825 | An Inscription for the Mausoleum of the Saints
 
-> These all died in faith, not having received the promises, but having seen them afar off, were persuaded of them, embraced them and confessed that they were strangers and pilgrims on the earth. For those who say such things declare plainly that they seek a country.
-> Hebrews 11:13,14
+> These all died in faith, not having received the promises, but having seen them afar off, were persuaded of them, embraced them and confessed that they were strangers and pilgrims on the earth. For those who say such things declare plainly that they seek a country.  
+> Hebrews 11:13,14  
 
 "These all died in faith." Believers constitute a class by themselves, "These." They are the people that dwell alone and shall not be numbered among the nations. We see a great many distinctions in the world which God takes no notice of, there is neither Jew nor Gentile, bond nor free in His sight. But there is a distinction which men think little of, which is greatly observed of God, and that is the distinction between them that believe and those that believe not. Faith puts you across the border most effectually, for it brings you out of darkness into marvelous light, from death to life and from the dominion of Satan into the Kingdom of God's dear Son. It is the most important thing under Heaven that we should know that we believe in God. The Holy Spirit puts Believers by themselves and speaks of them as, "These."
 
@@ -78,3 +78,4 @@ A dear Sister, the other day, wanted to have a long talk with me and I did not w
 My dear aged friend will forget all her rheumatism and so shall I! You may be bent half double while you are here below, but you will be straight enough up there! Those dim eyes need glasses, but you will need no spectacles before the Throne of God! Limping, lame and halt you may be at this hour, but up there you will be able to join with all the happy ones in that music and dancing which shall celebrate the triumph of Christ! Arise, then, and be glad! Lift up your eyes from the dust and the darkness and gaze upon the eternal Light of God!
 
 The gate of Heaven is open! If we may not enter yet, we shall enter before it shuts, let us rest assured of that! The day dawns and until its full light has come, let us rejoice in the anticipation of it. Until the day breaks and the shadows flee away, let us cry, "Turn, O our Beloved, and abide with us!" He will not deny us our fond request! The Lord bless you, for Christ's sake. Amen.
+

@@ -1,7 +1,7 @@
 # Sermon 1851 | Ruth's Reward; or, Cheer for Converts
 
-> The Lord recompense your work, and a full reward be given you of the Lord God of Israel under whose wings you are come to trust.
-> Ruth 2:12
+> The Lord recompense your work, and a full reward be given you of the Lord God of Israel under whose wings you are come to trust.  
+> Ruth 2:12  
 
 This was the language of Boaz, a man of substance and of note in Bethlehem, to a poor stranger of whom he had heard that she had left her kindred and the idols of her nation, that she might become a worshipper of the living and true God. He acted a noble part when he cheered her and bade her be of good courage, now that she was casting in her lot with Naomi and the chosen nation. Observe that he saluted her with words of tender encouragement, for this is precisely what I want all the elder Christians among you to do to those who are the counterparts of Ruth. You who have long been Believers in the Lord Jesus, who have grown rich in experience, who know the love and faithfulness of our Covenant God and who are strong in the Lord and in the power of His might, I want you to make a point of looking out for the young converts and speaking goodly and comfortable words to them, whereby they may be cheered and strengthened. There is a text, a very short one, which I would like to often preach from in reference to those who are newly saved, and I would invite you to be continually practicing it. That text is, "Encourage him." So many throw cold water upon the aspirants after holiness that I would urge others of you to heartily cheer them. Where spiritual life is weak, it should be nurtured with affectionate care. We desire to cherish, not to censure. That the lambs may grow, they must be shepherded. That the tender babes in the household may become strong members of the Divine family, they must be nursed and fed. If Ruth is to be happy in the land of Israel, a Boaz must look after her and be her true friend. Let her nearest kinsmen be speedy in fulfilling this duty.
 
@@ -61,17 +61,17 @@ That, however, is only the beginning of the Believer's reward. He that has come 
 
 More than this, the man who trusts in God rests in Him with respect to all the supplies he now needs, or shall ever need. What happy music gladdens the green pastures of that twenty-third Psalm! I am half inclined to ask you to rise and sing it, for my heart is leaping for joy while I rehearse the first stanza of it
 
-> The Lord my Shepherd is:   
-> I shall be well supplied.   
-> Since He is mine and I am His,   
-> What can I need beside?   
+> The Lord my Shepherd is:  
+> I shall be well supplied.  
+> Since He is mine and I am His,  
+> What can I need beside?  
 
 Usually man is made up of needs, and he must have reached the land of abounding wealth who boldly asks, "What can I need beside?" We are never quite content. It always needs a little more to fill the cup to the brim, but only think of singing, "What can I need beside?" Is not this sweet content a full reward from the Lord in whom we trust? Human nature has swallowed a horseleech and, therefore, it cries night and day, "Give, give, give!" Who but the Lord can satisfy this craving? The vortex of dissatisfaction threatens to suck in the main ocean and still to remain unfilled, but the Lord rewards faith by satisfying its mouth with good things and making it sing
 
-> What need shall not our God supply   
-> From His redundant stores?   
-> What streams of mercy from on high   
-> An arm almighty pours!   
+> What need shall not our God supply  
+> From His redundant stores?  
+> What streams of mercy from on high  
+> An arm almighty pours!  
 
 I cannot imagine a fuller present reward than complete rest from all anxiety and calm confidence in a Providence which ran never fail!
 
@@ -106,3 +106,4 @@ Ruth obtained an inheritance among the chosen people of Jehovah. She could not h
 As I conclude, I bear this, my personal testimony, to the benefit of godliness for this life. Apart from the glories of Heaven, I would wish to live trusting in my God and resting in Him for this present life since I need His present aid for every day as truly as I shall need it at the last day. Men speak of secularism as attending to the things which concern our present life and I am bold to assert that the purest and best secularism is that which trusts itself with God for things immediately around us! We shall be wise to make secular things sacred by trusting them with God. Faith is not for eternity, alone, but for this fleeting hour, also, it is good for the shop and for the marketplace, for the field and for the domestic hearth. For the cares of the moment, as well as for everything else, we take refuge under the wings of God! There shall we be blessed, for Christ's sake. Amen.
 
 Portion of Scripture Read Before Sermon: Ruth 2:1-14; Proverbs 3.
+

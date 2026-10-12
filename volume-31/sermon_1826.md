@@ -1,7 +1,7 @@
 # Sermon 1826 | The Horns of the Altar
 
-> And he said, Nay; but I will die here.
-> 1 Kings 2:30
+> And he said, Nay; but I will die here.  
+> 1 Kings 2:30  
 
 We must tell you the story. Solomon was to be the king after David, but his elder brother, Adonijah, was preferred by Joab, the captain of the host, and by Abiathar, the priest; and, therefore, they got together, and tried to steal a march upon dying David, and set up Adonijah. They utterly failed in this; and when Solomon came to the throne Adonijah was afraid for his life, and fled to the horns of the altar at the tabernacle for shelter. Solomon permitted him to find sanctuary there, and forgave him his offence, and said that if he proved himself a worthy man he should live without further molestation. But very soon he began plotting again, and sought to undermine Solomon now that their venerable father was dead. It became therefore necessary, especially according to oriental ideas, for Solomon to strike a heavy blow; and he determined to begin with Joab, the bottom of all the mischief, who, though he had not followed after Absalom in David's time, was now following after Adonijah. No sooner had the king determined upon this, than Joab, conscience-stricken, began to look to himself and fly. Read the twenty-eighth verse. "Then tidings came to Joab: for Joab had turned after Adonijah, though he turned not after Absalom. And Joab fled unto the tabernacle of the Lord, and caught hold on the horns of the altar." I suppose that he thought that, as Adonijah had done this successfully before, Joab might repeat it, and have some hope for his life. Of course, he had no right to enter into the holy place, and lay hold on the horns of the altar; but being driven to desperation, he knew not what else to do. He was a man of hoary head, who had thirty or more years before committed two atrocious murders, and now they came home to him. He did not know where to fly except he fled to the horns of an altar, which he had very seldom approached before. As far as we can judge, he had shown little respect to religion during his lifetime. He was a rough man of war, and cared little enough about God, or the tabernacle, or the priests, or the altar; but when he was in danger, he fled to that which he had avoided, and sought to make a refuge of that which he had neglected. He was not the only man that had done the same. Perhaps there are some here who before long will be trying to escape from impending woe by like means.
 
@@ -29,10 +29,10 @@ That assurance is the second part of our discourse, on which I will speak briefl
 
 Now, notice first, the act itself. Joab came within the tabernacle. So, poor soul, come and hide yourself in Christ. Joab took hold of the horns, the projecting corners of the altar, and he would not let go. Come, trembling sinners, and take hold on Christ Jesus.
 
-> My faith doth lay her hand   
-> On that dear head of thine;   
-> While like a penitent I stand,   
-> And there confess my sin.   
+> My faith doth lay her hand  
+> On that dear head of thine;  
+> While like a penitent I stand,  
+> And there confess my sin.  
 
 Lean with your hand of faith upon your Lord, and say, "This Christ is mine. I accept it as the gift of God to me, unworthy though I be."
 
@@ -71,3 +71,4 @@ My heart is with the Special Services at the Tabernacle; for which I beg every r
 H. Spurgeon
 
 Mentone, February twenty-first, 1885.
+

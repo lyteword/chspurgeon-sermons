@@ -1,7 +1,7 @@
 # Sermon 1830 | All or None; or, Compromises Refused: A Sermon With Five Texts
 
-> There shall not an hoof be left behind.
-> Exodus 10:26
+> There shall not an hoof be left behind.  
+> Exodus 10:26  
 
 I shall have five texts, one of them a good one, the other four bad. The first text is good. It is God's text.
 
@@ -89,3 +89,4 @@ Now, Brothers and Sisters, you that profess to be Christians, come, stand right 
 "'Tis done! the great transaction's done; I am my Lord's, and He is mine."
 
 "My house is His and my all is His. Whether I live or die, whether I work or suffer, all that I am and all that I have shall be forever my Lord's." This is to enter into peace, this, indeed, is to be totally delivered from the power of Satan! This is to be the Lord's free man and what remains but with joyful footsteps to go onward toward Canaan, shod with shoes of iron and brass, fed with heavenly bread, guarded by the Lord, Himself, guided by His fiery-cloudy pillar, enjoying all things in Him and finding Him in all things? This is to be a Christian of the true order! The Lord make you so by faith in His dear Son! Amen and Amen!
+

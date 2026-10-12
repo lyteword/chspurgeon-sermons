@@ -1,7 +1,7 @@
 # Sermon 1853 | Up from the Country and Pressed Into Service
 
-> And they compelled one Simon, a Cyrenian, who passed by, coming out of the country, the father of Alexander and Rufus, to bear His Cross.
-> Mark 15:21
+> And they compelled one Simon, a Cyrenian, who passed by, coming out of the country, the father of Alexander and Rufus, to bear His Cross.  
+> Mark 15:21  
 
 John tells us that our Savior went forth bearing His Cross (John 19:17). We are much indebted to John for inserting that fact. The other Evangelists mention Simon the Cyrenian as bearing the Cross of Christ, but John, who often fills up gaps which are left by the other three, tells us that Jesus set out to Calvary carrying His own Cross. Our Lord Jesus came out from Pilate's palace laden with His Cross, but He was so extremely emaciated and so greatly worn by the night of bloody sweat that the procession moved too slowly for the rough soldiers and, therefore, they took the Cross from their prisoner and laid it upon Simon. Or, possibly they laid the long end upon the shoulder of the strong countryman, while the Savior still continued to bear, in part, His Cross till He came to the place of doom. It is well that we should be told that the Savior bore His Cross, for if it had not been so, objectors would have had ground for disputation. I hear them say: You admit that one of the most prominent types in the Old Testament, of the Sacrifice of the Son of God, was Abraham's offering up his son Isaac. Now Abraham laid the wood upon Isaac, his son, and not upon a servant. Should not, therefore, the Son of God bear the Cross Himself?
 
@@ -43,10 +43,10 @@ Men have even stepped into places of worship with evil designs and yet the purpo
 
 met the minister, again, and asked him how she must come to Jesus. Mr. Malan's reply was, "Come to Him just as you are." That lady gave herself up to Jesus, it was Charlotte Elliott, to whom we owe that precious hymn
 
-> Just as I am, without one plea   
-> But that Your blood was shed for me   
-> And that You bid me come to You    
-> O Lamb of God, I come.   
+> Just as I am, without one plea  
+> But that Your blood was shed for me  
+> And that You bid me come to You  
+> O Lamb of God, I come.  
 
 It was a blessed thing for her, that she was at that party, and that the servant of God from Geneva should have been there and should have spoken to her so faithfully! Oh for many a repetition of the story "of one Simon, a Cyrenian," coming, not with the intent to bear the Cross, but with quite another mind and yet, being enlisted in the cross-bearing army of the Lord Jesus!
 
@@ -107,3 +107,4 @@ me."
 Happy are we if we can, while yet we live, be co-workers together with Him, that when He comes in His Kingdom, we may be partakers of His Glory! "Blessed is the man that endures temptation: for when he is tried, he shall receive the crown of life which the Lord has promised to them that love Him." God bless you and especially you who have come out of the country. God bless you. Amen and amen!
 
 Portion of Scripture Read Before Sermon: Mark 15:1-38.
+

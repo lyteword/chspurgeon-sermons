@@ -1,7 +1,7 @@
 # Sermon 1866 | The Sunday School and the Scriptures
 
-> And that from childhood you have known the Holy Scriptures, which are able to make you wise unto salvation through faith which is in Christ Jesus.
-> 2 Timothy 3:15
+> And that from childhood you have known the Holy Scriptures, which are able to make you wise unto salvation through faith which is in Christ Jesus.  
+> 2 Timothy 3:15  
 
 How very remarkably the times repeat themselves! As I said just now, in the reading of the chapter, the warning which Paul gave concerning his own times is quite as necessary for this present age. Again darkness thickens and the mists hang heavily around our footsteps. Evil men and seducers wax worse and worse and very many have turned away their ears from the Truth of God to listen to fables. Nor do we wonder that it is so. History must repeat itself so long as we have the same human nature to deal with, the same sins to ensnare mankind, the same Truth to be trifled with and the same devil to stir men up to the same mischief.
 
@@ -94,3 +94,4 @@ This young man became a minister and an Evangelist. He was a preacher of such a 
 Timothy became, also, a great champion for the faith. He came forward and in the midst of all those who were preaching false doctrine, he stood firm to the end, he was steadfast, unmovable, courageous, because as a child he had known the Scriptures! O Teachers, see what you may do! In your schools sit our future Evangelists. In that infant class sits an Apostle to some distant land! There may come under your training hand, my Sister, a future father in Israel! There shall come under your teaching, my Brother, those that are to bear the banners of the Lord in the thick of the fray! The ages look to you each time your class assembles!
 
 Oh, that God may help you to do your part well! We pray with one heart and one soul that the Lord Jesus Christ may be with our Sunday schools from this day and till He comes. Amen and Amen!
+

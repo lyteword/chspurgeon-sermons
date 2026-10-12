@@ -1,7 +1,7 @@
 # Sermon 1861 | The Lowly King
 
-> Rejoice greatly," then the reason is, "Behold, thy King cometh unto thee!
-> Our chief source of rejoicing is the presence of King Jesus in the midst of us. Whether it be his first or his second advent, his very shadow is delight. His footfall is music to our ear
+> Rejoice greatly," then the reason is, "Behold, thy King cometh unto thee!  
+> Our chief source of rejoicing is the presence of King Jesus in the midst of us. Whether it be his first or his second advent, his very shadow is delight. His footfall is music to our ear  
 
 That delight springs much from the fact that he is ours. "Rejoice greatly, O daughter of Zion:... behold, thy King cometh unto thee." Whatever he may be to others, he is thy King, and to whomsoever he may or may not come, he cometh unto thee. He comes for thy deliverance, thine honor, thy consummated bliss. He keeps thy company: he makes thy house his palace, thy love his solace, thy nature his his home. He who is thy King by hereditary right, by his choice of thee, by his redemption of thee, and by thy willing choice of him, is coming to thee; therefore do thou shout for joy.
 
@@ -72,3 +72,4 @@ God bless you, by leading you all to love this lowly and loving Lord! Even at th
 Portion of Scripture Read Before Sermon: Matthew 11.
 
 Hymns from Our Own Hymn Book: 878, 765, 384.
+

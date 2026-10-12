@@ -1,7 +1,7 @@
 # Sermon 1838 | The Good Ananias: A Lesson for Believers
 
-> And there was a certain disciple at Damascus, named Ananias, and to him said the Lord in a vision, Ananias. And he said, Behold, I am here, Lord.
-> Acts 9:10
+> And there was a certain disciple at Damascus, named Ananias, and to him said the Lord in a vision, Ananias. And he said, Behold, I am here, Lord.  
+> Acts 9:10  
 
 At this season we are called upon to think of foreign missions. As members of the Baptist Missionary Society, we are in happy and hopeful circumstances. God is smiling upon the work, both at home and abroad, and raising up men whose hearts are in the cause. Last year the Society was in arrears, it has expended very much more money this year than last year, and yet it has paid its way, is clear of debt and begins the year with a balance in hand! For this we are very thankful, not only because the money is necessary to defray the charges of the holy service, but because it shows that the Churches have confidence in the Missionary Society and that they are awakening to their responsibility concerning it. The more Believers in the Lord Jesus consider the matter, the more they will see that it is the duty and the privilege of all who know the Lord to make Him known to others.
 
@@ -108,3 +108,4 @@ Lastly, observe the result of what Ananias said. The results were immediate, for
 Go you, then, my Brothers and Sisters, wherever God sends you, for you know not what may be within a man, a woman, or a child whom you shall bring to Jesus! Everybody is not a Paul, but yet you may find a Paul among your converts. The pearl fisher standing on the rock plunges deep into the sea, he does not know whether or not he shall bring up a pearl that will decorate an emperor's diadem. But he searches the deeps in that hope and why should he not bring up such a treasure as well as anybody else? No matter though the fisherman, himself, may be coarse, ragged and rugged, yet he may light upon a priceless pearl!
 
 And you, whoever you may be, I charge you, in the name of the Eternal God, plunge yourself into your work with whole-hearted devotion and you shall yet discover some hidden jewel which shall adorn Immanuel's diadem! So may it be with you, dear Friends, for Christ's sake. Amen.
+

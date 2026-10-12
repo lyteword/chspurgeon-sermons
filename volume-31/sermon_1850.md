@@ -1,7 +1,7 @@
 # Sermon 1850 | Immeasurable Love
 
-> For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.
-> John 3:16
+> For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.  
+> John 3:16  
 
 I was very greatly surprised the other day, in looking over the list of texts from which I have preached, to find that I have no record of ever having spoken from this verse. This is all the more singular, because I can truly say that it might be put in the forefront of all my volumes of discourses as the sole topic of my life's ministry. It has been my one and only business to set forth the love of God to men in Christ Jesus. I heard lately of an aged minister of whom it was said, "Whatever his text, he never failed to set forth God as love, and Christ as the atonement for sin." I wish that much the same may be said of me. My heart's desire has been to sound forth as with a trumpet the good news that "God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life."
 
@@ -29,10 +29,10 @@ Throughout the ages the great Father stood to his gift. He looked upon his Only 
 
 Now, as this gift refers not only to our Lord's death, but to the ages before it, so it includes also all the ages afterwards. God "so loved the world that he gave": and still gives, "his only begotten Son, that whosoever believeth in him might not perish, but have everlasting life." The Lord is giving Christ away tonight. Oh, that thousands of you may gladly accept the gift unspeakable! Will anyone refuse? This good gift, this perfect gift, can you decline it? Oh, that you may have faith to lay hold on Jesus, for thus he will be yours. He is God's free gift to all free receivers; a full Christ for empty sinners. If you can but hold out your empty willing hand, the Lord will give Christ to you at this moment. Nothing is freer than a gift. Nothing is more worth having than a gift which comes fresh from the hand of God, as full of effectual power as ever it was. The fountain is eternal, but the stream from it is as fresh as when first the fountain was opened. There is no exhausting this gift.
 
-> Dear dying Lamb, thy precious blood   
-> Shall never lose it power   
-> Till all the ransomed church of God   
-> Be saved to sin no more.   
+> Dear dying Lamb, thy precious blood  
+> Shall never lose it power  
+> Till all the ransomed church of God  
+> Be saved to sin no more.  
 
 See, then, what is the love of God, that he gave his Son from of old, and has never revoked the gift. He stands to his gift, and continues still to give his dear Son to all who are willing to accept him. Out of the riches of his grace he has given, is giving, and will give the Lord Jesus Christ, and all the priceless gifts which are contained in him, to all needy sinners who will simply trust him.
 
@@ -48,10 +48,10 @@ It is, first, to give your firm and cordial assent to the truth, that God did se
 
 The second thing is that you do accept this for yourself. In Adam's sin, you did not sin personally, for you were not then in existence; yet you fell; neither can you now complain thereof, for you have willingly endorsed and adopted Adam's sin by committing personal transgressions. You have laid your hand, as it were, upon Adam's sin, and made it your own, by committing personal and actual sin. Thus you perished by the sin of another, which you adopted and endorsed; and in like manner must you be saved by the righteousness of another, which you are to accept and appropriate. Jesus has offered an atonement, and that atonement becomes yours when you accept it by putting your trust in him. I want you now to say,
 
-> My faith doth lay her hand   
-> On that dear head of thine,   
-> While, like a penitent, I stand,   
-> And here confess my sin.   
+> My faith doth lay her hand  
+> On that dear head of thine,  
+> While, like a penitent, I stand,  
+> And here confess my sin.  
 
 Surely this is no very difficult matter. To say that Christ who hung upon the cross shall be my Christ, my surety, needs neither stretch of intellect, nor splendor of character; and yet it is the act which brings salvation to the soul.
 
@@ -65,10 +65,10 @@ Thirdly, the love of God shines forth with transcendent brightness in a third po
 
 Now, observe, that this "whosoever" makes a grand sweep; for it encircles all degrees of faith. "Whosoever believeth in him." It may be that he has no full assurance; it may be that he has no assurance at all; but if he has faith, true and childlike, by it he shall be saved. Though his faith be so little that I must needs put on my spectacles to see it, yet Christ will see it and reward it. His faith is such a tiny grain of mustard seed that I look and look again but hardly discern it, and yet it brings him eternal life, and it is itself a living thing. The Lord can see within that mustard seed a tree among whose branches the birds of the air shall make their nests.
 
-> My faith is feeble, I confess,   
-> I faintly trust thy word;   
-> But wilt thou pity me the less?   
-> Be that far from thee, Lord!   
+> My faith is feeble, I confess,  
+> I faintly trust thy word;  
+> But wilt thou pity me the less?  
+> Be that far from thee, Lord!  
 
 O Lord Jesus, if I cannot take thee up in my arms as Simeon did, I will at least touch thy garment's hem as the poor diseased woman did to whom thy healing virtue flowed. It is written, "God so loveth the world that he gave his Only Begotten Son, that whosoever believeth in him should not perish, but have everlasting life." That means me. I cannot preach at length to you tonight; but I would preach with strength. Oh that this truth may soak into your souls. Oh you that feel yourselves guilty; and you that feel guilty because you do not feel guilty; you that are broken in heart because your heart will not break; you that feel that you cannot feel; it is to you that I would preach salvation in Christ by faith. You groan because you cannot groan; but whoever you may be, you are still within the range of this mighty word, that "whosoever believeth in Him should not perish, but have eternal life."
 
@@ -93,3 +93,4 @@ God bless you and help you to believe in Jesus. Amen.
 Portion of Scripture Read Before Sermon: John 3.
 
 Hymns from Our Own Hymn Book: 291, 538, 539.
+

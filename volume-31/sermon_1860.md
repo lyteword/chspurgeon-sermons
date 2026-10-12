@@ -1,7 +1,7 @@
 # Sermon 1860 | "Behold, He Prays"
 
-> Inquire in the house of Judas for one called Saul, of Tarsus, for, behold, he prays.
-> Acts 9:11
+> Inquire in the house of Judas for one called Saul, of Tarsus, for, behold, he prays.  
+> Acts 9:11  
 
 These words are the hallmark of genuine conversion. "Behold, he prays" is a surer witness of a man's conversion than, "Behold, he sings," or, "Behold, he reads the Scripture," or, "Behold, he preaches." These things may be admirably done by men who are not regenerate! But if, in God's sense of the term, a man really prays, we may know for sure that he has passed from death unto life. True prayer is a sure evidence of spiritual quickening, the Holy Spirit has put spiritual life into the heart of the man who prays, for prayer is the breath of heavenly life. Prayer is the outcome of that sense of need which arises from the new life, a man would not pray to God if he did not feel that he had urgent need of blessings which only the Lord can bestow. While expressing his sense of need and appealing to God for help, the praying man gives evidence of being at peace with his Lord and cured of his natural alienation. He who prays, trusts, and thus reveals the faith which saves. Some forms of prayer display great faith, but all real prayer is the working of faith, either little or great. Will a man cry to God for mercy if he does not believe in Him? Will he plead at the Mercy Seat if he does not expect to obtain his desire? Thus, dear Friends, prayer of the true kind is a voucher for the existence of spiritual life in its consciousness of need, in its turning towards God and in its faith in Him.
 
@@ -107,3 +107,4 @@ It is his first prayer this morning. I see him, the sermon is over and he has re
 A few years have passed. The young man has grown old and the time is come that he must die. He has gone up to the same room for the last time and there are those about him who weep and watch. Mark the sweet serenity of the departing soul! He is looking into eternity without fear. He knows whom he has believed and he is ready to depart. What is he doing in his expiring moments? "Behold, he prays." Prayer, which has long been his vital breath and native air, is now,
 
 "His watchword at the gates of death: He enters Heaven with prayer!" Demons that gather about our last hour shall flee away as bats fly out of a cavern scared by a torch! They shall flee when they hear the voice, "Behold, he prays." The shining ones shall gladly meet the soul that is on Jordan's bank when they hear the voice, "Behold, he prays." They shall meet the praying spirit on the other side of the river and shall smile while the prayer of earth melts into the praise of Heaven! Soon shall we be forever with the Lord! God grant it may be so, for His name's sake. Amen.
+

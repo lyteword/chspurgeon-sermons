@@ -1,7 +1,7 @@
 # Sermon 1859 | The Cross Our Glory
 
-> But God forbid that I should glory except in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world.
-> Galatians 6:14
+> But God forbid that I should glory except in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world.  
+> Galatians 6:14  
 
 Almost all men have something in which to glory. Every bird has its own note of song. It is a poor heart that never rejoices. It is a dull packhorse that is altogether without bells. Men usually rejoice in something or other and many men so rejoice in that which they choose that they become boastful and full of vainglory. It is very sad that men should be ruined by their glory and yet, many are. Many glory in their shame and more glory in that which is mere emptiness. Some glory in their physical strength, in which an ox excels them, or in their gold, which is but thick clay, or in their gifts, which are but talents with which they are entrusted. The pounds entrusted to their stewardship are thought, by men, to belong to themselves and, therefore, they rob God of the glory of them. O my Hearers, hear the voice of Wisdom, which cries, "He that glories, let him glory only in the Lord." To live for personal glory is to be dead while we live! Be not so foolish as to perish for a bubble! Many a man has thrown his soul away for a little honor, or for the transient satisfaction of success in trifles. O men, your tendency is to glory in something, your wisdom will be to find a glory worthy of an immortal mind!
 
@@ -97,3 +97,4 @@ And so it was with the world's pleasures and with the world's power. The world, 
 Paul concludes this Epistle by saying, "From henceforth let no man trouble me: for I bear in my body the marks of the Lord Jesus." He was a slave, branded with His Master's name. That stamp could never be erased, for it was burned into his heart. Even thus, I trust the Doctrine of the Atonement is our settled belief and faith in it is part of our life. We are rooted and grounded in the unchanging Truths of God! Do not try to convert me to your new views: I am past it. Forget about me! You waste your breath. It is done, on this point the wax takes no farther impress. I have taken up my standing and will never quit it. A crucified Christ has taken such possession of my entire nature, spirit, soul and body, that I am henceforth beyond the reach of opposing arguments!
 
 Brothers and Sisters, will you enlist under the conquering banner of the Cross? Once rolled in the dust and stained in blood, it now leads on the armies of the Lord to victory! Oh that all ministers would preach the true Doctrine of the Cross! Oh that all Christian people would live under the influence of it and we should then see brighter days than these! Unto the Crucified be glory forever and ever! Amen.
+

@@ -1,7 +1,7 @@
 # Sermon 1875 | The Preacher's Last Sermon for the Season
 
-> On the last day, that great day of the feast, Jesus stood and cried, saying, If any man thirsts, let him come unto Me and drink.
-> John 7:37
+> On the last day, that great day of the feast, Jesus stood and cried, saying, If any man thirsts, let him come unto Me and drink.  
+> John 7:37  
 
 The officers were after our Lord and He knew it. He could spy them out in the crowd, but He was not, therefore, in the least bit afraid, or disconcerted. He reminds me of that minister who, when he was about to preach, was stopped by a soldier, who held a pistol to his head and threatened that if he spoke, he would kill him. "Soldier," he said, "do your duty and I shall do mine." And he went on with his preaching. The Savior, without saying as much in words, said so by His actions. If they were sent to take Him, let them take Him, as for Himself, the time was come to speak boldly and, therefore, He stood and cried, saying, "If any man thirsts, let him come unto Me, and drink."
 
@@ -107,3 +107,4 @@ Hymns from Our Own Hymn Book: 906, 492, 500.
 Note from Mr. Spurgeon:
 
 Leaving home in great weakness, I beg the loving sympathy of my friends towards my orphan family of 500 children. Generous donations at this season would be greatly valued by me. Direct them to C. H. Spurgeon, Westwood, Beulah Hill, Upper Norwood.
+

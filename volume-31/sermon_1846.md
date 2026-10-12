@@ -1,7 +1,7 @@
 # Sermon 1846 | The Purging of the Conscience
 
-> For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?
-> Hebrews 9:13,14
+> For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?  
+> Hebrews 9:13,14  
 
 "To serve the living God" is necessary to the happiness of a living man, for this end were we made, and we miss the design of our making if we do not honor our Maker. "Man's chief end is to glorify God and enjoy Him forever." If we miss that end, we are terrible losers. The service of God is the element in which, alone, we can fully live. If you had a fish here upon dry land, supposing it possible that it could exist, yet it would lead a very unhappy life, it would scarcely be a fish at all! You could not tell of what it was capable. It would be deprived of the opportunity of developing its true self. It is not until you put it into the stream that the fish becomes really a fish and enjoys its existence.
 
@@ -103,3 +103,4 @@ This precious blood of Christ has now given us perfect peace with God and, there
 See you not, then, how the washing of the precious blood has made us partakers of the service of Heaven? How close it has brought us to God! In what amity and accord we walk with Him! With what sympathy we enter into all that He does! With what intense delight we joy in Him through our Lord Jesus Christ, by whom we also have received the Atonement! How I wish that every soul here believed in Jesus! O that you would do so at once. Amen.
 
 Portion of Scripture Read Before Sermon: Hebrews 9:1-28; 10:1-22.
+

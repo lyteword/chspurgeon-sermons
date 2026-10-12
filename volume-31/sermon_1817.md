@@ -65,3 +65,4 @@ For this is what the men in white apparel meant, be ready to meet your coming Lo
 Portion of Scripture Read Before Sermon: Luke 24:49-53, Acts 1:1-12.
 
 Hymns from Our Own Hymn Book: 17, 319, 346.
+

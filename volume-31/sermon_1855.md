@@ -1,7 +1,7 @@
 # Sermon 1855 | What is the Verdict?
 
-> Beloved, if our heart condemns us not, then have we confidence toward God.
-> 1 John 3:21
+> Beloved, if our heart condemns us not, then have we confidence toward God.  
+> 1 John 3:21  
 
 Carefully observe that this text is spoken to the people of God. It speaks to those who are called, "beloved." These are the people who are especially loved of God and of His people. It is a very sweet and endearing title, but it evidently, in this case, belongs only to those who are of the family of Grace, these, alone, can remain uncondemned of their hearts and live in confidence towards God. I want you to observe this because there are different ways of addressing different people and these ways are instructive. To those who are not yet numbered among the beloved, we preach the Gospel of our Lord and Savior Jesus Christ. It is a Gospel intended for the sinful and it talks to them of pardon bought with blood, it is a Gospel intended for the ungodly and it speaks to them of the work of the Holy Spirit, whereby their ungodly hearts may be renewed. Its tale is altogether of Grace and free favor and the passing by of transgression, iniquity and sin to all those who cast themselves believingly at Jesus' feet. That is the voice of Scripture to those who, as yet, are not beloved. The hope is that the Lord will call them beloved who were not beloved, and that in the place where it was said, "They are not My people," they shall be called the people of the living God!
 
@@ -101,9 +101,10 @@ This confidence often mounts up into joy till the Christian man overflows with d
 
 Blessed man that has confidence in God! Such a man goes up to his last bed when the message comes that the spirit must return to God who gave it, he goes to die without alarm, his conscience does not condemn him and, therefore, he lays himself down in patience and waits the signal to be with God. Meanwhile the light of Heaven steals over his face and they that come to cheer and comfort him hear strange words, like notes of the birds of Paradise, dropping from his lips. They see that he is in pain, but they also mark that he is baptized in enjoyment. They think that he is dying, but he testifies that he is entering into life! The pearly gates are open before him, the glitter of the golden street is meeting his failing eyes. Hear him sing, as best as his failing breath permits
 
-> And when you see my eye-strings break,   
-> How sweet my minutes roll!   
-> A mortal paleness on my cheek,   
-> But glory in my soul!   
+> And when you see my eye-strings break,  
+> How sweet my minutes roll!  
+> A mortal paleness on my cheek,  
+> But glory in my soul!  
 
 Now he is gone, gone into the land of spirits! He stands before his God and he does not tremble. He has that eagle-eye which can bear the light of the eternal sun! His heart condemns him not and he has confidence towards God. Amidst the supernal splendors he cries, "My Father!" Angels are crying, "Lord and God," but he says, "My Father": and those loyal servants make room for a royal child! The shining ones escort the happy spirit to the blessed Father's feet. There we leave him. "Beloved, if our heart condemns us not, then have we confidence toward God." God bless you. Amen.
+

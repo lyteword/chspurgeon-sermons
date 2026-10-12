@@ -1,7 +1,7 @@
 # Sermon 1829 | The Singular Origin of a Christian
 
-> For we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them.
-> Ephesians 2:10
+> For we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them.  
+> Ephesians 2:10  
 
 This text is written by the Apostle as a reason why salvation cannot be a thing of human merit, "not of works, lest any man should boast, for we are His workmanship." The for indicates an argument. It is a conclusive reason why salvation cannot be by our good works, because even when we have an abundance of the best of works, they are far more due to God than to ourselves! We, ourselves, in our saved condition, are the workmanship of God, and with each of us the argument holds good, "Not of works, for we are His workmanship."
 
@@ -113,3 +113,4 @@ Another says, "I yearn to be more like Christ." You are taken into communion wit
 Yes, I may even say that the glories of Heaven call us to a sublime life of holiness, and the thunders of Hell urge us to conquer the temptations which are in the world through lust. The crown which Christ holds over our heads inspires us with ardor in our race, while the Cross on which He died stirs us to a fervent enthusiasm for His praise. Nothing in Heaven, or on earth, or in Hell, rightly used, will excuse us in lukewarmness, but everything will impel us to intense zeal for holiness. Even the sin which so sadly abounds around us should make us the more watchful and careful in life. When dung is laid to the roots of the vine, it is not, thereby, defiled, but even out of the foul decay it finds nutriment with which to swell its delicious clusters! Thus, even the wickedness of man, by driving us nearer to our God, should prove a powerful motive for producing more exemplary lives in the midst of an untoward generation.
 
 Oh, Sirs, if God calls you His workmanship, take care that none can justly find fault with the Worker! If you are, indeed, God's creation in Christ Jesus, take care that none despise the second birth, or the second Adam. And if it is so, that the Lord has before prepared all things that we may walk in good works, let us get into gear with Creation, let us be in harmony with Providence, let us keep step with the march of God's Purpose. What more shall I say? I will only breathe a wish. Oh, that you who have not yet believed in my Lord Jesus would do so now! For, "to as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name"! Amen.
+

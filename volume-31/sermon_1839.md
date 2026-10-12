@@ -1,7 +1,7 @@
 # Sermon 1839 | Delight in the Almighty
 
-> For then shall you have your delight in the Almighty, and shall lift up your face unto God.
-> Job 22:26
+> For then shall you have your delight in the Almighty, and shall lift up your face unto God.  
+> Job 22:26  
 
 The Lord said to Eliphaz and his friends, "you have not spoken of Me the thing that is right, as My servant Job has." And, therefore, we must always regard what they said with careful discrimination. They were wise men according to their light, but they were quite at sea in their judgment of Job. However, in this particular verse, Eliphaz declared that which is taught in many other parts of Holy Scripture and we may profit by his utterance. God grant that by His Spirit we may fully experience the joys described in the words before us.
 
@@ -93,10 +93,10 @@ Then, further, we must, if we are to know this delight, lay up God's words in ou
 
 There must be added to this delight in the Word of God a constant cleansing of the way. "If you return to the Almighty, you shall be built up, you shall put away iniquity far from your tabernacles." God cannot manifest Himself to us if we continue in sin. If you professing Christian people are as greedy and hard as other people in your dealing with the world, and if in your families you are as quarrelsome and untruthful as the ungodly, God cannot come to your tabernacles. There must be purification of life, or there cannot be fellowship with the Lord. "Blessed are the pure in heart, for they shall see God." Impurity of heart will cause blindness of the eyes as to spiritual things. Careful walking will bring joyful walking, but if you lose your purity, you will lose your peace. If you are a child of God, you cannot sin without feeling the rod, you must obey the Lord in order to enjoy the Lord. Walk in the footsteps of Christ, who did always the things which pleased the Father, and you will receive the joyful witness, "This is My beloved son!" Put away sin wherever you perceive it and ask for Grace to be helped to detect it in all its lurking places. Seek out the Babylonian garment and the wedge of gold which Achan has hidden, or else the Lord cannot abide with you. Get rid of your idols!
 
-> So shall your walk be close with God,   
-> Calm and serene your frame.   
-> So purer light shall mark the road   
-> That leads you to the Lamb.   
+> So shall your walk be close with God,  
+> Calm and serene your frame.  
+> So purer light shall mark the road  
+> That leads you to the Lamb.  
 
 In addition to this, there must be a constant trust. "Yes, the Almighty shall be your defense, and you shall have plenty of silver." (See v. 25). He who does not trust God cannot delight in Him. You cannot lift up your face to Him while you think Him untrue. A childlike confidence is essential to a holy joy. Let us throw ourselves upon God, as a swimmer casts himself upon the water, that it may bear him up! Let us trust in God as a child trusts its mother, without the shadow of a question. We sometimes know a great deal too much of what we ought not to know. I see some of God's children very anxious to feed upon the tree of the knowledge of good and evil, but as for me, I am content with the tree of life! The old serpent still persuades men to pluck forbidden fruit from that evil tree!
 
@@ -110,3 +110,4 @@ Now, dear children of God, I have set all this before you, but what power can be
 Oh, Sirs, if I had to die like a dog, I should wish to be a Christian, for the sake of the bird in the hand of present delight! If there were no hereafter, the immediate peace and joy of trusting my God are an overflowing reward. But there is a hereafter and what will you ungodly ones do when that hereafter dawns upon you? You have done without God all your days and God will do without you all eternity! What terror lies in that fact! He will say, "Depart!" because you always did depart. He will decree your continuance in the path which you chose and bid you keep on going away from Him forever.
 
 He will say, "He that is filthy, let him be filthy still," and what more dreadful doom can fall upon any one of you? O, you immortal spirits, you need an immortal God! O, you that cannot cease to be, you need the Highest of all Beings in whom you may hide yourselves from ceaseless anguish! Trust in God and then shall you be filled with infinite happiness, but not till then. God bring you to Himself, that He may bring you to delight! May the uplifted Savior draw you and uplift you! May you begin the life of Heaven by an immediate delight in the Almighty, and from that delight may you never cease! To Him be glory forever and ever. Amen.
+

@@ -1,7 +1,7 @@
 # Sermon 1858 | God Our Continual Resort
 
-> Be You my strong habitation, whereunto I may continually resort.
-> Psalm 71:3
+> Be You my strong habitation, whereunto I may continually resort.  
+> Psalm 71:3  
 
 David, in his younger days, had been obliged to hide himself away with his followers in the great caverns and rocks of his native land. In the cave of Adullam, by the rocks of the wild goats, he had dwelt amid the most stern surroundings of Nature. No doubt he had climbed aloft upon the mountain's side and then had penetrated into one cave after another and treated them as chambers of his house of rock. There he had spent both nights and days, looking from on high upon the plains beneath, often seeing his cruel pursuers passing by in eager hunt for him while he was secure in his rocky fastness.
 
@@ -116,3 +116,4 @@ Come, then, you lukewarm ones and, in coming to Jesus, you will cease to be disg
 If you never have come to Jesus before, come, you chief of sinners, now! Come, you that have but little spiritual feeling! Come just as you are, since Jesus, from this platform, says, "Come unto Me, all you that labor and are heavy laden, and I will give you rest." "The Spirit and the bride say, Come." "Whoever will, let him take the Water of Life freely." That God who is the house of His people, sets wide His doors and writes over them in letters of light, "Whoever will, let him come." Jesus comes to the door! He beckons to you and persuades you to enter, saying, "Him that comes to Me I will in no wise cast out." The Lord enable you to come, for His dear mercy's sake. Amen.
 
 Portion of Scripture Read Before Sermon: Psalm 71.
+

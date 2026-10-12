@@ -77,3 +77,4 @@ One more lesson remains, And that is, what manner of people ought we to be among
 Portion of Scripture Read Before Sermon: Exodus 34:1-8; 40:34-38; John 1:1-18.
 
 Hymns from Our Own Hymn Book: 249, 256, 250.
+

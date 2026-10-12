@@ -1,7 +1,7 @@
 # Sermon 1873 | The Dream of the Barley Cake
 
-> And when Gideon had come, behold, there was a man that told a dream unto his companion and said, Behold, I dreamed a dream, and, lo, a cake of barley bread tumbled into the host of Midian, and came unto a tent, and smote it that it fell, and overturned it, that the tent lay along. And his fellow answered and said, This is nothing else sa ve the sword of Gideon the son of Joash, a man of Israel: for into his hand has God delivered Midian, and all the host.
-> Judges 7:13,14
+> And when Gideon had come, behold, there was a man that told a dream unto his companion and said, Behold, I dreamed a dream, and, lo, a cake of barley bread tumbled into the host of Midian, and came unto a tent, and smote it that it fell, and overturned it, that the tent lay along. And his fellow answered and said, This is nothing else sa ve the sword of Gideon the son of Joash, a man of Israel: for into his hand has God delivered Midian, and all the host.  
+> Judges 7:13,14  
 
 The Midianites were devastating the land of Israel. These wandering tribes purposely kept away during the times of plowing and sowing and allowed the helpless inhabitants to dream that they would be able to gather in a harvest. But no sooner did there come to be anything eatable by man or beast, than these Bedouin hordes came up like locusts and devoured everything! Imagine a country like Israel which had, at one time, been powerful, so greatly reduced as to be unable to keep off these desert rangers! They were brought so low that the cities and villages were empty and the inhabitants were hidden in the hills, in the watercourses and in the huge caverns of the rocks. God had forsaken them for their sins and, therefore, their own manhood had forsaken them and they hid themselves from enemies, whom, in better days, they had despised.
 
@@ -110,3 +110,4 @@ Once again, still in the same vein, let us, dear Friends, try continually the po
 Let us more and more prove the power of prayer, resting assured that the Lord is able to do exceeding abundantly above what we ask or even think. Let each man stand with the flaming torch of the Truth of God in his hand and the trumpet of the Gospel at his lips, and so let us compass the army of the aliens! This is our war cry: Christ and Him crucified! God forbid that we should know anything else among men, but the death, the blood, the Resurrection, the reign, the coming, the Glory of Christ!
 
 Let us not lose faith in our calling, nor in our God, but rest assured that the Lord reigns and His cause must triumph! Where sin abounded Grace does much more abound! We shall see better and brighter days than these. Grant it, O Lord, for Your Son's sake. Amen.
+

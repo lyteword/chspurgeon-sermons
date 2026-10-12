@@ -1,7 +1,7 @@
 # Sermon 1842 | The Private Tutor
 
-> He that loves Me not keeps not My sayings: and the Word which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, Whatever I have said unto you.
-> John 14:24-26
+> He that loves Me not keeps not My sayings: and the Word which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, Whatever I have said unto you.  
+> John 14:24-26  
 
 All through this thrice-blessed chapter, man cuts a very sorry figure. Whoever it is that speaks, whether it is Philip, or Judas, or Thomas, each one displays his own ignorance, either by asking an unwise question or by making a mistaken request. Yet, Brothers and Sisters, these Apostolic men were, by no means, inferior persons, but so superior that we sink into insignificance in comparison with them! Jesus made them heralds of His Gospel, master-builders of His Church and, if they displayed such ignorance, even when the Lord Jesus Christ, Himself, had personally spoken to them, we must not wonder that we are apt to blunder. Neither should we despair if we find ourselves dull and slow. If those fathers of the Church so greatly needed to be taught of the Holy Spirit, how much more do we? If they could receive nothing except by the Spirit of God, how can we hope to be wise apart from His instructions? Our position should be sitting with Mary at the Master's feet, varied with bowing into the dust before the Lord under a humble sense of our folly. The chapter before us is well watered with streams of comfort, but I confess it is always a valley of humiliation to me, as I see what poor creatures even the chief of saints are when left to themselves.
 
@@ -97,8 +97,8 @@ He refreshes the mind by vivid recollections. He refreshes the heart by melting 
 
 I am sure the Spirit of God often blesses us by bringing things to the memory of our hope. Perhaps this is an odd way of putting it, for how can hope have a memory? But I mean this, that hope seems to forget that the Lord has said, "I will never leave you, nor forsake you," Hope seems to forget that
 
-> There is a land of pure delight,   
-> Where saints immortal reign.   
+> There is a land of pure delight,  
+> Where saints immortal reign.  
 
 And sometimes the Spirit of God brings all that glorious revelation of the world to come before our minds. Have you never felt Glory begun below? Have not the pearly gates seemed to stand, not ajar, but wide open, and have you not, in spirit, walked down the streets of gold and worn your crown, and cast it at your Savior's feet? Then you have said to yourself, "I can bear this pain. I can put up with these depressions and these inconveniences, for I know that there is laid up for me, in Heaven, a crown of life that fades not." The Spirit of God thus brings all things to our remembrance!
 
@@ -109,3 +109,4 @@ I have noticed old people whose memories have been sadly feeble. I knew one who 
 I wish that any here who do not know Christ would cry for the Spirit of God to teach Him to them. If you long to be saved, pray that by His Spirit the Lord Jesus may bring you into the bond of the Covenant, for His love's sake. Amen.
 
 Portion of Scripture Read Before Sermon: John 14:15-31; 16:1-14.
+

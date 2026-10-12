@@ -1,7 +1,7 @@
 # Sermon 1828 | How "The Unspeakable" is Spoken of
 
-> And men shall speak of the might of Your terrible acts: and I will declare Your greatness. They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness.
-> Psalm 145:6, 7
+> And men shall speak of the might of Your terrible acts: and I will declare Your greatness. They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness.  
+> Psalm 145:6, 7  
 
 In this Psalm David has reached the Beulah land of his songs where we hear nothing else but praise. He begins, "I will extol You, my God, O King; and I will bless Your name forever and ever. Every day will I bless You; and I will praise Your name forever and ever." And he closes with, "My mouth shall speak the praise of the Lord: and let all flesh bless His holy name forever and ever." Happy is our condition when the glory of God fills both heart and tongue! Oh, to swim in a sea of gratitude, to feel waves of praise breaking over one's joyful head, and then to dive into the ocean of adoration and lose one's self in the ever-blessed God!
 
@@ -120,3 +120,4 @@ My Brethren, say, each one of you, unto the Lord, "I will sing of Your righteous
 Oh, eternal God, I do not understand You! If I could comprehend You, You were not God, or I not man! The parts of Your ways which You have revealed stagger and almost slay me, but, as I fall at Your feet as dead, my heart cries, "Though He slay me, yet will I trust in Him." For the Lord is good and righteous are all His ways. Hallelujah, though the world should perish! Hallelujah, though my soul should die with fear! The Lord shall forever be extolled. My Hearer, when you speak thus from your heart, you are a converted man! There is no mistake about it, you are reconciled to God, indeed, when you thus honor Him!
 
 Alas, many are only reconciled to the half of God, or to the tenth part of God! Indeed, I fear that many have shaped a god for themselves and are not reconciled to the true God at all! We want a conversion which shall make us run in parallel lines with the God who has revealed Himself by His Prophets and Apostles, and by His always-to-be-adored Son. So may it be with each one of us, for Jesus' sake. Amen.
+

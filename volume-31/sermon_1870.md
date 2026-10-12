@@ -1,7 +1,7 @@
 # Sermon 1870 | But a Step
 
-> There is but a step between me and death.
-> 1 Samuel 20:3
+> There is but a step between me and death.  
+> 1 Samuel 20:3  
 
 This was David's description of his own condition. King Saul was seeking to destroy him. The bitter malice of that king would not be satisfied with anything short of the blood of his rival. Jonathan did not know this. He could not believe so badly of his father as that he could wish to kill the champion of Israel, the brave, true-hearted young David. And so he assured David that it could not be so, that he had not heard of any plots against him. But David, who knew better, said, "It is certainly so. Your father seeks my blood and there is but a step between me and death."
 
@@ -35,10 +35,10 @@ Dr. Gill, who was noted for always being in his study, said one day to a friend,
 
 death."
 
-> Dangers stand thick through all our path   
-> To push us to the tomb!   
-> And fierce diseases wait around   
-> To hurry mortals home.   
+> Dangers stand thick through all our path  
+> To push us to the tomb!  
+> And fierce diseases wait around  
+> To hurry mortals home.  
 
 Therefore I would say, as I leave this point, let nobody here reckon upon life. Let him never postpone what ought to be done, at once, to some future time. I do not know whether any Brother here remembers old Mr. Timothy East. I knew him well in his old age. He was a man of careful observation and retentive memory and, in his later days, he was full of stories which had happened in his pastoral experience. He used to tell this one, a certain woman was very much attached to his ministry, but still a very foolish woman. She used to sit regularly on the pulpit stairs and she did so for many years, while Timothy East preached the Gospel. One thing seemed to shut her heart against all his appeals. She told a neighbor that if she had five minutes before she died, she so understood the way of salvation that she would get all right in that time. She told her minister that and Timothy said to her, "Oh, that will never do! You may not have that five minutes in which to set things right. Be right at once."
 
@@ -89,3 +89,4 @@ Now, do not part with anybody that you love with any kind of tiffs or quarrellin
 Some people's eyes greatly help the preacher. A telegraph goes on between us. She seemed to say to me, "Bless God for that. How I am enjoying it!" She kept drinking in the Truth of God and I poured out more and more precious things about the Eternal Kingdom and the sight of the Well-Beloved, till I saw what I thought was a strange light pass over her face. I went on and those eyes were still fixed on me. She sat still as a marble figure and I stopped and said, "Friends, I think that yon Sister over there is dead." They said that it was even so and they bore her away. She had gone. While I was telling of Heaven, she had gone there! And I remember saying that I wished that it had been my case as well as hers. It was better not, perhaps, for many reasons, but oh, I did envy her!
 
 I am always looking for the day when I shall see her again! I shall know those eyes, I am sure I shall! I shall remember that face, if in Heaven she is anything like what she was here, or bears any marks of identification. I shall not forget that inward fellowship which existed between a soul that stood with wings outspread for Glory and the poor preacher who was trying to talk of that which he knew but little of compared with her. Well, well, it will soon be my turn. Good night, poor world! It will soon be your turn and then you shall say, "Good night." Let us meet in Glory! Let us meet in Glory, for Jesus Christ's sake. Amen.
+

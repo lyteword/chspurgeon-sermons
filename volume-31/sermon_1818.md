@@ -68,3 +68,4 @@ I am very much concerned in leaving you, that you, dear friend, should aim much 
 Portion of Scripture Read Before Sermon: Isaiah 26.
 
 Hymns from Our Own Hymn Book: 46, 738, 552.
+

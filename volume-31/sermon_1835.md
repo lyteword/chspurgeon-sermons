@@ -13,8 +13,8 @@ Consider how great Melchizedek was. There is something majestic about every move
 
 "Consider how great this man was" as to the singularity of his person, "without father, without mother, without descent": that is to say, we know nothing as to his birth, his origin, or his history. Even this explanation hardly answers to the words, especially when it is added, "Having neither beginning of days, nor end of life." So mysterious is Melchizedek that many deeply taught expositors think that he was veritably an appearance of our Lord Jesus Christ. They are inclined to believe that he was not a king of some city in Canaan, as the most of us suppose, but that he was a manifestation of the Son of God, such as were the angels that appeared to Abraham on the plains of Mamre, and that divine being who appeared to Joshua by Jericho, and to the three holy ones in the furnace. At any rate, you may well consider how great this man was when you observe how veiled in cloud is everything about his coming and going, veiled because intended to impress us with the depth of the sacred meanings which were shadowed forth in him. How much more shall this be said of him of whom we ask
 
-> Thy generation who can tell,   
-> Or count the number of thy years?   
+> Thy generation who can tell,  
+> Or count the number of thy years?  
 
 "Consider how great this man was" in the specialty of his office. He had no predecessor in his priesthood, and he had no successor. He was not one who took a holy office and then laid it down; but as far as the historic page of Scripture is concerned we have no note of his quitting this mortal scene; he disappears, but we read nothing of his death any more than of his birth. His office was perpetual, and passed not from sire to son; for he was the type of "One who is made not after the law of a carnal commandment, but after the power of an endless life."
 
@@ -28,8 +28,8 @@ First, then, let me exhort you to consider how great this man, the Lord Jesus Ch
 
 This subject claims your consideration. I do not think it should be a matter of option with you whether you will now consider the greatness of your Lord or not; it is his due and right that you should consider his greatness. For he of whom we speak, "this man," is one well known among us. If you be true to your profession he is one most dear to you, to whom you owe all things, aye, owe your very selves. He is one between whom and you there is a troth plighted: you are espoused unto him, your hearts are his, even as his heart is yours. If you do not consider him, who will? He has loved you, and given himself for you. Strangers may listen to our teaching at this time, and in vain we may cry,
 
-> Is it nothing to you, all ye that pass by?   
-> Is it nothing to you that Jesus should die?   
+> Is it nothing to you, all ye that pass by?  
+> Is it nothing to you that Jesus should die?  
 
 But you are no stranger, you are not even a guest in his house, but you are a child living at home with him. He is your brother, and much more; for he is bone of your bone, and flesh of your flesh. All your interests are wrapped up in him. You are one with him: by an endless union, one. I claim, therefore, and I am sure you assent at once to the claim, that you should often consider your Lord, and the greatness of his nature, person, office, and work. His greatness should be your perpetual theme. I would urge that all other thoughts should now be banished, for this is your Lord's own day, and therefore to him it should be dedicated with glad consent. If you are in the Spirit on the Lord's day, you will, like John in Patmos, give all your thoughts to the Son of Man who walketh among the golden candlesticks. I urge it on you that you do now consider with your whole heart and mind, how great this man is. Do you not consent to the claim?
 
@@ -69,15 +69,15 @@ This in a few words is the practical improvement of the whole subject, with whic
 
 And then let us ascribe to our Lord Jesus Christ all the honour that our thoughts can compass. Let us give to him this day our very selves over again. Consider how great this man was, and go away feeling how greatly you are indebted to him, what great things you ought to do for him, and how little your greatest thing is when you have done it as compared with the greatness of his deservings.
 
-> Let him be crowned with majesty   
-> That bowed his head to death;   
-> And be his honour sounded high   
-> By all things that have breath.   
+> Let him be crowned with majesty  
+> That bowed his head to death;  
+> And be his honour sounded high  
+> By all things that have breath.  
 
 Do not you feel that question pressing upon your heart?
 
-> Oh what shall I do   
-> My Saviour to praise!   
+> Oh what shall I do  
+> My Saviour to praise!  
 
 Do something; and having done it do more, and yet more. Give up your whole being to the showing forth of how great this Man is!
 
@@ -92,3 +92,4 @@ A pamphlet is being widely advertised as prefaced by "Mr. Spurgeon." I have writ
 H. Spurgeon
 
 April 15, 1885.
+
