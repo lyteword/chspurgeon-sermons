@@ -1,15 +1,15 @@
 # Sermon 1648 | Pilate and Ourselves Guilty of the Savior's Death
 
-> When Pilate saw that he could prevail nothing, but that rather a tumult was made, he took water, and washed his hands before the multitude, saying, I am innocent of the blood of this just Person: see you to it. Then answered all the people, and said, His blood be on us, and on our children.
-> Matthew 27:24,25
+> When Pilate saw that he could prevail nothing, but that rather a tumult was made, he took water, and washed his hands before the multitude, saying, I am innocent of the blood of this just Person: see you to it. Then answered all the people, and said, His blood be on us, and on our children.  
+> Matthew 27:24,25  
 
 The crucifixion of Christ was the crowning sin of our race. In His death we shall find all the sins of mankind uniting in foul conspiracy. Envy and pride and hate are there, with covetousness, falsehood and blasphemy eager to rush on to cruelty, revenge, and murder! The devil awakened around the seed of the woman the iniquities of us all, they compassed the Lord about, yes, they compassed Him about like bees. All the evils of human hearts of all ages were concentrated around the Cross, even as all the rivers run into the sea and as all the clouds empty themselves upon the earth, so did all the crimes of man gather to the slaying of the Son of God! It seemed as if Hell held a formal reception and all the various forms of sin came flocking to the rendezvous, army upon army they hastened to the battle!
 
 As the vultures hasten to the body, so came the flocks of sins to make the Lord their prey. By all the assembled troops of sins there was consummated the foulest crime which the sun has ever beheld. By wicked hands they did crucify and slay the Savior of the world! We have been singing two hymns in which we took to ourselves a share of the guilt of our Lord's death. We sang:
 
-> Oh, the sharp pangs of smarting pain My dear Redeemer bore,
-> When knotty whips and rugged thorns His sacred body tore. But knotty whips and rugged thorns In vain do I accuse! In vain I blame the Roman bands And the more spiteful Jews!
-> 'Twas you, my sins, my cruel sins, His chief tormentors were! Each of my crimes became a nail, And unbelief the spear.
+> Oh, the sharp pangs of smarting pain My dear Redeemer bore,  
+> When knotty whips and rugged thorns His sacred body tore. But knotty whips and rugged thorns In vain do I accuse! In vain I blame the Roman bands And the more spiteful Jews!  
+> 'Twas you, my sins, my cruel sins, His chief tormentors were! Each of my crimes became a nail, And unbelief the spear.  
 
 And then after the same manner we sorrowfully asked a question and sang a penitential reply: "My Jesus! Who with spit vile
 
