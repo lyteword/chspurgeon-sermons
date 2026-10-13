@@ -1,7 +1,7 @@
 # Sermon 1639 | Acceptable Service
 
-> Therefore, since we are receiving a kingdom which cannot be moved, let us have Grace, by which we may serve God acceptably with reverence and godly fear. For our God is a consuming fire.
-> Hebrews 12:28,29
+> Therefore, since we are receiving a kingdom which cannot be moved, let us have Grace, by which we may serve God acceptably with reverence and godly fear. For our God is a consuming fire.  
+> Hebrews 12:28,29  
 
 As a congregation you have of late been diligently engaged in the service of God by endeavoring to provide a home for fatherless children. I have been astonished and delighted at the liberality which has been shown by all sorts of persons in this good and gracious work. I felt, sometimes, like the king of old, who said, "Who am I, and what is my people, that we should be able to offer so willingly after this sort?" I am sure you have well earned all the commendation that your fellow Christians can give to you, for the work has been so well and so heartily done that we all rejoice together! But, now that it is all over, careful thoughts arise in my mind. It is but a small thing that you and I should be accepted of one another, the great matter is that we should be accepted of the Lord. I, who am but as the doorkeeper of my Master's house, not only approve, but abundantly commend my fellow servants, but what of that? The great point is that the King, Himself, should say, "Well done, good and faithful servant."
 
@@ -41,8 +41,8 @@ Speak of laying up for a rainy day, we have infinite goodness laid up for them t
 
 No fear of Hell, no hope of deserving Heaven shall urge us on to please our Lord. No, rather this shall be our song:
 
-> Loved of my God, for Him again With love intense I burn!
-> Chosen of Him before time began, I choose Him in return.
+> Loved of my God, for Him again With love intense I burn!  
+> Chosen of Him before time began, I choose Him in return.  
 
 Gratitude is the only fountain of acceptable service! Without it the streams are far too defiled to flow in the Paradise of God. A large measure of the splendor of our kingdom lies in this, that it is a "kingdom that cannot be moved." Other kingdoms go to pieces sooner or later. You and I, who are in middle life, can remember kingdoms that have been blown down by the wind, or toppled over at the blow of one brave man's sword. Empires that have rivaled Caesar's in apparent strength have been swept down like cobwebs! As houses made of a pack of cards, so have dynasties fallen, never to rise again.
 
