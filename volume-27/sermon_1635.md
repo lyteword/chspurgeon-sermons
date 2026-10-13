@@ -1,7 +1,7 @@
 # Sermon 1635 | Only Trust Him! Only Trust Him!
 
-> And as He entered into a certain village, there met Him ten men that were lepers, which stood afar off: and they lifted up their voices and said, Jesus, Master, have mercy on us. And when He sa w them, He said unto them, Go show yourselves unto the priests. And it came to pass, that, as they went, they were cleansed.
-> Luke 17:12-14
+> And as He entered into a certain village, there met Him ten men that were lepers, which stood afar off: and they lifted up their voices and said, Jesus, Master, have mercy on us. And when He sa w them, He said unto them, Go show yourselves unto the priests. And it came to pass, that, as they went, they were cleansed.  
+> Luke 17:12-14  
 
 Several interesting topics might fairly be found in these verses. We see here the abounding fruit of sin, for here were 10 lepers in a group and the abundance of Divine power to meet it, for they were all cleansed. So, also, we see how Christ must come first and ceremonies second, first the work of Grace, and then the outward showing of it. The Lord's tenderness toward outcasts, His attention to prayers from a distance and His regard for the ceremonial Law so long as it was in force, might, each one, yield an instructive meditation. I have, however, only one thought which I wish to bring under your notice and to press upon you, perhaps, almost to repetition and monotony. That thought I would engrave as with an iron pen upon the hearts and minds of all here present who desire to find eternal salvation. May the Holy Spirit imprint it upon every living soul!
 
@@ -69,10 +69,10 @@ I will only add this one more thing. I dare say these poor lepers believed in Je
 
 Where are you, Friend, you who need so much persuading for your own good? If I have money to give away, I do not find that I have to persuade anybody to have it! Jingle a guinea and what ears men have! How soon they will rush where the coin gives forth its golden notes! Give bread away in a cold winter, or even a little soup, how the poor will crowd to get it! But when it is, "Trust Jesus and your sin shall be forgiven you, and your nature shall be changed, and you shall be saved from sinning, and you shall be made pure and holy," oh, my Master, what are they thinking that they need calling so often? Men not only require calling, they need compelling to come in
 
-> Dear Savior, draw reluctant hearts!
-> To You let sinners fly
-> And take the bliss Your love imparts
-> And drink, and never die!
+> Dear Savior, draw reluctant hearts!  
+> To You let sinners fly  
+> And take the bliss Your love imparts  
+> And drink, and never die!  
 
 I must now close with the third point which shall not occupy many minutes. It is this, what is the issue of this kind of faith that I have been preaching? This doctrine of, "only trust Jesus", what does it lead to? This trusting in Jesus without marks, signs, evidences, tokens, what is the result and outcome of it? The first thing that I have to say about it is this: that the very existence of such a faith as that in the soul is evidence that there is already a saving change! "Oh," you say, "I do not see that. How can it prove that I am a new man because I trust myself with Christ?" Consider a little, it will be an evidence of a saving change already worked, for it will show that you have come to be obedient to Jesus, and obedient upon a matter which your proud will has long struggled against.
 
