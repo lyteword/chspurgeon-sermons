@@ -1,14 +1,14 @@
 # Sermon 1595 | The Valley Of The Shadow Of Death
 
-> Yea, though I walk through the valley of the shadow of death, I will fear no evil, for You are with me; Your rod and Your staff, they comfort me.
-> Psalm 23:4
+> Yea, though I walk through the valley of the shadow of death, I will fear no evil, for You are with me; Your rod and Your staff, they comfort me.  
+> Psalm 23:4  
 
 Do you know I had laid this text by? I meant that this choice promise should be kept in store and stock till I came near the Jordan and I hoped that then, in my last hours, I might be privileged to enjoy its sweetness and sing with joyful lips
 
-> Yea, though I walk through death's dark vale,
-> Yet will I fear no ill;
-> For You are with me, and Your rod
-> And staff me comfort still.
+> Yea, though I walk through death's dark vale,  
+> Yet will I fear no ill;  
+> For You are with me, and Your rod  
+> And staff me comfort still.  
 
 The other day I found that I needed to eat this heavenly loaf at once and I did so. Fathers tell their children, "You cannot have your cake and eat it, too," but this rule does not hold good of the consolations of God. You can enjoy a promise and still have it. Yes, and all the more because your faith has fed upon its fatness. I got honey out of this verse some days ago when a tempest howled around me, but its sweetness is still there. I shall enjoy it, I doubt not, as I come near death's gate, but I have had it already sealed to my own soul with richness and fullness of comfort by the blessed Spirit of our God. Would to God that every Believer who is burdened might find it as precious to his heart as I have found it to mine.
 
