@@ -1,7 +1,7 @@
 # Sermon 1666 | The First Recorded Words of Jesus
 
-> And when they saw Him, they were amazed; and His mother said unto Him, Son, why have You thus dealt with us? Look, Your father and I have sought You sorrowing. And He said unto them, How is it that you sought Me? Know you not that I must be about My Father's business?
-> Luke 2:48, 49
+> And when they saw Him, they were amazed; and His mother said unto Him, Son, why have You thus dealt with us? Look, Your father and I have sought You sorrowing. And He said unto them, How is it that you sought Me? Know you not that I must be about My Father's business?  
+> Luke 2:48, 49  
 
 These words are very interesting because they are the first recorded utterances of our divine Lord. No doubt He said much that was very admirable while yet a child, but the Holy Spirit has not seen fit to record anything except these two questions, as if to teach us that childhood should be retiring and modest, a stage of preparation rather than of observation. We hear little of a Holy child, for modesty is a precious part of its character. We ought, therefore, to give all the more earnest heed to these words because they stand at the very forefront of our Lord's teaching and are, in some respects, the announcement of His whole life.
 
@@ -37,10 +37,10 @@ This Holy child also perceived the forgetfulness of Mary and Joseph and He wonde
 
 Have you those perceptions, dear children of God? Do you not often wonder why men do not know that you are a child of God? Have you sometimes spoken and they have smiled at you as if you were idiotic or fanatical, and you have thought to yourself, "What? Do they not know how a child of God should speak and how a child of God should act?" "Therefore the world knows us not, because it knew Him not.":
 
-> 'Tis no surprising thing,
-> That we should be unknown!
-> The Jewish world knew not their King,
-> God's everlasting Son.
+> 'Tis no surprising thing,  
+> That we should be unknown!  
+> The Jewish world knew not their King,  
+> God's everlasting Son.  
 
 The spiritual man is not understood, He is a wonder unto many. Marvel not, my brothers and sisters, if carnal men do not understand you. Yes, even your own brothers and sisters in Christ, those who love your Father, have, sometimes, been astonished at you when you have only been acting simply out of your own renewed heart.
 
