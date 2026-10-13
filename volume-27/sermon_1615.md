@@ -1,7 +1,7 @@
 # Sermon 1615 | Singing in the Ways of the Lord
 
-> Yes, they shall sing in the ways of the Lord: for great is the glory of the Lord.
-> Psalm 138:5
+> Yes, they shall sing in the ways of the Lord: for great is the glory of the Lord.  
+> Psalm 138:5  
 
 According to the context, this is spoken of kings. "All the kings of the earth shall praise You, O Lord, when they hear the words of Your mouth. Yes, they shall sing in the ways of the Lord." It will be a novel spectacle to see kings singing in the ways of the Lord! As a rule, they have not much troubled themselves with singing, but they have often troubled those who love the ways of God and opposed them, both by their laws and by their example. There will yet be another order of things in the earth! These days will be shortened for the elect's sake and the time shall come when kings shall fall down before the King of kings and all people shall call Jesus blessed! Oh that the time may speedily arrive when a choir of kings shall, with loud voices, magnify the name of the Lord!
 
@@ -67,15 +67,15 @@ We sing because we have such fine prospects on the road. Down in the Valley of H
 
 As I have often said, I would sooner be God's dog than the devil's darling. Better to lie like God's Lazarus, full of sores, with no surgeons but the dogs, than go and sit up there clothed in scarlet with pampered Dives! Oh, yes, we are a joyful people and we travel by daylight to Heaven, the Light of God we have from Christ, and the Light of God we have within will melt into the eternal light! Come, Brothers and Sisters, let us sing of the ways of the Lord! When we have a mind for a tune, let us sing about God's goodness to us in His ways
 
-> The men of Grace ha ve found
-> Glory begun below!
-> Celestial fruits on earthly ground
-> From faith and hope may grow.
-> Then let our songs abound!
-> And every tear be dry;
-> We're marching through
-> Emmanuel's ground
-> To fairer worlds on high.
+> The men of Grace ha ve found  
+> Glory begun below!  
+> Celestial fruits on earthly ground  
+> From faith and hope may grow.  
+> Then let our songs abound!  
+> And every tear be dry;  
+> We're marching through  
+> Emmanuel's ground  
+> To fairer worlds on high.  
 
 The third observation is that those who sing in the ways of God also sing of the Lord of the way. "They shall sing the ways of the Lord." And then some read it, "That great is the glory of the Lord." That is the subject of their song. When they sing about the Lord of the Way, this Psalm supplies us with the points of their song. Kindly open it and keep your eyes upon it. "I will praise You with my whole heart. Before the gods will I sing praise unto You." What for? "I will worship toward Your holy temple and praise Your name." What for, David? "For Your lovingkindness." God is kind, but He is more than that. It is lovingkindness. A man breaks a leg and the surgeon sets the bone. That is kindness. But suppose the man's mother could set the bone? Oh, how she would do it with lovingkindness! When the surgeon's own son is under his hand and the surgeon is dealing with a broken bone, it is not only kindness, but lovingkindness, the sweetest of the sweet, the kindest of the kind!
 
@@ -93,8 +93,8 @@ I am persuaded that the strength of the Church lies in its unknown members and p
 
 Have you got through that list of songs, dear Friends? Then I have another subject for you. Just read on and begin to sing of God's delivering mercy! "Though I walk in the midst of trouble, You will revive me." Someone says, "Why, that is a song about something that is to be done." That is so. We ought to have quite a collection of songs for the future
 
-> And a new song is in my mouth, To long-loved music set!
-> Glory to You for all the Grace I have not tasted yet.
+> And a new song is in my mouth, To long-loved music set!  
+> Glory to You for all the Grace I have not tasted yet.  
 
 Did you ever praise God for tomorrow's dinner? "We have not had it yet." No, but you will have it. Thank God for it tonight! Martin Tupper recommends young men, long before they are married, to pray for the wives that they will have, and there is good sense in his advice. Don't you think that it is right for us to pray ahead a bit? Yes? Well, if it is right to pray ahead, let us praise God ahead for the mercies that we are to have!
 
