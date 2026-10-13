@@ -1,7 +1,7 @@
 # Sermon 1689 | The General Convocation Around Mount Zion
 
-> But you are come unto mountZion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and church of the first-born, which are written in Heaven, and to God the Judge of all, and to the spirits of just men made perfect, and to Jesus the Mediator of the new covenant, and to the blood of sprinkling, that speaks better things than that of Abel.
-> Hebrews 12:22-24
+> But you are come unto mountZion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and church of the first-born, which are written in Heaven, and to God the Judge of all, and to the spirits of just men made perfect, and to Jesus the Mediator of the new covenant, and to the blood of sprinkling, that speaks better things than that of Abel.  
+> Hebrews 12:22-24  
 
 The whole passage will be considered, but our special central text will be verse twenty-three: "To the general assembly and church of the first-born, which are written in Heaven." Paul is displaying the superiority of the New covenant to the old. He tells us what Israel, after the flesh, came to at their best in the morning hours of the law and what the first-born after the Spirit have come to under the gospel. He pictures the great assembly of the chosen people round about Mount Sinai and then His inspired mind describes an infinitely larger and happier gathering, to which all believers have come, around Mount Zion. Not only the Hebrews to whom he was writing, but all the people of God are gathered together in one general assembly, of which the blessed God is the center. Paul shows us the joyful difference between the two gatherings and the feelings and pursuits of those who compose them.
 
