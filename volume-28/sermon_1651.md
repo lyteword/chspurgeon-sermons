@@ -1,7 +1,7 @@
 # Sermon 1651 | A Delusion Dispelled
 
-> Though Noah, Daniel and Job were in it, as I live, says the Lord God, they shall deliver neither son nor daughter; they shall but deliver their own souls by their righteousness.
-> Ezekiel 14:20
+> Though Noah, Daniel and Job were in it, as I live, says the Lord God, they shall deliver neither son nor daughter; they shall but deliver their own souls by their righteousness.  
+> Ezekiel 14:20  
 
 We are told in the opening verse of this chapter that certain of the elders of Israel came to the prophet and sat before him. You need not ask who these elders were, or from where they came because it is evident enough they were not a deputation from the Jews who were left in Judah and Jerusalem. They were individuals of distinction from among the exiles of Chebar. That they came to enquire of the prophet of the Lord, we gather from the answer that came to them by the Word of the Lord. And we might, also, infer from the matter of the terrible denunciations that were uttered, something, at least, of the manner of enquiry they proposed. The men were downright hypocrites, they were followers of the false prophets who are exposed in the previous chapter as seeing vanity and divination, and then saying, "Jehovah says," though Jehovah had not sent them!
 
