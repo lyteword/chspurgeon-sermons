@@ -1,7 +1,7 @@
 # Sermon 1609 | Faith: What Is It? How Can It Be Obtained?
 
-> By Grace are you saved through faith.
-> Ephesians 2:8
+> By Grace are you saved through faith.  
+> Ephesians 2:8  
 
 I mean to dwell mainly upon that expression, "Through faith." I call attention, however, first of all, to the fountainhead of our salvation, which is the Grace of God. "By Grace are you saved." Because God is gracious, therefore sinful men are forgiven, converted, purified and saved. It is not because of anything in them, or that ever can be in them, that they are saved, but because of the boundless love, goodness, pity, compassion, mercy and Grace of God. Tarry a moment, then, at the wellhead. Behold the pure river of Water of Life as it proceeds out of the Throne of God and of the Lamb. What an abyss is the Grace of God! Who can fathom it? Like all the rest of the Divine attributes, it is infinite! God is full of love, for "God is love." God is full of goodness, the very name, "God," is but short for, "good."
 
@@ -57,14 +57,14 @@ Her mother said, "My dear, come away, the lightning is terrible!" But she begged
 
 The child's knowledge was less showy, but it was far more certain and precious. We are so conceited, nowadays, that we are too proud to be comforted by self-evident Truths of God and prefer to make ourselves wretched with questionable theories. Hood sang a deep spiritual truth when he merrily said
 
-> I remember, I remember,
-> The fir trees dark and high.
-> I used to think their slender tops
-> Were close against the sky.
-> It was a childish ignorance,
-> But now 'tis little joy
-> To know I'm further off from Heaven
-> Than when I was a boy.
+> I remember, I remember,  
+> The fir trees dark and high.  
+> I used to think their slender tops  
+> Were close against the sky.  
+> It was a childish ignorance,  
+> But now 'tis little joy  
+> To know I'm further off from Heaven  
+> Than when I was a boy.  
 
 For my own part I would rather be a child, again, than grow perversely wise. Faith is to be a child towards Christ, believing in Him as a real and present Person, at this very moment near us and ready to bless us. This may seem to be a childish fancy, but it is such childishness we must all come to if we would be happy in the Lord. "Except you be converted, and become as little children, you shall not enter into the Kingdom of Heaven." Faith takes Christ at His word, as a child believes his father, and trusts Him in all simplicity with past, present and future. God give us such faith!
 
