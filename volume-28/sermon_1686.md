@@ -1,10 +1,10 @@
 # Sermon 1686 | With the Disciples on the Lake of Galilee
 
-> The men marveled, saying, What manner of Man is this, that even the winds and the sea obey Him!
-> Matthew 8:27
+> The men marveled, saying, What manner of Man is this, that even the winds and the sea obey Him!  
+> Matthew 8:27  
 
-> "And they feared exceedingly, and said one to another, What manner of Man is this, that even the wind and the sea obey Him?"
-> Mark 4:41.
+> "And they feared exceedingly, and said one to another, What manner of Man is this, that even the wind and the sea obey Him?"  
+> Mark 4:41.  
 
 This story of the storm upon the lake is wonderfully full of spiritual interest. Not only does it, literally, show to us the divine power of our blessed Master in lulling the storm, rendered the more conspicuous by being placed, side by side, with the human weakness which made Him sleep in the ship upon a pillow, but, spiritually, it is a kind of ecclesiastical history, a miniature outline of the story of the church in all ages. No, the teaching ends not when you have read the incident in that light, it also contains a suggestive forecast of the story of every man who is making the spiritual voyage in company with Jesus.
 
@@ -30,10 +30,10 @@ We pray not till we are forced to our knees, sad sinners that we are! The boat w
 
 We were about to say, "Would God it would last on forever," but as yet tranquility cannot be perpetual. Our perils of waters will be sure to repeat themselves. Often we go down to the sea in ships and do business in great waters, so that we see the works of the Lord and His wonders in the deep. Hear how a poet sings the story:
 
-> Fierce was the wild billow Dark was the night! Oars labored heavily Foam glimmered white! Trembled the mariners Peril was near Then said the God of God: 'Peace! it is I!' Ridge of the mountain wave, Lower your crest! Wail of Euroclydon, Be you at rest! Sorrow can never be, Darkness must fly, Where says the Light of Light, Peace! it is I!' Jesus, Deliverer! Come You to me! Soothe You my voyaging Over life's sea! You, when the storm of death
-> Roars sweeping by,
-> Whisper, O Truth of Truth!,
-> 'Peace! It is I!'
+> Fierce was the wild billow Dark was the night! Oars labored heavily Foam glimmered white! Trembled the mariners Peril was near Then said the God of God: 'Peace! it is I!' Ridge of the mountain wave, Lower your crest! Wail of Euroclydon, Be you at rest! Sorrow can never be, Darkness must fly, Where says the Light of Light, Peace! it is I!' Jesus, Deliverer! Come You to me! Soothe You my voyaging Over life's sea! You, when the storm of death  
+> Roars sweeping by,  
+> Whisper, O Truth of Truth!,  
+> 'Peace! It is I!'  
 
 On this occasion I will not further call your attention to the storm, or to the calm, but I beg you to observe the feelings of the disciples about the whole matter. The text says that, "The men marveled, saying, what manner of man is this, that even the winds and the sea obey Him!" God evidently thinks much of His people's inward feelings, for they are recorded here and in many other cases. The report of what these poor fishermen felt is as carefully made as the record of what their Lord and Master said, since this was necessary to set forth the intent and purpose of their Lord's utterances. God often regards the external action as a mere husk, but the feeling of His people is the innermost kernel of their life-story and He prizes it.
 
@@ -47,10 +47,10 @@ The story of God's goodness to me is more thrilling than any work of fiction cou
 
 and we can also add that we need not go abroad for wonders, for we have a perfect museum at home in our own experience! John Bunyan, when he was describing the experience of his pilgrim, said, "Oh, world of wonders! I can say no less." And so it is. The life of the godly man, on the God side of it, as he receives grace from Jesus, is a gallery of heavenly art! He is an exhibition of divine skill and power, a wonderland of mercy:
 
-> Still has my life new wonders seen
-> Of loving kindness rare!
-> A monument of Grace I stand,
-> Your goodness to declare.
+> Still has my life new wonders seen  
+> Of loving kindness rare!  
+> A monument of Grace I stand,  
+> Your goodness to declare.  
 
 Let us think for a minute or two of the parallel between us and these disciples as to wonderment. Consider, first, that the instantaneous and profound calm was contrary to nature. The Galilean lake lies in a deep hollow, much below the level of the ocean, and in the sides of the cliffs and hills which shut it in, there are valleys and openings which act as funnels, down which, blasts of cold air from the mountains often rush upon a sudden. When the time of storm is really on, the lake of Galilee is not tossed about like an ordinary open sea, but is rent, torn, heaved up and almost hurled out of its bed by down-driving hurricanes and twisting whirlwinds! No sailor knows which way the wind will blow except that it blows all ways at once and particularly downwards, as if, with a direct downdraft from Heaven, it blows vessels into the water, and soon, changing its course, lifts them into the air!
 
