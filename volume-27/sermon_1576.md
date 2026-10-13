@@ -1,7 +1,7 @@
 # Sermon 1576 | The Throne of God and of the Lamb
 
-> The Throne of God and of the Lamb shall be in it.
-> Revelation 22:3
+> The Throne of God and of the Lamb shall be in it.  
+> Revelation 22:3  
 
 We shall take these words as referring to Heaven. Certainly it is most true of the Celestial City as well as of the millennial city, that the Throne of God and of the Lamb shall be in it. This theme of surpassing interest intimately concerns all of us who are Believers, for to the eternal rest at the foot of the Throne we are constantly looking. Were it otherwise, I fear there would be little prospect of our ever passing the heavenly portals. We do not suppose that a man is shooting at a target if he does not look that way. Nor can we imagine that a man's ambition is fixed on Heaven if he has no thoughts or aspirations toward Heaven.
 
@@ -79,8 +79,8 @@ But what can any of us say in the Presence of God and of the Lamb? Our proper po
 
 One fact remains to be noticed, it is this, the Throne of God and of the Lamb is in Heaven. Behold, then, the throne in Heaven. We must pass beyond this earthly region and join the company of those who people the celestial realm before we can see the Throne of God so as to obtain a complete view of it. Is not this among the chief joys of Heaven?
 
-> I'd part with all the joys of sense,
-> To gaze upon Your Throne. Pleasures spring fresh forever thence, Unspeakable, unknown.
+> I'd part with all the joys of sense,  
+> To gaze upon Your Throne. Pleasures spring fresh forever thence, Unspeakable, unknown.  
 
 There are many ideas of Heaven and I suppose, according to each man's character, will be the prospects he cherishes and the answer he gives when the question is asked: "What must it be to be there?" So abundant are the joys which the Lord has prepared for them that love Him, that there is ample scope for imagination. There is the great wall, with its 12 glittering foundations, and there are the 12 gates and the 12 pearls.
 
