@@ -1,13 +1,13 @@
 # Sermon 1685 | God's Non-Remembrance of Sin
 
-> I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins.
-> Isaiah 43:25
+> I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins.  
+> Isaiah 43:25  
 
-> "For I will forgive their iniquity, and I will remember their sin no more."
+> "For I will forgive their iniquity, and I will remember their sin no more."  
 
-> Jeremiah 31:31.
+> Jeremiah 31:31.  
 
-> "For I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more." Hebrews 8:12. "And their sins and iniquities will I remember no more." Hebrews 10:17.
+> "For I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more." Hebrews 8:12. "And their sins and iniquities will I remember no more." Hebrews 10:17.  
 
 You see these texts are all alike in their declaration that the Lord will not remember His people's sins. I have taken four of them to make the basis of my sermon firm as adamant. It is written, "In the mouth of two or three witnesses every word shall be established." Here then, you have Isaiah and Jeremiah, two Old Testament saints, affirming the same thing, is this not enough? Added to these, you have the author of the Epistle to the Hebrews, who, in all probability, was Paul, and these three agree in one. Their united testimony is that Jehovah, the Lord God, will forgive the sins of His people, and do it in so complete a way that He will remember their iniquities no more. Now, if I did not preach at all, but merely gave you these four texts to consider, I think the service ought to be full of comfort to all who know their guiltiness and are anxious to obtain mercy.
 
@@ -51,10 +51,10 @@ Furthermore, my brothers and sisters, why did Christ institute the Christian min
 
 Now, once in the history of the world has the Son of God appeared to put away sin by the sacrifice of Himself, poor guilty one, if you believe your guilt was put away by His atoning death! Why are we so earnestly commanded to preach this gospel to every creature, if the creature hearing it and believing it must, nevertheless, still lie under his sin? Our Lord Jesus has commanded that repentance and remission of sins should be preached in His name among all nations, beginning at Jerusalem, why is this, if there is no remission of sins? The genuine love of God is manifested in His desire that to the utmost ends of the earth it should be proclaimed, "The blood of Jesus Christ His Son cleanses us from all sin." "All manner of sin and blasphemy shall be forgiven unto men.":
 
-> Carry, carry, you winds, the story,
-> And you, you waters, roll,
-> Till like a sea of Glory
-> It spreads from pole to pole!
+> Carry, carry, you winds, the story,  
+> And you, you waters, roll,  
+> Till like a sea of Glory  
+> It spreads from pole to pole!  
 
 There is forgiveness! Through the name of Jesus, whoever believes in Him shall receive remission of sins. "Through this man is preached unto you the forgiveness of sins." "He that believes in Him is justified from all things from which he could not be justified by the law of Moses." Paul says, "God, for Christ's sake, has forgiven you," and it is even so.
 
