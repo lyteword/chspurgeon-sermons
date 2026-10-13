@@ -1,7 +1,7 @@
 # Sermon 1668 | The Still Small Voice
 
-> And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice. So it was when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entrance of the ca ve. And, behold, there came a voice unto him, and said, What are you doing here, Elijah?
-> 1 Kings 19:12,13
+> And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice. So it was when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entrance of the ca ve. And, behold, there came a voice unto him, and said, What are you doing here, Elijah?  
+> 1 Kings 19:12,13  
 
 Elijah, no doubt, expected that after the wonderful display of God's power on Carmel the nation would give up its idols and would turn unto the only living and true God. Had they not confessed as with a voice of thunder, "Jehovah, He is the God! Jehovah, He is the God!?" The prophet trusted that the heart of Ahab might, perhaps, be touched and possibly, through him, the heart of Jezebel. If she did not become converted, at least the manifest interposition of Jehovah might check her hand from future persecution. The prophet hoped that by an influence thus established over the king and queen, the whole land would speedily glide back to its allegiance to Jehovah. Then would his stern heart have been glad before the Lord.
 
@@ -83,8 +83,8 @@ They cannot speak in the same bold tones as they were known to do! All boasting 
 
 Now, as I have said, wind nor tempest could produce this in Elijah, but the still small voice of God did it at once:
 
-> Lord, You have won, at length I yield! My heart, by mighty Grace compelled, Surrenders all to You! Against Your terrors long I strove, But who can stand against Your love? Love conquers even me!
-> If You had bid Your thunders roll, And lightning flash, to blast my soul, I still had stubborn been. But mercy has my heart subdued, a bleeding Savior I have viewed, And now I hate my sin.
+> Lord, You have won, at length I yield! My heart, by mighty Grace compelled, Surrenders all to You! Against Your terrors long I strove, But who can stand against Your love? Love conquers even me!  
+> If You had bid Your thunders roll, And lightning flash, to blast my soul, I still had stubborn been. But mercy has my heart subdued, a bleeding Savior I have viewed, And now I hate my sin.  
 
 It appears, in reading the chapter, as if the prophet did not come out of the cave until he heard that voice. He was called upon by God to come out and stand in the open before the Most High, but as I read it, he had not done this until the still small voice called him and drew him in the way of the command so that obedience is a second blessed effect. Shamefaced on account of his errors, he is now resolved to follow his Lord's word at once. And he stands at the opening of the cave to hear what God, the Lord, will speak. If the Spirit of God shall work effectually upon any of us, one of the first marks of it will be that while we are humbled because of sin, we shall grow earnest to work righteousness. Grace makes us tender in the matter of obedience.
 
