@@ -1,10 +1,10 @@
 # Sermon 1658 | Healed or Deluded? Which?
 
-> They have healed the hurt of the daughter of My people slightly, saying, Peace, peace; when there is no peace.
-> Jeremiah 8:11
+> They have healed the hurt of the daughter of My people slightly, saying, Peace, peace; when there is no peace.  
+> Jeremiah 8:11  
 
-> "Heal me, O Lord, and I shall be healed; save me, and I shall be saved: for You are my praise."
-> Jeremiah 17:14.
+> "Heal me, O Lord, and I shall be healed; save me, and I shall be saved: for You are my praise."  
+> Jeremiah 17:14.  
 
 The people among whom Jeremiah dwelt had received a grievous hurt and they felt it, for they were invaded by cruel enemies. Their goods were plundered, their children were slain and their cities burned. Jeremiah, with true love to his nation, warned them that the cause of all their trouble was that they had forsaken their God. They had turned aside from the living God and had made gods of the idols of the nations round about them, and so had provoked Jehovah to jealousy. Therefore He chastened them sorely and plagued them again and again, even as He had threatened them from of old. He took up the quarrel of His covenant and He made them smart, indeed.
 
