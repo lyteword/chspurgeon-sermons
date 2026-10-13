@@ -1,7 +1,7 @@
 # Sermon 1739 | Bankrupt Debtors Discharged
 
 > And when they had nothing to pay, he frankly forgave them both.  
-> Luke 7:42
+> Luke 7:42  
 
 The two debtors differed very considerably in the amounts which they owed, the one was in arrears 500 pence and the other fifty. There are differences in the guilt of sins and in the degrees of men's criminality. It would be a very unfair and unrighteous thing to say that all men are exactly alike in the extent of their transgression. Some are honest and upright, kind and generous, even though they are but natural men, while others appear to be of a malicious, envious, selfish disposition, and rush into evil, sinning, as it were, with both hands greedily. The man who is moral, sober and industrious is only a fifty-pence debtor as compared with the vicious, drunken blasphemer whose debt is written at 500 pence.
 
@@ -108,12 +108,12 @@ He lets the whip fall on our shoulders until we bleed, and this makes us weary o
 As long as a man can scrape the meal barrel and find a little in it; as long as he can hold up the oil cruse and it drips, if it only yields a drop in a week, he will never come to Christ for heavenly provision! As long as he has one rusty counterfeit farthing hidden away in the corner of his till, the sinner will never accept the riches of redeeming love! But when it is all up over him, when he has nothing in the parlor, nothing in the kitchen, nothing in the cellar, when there is neither stick nor stock left, then he prizes Jesus and His salvation! We break to make! We are emptied to be filled! When we cannot give, God can forgive! If any of you have any goodness of your own, you will perish forever! If you have anything you can trust to of your own, you will be lost as sure as you are living men and women!
 
 But if you are reduced to sore extremity and God's fierce wrath seems to burn against you, then, not only may you have mercy, but mercy is yours already!> 'Tis perfect po verty alone
-> That sets the soul at large.   
-> While we can call one mite our own   
-> We get no full discharge.   
-> But let our debts be what they may,   
-> However great or small,   
-> As soon as we have naught to pay   
-> Our Lord forgives us all.   
+> That sets the soul at large.  
+> While we can call one mite our own  
+> We get no full discharge.  
+> But let our debts be what they may,  
+> However great or small,  
+> As soon as we have naught to pay  
+> Our Lord forgives us all.  
 
 Blessed are you poor, for you shall be rich! Blessed are you hungry, for you shall be fed! Blessed are you that are empty, for you shall be filled! But woe unto you that are rich and are increased in goods, and have need of nothing, and boast of your own goodness! Christ has nothing to do with you and we have nothing to preach to you except this, "They that are whole need not a physician." The heavenly Surgeon did not come to save those who have no need of saving. Let those who are sick prick up their ears and hear with delight, for the Physician is come with a special eye to them. Are you a sinner? Then Christ is the Savior of sinners! Join hands with Him by faith and the work is done, you are saved forever! God bless you, for Christ's sake. Amen.
