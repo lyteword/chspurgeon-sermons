@@ -1,7 +1,7 @@
 # Sermon 1646 | A Home Question and a Right Answer
 
-> From that time many of His disciples went back and walked no more with Him. Then said Jesus unto the twelve, Will you, also, go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life. And we believe and are sure that You are the Christ, the Son of the living God.
-> John 6:66-69
+> From that time many of His disciples went back and walked no more with Him. Then said Jesus unto the twelve, Will you, also, go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life. And we believe and are sure that You are the Christ, the Son of the living God.  
+> John 6:66-69  
 
 Brothers and sisters, we believe that the righteous shall hold on his way and he that has clean hands shall wax stronger and stronger. We also believe that he that believes in Christ "has everlasting life" and, consequently, must live forever. The living water which Christ gives a man shall be in him a well of water springing up unto everlasting life. Our Lord has said of His sheep that they shall never perish, neither shall any pluck them out of His hands. Yet we know that if any man draws back, the Lord will have no pleasure in him, and we are sure that, "without holiness no man shall see the Lord." Therefore we very heartily sing the verse in one of our hymns: "We have no fear that You should lose
 
@@ -35,8 +35,8 @@ They would believe as far as they could understand, but when they could not comp
 
 What right they have to ascribe to the Genevan reformer a doctrine old as the hills I do not know! But our Lord Jesus never hesitated to fling that truth of God into the face of His enemies! He told them, "You believe not, because you are not of My sheep, as I said unto you." No man can come to Me, except the Father which has sent Me draw Him." Here He tells them plainly that they could not come unto Him unless the Father gave them the grace to come! This humbling doctrine they could not receive and so they went aside. Now, when the truth of God, itself, becomes a stumbling block, when the gospel, itself, which ought to draw men to Heaven becomes the reason why they go back, it is time for us to suspect ourselves and to:
 
-> Think we hear the Savior say,
-> Will you forsake Me too?
+> Think we hear the Savior say,  
+> Will you forsake Me too?  
 
 "Will not you, also, be staggered? Will not some truth stumble you? Will not some mystery of the kingdom of Heaven make you, also, to be scandalized?" Blessed is the man that is not offended in Christ! Happy is he who lays aside his own wisdom to be taught of the Lord!
 
