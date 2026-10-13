@@ -1,7 +1,7 @@
 # Sermon 1660 | The Perpetuity of the Law of God
 
-> For verily I say unto you, Till Heaven and earth pass, one jot or one tittle shall in no wise pass from the Law till all is fulfilled.
-> Matthew 5:18
+> For verily I say unto you, Till Heaven and earth pass, one jot or one tittle shall in no wise pass from the Law till all is fulfilled.  
+> Matthew 5:18  
 
 It has been said that he who understands the two covenants is a theologian and this is, no doubt, true. I may also say that the man who knows the relative positions of the law and of the gospel has the keys of the situation in the matter of doctrine. The relationship of the law to myself and how it condemns me, the relationship of the gospel to myself and how, if I am a believer, it justifies me, these are two points which every Christian man should clearly understand. He should not "see men as trees walking" in this department, or else he may cause himself great sorrow and fall into errors which will be grievous to his heart and injurious to his life. To form a mingle-mangle of law and gospel is to teach that which is neither law nor gospel, but the opposite of both. May the Spirit of God be our teacher and the Word of God be our lesson book, and then we shall not err.
 
@@ -71,14 +71,14 @@ A third reason I will give why the law must be perpetual is that to suppose it a
 
 When you have reduced sin to a minimum, what need is there of that great and glorious salvation which Jesus Christ has come to bring into the world? Brothers and sisters, we must have none of this! It is evidently a way of mischief. By lowering the law, you weaken its power in the hands of God as a convincer of sin. "By the law is the knowledge of sin." It is the looking glass which shows us our spots, and that is a most useful thing, though nothing but the gospel can wash them away:
 
-> My hopes of Heaven were firm and bright, But since the precept came
-> With a convincing power and light,
-> I find how vile I am.
-> My guilt appeared but small before,
-> Till terribly I saw
-> How perfect, holy, just and pure
-> Was Your eternal Law.
-> Then felt my soul the heavy load, My sins revived again, I had provoked a dreadful God, And all my hopes were slain.
+> My hopes of Heaven were firm and bright, But since the precept came  
+> With a convincing power and light,  
+> I find how vile I am.  
+> My guilt appeared but small before,  
+> Till terribly I saw  
+> How perfect, holy, just and pure  
+> Was Your eternal Law.  
+> Then felt my soul the heavy load, My sins revived again, I had provoked a dreadful God, And all my hopes were slain.  
 
 It is only a pure and perfect law that the Holy Spirit can use in order to show us our depravity and sinfulness. Lower the law and you dim the law of God by which man perceives his guilt! This is a very serious loss to the sinner rather than a gain, for it lessens the likelihood of his conviction and conversion.
 
