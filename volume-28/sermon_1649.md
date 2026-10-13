@@ -1,10 +1,10 @@
 # Sermon 1649 | Freshness
 
-> My glory was fresh in me, and my bow was renewed in my hand.
-> Job 29:20
+> My glory was fresh in me, and my bow was renewed in my hand.  
+> Job 29:20  
 
-> "I shall be anointed with fresh oil."
-> Psalm 92:10.
+> "I shall be anointed with fresh oil."  
+> Psalm 92:10.  
 
 The first text tells us of the renown of Job and of the way in which the providence of God continued to maintain the glory of his estate, his bodily health and his prosperity. He was for many days, months, years, continuously prospered of God. Everything to which he set his hand succeeded. God had set a hedge about him and all that he had, so that none broke through to molest him. He grew richer, he grew more influential, he had more honor in the sight of his fellow men each morning that he walked to the gate. In every way he was advanced from day to day and that throughout a long stretch of years. His glory was fresh in him. He did not achieve a hasty fame and then suddenly become forgotten. He did not blaze out like a meteor and then vanish into darkness, but he seemed to be continually fresh, vigorous, strong, energetic and successful.
 
