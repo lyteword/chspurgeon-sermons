@@ -1,7 +1,7 @@
 # Sermon 1756 | Renewing Strength
 
 > They that wait upon the Lord shall renew their strength.  
-> Isaiah 40:31
+> Isaiah 40:31  
 
 Human strength is of many kinds, but in any form it will spend itself in due time. God can lend to men immense physical force, but though a man had the strength of a lion and an ox combined, he would one day fail. The force of flesh must fade like the grass to which it is likened. Samson sometimes becomes exhausted and he is likely to die of thirst, though he has slain a thousand men! Yes, more, he must ultimately die and his mighty and tremendous muscles must yield to the worm and return to the dust of death. Since even granite and iron yield to constant wear and tear, assuredly man's frail body cannot long be a thing of strength, "Our days a transient period run, And change with every circling sun. And while to lengthened years we trust, Before the moth we sink to dust."
 
@@ -25,7 +25,7 @@ I have now to speak from my text, first, upon how a true Church may be described
 
 First, then, here we see how a true church may be described, "They that wait upon the Lord." A Church such as a Church ought to be, consists of men who depend only upon the Lord, for waiting signifies dependence. Their hope is in God. They rest in God's righteousness as their righteousness and they receive the great Sacrifice provided by God to be their atonement and their acceptance. No man is really a Christian who finds his hope and confidence within himself, he must be looking out of himself to God in Christ Jesus. It is absolutely essential that it should be so. He that is God's beloved is a Believer in God, that is to say, a truster in God, waiter upon God. His one sole confidence is in God His Savior. This being so with each individual, the whole Church can sing:
 > Our spirits look to God alone, Our rock and refuge is His throne.  
-> In all our fears, in all our straits Our soul on His salvation waits.   
+> In all our fears, in all our straits Our soul on His salvation waits.  
 
 If Christians are what they ought to be, they depend upon God alone in their Church capacity. God's Word is their only creed, they do not add to it anything whatever, no, not a sentence, a gloss, or a thought. They have greatly erred who look upon anything as the authoritative standard of faith but God's own Word. I hear you say, "Do you not respect the Thirty-Nine Articles?" However much or little I may respect them, it makes no difference to the fact that the Church of God is not bound to any faith but that which God Himself has revealed! "But the Westminster Assembly's Confession?" It must be treated in the same manner. That summary of doctrine is very admirable, but human creeds, as such, have nothing on earth to do with me!
 
