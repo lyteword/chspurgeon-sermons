@@ -5,7 +5,7 @@
 
 He that saith he abideth in him: that is exactly what every Christian does say. He cannot be a Christian unless this be true of him, and he cannot fully enjoy his religion unless he assuredly knows that he is in Christ, and can boldly say as much. We must be in Christ, and abidingly in Christ, or else We are not saved in the Lord. It is our union with the Christ that makes us Christians: by union with him as our life we truly live, live in the favour of God. We are in Christ, dear brethren, as the manslayer was in the city of refuge: I hope that we can say we abide in him as our sanctuary and shelter. We have fled for refuge to him who is the hope set before us in the gospel; even as David and his men sheltered themselves in the eaves of En-gedi, so we hide ourselves in Christ. We each one sing, and our heart goes with the words:
 > Rock of ages, cleft for me,  
-> Let me hide myself in thee.   
+> Let me hide myself in thee.  
 
 We have entered into Christ as into the shadow of a great rock in a weary land, as guest; into a banquet-hall, as returning travellers into their home. And now we abide, in Christ in this sense, that we are joined to him: as the stone is, in the wall, as the wave is in the sea, as the branch is in the vine, so are we in Christ. As the branch receives all its sap from the stem, so all the sap of spiritual life flows from Christ into us. If we were separated from him, we should be as branches cut off from the vine, only fit to be gathered up for the fire, and to be burned. So that we abide in Christ as our shelter, our home, and our life. Today we remain in Christ, and hope for ever to remain in him, as our Head. Ours is no transient union; while he lives as our Head we shall remain his members. We are nothing apart from him. As a finger is nothing without the head, as the whole body is nothing without the head, so should we be nothing without our Lord Jesus Christ. But we are in him vitally, and therefore we dare ask the question, "Who shall separate us from the love of God which is in Christ Jesus our Lord?"
 
@@ -53,15 +53,15 @@ Let me add to all this, that he who says that Christ is in him ought also to liv
 
 His life was spent in abounding devotion. Ah, me! I fear I shall condemn some here when I remind them of the hymn we just now sang:
 > Cold mountains and the midnight air  
-> Witnessed the fervour of his prayer.   
+> Witnessed the fervour of his prayer.  
 
 If the perfect Christ could not live without prayer, how can such poor imperfect ones as we are live without it? He had no sin within him, and yet he had need to pray. He was pure and holy, and yet he must needs wait upon God all day long, and often speak with his Father; and then when the night came, and others went to their beds, he withdrew himself into the wilderness and prayed. If the Lord Jesus be in you, you must walk as he walked in that matter.
 
 And, then, think of his delight in God. How wonderful was Christ's delight in his God! I can never think of his life as an unhappy one. He was, it is true, "a man of sorrows and acquainted with grief"; but still there was a deep spring of wondrous happiness in the midst of his heart, which made him always blessed; for he said to his Father, "I delight to do thy will, my God! Yea, thy law is within heart." He delighted in God. Many a sweet night he spent in those prayer-times of his in fellowship with the Father. Why, it was that which prepared him for the agony of his bloody sweat, and for the "Why hast thou forsaken me?" Those love-visits, those near and dear communings which his holy heart had with the Father were his secret meat and drink. And you and I also must delight in God. This charming duty is far too much neglected. Strange that this honey should so seldom be in men's mouths! Listen to this text, "Delight thyself also in the Lord, and he shall give thee the desires of thine heart." Many a man says, "I should like to have the desires of my heart" Brother, here is the royal road thereto, the King's ascent to his treasury, "Delight thyself also in the Lord." But, listen. It is very likely you would not obtain the desire that is now in your heart if you did that; for he that delights himself in God rises above the desires of the flesh and of the mind, and comes to desire that which God desires, and therefore it is that he wins the desire of his heart. But, oh, the pleasure, the joy, the bliss of delighting in God! How many times have I sung to myself that last dear stanza of the psalm, wherein the inspired poet sings:
 > For yet I know I shall him praise,  
-> Who graciously to me,   
-> The health is of my countenance,   
-> Yea, mine own God is he.   
+> Who graciously to me,  
+> The health is of my countenance,  
+> Yea, mine own God is he.  
 
 Oh, what a pleasure! "Mine own God is he." Rich men glory in wealth, famous men in valour, great men in honour, and I in "mine own God." There is nothing about God but what is delightful to a saint. The infinite God is infinitely delightful to his people. Once get really to know God and to be like him, and even his sternest attributes, his power, his justice, his indignation against sin, will come to be delightful to you. Those men who are cavilling at what God does, questioning over what God has revealed, do not know him, for to know him is to adore him. Oh, brethren, let us find our pleasure, our treasure, our heaven, our all, in the Lord our God, even as our Lord Jesus did. In this thing let us walk even as he walked.
 
