@@ -1,7 +1,7 @@
 # Sermon 1707 | "Herein Is Love"
 
 > Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins. Beloved, if God so loved us, we ought, also, to love one another.  
-> 1 John 4:10,11
+> 1 John 4:10,11  
 
 The Law commands love, indeed, all its precepts are summed up in that one word, love. More widely read it runs thus, "You shall love the Lord your God with all your heart, and with all your soul, and with all your strength, and with all your mind; and your neighbor as yourself," yet all this amounts only to, "You shall love." But the Law, by reason of our depravity, never produced love. We were commanded to love, but we did no such thing. The spirit that is in us is selfish and it lusts to envy and to enmity. Why do wars and fights come among us? Come they not from our lusts? Since the Fall, man has become man's bitterest foe upon the earth, and the world is full of hate, slandering, struggles, fighting, wounding, and slaying, all that the Law can do is to show the wrong of enmity and threaten punishment. It cannot supply an unregenerate heart with a fountain of love.
 
@@ -66,17 +66,17 @@ I need your attention a little longer while I speak as best I can upon the marve
 Consider every word: "He sent His Son." God "sent." Love caused that mission. If there was to be reconciliation between God and man, man ought to have sent to God, the offender ought to be the first to apply for forgiveness! The weaker should apply to the greater for help. The poor man should ask of him who distributes alms. But, "Herein is love," that God "sent." He was first to send an embassy of peace. Today "we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be you reconciled to God." Oh, the wonder of this, that God should not wait till rebellious men had sent to His throne for terms of reconciliation, but should commence negotiations Himself!
 
 Moreover, God sent such a One, He "sent His Son." If men send an embassy to a great power, they select some great one of their nation to wait upon the potent prince. But if they are dealing with a petty principality, they think a subordinate person quite sufficient for such a business. Admire, then, the true love of the infinitely gracious God, that when He sent an embassy to men, He did not commission an angel nor even the brightest spirit before His Throne, but He sent His Son, oh, the love of God to men! He sent His equal Son to rebels who would not receive Him, would not hear Him, but spat upon Him, scourged Him, stripped Him, slew Him! Yes, "He spared not His own Son, but freely delivered Him up for us all." He knew what would come of that sending of Him and yet He sent Him!> Jesus, commissioned from above,
-> Descends to men below,   
-> And shows from where the springs of love   
-> In endless currents flow.   
-> He whom the boundless Heaven adores,   
-> Whom angels long to see,   
-> Quit with joy those blissful shores,   
-> Ambassador to me!   
-> To me, a worm, a sinful clod,   
-> A rebel all forlorn:   
-> A foe, a traitor, to my God,   
-> And of a traitor born.   
+> Descends to men below,  
+> And shows from where the springs of love  
+> In endless currents flow.  
+> He whom the boundless Heaven adores,  
+> Whom angels long to see,  
+> Quit with joy those blissful shores,  
+> Ambassador to me!  
+> To me, a worm, a sinful clod,  
+> A rebel all forlorn:  
+> A foe, a traitor, to my God,  
+> And of a traitor born.  
 
 Note further, not only the grandeur of the Ambassador, but the tenderness of the relationship existing between him and the offended God. "He sent His Son." The previous verse says, "His only begotten Son." We cannot speak of God except after the manner of men, for God, in all His Glory is incomprehensible. But speaking after the manner of men, what must it have cost Jehovah to take His only Son from His bosom to die? Christ is the Father's Self, in essence they are One, there is but one God. We do not understand the mystery of the Trinity in unity, but we believe it. It was God Himself who came here in the Person of His dear Son! He underwent all, for we are "the flock of God which He has purchased with His own blood."
 
