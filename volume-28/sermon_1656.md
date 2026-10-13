@@ -1,7 +1,7 @@
 # Sermon 1656 | My Solace in My Affliction
 
-> Forever, O Lord, Your Word is settled in Heaven. Your faithfulness is unto all generations: You have established the earth and it abides. They continue this day according to Your ordinances: for all are Your servants. Unless Your Law had been my delights, I should then have perished in my affliction.
-> Psalm 119:89-92
+> Forever, O Lord, Your Word is settled in Heaven. Your faithfulness is unto all generations: You have established the earth and it abides. They continue this day according to Your ordinances: for all are Your servants. Unless Your Law had been my delights, I should then have perished in my affliction.  
+> Psalm 119:89-92  
 
 Even in those Psalms which are not associated with any particular chapter of history, we can often trace out the trail of the writer's experience and track his soul through its wanderings. His reflections become vivid with intense reality. The meditation now before us is evidently prompted by some event deeply carved on the writer's memory. "Unless Your law had been my delights, I should then have perished in my affliction." We know nothing of the time or circumstance when the heart was terrified, when the nerves were shaken, when the weakness of nature asserted itself, the veil is wisely drawn over the sharp pains or sullen griefs that bowed the sufferer down and we are simply solaced with a song celebrating his deliverance out of all his troubles and fears. Possibly his affliction was long, but certainly it reached a crisis so perilous that his life then trembled in the balance! He was then ripe for destruction, ready to have perished.
 
@@ -71,10 +71,10 @@ Every star maintains its place. "One sun by day, by night ten thousand shine," y
 
 Those mighty orbs to which we have been referring are under God's law and subject to the divine statutes, alike in respect to the motions they perform and to time influence they produce. All the creatures obey their Maker except man! There is no rebellion, to our knowledge, anywhere in the universe except among fallen angels and fickle mortals like ourselves. What, then, am I troubled about? Opposing forces cannot injure me. If God wills, He can send a squadron of angels to help me. He can bid the stars in their courses fight for me if it is necessary. All are His servants. The perpetuity of the laws of nature is a proof of the continuance of the Word of God. Strengthen your confidence as to things not seen by the steadfastness of the things that are:
 
-> His very Word of Grace is strong
-> As that which built the skies!
-> The voice that rolls the stars along
-> Speaks all the promises.
+> His very Word of Grace is strong  
+> As that which built the skies!  
+> The voice that rolls the stars along  
+> Speaks all the promises.  
 
 There is one other fact which I will only touch upon, the perpetuity of the Word of God in experience. "Unless," said the Psalmist, "Your law had been my delights, I should then have perished in my affliction." We know, by experience, what he means. The trouble is a thing of the past, but the trembling is still present to our memory. We were mercifully delivered when we might have been utterly destroyed! My brothers and sisters, that same Word of God which has made the earth keep its place, has, up to now, been sufficient to make you keep your place. Some of you have passed through deep waters and yet you have not been drowned. I have a sympathy with young people, when they are doubting, because they have not seen the mighty works of which their fathers have told them. But if you have been sustained for 40 years in the wilderness, you ought to know the faithfulness of God, and I am ashamed of you when you get disheartened and discourage your brethren.
 
