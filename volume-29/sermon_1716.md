@@ -1,7 +1,7 @@
 # Sermon 1716 | The Bridegroom's Parting Words
 
 > You that dwells in the gardens, the companions hearken to your voice: cause Me to hear it.  
-> Song of Solomon 8:13
+> Song of Solomon 8:13  
 
 The Song is almost ended, the bride and Bridegroom have come to their last stanzas, and they are about to part for a while. They utter their adieus and the Bridegroom says to His beloved, "You that dwells in the gardens, the companions hearken to your voice: cause Me to hear it." In other words, when I am far away from you, fill this garden with My name and let your heart commune with Me. She promptly replies, and it is her last word till He comes, "Make haste, my Beloved, and be You like a roe or a young hart upon the mountains of spices." These farewell words of the Well-Beloved are very precious to His chosen bride. Last words are always noticed, the last words of those who loved us dearly are much valued, the last words of one who loved us to the death are worthy of a deathless memory.
 
@@ -40,10 +40,10 @@ If any of you happen to dwell where Christ is set forth evidently crucified amon
 No spot on earth is so dear to the Christian as that whereon he meets His Lord. I can understand why the Jew asked of a certain town that was recommended to him as good for business, "Is there a synagogue there?" Being a devout man, and finding that there was no synagogue, he said he would rather remain where trade was dull, but where he could go with his brethren to worship. Is it not so with us? How my heart has longed for these blessed assemblies! Give me a crust and a full Gospel rather than all riches and a barren ministry! The profitable hearing of the Word of God is the greatest enjoyment upon earth to godly men! It would be banishment to go where every week's business turned into a mint of money if one were also compelled to be a member of an unhappy, quarrelsome, or inactive Church!
 
 Our greatest joy is in you, O Jerusalem! Let our tongue cleave to the roof of our mouth if we prefer you not above our greatest joy!> How charming is the place Where my Redeemer God
-> Unveils the beauties of His face, And sheds His love abroad! Not the fair palaces,   
-> To which the great resort,   
-> Are once to be compared with this,   
-> Where Jesus holds His court.   
+> Unveils the beauties of His face, And sheds His love abroad! Not the fair palaces,  
+> To which the great resort,  
+> Are once to be compared with this,  
+> Where Jesus holds His court.  
 
 Beloved, if you dwell in the gardens you have a double privilege, not only of being found in a fat and fertile place, but in living there continually! You might well forego a thousand comforts for the sake of this one delight, for under the Gospel your soul is made to drink of wines on the lees well refined. This, then, is my first head, appointed residence, "You that dwells in the gardens." Is not this a choice abode for the Lord's beloved? I leave you to judge how far this describes yourselves. If it is your case, then listen to what the Bridegroom has to say to you.
 
