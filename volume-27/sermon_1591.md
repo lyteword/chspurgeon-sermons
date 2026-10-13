@@ -1,7 +1,7 @@
 # Sermon 1591 | Honey From a Lion
 
-> But the free gift is not like the offense For if through the offense of one, many are dead, much more the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many.
-> Romans 5:15
+> But the free gift is not like the offense For if through the offense of one, many are dead, much more the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many.  
+> Romans 5:15  
 
 This text affords many openings for controversy. It can be made to bristle with difficulties. For instance: there might be a long discussion as to the manner in which the fall of Adam can justly be made to affect the condition of his posterity. When this is settled, there might arise a question as to the exact way in which Adam's fault is connected with ourselves, whether by imputation of its sin, or in some other form. And then there might be further dispute as to the limit of the evil resulting from our first parents' offense and the full meaning of the Fall, original sin, natural depravity and so forth. There would be another splendid opportunity for a great battle over the question of the extent of the redeeming work of the Lord Jesus Christ, whether it covers, as to persons, the whole area of the rain of the Fall or whether, in fact, full atonement has been made for all mankind or only for the elect.
 
@@ -101,10 +101,10 @@ We have now lost everything in Adam and so the uncertain tenure has come to an e
 
 Do you dare to add an, "if," where God has placed none? Remember what will happen to you if you add anything to the book of God's testimony! No, it is written, "He that believes and is baptized shall be saved." "He that believes in Him has everlasting life." "There is therefore now no condemnation to them that trust in Christ Jesus." Thus we have obtained a surer standing than we could have had under the first Adam and our hymn is true to the letter when it sings
 
-> He raised me from the deeps of sin,
-> The gates of gaping Hell,
-> And fixed my standing more secure
-> Than 'twas before I fell.
+> He raised me from the deeps of sin,  
+> The gates of gaping Hell,  
+> And fixed my standing more secure  
+> Than 'twas before I fell.  
 
 Our Lord has not only undone the mischief of the Fall, but He has given us more than we have lost! Even as the Psalmist says, "Then I restored that which I took not away." By the great transgression of Adam we lost our life in him, for so ran the threat: "In the day that you eat thereof, you shall surely die." But in Christ Jesus we live, again, with a higher and nobler life, for the new life being the direct work of the Spirit and being sustained by feeding upon the Person of the Lord Jesus, is higher than the life of innocence in the Garden of Eden.
 
