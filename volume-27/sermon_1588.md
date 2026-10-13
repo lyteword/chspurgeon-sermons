@@ -1,7 +1,7 @@
 # Sermon 1588 | The Believer's Death Day Better Than His Birthday
 
-> A good name is better than precious ointment; and the day of death than the day of one's birth.
-> Ecclesiastes 7:1
+> A good name is better than precious ointment; and the day of death than the day of one's birth.  
+> Ecclesiastes 7:1  
 
 In this part of the world, we can hardly understand how much the Easterns thought of perfumes. When Solomon speaks of "precious ointment," he speaks of a luxury highly appreciated by those who heard him. Orientals delighted to anoint themselves with fragrant oil and to pour upon their heads salves full of perfume. We do not. At any rate, not to the same lavish extent. But among the luxuries of eastern life was that of delighting the nostrils with sweet smells. The figure is easy to understand as it is here used to set forth the excellence of a good name. A man who is perfumed and who has put upon his head precious ointment is sweet and pleasant to himself. It gives him joy and so does a good name afford pleasure to its possessor. Besides that, the perfumed person was agreeable to other people, those who were round about him were refreshed by the fragrance, and so a noble character is agreeable to all who come near it.
 
@@ -53,10 +53,10 @@ Now I will give the same thoughts in another form. The day of death is better to
 
 Ah, that is all very well, but when Believers die they do, in a far higher sense, come of age and enter upon their heavenly estates! Here, you know, in this life we are very much as children who are under governors and tutors and we differ little from servants. We still have to be chastened, kept under rule and denied much which is nevertheless ours. We have many good things kept from us because we are not yet able to appreciate them. "Now we know in part." It is only in a small measure that we come into possession, enjoying only the earnest of the inheritance. Yes, but
 
-> Then shall I see, and hear, and know
-> All I desired or wished below!
-> And every power find sweet employ
-> In that eternal world of joy.
+> Then shall I see, and hear, and know  
+> All I desired or wished below!  
+> And every power find sweet employ  
+> In that eternal world of joy.  
 
 Then shall I pluck the grapes from those vines that I have read of as enriching the valleys of Eshcol! Then shall I lie down and drink full drafts of the river of God which is fall of water! Then shall I know even as I am known and see no more through a glass darkly, but face to face!
 
