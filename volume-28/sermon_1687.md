@@ -1,8 +1,8 @@
 # Sermon 1687 | The Law Written in the Heart
 
-> After those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts."
+> After those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts."  
 
-> Jeremiah 31:33.
+> Jeremiah 31:33.  
 
 Last Lord's Day morning we spoke of the first great blessing of the covenant of grace, namely, the full forgiveness of sins. Then we dilated with delight upon that wonderful promise, "Their sins and their iniquities will I remember no more," I hope our consciences were pacified and our hearts filled with wonder as we thought of God's casting behind His back all the sins of His people, so that we could sing with David, "Bless the Lord, O my soul: and all that is within me, bless His holy name. Bless the Lord, O my soul, and forget not all His benefits: who forgives all your iniquities."
 
