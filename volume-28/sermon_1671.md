@@ -1,7 +1,7 @@
 # Sermon 1671 | The Value and Rank of the Believer
 
-> Since you were precious in My sight, you have been honorable, and I have loved you: therefore will I give men for you, and people for your life.
-> Isaiah 43:4
+> Since you were precious in My sight, you have been honorable, and I have loved you: therefore will I give men for you, and people for your life.  
+> Isaiah 43:4  
 
 One of the worst mistakes we could make would be to judge our condition before God by our outward circumstances. Know you not that the ungodly have their portion in this life? They increase in riches; their eyes stand out with fatness; they have more than heart can wish. They are not in trouble like other men, "neither are they plagued like other men," therefore pride compasses them about as a chain; violence covers them as a garment. Poor creatures, they have no joy in the world to come and, therefore, God permits them to have as much joy as they are capable of in this world. They stand upon slippery slopes and fiery billows rage below! How are they cast down as in a moment! They are utterly consumed with terrors!
 
@@ -103,7 +103,7 @@ Now, poor souls, you that have had no share in all this text, you may have a sha
 
 For proud Pharisees, Christ has nothing! He came "not to call the righteous, but sinners to repentance." He came not to fill the full, they want it not. Nor did He come to heal the healthy, they need it not. But He comes to save you that have no good thing about you, that have no good feelings within you. You that have no broken hearts, He comes to give you broken hearts. You that have no faith, He comes to give you faith. You that have no repentance, He comes to give you repentance:
 
-> True belief and true repentance, Every Grace that brings you nigh! Without money,
-> Come to Jesus Christ and buy.
+> True belief and true repentance, Every Grace that brings you nigh! Without money,  
+> Come to Jesus Christ and buy.  
 
 And oh, what a surprise it will be for you to hear His Spirit saying to you, by-and-by, "Because I loved you before the world was, because I had chosen you, because I had determined to save you, because you were precious in My sight, therefore you are honorable, and I have loved you. Come and rejoice in Me." God help you to do so, for Jesus' sake, Amen.
