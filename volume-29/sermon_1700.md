@@ -1,8 +1,6 @@
 # Sermon 1700 | A Monument for the Dead, and a Voice to the Living
 
-> a flash in the pan; he delighted in the plain, solid gospel of Jesus Christ. I know that he would have said to me, "Give them Christ crucified, and salvation by grace through faith, as plainly as ever you can"; for when he was sore sick and in the very agony of death, he repeated as his dying creed: "Nothing in my hand I bring: simply to thy cross I cling."
-
-and in his own quaint way he added, "They may talk as much as ever they like, but the whole of it lies in Jack the Huckster's verse: 'I'm a poor sinner, and nothing at all, but Jesus Christ is my all in all.'"
+A flash in the pan; he delighted in the plain, solid gospel of Jesus Christ. I know that he would have said to me, "Give them Christ crucified, and salvation by grace through faith, as plainly as ever you can"; for when he was sore sick and in the very agony of death, he repeated as his dying creed: "Nothing in my hand I bring: simply to thy cross I cling." And in his own quaint way he added, "They may talk as much as ever they like, but the whole of it lies in Jack the Huckster's verse: 'I'm a poor sinner, and nothing at all, but Jesus Christ is my all in all.'"
 
 You will find that story in the first volume of my sermons. In Park-street early in my ministry I told the story, and it did my friend good, and helped to rest his soul all those years ago, so that he remembered it and repeated it at the last. For his sake let me tell it again.
 
