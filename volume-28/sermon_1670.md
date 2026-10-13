@@ -1,11 +1,11 @@
 # Sermon 1670 | One Lion, Two Lions, No Lion at All!
 
-> The slothful man says, There is a lion outside, I shall be slain in the streets.
-> Proverbs 22:13
+> The slothful man says, There is a lion outside, I shall be slain in the streets.  
+> Proverbs 22:13  
 
-> "The slothful man says, There is a lion in the way; a lion is in the streets."
+> "The slothful man says, There is a lion in the way; a lion is in the streets."  
 
-> Proverbs 26:13.
+> Proverbs 26:13.  
 
 This slothful man seems to cherish that one dread of his about lions as if it were his favorite aversion and he felt it to be too much trouble to invent another excuse. Perhaps he hugs it to his soul all the more because it is a home-born fear, conjured up by his own imagination, and as mothers are said to love their weakest children best, so is he fondest of this most imbecile of excuses! At any rate, it serves him for a passable excuse for laziness, and that is what he wants. If you can get the king of beasts to apologize for your idleness, there is a sort of royalty about your pretences! He hopes his sloth will appear the less disgraceful if he can paint a lion rampant upon its shield. I am not about to speak of slothful men in general, albeit that when a man does not diligently attend to his business, he is committing great wrong to himself and to others. When a man is slothful as a servant, he is unjust to his employers, and when he is in business on his own account, idleness is usually a wrong to his wife and family.
 
@@ -71,8 +71,8 @@ I have this to say to you before I pass to my second head. If there is a lion ou
 
 And what if there is a lion outside? Can you not fight it? If you ask the Lord to go with you, can you not contend with the lion and destroy him, even as David did? Saints of old have overcome through the blood of the Lamb! None of those who are in Heaven came there riding upon beds of ease, but:
 
-> They wrestled hard, as we do now,
-> With sins and doubts, and fears.
+> They wrestled hard, as we do now,  
+> With sins and doubts, and fears.  
 
 Do you expect to be carried into Heaven on a golden palanquin? You will be mightily mistaken! Did Jesus die on a Cross and are you to be crowned with roses?: "Must I be carried to the skies
 
@@ -112,8 +112,8 @@ Although grace can bring in a person of any age, yet God delights to be found of
 
 God:
 
-> Can take the flint away
-> That would not be refined, And from the riches of His Grace, Bestow a softer mind.
+> Can take the flint away  
+> That would not be refined, And from the riches of His Grace, Bestow a softer mind.  
 
 He can take away the heart of stone out of your flesh and give you a heart of flesh! Let us have done with the lions, whether there are two or 200, for the Lord will help us! Oh, for a lion hunt tonight!. Drive away the one and drive away the two! But that can never be while sluggards still are sluggards. The Lord quicken them and wake them up to real earnestness!
 
@@ -125,10 +125,10 @@ We shall be glad to say, "Come in, you blessed of the Lord. Why are you standing
 
 And Mr. Bunyan, in one of his books, says that lion pictured Christ in his own mind as standing with a drawn sword to keep him away. "But at last," he says, "I got so desperately worried by my convictions of sin that if the Lord Jesus had really stood with a sword in His hand, I would have thrown myself upon the point of it, for I felt that I must come at Him or perish." Let some such desperate resolve impel you to His feet. Say:
 
-> I can but perish if I go!
-> I am resolved to try
-> For if I stay away,
-> I know I must forever die.
+> I can but perish if I go!  
+> I am resolved to try  
+> For if I stay away,  
+> I know I must forever die.  
 
 Oh, throw yourself on the very point of the sword, for it is but in seeming that there is either sword or point! Hasten to Jesus, even though He seems to frown, for there is more love in a frowning Savior than in all the world besides! He cannot mean it. No sinner comes to Him but Christ is more glad to receive him than the sinner is to be received!
 
