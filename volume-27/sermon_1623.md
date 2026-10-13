@@ -1,7 +1,7 @@
 # Sermon 1623 | Wholehearted Religion
 
-> And I will give them one heart, and one way, that they may fear Me forever, for the good of them, and of their children after them.
-> Jeremiah 32:39
+> And I will give them one heart, and one way, that they may fear Me forever, for the good of them, and of their children after them.  
+> Jeremiah 32:39  
 
 Those of you who were present last Lord's-Day morning will remember my sermon upon "Mongrel Religion," in which I dealt with those who feared the Lord and served other gods. Their heart was divided and, therefore, they were found faulty. They had, as the Hebrew puts it, a heart and a heart, a heart that went this way and a heart that went the other way. And so, as a matter of fact, they became, as the Prophet says, as "a silly dove that has no heart." The discourse of this morning is intended to exhibit wholehearted religion which is the opposite of the sad mixture which we have so lately denounced. We wish to look upon persons of Caleb's stamp, who followed the Lord fully, in whom, by the Grace of God, the divided heart has become united, so that with their whole heart they serve the Lord their God.
 
@@ -67,10 +67,10 @@ When a fierce wind is blowing, a captain at the will may be driven on shore if h
 
 What influence has a double-minded man? If a man speaks for God, today, and so lives, tomorrow, that he virtually speaks for the devil, what power has he over those around him? How can he lead who has no way of his own? If your actions play fast and loose with truth. If your life is a checkerboard of black and white. If you are everything by turns and nothing long, what force, for good, can you possibly exert? Consistency and unity of life are necessary to usefulness! And I am sure it is necessary for anything like assurance. The best of Believers may, through holy anxiety, question their own state, but the man who has two ways may well sing
 
-> 'Tis a point I long to know,
-> Oft it causes anxious thought,
-> Do Ilove the Lord or no?
-> Am I His or am I not?
+> 'Tis a point I long to know,  
+> Oft it causes anxious thought,  
+> Do Ilove the Lord or no?  
+> Am I His or am I not?  
 
 O you who are inconsistent in life, I must be bold to tell you that many of your friends are even more in doubt about you than you are about yourself! 'Tis a point we also long to know, for we cannot tell whether you love the Lord or no, whether you are His or not! Sometimes we see happy signs about you and our charity hopes all things. But when we see you falling, again, into evil ways, we are distressed and even our charity weeps over you! How can we be assured of your change of heart when we see so little change of life? What a pity to lead such a life that it puzzles those who love you best to form any judgment as to your condition! If you were to die as you are, we should not know which way you would go, for your present path is dubious and intricate.
 
