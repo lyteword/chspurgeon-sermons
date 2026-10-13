@@ -23,10 +23,10 @@ By-the-way I cannot help observing that I have known persons object to the evil 
 
 
 
-> Till to Jesus' work you cling   
-> By a simple faith,   
-> 'Doing' is a deadly thing,   
-> 'Doing' ends in death.   
+> Till to Jesus' work you cling  
+> By a simple faith,  
+> 'Doing' is a deadly thing,  
+> 'Doing' ends in death.  
 
 This is styled mischievous teaching. When I read the article I felt a deep interest in this corrector of Luther and Paul, and I wondered how much he had drunk in order to elevate his mind to such a pitch of theological knowledge. I have found men pleading against the doctrines of grace on the ground that they did not promote morality, to whom I could have justly replied, "What has morality to do with you, or you with it?" These sticklers for good works are not often the doers of them. Let legalists look to their own hands and tongues, and leave the gospel of grace and its advocates to answer for themselves.
 
