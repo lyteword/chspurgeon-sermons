@@ -1,7 +1,7 @@
 # Sermon 1688 | Stand Fast
 
-> Be not moved away from the hope of the Gospel.
-> Colossians 1:23
+> Be not moved away from the hope of the Gospel.  
+> Colossians 1:23  
 
 But, brothers and sisters, the battle does not end when, by a desperate rush, a man has come to Christ. In many it assumes a new form, the enemy now attempts to drag the trembler from his refuge and eject him from his stronghold! It is difficult to get at the hope of the gospel, but quite as difficult to keep it so as not to be moved away from it. If Satan spends great power in keeping us from the hope, he uses equal force in endeavoring to drag us away from it, and equal cunning in endeavoring to allure us from it. Hence the apostle tells us not to be moved away from the hope of the gospel. The exhortation is necessary in presence of an imminent danger. Do not think that in the moment when you believe in Christ the conflict is over, or you will be bitterly disappointed! It is then that the battle renews itself and every inch of the road swarms with enemies.
 
@@ -33,22 +33,22 @@ Never give up that hope, either, concerning yourselves or your friends. Let noth
 
 Often and often, when I am sorely beset with devilish temptations and insinuations as to the eternal hope of my soul and body, I fly to this, Jesus Christ did rise from the dead and, inasmuch as He rose from the dead, He has come back to tell us that there is another world and that not only our souls, but our bodies shall inherit a far more blessed condition than this present one! Hold on to this hope of the gospel, and never let it go:
 
-> The Lord is risen! He lives!
-> The First-born from the dead,
-> To Him the Father gives
-> To be creation's Head.
-> O'er all forever reigning,
-> Of death He holds the keys;
-> And Hell, His might constraining,
-> Obeys His high decrees.
-> Flies now the gloom that shaded
-> The vale of death to me;
-> The terrors that invaded
-> Are lost, O Christ, in Thee!
-> The grave, no more appalling,
-> Invites me to repose;
-> Asleep in Jesus falling,
-> To rise as Jesus rose.
+> The Lord is risen! He lives!  
+> The First-born from the dead,  
+> To Him the Father gives  
+> To be creation's Head.  
+> O'er all forever reigning,  
+> Of death He holds the keys;  
+> And Hell, His might constraining,  
+> Obeys His high decrees.  
+> Flies now the gloom that shaded  
+> The vale of death to me;  
+> The terrors that invaded  
+> Are lost, O Christ, in Thee!  
+> The grave, no more appalling,  
+> Invites me to repose;  
+> Asleep in Jesus falling,  
+> To rise as Jesus rose.  
 
 Then remember, you have the hope of the second advent. If Jesus comes before you die, you will meet Him, gladly meet and welcome the Son of God upon this earth! You shall be changed so that you shall be fit to inherit the incorruptible glories of the skies. You shall see your Redeemer when He stands in the latter day upon the earth. As Job said, "In my flesh shall I see God, whom my eyes shall see for myself, and not another." Have joy, then, at every thought of your Master's coming! Do not put it among dark prophecies or doubtful dreams. It is a clearly revealed truth of God that Jesus will come again and take His people up to their eternal home: "Therefore comfort one another with these words," and be not moved away from that hope of the gospel which lies so sweetly in the second advent of our Lord Jesus Christ!
 
@@ -68,17 +68,17 @@ Our eyes cannot bear to look into eternity so long as we cling, in the least deg
 
 Another ground of our hope is this, that God has solemnly pledged that "whoever believes in Christ shall not perish, but shall have everlasting life." If, then, we really, and in very deed, believe in Jesus Christ and rest on Him, we cannot perish, for God cannot contradict Himself! Thus it is written, hear it and accept it: "He that believes and is baptized shall be saved." Those of us, then, who trust the Savior, and Him only, and have made confession of that trust in His own appointed way, know for sure that God's eternal veracity is staked upon our salvation! It is not possible that the Lord should cast away a believer! Is it not written, "The just shall live by faith?" We live because we believe in the ever-living one! "He that believes in Him has everlasting life," be not moved away from this gospel hope which God, who cannot lie, has set before us:
 
-> The Covenant of the King of Kings
-> Shall stand forever sure!
-> Beneath the shadow of His wings
-> His saints repose secure.
+> The Covenant of the King of Kings  
+> Shall stand forever sure!  
+> Beneath the shadow of His wings  
+> His saints repose secure.  
 
 Another ground of our hope is the immutability of God. God changes not and, therefore, the sons of Jacob are not consumed. The immutability of Christ also confirms our hope, for He is, "the same yesterday, and today, and forever." The unchanging power of His blood is a tower of strength to our faith:
 
-> Dear dying Lamb, Your precious blood
-> Shall never lose its power
-> Till all the ransomed Church of God
-> Is saved to sin no more.
+> Dear dying Lamb, Your precious blood  
+> Shall never lose its power  
+> Till all the ransomed Church of God  
+> Is saved to sin no more.  
 
 If God is immutable, then those that believe in Him have an immutable hope, be sure that you never cast it away! But, once again, our hope of the gospel is grounded in the infallibility of Scripture. The Papist has an infallible pope, but we have an infallible Bible. If that which is spoken in this book is not true, neither is our hope sure! If these things are questionable, our confidence is questionable! But if this Word of God abides fast, forever and ever, though Heaven and earth should pass away, then he that believes and builds on this infallible truth may rejoice and stand fast! I beseech you, "be not moved away from the hope of the gospel."
 
