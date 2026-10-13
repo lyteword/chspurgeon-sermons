@@ -1,7 +1,7 @@
 # Sermon 1664 | "Jehovah-Rophi"
 
-> I am the Lord who heals you.
-> Exodus 15:26
+> I am the Lord who heals you.  
+> Exodus 15:26  
 
 We shall consider this passage in its context, for I have no doubt that the miracle at Marah was intended to be a very instructive illustration of the glorious title which is here claimed by the covenant God of Israel: "I am Jehovah-Rophi, the Lord that heals you." The illustration introduces the sermon of which this verse is the text. The healing of the bitter waters is the parable of which the line before us is the lesson. How different is the Lord to His foes and to His friends! His presence is light to Israel and darkness to Egypt. Egypt only knew Jehovah as the Lord that plagues and destroys those who refuse to obey Him. Is not this the Lord's memorial in Egypt, that He cut Rahab and wounded the dragon? He overthrew their armies at the Red Sea and drowned their hosts beneath the waves! But to His own people, in themselves but very little superior to the Egyptians, God is not the terrible avenger consuming His adversaries, but, "Jehovah that heals you."
 
@@ -125,14 +125,14 @@ That sweetened Marah was all of God, our renewed nature shall be all of God. We 
 
 Whenever I am cast down under a sense of corruption, I always like to get a hold of this divine name, "The Lord that heals you." "Thanks be to God who gives us the victory through our Lord Jesus Christ." "Faithful is He that has called you, who also will do it," says the apostle. He has not undertaken what He will fail to perform. Jehovah, who made Heaven and earth, has undertaken to make us perfect and to effectually heal us, therefore let us be confident that it will assuredly be accomplished and we shall be presented without spot before God! He who heals us is a God so glorious that He will certainly perform the work. There is none like unto the Omnipotent one! He is able to subdue all things unto Himself. His wisdom, power and grace can so work upon us that where sin abounded grace shall much more abound:
 
-> You can o vercome this heart of mine!
-> You will victorious prove,
-> For everlasting strength is Yours
-> And everlasting love.
-> Your powerful Spirit shall subdue
-> Unconquerable sin;
-> Cleanse this foul heart, and make it new,
-> And write Your Law within.
+> You can o vercome this heart of mine!  
+> You will victorious prove,  
+> For everlasting strength is Yours  
+> And everlasting love.  
+> Your powerful Spirit shall subdue  
+> Unconquerable sin;  
+> Cleanse this foul heart, and make it new,  
+> And write Your Law within.  
 
 He is a God who loves us so and makes us so precious in His sight that He gave Egypt for our ransom, Ethiopia and seba for us! A God so loving will surely perfect that which concerns us.
 
