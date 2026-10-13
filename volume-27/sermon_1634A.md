@@ -1,7 +1,7 @@
 # Sermon 1634A | The Bride and Her Ornaments: The Sin of Forgetting God
 
-> Can a maid forget her ornaments, or a bride her attire? Yet My people have forgotten Me days without number.
-> Jeremiah 2:32
+> Can a maid forget her ornaments, or a bride her attire? Yet My people have forgotten Me days without number.  
+> Jeremiah 2:32  
 
 It is a clear proof of the great love of God to His people that He will not lose their love without earnest expostulation. When you do not care at all for a person, he may love you or hate you, it is all the same to you. But when you have great love for him, then you earnestly desire to possess his heart in return. This, then, is clear proof that God greatly loves His people, since, whenever their hearts wander from Him, He is greatly grieved. And He rebukes them and earnestly pleads with them, setting the coldness of their hearts in a true light and striving to bring them back to warm affection towards Himself. Not only are God's rebukes proofs of His love, but when He goes farther and deals out blows as well as words, there is love in every stroke of His hand. Most truly does He say, "As many as I love I rebuke and chasten," since rebukes and chastening are proofs that He will not lose our hearts without a struggle for them.
 
@@ -31,8 +31,8 @@ Observe sadly the space in which they had forgotten. In the case of Israel, it i
 
 Yet I venture to press the question and I hope the answer will not be, "I have forgotten Him days without number." I hope you will not sing, as Cowper did
 
-> What peaceful hours I then enjoy'd!
-> How sweet their memory still! But now I find an aching void The world can never fill.
+> What peaceful hours I then enjoy'd!  
+> How sweet their memory still! But now I find an aching void The world can never fill.  
 
 On the contrary, may it be yours and mine to be kept from forgetting God at all! And if there ever should be a moment in which we wander, may it be a small moment, much lamented and never repeated! May our soul soon come back as the needle of the compass returns to its pole. Turn it awhile with your finger and you may move it east, west, south, but take your finger away and back it comes to its pole, so may it be with us! May we be like the birds of the air which at eventide seek their nests. As the stone may be thrown aloft by force, but naturally returns to the earth, so may we, if tossed about by Satan, fall back upon our firm resting place in Jesus! May our forgetfulness be for a small moment, but in life and death may we remember our Well-Beloved.
 
