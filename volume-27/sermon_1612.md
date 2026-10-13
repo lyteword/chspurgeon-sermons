@@ -2,8 +2,8 @@
 
 The text is a somewhat singular one, but I hope it will suggest a profitable idea.
 
-> But now bring me a minstrel. And it came to pass, when the minstrel played, that the hand of the Lord came upon him.
-> 2 Kings 3:15
+> But now bring me a minstrel. And it came to pass, when the minstrel played, that the hand of the Lord came upon him.  
+> 2 Kings 3:15  
 
 Elisha needed that the Holy Spirit should come upon him to inspire him with prophetic utterances. "Holy men of God spake as they were moved by the Holy Ghost." We need that the hand of the Lord should be laid upon us, for we can never open our mouths in wisdom except we are under the divine touch. Now, the Spirit of God works according to his own will. "The wind bloweth where it listeth," and the Spirit of God operates as he chooseth. Elisha could not prophesy just when he liked; he must wait until the Spirit of God came upon him, and the Spirit of God could come or not even as he pleased. Elisha had noticed that the Spirit of God acted upon him most freely when his mind was restful and subdued. He found himself best prepared for the heavenly voice when the noise within his soul was hushed, and every disturbing emotion was quieted. Having ascertained this fact by observation he acted upon it. He could not create the wind of the Spirit, but he could set his sail to receive it, and he did so.
 
