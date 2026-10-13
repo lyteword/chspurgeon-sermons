@@ -1,11 +1,11 @@
 # Sermon 1662 | The Indwelling and Outflowing of the Holy Spirit
 
-> He that believes on Me, as the Scripture has said, out of his belly shall flow rivers of living water. (But this spoke He of the Spirit, which they that believe on Him should receive: for the Holy Spirit was not yet given; because that Jesus was not yet glorified).
-> John 7:38,39
+> He that believes on Me, as the Scripture has said, out of his belly shall flow rivers of living water. (But this spoke He of the Spirit, which they that believe on Him should receive: for the Holy Spirit was not yet given; because that Jesus was not yet glorified).  
+> John 7:38,39  
 
-> "Nevertheless I tell you the truth; It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send Him unto you."
+> "Nevertheless I tell you the truth; It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send Him unto you."  
 
-> John 16:7.
+> John 16:7.  
 
 It is essential, dear friends, that we should worship the living and true God. It will be ill for us if it can be said, "You worship you know not what." "You shall worship the Lord your God and Him only shall you serve." The heathens err from this command by multiplying gods and making this and that image to be the object of their adoration. Their excess runs to gross superstition and idolatry. I fear that sometimes we who, "profess and call ourselves Christians," err in exactly the opposite direction. Instead of worshipping more than God, I fear we worship less than God. This appears when we forget to pay due adoration to the Holy Spirit of God. The true God is triune, Father Son, and Holy Spirit, and though there is but one God, yet that one God has manifested Himself to us in the trinity of His sacred persons.
 
