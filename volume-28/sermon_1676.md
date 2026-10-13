@@ -1,7 +1,7 @@
 # Sermon 1676 | Despair Denounced and Grace Glorified
 
-> Then He said unto me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried, and our hope is lost: we are cut off for our parts. Therefore prophesy and say unto them, Thus says the Lord God, Behold, O My people, I will open your graves, and cause you to come up out of your graves, and bring you into the land of Israel. And you shall know that I am the Lord, when I have opened your graves, O My people, and brought you up out of your graves.
-> Ezekiel 37:11,12,13
+> Then He said unto me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried, and our hope is lost: we are cut off for our parts. Therefore prophesy and say unto them, Thus says the Lord God, Behold, O My people, I will open your graves, and cause you to come up out of your graves, and bring you into the land of Israel. And you shall know that I am the Lord, when I have opened your graves, O My people, and brought you up out of your graves.  
+> Ezekiel 37:11,12,13  
 
 I have read to you the vision of the resurrection of the dry bones. Keep it in your minds, that you may understand the text. The figure is a very apt, instructive and impressive one. It is not, however, a mere figure, it is a parable based upon a remarkable representation of the resurrection of the dead. Although the children of Israel, at that time, knew little enough concerning the resurrection, yet the Lord, the Holy Spirit, knew all about it and He used it as a striking picture of the salvation of Israel from that national death which had come upon them. We may, with equal accuracy, see in it, a vivid representation of the work of grace upon the hearts of all those who are quickened into spiritual life by the power of divine grace. Men, by nature, are dead in sin till they hear the voice of God and feel the quickening breath of the Spirit, and are made to live according to that Word of God: "He that believes in Me, though he were dead, yet shall he live: and whoever lives and believes in Me shall never die."
 
@@ -19,18 +19,18 @@ They were divided, too. These Israelites were scattered abroad in every place an
 
 Perhaps you go further with the figure and seem to be dried, sapless, useless, hopeless. A bone is dried when every particle of marrow is gone out of it; when it looks as if it never could have been covered with flesh, or have been part of a living body. Are you lamenting because you seem to be devoid of spiritual hunger, desire, or regret? Do you mourn that you cannot feel, cannot will, cannot repent, cannot love, cannot even fear? Do you groan because you cannot find in yourself anything which is good or looks that way? Do you ever groan out that mournful song:
 
-> Your saints are comforted, I know,
-> And love Your house of prayer!
-> I sometimes go where others go,
-> But find no comfort there.
-> I hear, but seem to hear in vain,
-> Insensible as steel!
-> If anything is felt, 'tis only pain
-> To find I cannot feel.
-> My best desires are faint and few,
-> I gladly would strive for more!
-> But, when I cry, 'My strength renew,'
-> Seem weaker than before.
+> Your saints are comforted, I know,  
+> And love Your house of prayer!  
+> I sometimes go where others go,  
+> But find no comfort there.  
+> I hear, but seem to hear in vain,  
+> Insensible as steel!  
+> If anything is felt, 'tis only pain  
+> To find I cannot feel.  
+> My best desires are faint and few,  
+> I gladly would strive for more!  
+> But, when I cry, 'My strength renew,'  
+> Seem weaker than before.  
 
 Truly, you are as a dried bone that has long been bleaching in the sun, out of which all trace of life and feeling and power has departed!
 
