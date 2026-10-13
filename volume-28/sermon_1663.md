@@ -1,7 +1,7 @@
 # Sermon 1663 | The True Gospel Is No Hidden Gospel
 
-> But if our gospel is hid, itis hid to them that are lost: in whom the god of this world has blinded the minds of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine on them.
-> 2 Corinthians 4:3,4
+> But if our gospel is hid, itis hid to them that are lost: in whom the god of this world has blinded the minds of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine on them.  
+> 2 Corinthians 4:3,4  
 
 I think in this case the revised New Testament gives a better translation than does the authorized version and I will, therefore, read it, "But even if our gospel is veiled, it is veiled in them that are perishing, in whom the god of this world has blinded the minds of the unbelieving, that the light of the gospel of the glory of Christ, who is the image of God, should not dawn upon them." Paul had been speaking of Moses with the veil over his face and we lose the track of his thought if we use the word, "hid," instead of, "veiled." Our gospel wears no veil, but exhibits all the glory of its countenance to the sons of men. Oh that they may be able to steadfastly behold it and see in it their own salvation and the glory of the Lord!
 
@@ -75,24 +75,24 @@ We clap our hands for joy because the gospel reveals the plain man's pathway to 
 
 While the lamp continues to burn, we have hope and, therefore, we proceed to state the way by which a sinner may return to God. Is it not well to have it packed away in a small compass and expressed in common words? We tell them that Jesus Christ came into the world to save sinners and that whoever believes in Him shall not perish, but have everlasting life. What could we do if the gospel were not, thus, plain? Must I have a handcart and wheel it about with me, so as to carry to each dying man half-a-dozen folios in Latin? Nothing of the kind! Right well do Cowper's often-quoted lines set forth the plainness of the gospel and rebuke those who reject it on that account:
 
-> Oh how unlike the complex work of man,
-> Heaven's easy, artless, unencumbered plan!
-> No meretricious graces to beguile,
-> No clustering ornaments to clog the pile,
-> From ostentation as from weakness free,
-> It stands like the sky-blue arch we see,
-> Majestic in its own simplicity!
-> Inscribed above the portal from afar
-> Conspicuous as the brightness of a star,
-> Legible only by the light they give,
-> Stand the soul-quickening words,
-> Believe and Live!
-> Too many, shocked at what should charm them must,
-> Despise the plain direction and are lost.
-> Heaven on such terms? (They cry with proud disdain),
-> Incredible! Impossible and vain!,
-> Rebel because 'tis easy to obey,
-> And scorn, for its own sake, the gracious way.
+> Oh how unlike the complex work of man,  
+> Heaven's easy, artless, unencumbered plan!  
+> No meretricious graces to beguile,  
+> No clustering ornaments to clog the pile,  
+> From ostentation as from weakness free,  
+> It stands like the sky-blue arch we see,  
+> Majestic in its own simplicity!  
+> Inscribed above the portal from afar  
+> Conspicuous as the brightness of a star,  
+> Legible only by the light they give,  
+> Stand the soul-quickening words,  
+> Believe and Live!  
+> Too many, shocked at what should charm them must,  
+> Despise the plain direction and are lost.  
+> Heaven on such terms? (They cry with proud disdain),  
+> Incredible! Impossible and vain!,  
+> Rebel because 'tis easy to obey,  
+> And scorn, for its own sake, the gracious way.  
 
 Thirdly, in the true preaching of the gospel, this simplicity is preserved. Paul expressly said: "Having this hope in us, we use great plainness of speech." And again, "My speech and my preaching was not with enticing words of man's wisdom, but in demonstration of the Spirit and of power." The apostle Paul was a deep thinker, a man of profound insight and subtle mind. The bent of his mind was such that he would have made a metaphysician of supreme rank, or a mystic of the deepest darkness, but he went against his natural inclinations and devoted all his energies to the unveiling of the gospel! It was a sublime self-denial for him to put on one side all his logic among the other things which he counted loss for Christ, for he says, "I determined not to know anything among men save Jesus Christ and Him crucified."
 
