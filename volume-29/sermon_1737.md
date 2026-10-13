@@ -1,7 +1,7 @@
 # Sermon 1737 | John's First Doxology
 
 > Unto Him that loved us, and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father; to Him be glory and dominion forever and ever. Amen.  
-> Revelation 1:5, 6
+> Revelation 1:5, 6  
 
 John had hardly begun to deliver his message to the seven Churches. He had hardly given his name and stated from whom the message came when he felt that he must lift up his heart in a joyful doxology! The very mention of the name of the Lord Jesus, "the faithful witness, and the first begotten of the dead, and the prince of the kings of the earth," fired his heart. He could not sit down coolly to write even what the Spirit of God dictated, he must rise; he must fall upon his knees, he must bless and magnify, and adore the Lord Jesus! This text is just the upward burst of a great geyser of devotion. John's spirit had been quiet for a while, but all of a sudden the stream of his love to Jesus leaps forth like a fountain, rising so high that it would seem to bedew Heaven, itself, with its sparkling column of crystal love!
 
@@ -55,13 +55,13 @@ It seems so much more lovely, this salvation, when we think of it, not as a cup 
 
 No man will burst out into such joyful adoration as we have now before us unless he has a great heart within him which is full of love to all the brotherhood. And then, as he looks upon the multitude of the redeemed around about him, he will be prompted to cry with enthusiastic joy:
 > To Him that loved the souls of men,  
-> And washed us in His blood,   
-> To royal honors raised our head,   
-> And made us priests to God.   
-> To Him let every tongue be praise,   
-> And every heart be love!   
-> All grateful honors paid on earth,   
-> And nobler songs above!   
+> And washed us in His blood,  
+> To royal honors raised our head,  
+> And made us priests to God.  
+> To Him let every tongue be praise,  
+> And every heart be love!  
+> All grateful honors paid on earth,  
+> And nobler songs above!  
 
 Thus much upon the condition of heart which suggests these doxologies.
 
