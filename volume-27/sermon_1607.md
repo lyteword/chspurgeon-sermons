@@ -1,7 +1,7 @@
 # Sermon 1607 | The Swiftly Running Word
 
-> His Word runs very swiftly.
-> Psalms 147:15
+> His Word runs very swiftly.  
+> Psalms 147:15  
 
 A word is the expression of the mind. What a man has thought may live and die within himself, but when he wishes his thought to live in the outer world, he embodies it in a word and thus his thought is made known. Thought without expression is as an arm uplifted, working nothing, though it is the mainspring of action. But according to the ability of the man, his thought is carried out into fact if he is able to speak a powerful word of command. Hence, as the garment of thought and the accomplishment of wish, a word is a very important thing. A word is the manifestation of a man. Dry-den says: "Speech is the light, the morning of the mind. It spreads the beauteous images abroad, Which else lie furled and shrouded in the soul."
 
@@ -59,10 +59,10 @@ With a Word He slew the hosts of Sennacherib and stretched rider and horse in th
 
 So also has His Word run very swiftly when it has been sent in peace. When God has meant to bless men, how swiftly His angels have taken wing to bring the gift from Heaven! Think of Israel shut up by the Red Sea with mountains on either hand. Oh how speedily the Lord descended from on high when He came to the rescue of His people!
 
-> On cherub and on cherubim
-> Full royally He rode,
-> And on the wings of mighty winds
-> Came flying all abroad.
+> On cherub and on cherubim  
+> Full royally He rode,  
+> And on the wings of mighty winds  
+> Came flying all abroad.  
 
 He divided the Red Sea and led Israel through it like a flock of sheep in the wilderness, swiftly coming, by His Word, to make a way for them through the heart of the sea. So all through Scripture you will observe that in the afflictions of God's people they have cried to Him and He has sent His Word and healed them! Glory be to the name of our Covenant God! In all His works, whether of judgment or of mercy, He tarries not for man, but executes His purpose even as He pleases.
 
