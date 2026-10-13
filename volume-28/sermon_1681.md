@@ -1,8 +1,8 @@
 # Sermon 1681 | Shutting, Sealing and Covering, or, Messiah's Glorious Work
 
-> Seventy weeks are determined upon your people and upon your holy city, to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness, and to seal up the vision and prophecy, and to anoint the Most Holy."
+> Seventy weeks are determined upon your people and upon your holy city, to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness, and to seal up the vision and prophecy, and to anoint the Most Holy."  
 
-> Daniel 9:24.
+> Daniel 9:24.  
 
 The Lord God appointed a set time for the coming of His Son into the world. Nothing was left to chance. Infinite wisdom dictated the hour at which the Messiah should be born and the moment at which He should be cut off. His advent and His work are the highest point of the purpose of God, the hinge of history, the center of providence, the crowning of the edifice of grace and, therefore, peculiar care watched over every detail. Once in the history of the world has the Son of God appeared to put away sin by the sacrifice of Himself and this is the event before which all other events must bow. The studious mind will be delighted to search out the reasons why the Messiah came not before and why He did not tarry till yet later ages. Prophecies declared the date, but long before, infallible wisdom had settled it for the most profound reasons. It was well that the Redeemer came, it was well that He came in what Scripture calls the fullness of time, even in these last days.
 
@@ -76,12 +76,12 @@ Now, take the Hebrew for it, and read the sentence thus, to cover iniquity. Oh, 
 
 This is what is to be done with the whole kingdom of evil, as well with the power of it and with the guilt of it. Dagon is to fall and to be broken, and the very stump of him is to be demolished. As when the darkness flies before the sun, not a trace of its blackness is left, so is sin to be utterly destroyed from the redeemed of the Lord! It is not merely the guilt of sin that is shut up and sealed and covered, but sin itself, its power, its dominion, its habit, its defilement, the dread that comes of it and the fear and the burning of heart which it engenders. All the foul birds of sin's filthy cage must fly away, never to return, chased away by the glorious work of Him who shall save His people from their sins! For this the Messiah was cut off, and this, by His death, is achieved:
 
-> O love! You bottomless abyss!
-> My sins are swallowed up in thee;
-> Covered is my unrighteousness,
-> Nor spot of guilt remains on me.
-> While Jesus' blood, through earth and skies,
-> Mercy, free, boundless mercy cries!
+> O love! You bottomless abyss!  
+> My sins are swallowed up in thee;  
+> Covered is my unrighteousness,  
+> Nor spot of guilt remains on me.  
+> While Jesus' blood, through earth and skies,  
+> Mercy, free, boundless mercy cries!  
 
 I fail to describe this triumphant overthrow of sin and Satan. I have neither wisdom nor language answerable to such a theme. I invite you, now, for a few minutes to consider the second work, namely, the setting up of righteousness. This is set before us in three expressions, first, in the words, "to bring in everlasting righteousness." And what is that? Why, His own righteousness which is from everlasting to everlasting and will never be taken way from those who have it and will never cease to be their beauty and their glorious Jesus! The work of Christ in His life and death is, by God, imputed to His people, indeed, it is theirs because they are one with Christ! He is the Lord, their righteousness, and they are the righteousness of God in Him. Saints are so righteous in Jesus Christ that they are more righteous than Adam was before he fell, for he had but a creature righteousness, but they have the righteousness of the Creator, Adam had a righteousness which he lost, but believers have a righteousness which they can never lose, an everlasting righteousness!
 
