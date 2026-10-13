@@ -1,10 +1,10 @@
 # Sermon 1675 | Out Of Egypt
 
-> When he arose, he took the young Child and His mother by night, and departed into Egypt: and was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the Prophet, saying, Out of Egypt have I called My Son.
-> Matthew 2:14,15
+> When he arose, he took the young Child and His mother by night, and departed into Egypt: and was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the Prophet, saying, Out of Egypt have I called My Son.  
+> Matthew 2:14,15  
 
-> "When Israel was a Child, then I loved Him, and called My Son out of Egypt."
-> Hosea 11:1.
+> "When Israel was a Child, then I loved Him, and called My Son out of Egypt."  
+> Hosea 11:1.  
 
 Egypt occupies a very singular position towards Israel. It was often the shelter of the seed of Abraham. Abraham, himself, went there when there was a famine in the land of his sojourn. To Egypt, Joseph was taken that he might escape from the death intended for him by his envious brothers and become the stepfather of the house of Israel. Into Egypt, as we all right well know, went the whole family of Jacob, and there they sojourned in a strange land. There Moses acquired the learning which was so useful to him. It was out of the spoils of Egypt that the furniture of the Tabernacle was made, as if to show that God intended to take out of heathen hands an offering to His own glory, just as, afterwards, the timber of the temple was hewn by Hiram, the Phoenician, that the Gentiles might have a share in building the temple in token that they would, one day, be made fellow heirs with Israel.
 
@@ -78,30 +78,30 @@ Write the word, Son, in capitals, and it must mean Him, it cannot, with emphasis
 
 What with contending sects, Pharisees and Sadducees, there would seem to be no more room for Christ in the church, today, than there used to be. By fear of Herod, His parents are made anxious, and by angelic direction they must go down into Egypt, where Herod's warrant would not run. Heathen Egypt will shield, while hypocritical Judea will slay! Jesus, like another Joseph, must be carried down into Egypt, that the young child's life may be preserved. Here He has a foretaste of His life trials and early begins His life of affliction. The King of the Jews flees from His own dominions! The Lord of all must know the heart of a stranger in the land of Egypt! The poet represents His mother as saying:
 
-> Through the desert wild and dreary,
-> Following tracts explored by few,
-> Sad at heart, and worn, and weary,
-> We, our toilsome march, pursue.
-> Israel's homes lie far behind us,
-> Yet we pause not to look back,
-> Lest the keen pursuer find us,
-> Lest grim murder scent our track.
-> Eagles o'er our heads are whirling,
-> Each careering towards her nest;
-> Even the wolf and fox are stealing
-> To the covert of their rest.
-> Every fowl and noxious creature
-> Finds on earth its lair and bed
-> But the infant Lord of Nature
-> Has not where to lay His head.
-> Yes, my Babe, sweet sleep enfolds You
-> On Your fainting mother's arm;
-> God in His great love beholds You,
-> Angels guard Your rest from harm.
-> Earth and Hell in vain beset You,
-> Kings against Your life conspire!
-> But our God can ne'er forget You,
-> Nor His arm that shields You, tire.
+> Through the desert wild and dreary,  
+> Following tracts explored by few,  
+> Sad at heart, and worn, and weary,  
+> We, our toilsome march, pursue.  
+> Israel's homes lie far behind us,  
+> Yet we pause not to look back,  
+> Lest the keen pursuer find us,  
+> Lest grim murder scent our track.  
+> Eagles o'er our heads are whirling,  
+> Each careering towards her nest;  
+> Even the wolf and fox are stealing  
+> To the covert of their rest.  
+> Every fowl and noxious creature  
+> Finds on earth its lair and bed  
+> But the infant Lord of Nature  
+> Has not where to lay His head.  
+> Yes, my Babe, sweet sleep enfolds You  
+> On Your fainting mother's arm;  
+> God in His great love beholds You,  
+> Angels guard Your rest from harm.  
+> Earth and Hell in vain beset You,  
+> Kings against Your life conspire!  
+> But our God can ne'er forget You,  
+> Nor His arm that shields You, tire.  
 
 Mark well, that if the Lord Jesus Christ had willed it, even though but a babe, He might have blasted Herod as He did another Herod in later days. And He might have made him to be eaten of worms. The glorious Jehovah could have sent a legion of angels and have driven the idumaean dynasty from off the throne, if so it had pleased Him. But no violence was used, a gentler course was chosen. When Jesus stands up to fight, He wars by nonresistance. He says, "My kingdom is not of this world, else would My servants fight." He conquers by flight rather than by fight. He taught His people, when persecuted in one city, to flee to another. And He never bid them form bands and battle with their persecutors. That is not according to Christ's law or example! A fighting church is the devil's church, but a bearing and enduring church, that is Christ's church.
 
