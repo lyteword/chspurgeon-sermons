@@ -1,16 +1,16 @@
 # Sermon 1583 | Choice Food for Pilgrims to Canaan
 
-> And He said, My Presence will go with you, and I will give you rest.
-> Exodus 33:14
+> And He said, My Presence will go with you, and I will give you rest.  
+> Exodus 33:14  
 
 May the inexpressibly precious promises of our text be fulfilled to every one of you throughout the whole of your lives. What could heart desire, or mind conceive beyond the heaped-up blessedness of my text? God's Presence and God's rest, a ring of finest gold set with the choicest pearl! The benedictions are worthy of God, Himself, and such as only His boundless love could have uttered. Think them over and use them as food for your souls. With them you may well be content even if the preacher's lips should be shut up as a spring, a sealed fountain! You do not need any sermon. Only let the Holy Spirit speak these words with power as coming directly from the great Father's lips to you and your inmost soul will be satisfied as with marrow and fatness!
 
-> Enough, my gracious Lord,
-> Let faith triumphant cry!
-> My heart can on this promise live,
-> Can on this promise die.
-> 'My Presence will go with you,
-> And I will give you rest.'
+> Enough, my gracious Lord,  
+> Let faith triumphant cry!  
+> My heart can on this promise live,  
+> Can on this promise die.  
+> 'My Presence will go with you,  
+> And I will give you rest.'  
 
 It is instructive to remember that a very short time before this promise was given, the Israelites had greatly grieved their God by setting up an image of gold before which they prostrated themselves, saying, "These are your gods, O Israel." They had seen the greatness and Glory of God at the Red Sea and during their journey in the wilderness up to that time, and yet they were so foolish that they bowed in worship before the image of an ox which eats grass! We do not marvel that the living God was angry, but we are filled with astonishment that, after such wanton provocation, He should, nevertheless, turn away His wrath from them and say to them, for the promise was not to Moses only, but to them as a people: "My Presence will go with you, and I will give you rest."
 
