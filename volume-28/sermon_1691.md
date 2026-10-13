@@ -1,7 +1,7 @@
 # Sermon 1691 | Christ's Word with You
 
-> Come unto Me, all you that labor and are heavy laden, and I will give you rest.
-> Matthew 11:28
+> Come unto Me, all you that labor and are heavy laden, and I will give you rest.  
+> Matthew 11:28  
 
 When the regular congregation left their seats to be occupied by strangers.
 
@@ -29,8 +29,8 @@ It is rest to the man's entire spiritual being. Conscience troubles us till Jesu
 
 Now, Jesus promises, to those who come to Him, a peaceful conscience which He will give through pardoning all the past, through changing the current of the man's ideas in the present and through helping him to avoid, in the future, the faults into which he fell in the days that have now gone by:
 
-> Rest, weary soul,
-> The penalty is borne, the ransom paid, For all your sins full satisfaction made. Strive not to do, yourself, what Christ has done! Claim the free gift and make the joy your own. No more by pangs of guilt and fear distress, Rest, sweetly rest!
+> Rest, weary soul,  
+> The penalty is borne, the ransom paid, For all your sins full satisfaction made. Strive not to do, yourself, what Christ has done! Claim the free gift and make the joy your own. No more by pangs of guilt and fear distress, Rest, sweetly rest!  
 
 It is a grand thing to have rest of conscience. But then we have minds, and minds are troublous things. In these days of doubt, it is not easy for a mind to get an anchorage and keep it. Many are searching for something to believe or, at least, they long to be quite sure that it would be the right thing not to believe. Minds are tossed about like ships at sea, or birds caught in a fierce gale.
 
