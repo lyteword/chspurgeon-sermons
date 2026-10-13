@@ -1,7 +1,7 @@
 # Sermon 1695 | The Orphan's Father
 
-> For in You the fatherless finds mercy.
-> Hosea 14:3
+> For in You the fatherless finds mercy.  
+> Hosea 14:3  
 
 The Lord God of Israel, the one only living and true God, has this for a special mark of His character, that in Him the fatherless finds mercy. "A Father of the fatherless, and a judge of the widows, is God in His holy habitation." False gods of the heathen are usually notable for their supposed power or cunning, or even for their wickedness, falsehood, lustfulness and cruelty. But our God, who made the heavens, is the thrice Holy One. He is the Holy God and He is also full of love. Indeed, it is not only His name and His character, but His very nature, for "God is love." Among the acts which exhibit His love is this, that He executes righteousness and judgment for all that are oppressed and, especially takes under His wings the defenseless ones, such as the widow and the fatherless.
 
