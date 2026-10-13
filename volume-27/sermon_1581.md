@@ -1,7 +1,7 @@
 # Sermon 1581 | Silver Sockets: Redemption the Foundation!
 
-> And the Lord spoke unto Moses, saying, When you take the sum of the children of Israel after their number, then shall they give every man a ransom for his soul unto the Lord, when you number them; that there be no plague among them, when you number them. This they shall give, everyone that passes among them that are numbered, half a shekel after the shekel of the sanctuary: (a shekel is twenty gerahs): an half shekel shall be the offering of the Lord. Everyone that passes among them that are numbered, from twenty years old and above, shall give an offering unto the Lord. The rich shall not give more, and the poor shall not give less than half a shekel, when they give an offering unto the Lord, to make an atonement for their souls. And you shall take the atonement money of the children of Israel, and shall appoint it for the service of the Tabernacle of the congregation; that it may be a memorial unto the children of Israel before the Lord, to make an atonement for their souls.
-> Exodus 30:11-16
+> And the Lord spoke unto Moses, saying, When you take the sum of the children of Israel after their number, then shall they give every man a ransom for his soul unto the Lord, when you number them; that there be no plague among them, when you number them. This they shall give, everyone that passes among them that are numbered, half a shekel after the shekel of the sanctuary: (a shekel is twenty gerahs): an half shekel shall be the offering of the Lord. Everyone that passes among them that are numbered, from twenty years old and above, shall give an offering unto the Lord. The rich shall not give more, and the poor shall not give less than half a shekel, when they give an offering unto the Lord, to make an atonement for their souls. And you shall take the atonement money of the children of Israel, and shall appoint it for the service of the Tabernacle of the congregation; that it may be a memorial unto the children of Israel before the Lord, to make an atonement for their souls.  
+> Exodus 30:11-16  
 
 "A bekah for every man, that is, half a shekel, after the shekel of the sanctuary, for that went to be numbered, from twenty years old and upward, for six hundred and three thousand and five hundred and fifty men. And of the hundred talents of silver were cast the sockets of the sanctuary, and the sockets of the veil; an hundred sockets of the hundred talents, a talent for a socket."
 
@@ -43,13 +43,13 @@ First, I want you to view this illustration as teaching us something about God i
 
 Rest assured, dear Friends, that there is no meeting with God on our part except through Jesus Christ our Redeemer! I am of Luther's mind when he said, "I will have nothing to do with an absolute God." God out of Christ is a terror to us! Even in Christ, remember, He is a consuming fire, for even, "our God is a consuming fire." But what He must be out of Christ may none of us ever know
 
-> Till God in human flesh I see, My thoughts no comfort find.
-> The holy just and sacred Three
-> Are terrors to my mind!
-> But if Immanuel's face appears,
-> My hope, my joy begins!
-> His name forbids my slavish fear,
-> His Grace removes my sins.
+> Till God in human flesh I see, My thoughts no comfort find.  
+> The holy just and sacred Three  
+> Are terrors to my mind!  
+> But if Immanuel's face appears,  
+> My hope, my joy begins!  
+> His name forbids my slavish fear,  
+> His Grace removes my sins.  
 
 You must not attempt to have audience with God, at first, upon the footing of election. It were presumptuous to attempt to come to the electing Father except through the atoning Son. "No man," says Christ, "comes to the Father but by Me." Never attempt to speak with God on the footing of your own sanctification, for very soon you will come to bringing your legal righteousness before Him and that will provoke Him.
 
