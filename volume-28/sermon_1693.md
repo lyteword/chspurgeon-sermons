@@ -1,7 +1,7 @@
 # Sermon 1693 | That Horrible East Wind!
 
-> And let the peace of God rule in your hearts, to which you are also called in one body; and be you thankful.
-> Colossians 3:15
+> And let the peace of God rule in your hearts, to which you are also called in one body; and be you thankful.  
+> Colossians 3:15  
 
 I do not know how it is, but during the last two or three days I have been called to sympathize with an amount of sorrow such as I have seldom met with before in so short a space of time. One messenger of misery has followed on the heels of another, each one with heavy tidings. Nor is that all, for I have also been perplexed with a large amount of sinning, quarrelling and fault-finding. People are murmuring, grumbling, fretting and fighting on all sides. This has tried me so much that I feel little fitted to act as comforter, for I need comfort, myself. I have endeavored to cheer others till I have drunk of their cup of sorrow and put my own mouth out of taste, I have tried to make peace for others till I am half afraid of losing my own, I have answered the people's grumblings till I am tempted to have a growl or two on my own account.
 
@@ -45,14 +45,14 @@ Mr. Whitefield used to describe fallen nature and he was pretty near the mark. "
 
 God's own mighty Spirit must put forth that same energy with which He will raise the dead out of their graves at the resurrection, for nothing short of creation and resurrection power is able to transmute this beastly, devilish heart of ours into a heart in which the peace of God shall reign supreme! Well is it called the peace of God! My dear hearer, do you know this peace? If so, you will understand that because of its excellence, it is called the peace of God. It is a Hebraism, for among the Hebrews they called certain mountains that were higher than others the hills of God, and certain gigantic trees, such as the cedars of Lebanon, were the trees of God that were full of sap. So the peace that is greater than every other peace is called the peace of God, it means the holiest, deepest peace. It is "perfect peace", peace that nothing disturbs. It is a deep peace: "the peace of God, which passes all understanding", solemn peace at which you almost stand in awe! It is a hush within the soul in which there is heard nothing of discord or of fear, but a stillness reigns like that which was maintained in the Holy of holies, within the veil, where seraphim were silent above the Mercy seat. "The peace of God" signifies the peace that never ends, everlasting peace, the peace that will live with us throughout the whole of our mortal sojourn till we come into the land of the immortal!:
 
-> There shall I bathe my weary soul In seas of heavenly rest, And not a wave of trouble roll
-> Across my peaceful breast.
+> There shall I bathe my weary soul In seas of heavenly rest, And not a wave of trouble roll  
+> Across my peaceful breast.  
 
 "The peace of God." Oh, I have known it! You, too, my brothers and sisters, must have known it when the Lord, Himself, has dwelt within your hearts and kept all adversaries far away. You have then known days of Heaven upon the earth. It has left nothing to wish for except the perpetuation of itself, for you have been satisfied with favor and full of the goodness of the Lord, filled with all the fullness of God, anchored fast, settled, grounded, established!:
 
-> My heart is resting,
-> my God!
-> 1 will give thanks and sing. My heart is at the secret source Of every precious thing.
+> My heart is resting,  
+> my God!  
+> 1 will give thanks and sing. My heart is at the secret source Of every precious thing.  
 
 That is the peace of God! Win it, dear friends, and wear it! By God's good Spirit enter into this serene haven. Rest in the Lord and be happy in Him, for He is our peace! When the Lord and Giver of peace once comes to tarry in your heart, let Him rest there and charge all about you, by the roes and by the hinds of the field, that they stir not up nor awake your love until He pleases.
 
