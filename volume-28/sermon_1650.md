@@ -1,7 +1,7 @@
 # Sermon 1650 | God's Fatherly Pity
 
-> As a father pities his children, so the Lord pities them that fear Him.
-> Psalm 103:13
+> As a father pities his children, so the Lord pities them that fear Him.  
+> Psalm 103:13  
 
 In the former part of this Psalm, the Psalmist sang of God's deeds of love, His gifts, His benefits and His acts of kindness. But here he goes deeper into the divine motive and, therefore, he finds sweeter incentives to devout gratitude. There is a fullness of consolation in the fact that the heart of God is towards His people. He not only dispenses blessings, so does the sun, so do the clouds, so do the fruitful fields, but He takes a warm interest in our welfare and has a feeling towards us of kindly, gentle affection. And that of such intensity that one of the highest forms of earthly love is here used as a figure to set forth the tender mercy of our God towards us. I have always been taught as an axiom in theology that God has no griefs, that He is "without parts or passions", I think was the definition. But I have often inwardly objected to such statements. They seemed to me so inconsistent with the tone and tenor of Scripture, for He appears to take pleasure in His people and to be "grieved" with their ill manners.
 
@@ -85,9 +85,9 @@ How many of God's people have we seen die without pains or groans or dying strif
 
 There may be some whom God puts to bed in the dark, as we sometimes do our children, but usually He takes the candle with Him and sits and talks with His child till he falls asleep. And when he wakes up, there he is among the angels! God kisses the souls of His saints out of the bodies:
 
-> One gentle sigh, the fetter breaks,
-> We scarcely can say, 'they're gone!'
-> Before the ransomed spirit takes
-> Her mansion near the Throne.
+> One gentle sigh, the fetter breaks,  
+> We scarcely can say, 'they're gone!'  
+> Before the ransomed spirit takes  
+> Her mansion near the Throne.  
 
 Go to your heavenly Father and tell Him you are frightened and He has ways of taking away these fears, for though they may be ridiculous to some, a child's dreads are never too frivolous for the sympathy of a loving father! He meets them as if there were some great reality in them and so sets them aside. Whatever your needs, your woes, your griefs, fly away to your great Father's Mercy seat and spread them there and He will give you comfort! Believe, from this night forward, that God pities all them that fear Him and whatever He sees of weakness in their nature and of sorrow in their lot He will help them. So may you find it now and evermore, for Christ's sake. Amen.
