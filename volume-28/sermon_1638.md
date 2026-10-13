@@ -1,8 +1,8 @@
 # Sermon 1638 | Men Without Heart, Sight, or Hearing
 
-> Yet the Lord has not given you a heart to perceive and eyes to see and ears to hear, to this day."
+> Yet the Lord has not given you a heart to perceive and eyes to see and ears to hear, to this day."  
 
-> Deuteronomy 29:4.
+> Deuteronomy 29:4.  
 
 Feeling, sight, hearing. What wonderful things these are! If we could exist without them, what a wretched condition ours would be. The outer world would be unknown to us if the gates of the senses were shut. And the soul would be famished, like Samaria when it was shut up and there was no going in nor coming out. Take away from us the power of perception by touch, smell, taste, sight and hearing, and it would be of small account to us that the world was beautiful, for to our consciousness there would scarcely be a world at all. All the colors of the rainbow, the warmth of the sun, the freshness of the breeze, the sweetness of honey, the charms of music and even the terrors of storms would cease! And the soul would be shut up within the body as within a prison which had neither doors nor windows. The dreariest dungeon of the Bastille would be liberty compared with such a state!
 
