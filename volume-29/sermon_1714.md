@@ -23,13 +23,13 @@ The apostle then dwells upon the riches of "forbearance." Forbearance comes in w
 
 Did you ever think what is included in the riches of forbearance. There are quick tempered individuals who only need to be a little provoked, and hard words and blows come quick and furious: but, oh, the forbearance of God when he is provoked to his face by ungodly men! By men, I mean, who hear his word, and yet refuse it! They slight his love, and yet he perseveres in it. Justice lays its hand on the sword, but mercy holds it back in its scabbard. Well might each spared one say:
 > O unexhausted Grace  
-> O Love unspeakable!   
-> I am not gone to my own place;   
-> I am not yet in hell!   
-> Earth doth not open yet,   
-> My soul to swallow up:   
-> And, hanging o'er the burning pit,   
-> I still am forced to hope.   
+> O Love unspeakable!  
+> I am not gone to my own place;  
+> I am not yet in hell!  
+> Earth doth not open yet,  
+> My soul to swallow up:  
+> And, hanging o'er the burning pit,  
+> I still am forced to hope.  
 
 Our apostle adds to goodness and forbearance the riches of "longsuffering." We draw a distinction between forbearance and longsuffering. Forbearance has to do with the magnitude of sin; longsuffering with the multiplicity of it: forbearance has to do with present provocation; longsuffering relates to that provocation repeated, and continued for a length of time. Oh, how long doth God suffer the ill manners of men! Forty years long was he grieved with that generation whose carcasses fell in the wilderness. Has it come to forty years yet with you, dear hearer? Possibly it may have passed even that time, and a half-century of provocation may have gone into eternity to bear witness against you. What if I should even have to say that sixty and seventy years have continued to heap up the loads of their transgressions, until the Lord saith, "I am pressed down under your sins; as a cart that is full of sheaves I am pressed down under you." Yet for all that, here you are on praying ground and pleading terms with God; here you are where yet the Saviour reigns upon the throne of grace; here you are where mercy is to be had for the asking, where free grace and dying love ring out their charming bells of invitation to joy and peace! Oh, the riches of his goodness, and forbearance, and longsuffering. Three-fold is the claim: will you not regard it? Can you continue to despise it?
 
@@ -47,10 +47,10 @@ Be it never forgotten that sin is to God much more intolerable than it is to us.
 
 
 
-> No more, ye lusts, shall ye command,   
-> No more will we obey;   
-> Stretch out, O God, thy conqu'ring hand,   
-> And drive thy foes away.   
+> No more, ye lusts, shall ye command,  
+> No more will we obey;  
+> Stretch out, O God, thy conqu'ring hand,  
+> And drive thy foes away.  
 
 Come with me, friend, and let me speak to thee of the sin of which thou art suspected. Hear me, unconverted sinner: the sin of which thou art suspected is this, "Despisest thou the riches of his goodness and forbearance and longsuffering?" The Lord's goodness ought to be admired and to be adored, and dost thou despise it? His goodness ought to be wondered at and told as a marvel in the ears of others, and dost thou despise it? That I may rake thy conscience a little, lend me thine ear.
 
