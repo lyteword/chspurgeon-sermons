@@ -1,7 +1,7 @@
 # Sermon 1722 | The First Setting Up of the Bronze Serpent
 
 > And they journeyed from Mount Hor by the way of the Red Sea, to compass the land of Edom: and the soul of the people was much discouraged because of the way. And the people spoke against God, and against Moses, 'Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, neither is there any water; and our soul loathes this light bread.' And the Lord sent fiery serpents among the people, and they bit the people; and many people of Israel died. Therefore the people came to Moses and said, 'We have sinned, for we have spoken against the Lord, and against you; pray unto the Lord, that He take away the serpents from us.' And Moses prayed for the people. And the Lord said unto Moses, 'Make you a fiery serpent, and set it upon a pole: and it shall come to pass, that everyone that is bitten, when he looks upon it, shall live.' And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.  
-> Numbers 21:4-9
+> Numbers 21:4-9  
 
 I have frequently expounded to you the type of the bronze serpent as our Lord interprets it in the third of John. I thought it meet, tonight, to take that type in its connection and look at the original circumstances which led to the setting of it up, for while the general doctrine of looking for salvation to Christ as the bronze serpent is always to be preached and is most usefully set forth in the midst of the unconverted, yet I take it that its original institution teaches us much which ought not to be overlooked. It is very clear that this type has its first voice to the people of God, for it was among Israel, among the nominal people of God, that this bronze serpent was first needed and first set up. And while the instruction which it gives is wide as the universe, for whoever looks shall live, nevertheless it has an inner circle to which it, first of all, addresses itself, the professed members of the Church of God.
 
@@ -17,13 +17,13 @@ The reason may be found in various things. Occasionally it springs out of disapp
 
 Possibly some of my Master's servants have entertained the notion that they have made amazing progress in the Divine life and, just then, an event has occurred which showed them their weakness, and they have been forced to weep in secret places and upbraid themselves, saying, "After all this, am I no better than to be cast down about a trifle? Have I suffered so much, and yet is my progress so small?"
 > I thought that in some favored hour,  
-> My Lord would answer my request,   
-> And, by His love's subduing power   
-> Would slay my sins and give me rest.   
-> Instead of this, He made me feel   
-> The hidden evils of my heart,   
-> And let the angry powers of Hell   
-> Assault my soul in every part.   
+> My Lord would answer my request,  
+> And, by His love's subduing power  
+> Would slay my sins and give me rest.  
+> Instead of this, He made me feel  
+> The hidden evils of my heart,  
+> And let the angry powers of Hell  
+> Assault my soul in every part.  
 
 We ask to have our waters purified and lo, we are stirred till all the mud which was quiet in the bottom of our soul is made visible and pollution appears everywhere! Yet may not this be the nearest and surest way to purity? This making us see the secret depravity of our hearts?
 
