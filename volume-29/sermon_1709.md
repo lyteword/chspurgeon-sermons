@@ -1,7 +1,7 @@
 # Sermon 1709 | The Best War Cry
 
 > The Lord his God is with him, and the shout of a king is among them.  
-> Numbers 23:21
+> Numbers 23:21  
 
 It was a singular spectacle to see the king of Moab and his lords climbing to the tops of the craggy rocks, accompanied by that strange being, the Eastern prophet Balaam. They are seeking to look upon Israel with the evil eye and flash down curses upon her tents in the plain beneath. You see them gazing down from the mountains upon the encampment in the wilderness below, even as vultures from aloft spy out their prey. They watch with keen and cruel eyes. Cunning and malice are in their countenances. How Balak longs to crush the nation which he fears! They are secretly endeavoring, by spell and enchantment, to bring evil upon the people whom Jehovah has chosen and led into the wilderness. You see them offering their seven bullocks and their seven rams upon the seven altars which they have set up upon Pisgah's rocks.
 
@@ -13,7 +13,7 @@ This Prince of Darkness has on earth many most diligent servants, compassing sea
 
 When we look upon the signs of the times, our heart grows heavy, for iniquity abounds, the love of many waxes cold, many false spirits have gone abroad in the earth and some whom we looked upon as helpers are proving themselves to be of another order. What then? Are we dismayed? By no means, for that same God who was in the midst of the Church in the wilderness is in the Church of these last days! Again shall her adversaries be defeated. Still will He defend her, for the Lord has built His Church upon a rock and the gates of Hell shall not prevail against her. The reason of her safety is this:
 > God in the midst of her does dwell; nothing shall her remove;  
-> The Lord to her a Helper shall, And that right early, prove.   
+> The Lord to her a Helper shall, And that right early, prove.  
 
 Our text declares the grand safeguard of the Church of God, ensuring her against every peril known and unknown, earthly or Satanic, "Jehovah his God is with him, and the shout of a King is among them." May the Holy Spirit help me while I try to speak, first, upon God's Presence with His people. Secondly, upon the results of that Presence. And thirdly, upon how, by the Grace of God, that Presence may be preserved continually among us.
 
@@ -43,7 +43,7 @@ I heard one, speaking of the district in which he lives, say, "We are a religion
 
 A Church without life and zeal makes Christ sick! He cannot bear it. He can put up with downright godlessness sooner than with a profession of religion out of which the life and the power are gone, since it has cooled down into lukewarmness. This, then, we should pray for continually, the Presence of God in the midst of His people:
 > Great Shepherd of Your Israel  
-> Who did, between the cherubs dwell, And led the tribes, Your chosen sheep, Safe through the desert and the deep, Your Church is in the desert now! Shine from on high, and guide us through. Turn us to You, Your love restore We shall be saved, and sigh no more.   
+> Who did, between the cherubs dwell, And led the tribes, Your chosen sheep, Safe through the desert and the deep, Your Church is in the desert now! Shine from on high, and guide us through. Turn us to You, Your love restore We shall be saved, and sigh no more.  
 
 To whet your desire for this, let me pass on to the second head of my subject, which is briefly to describe the results of this divine presence. Some of these results are mentioned in the context. One of the first is leading, "God brought them out of Egypt" (v. 22). The best critics give us another rendering, "God is bringing them out of Egypt." When God is in the midst of His people, He is leading them, so that we may cheerfully sing that song, "He leads me, He leads me," and go on with David to say, "He leads me beside the still waters." We need no other Leader in the Church when we have God, for His eyes and arms will guide His people.
 
@@ -77,7 +77,7 @@ Once more, the results of God's Presence are to be seen, not only in the context
 
 Then work for Christ is easy, no, delightful! God's people never need urging, they are eager for the fray when the Lord is with them. Then, too, suffering for Christ becomes pleasant, yes, any kind of suffering is easily borne:
 > I can do all things, or can bear all sufferings, if my Lord is there! Sweet pleasures mingle with the pains,  
-> While His left hand my head sustains.   
+> While His left hand my head sustains.  
 
 Then prayer grows abundant all over the Church, both in private and in public. Then life is made vigorous, the feeblest becomes as David, and David like the Angel of the Lord. Then love is fervent; unity is unbroken; the Truth of God is esteemed and the living of truth in the life is sought after by all the people of God! Then effort is successful; the Church enlarges the bounds of her tent, for she breaks forth on the right hand and on the left. Then her seed inherits the Gentiles and the desolate places are inhabited. Then God gives unto her the holy energy with which she vanquishes nations. When God is with her she becomes like a sheaf of fire in the midst of the stubble and consumes her adversaries round about. "Fair as the moon, clear as the sun and terrible as an army with banners," is a Church which has God in her midst!
 
