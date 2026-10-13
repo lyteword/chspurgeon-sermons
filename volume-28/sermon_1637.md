@@ -1,7 +1,7 @@
 # Sermon 1637 | The Beginning of Months
 
-> And the Lord spoke unto Moses and Aaron in the land of Egypt, saying, this month shall be unto you the beginning of months: it shall be the first month of the year to you.
-> Exodus 12:1,2
+> And the Lord spoke unto Moses and Aaron in the land of Egypt, saying, this month shall be unto you the beginning of months: it shall be the first month of the year to you.  
+> Exodus 12:1,2  
 
 In all probability up to that time the year had been supposed to begin in the autumn. The question has been raised at what season of the year did God create man and it has been decided by many that it must have been in autumn, so that when Adam was placed in the garden he might at once find fruits ripe and ready for his use. It has not seemed probable that he would have begun his career while as yet all fruits were raw and green, therefore many have concluded that the first year of human history began in the time of harvest, when fruits were mellowed for man's food. For this reason, perhaps, in the old times the new year began when the feast of harvest had been celebrated.
 
@@ -27,18 +27,18 @@ I do not know whether there is any truth in the statement of a correspondent tha
 
 Because the claims of retribution had been fully met there was no further demand and Israel was secure. This is my eternal confidence and here is my soul's sweet hymn:
 
-> If You have my discharge procured,
-> And freely in my place endured
-> The whole of wrath Divine,
-> Payment God cannot twice demand,
-> First at my bleeding Surety's hands
-> And then, again, at mine!
-> Turn then, my Soul, unto your rest
-> The merits of your great High Priest
-> Have bought your liberty,
-> Trust in His efficacious blood,
-> Nor fear your banishment from God,
-> Since Jesus died for thee.
+> If You have my discharge procured,  
+> And freely in my place endured  
+> The whole of wrath Divine,  
+> Payment God cannot twice demand,  
+> First at my bleeding Surety's hands  
+> And then, again, at mine!  
+> Turn then, my Soul, unto your rest  
+> The merits of your great High Priest  
+> Have bought your liberty,  
+> Trust in His efficacious blood,  
+> Nor fear your banishment from God,  
+> Since Jesus died for thee.  
 
 It was to me the beginning of my life, that day in which I discovered that judgment was passed upon me in the person of my Lord and that there is, therefore, now no condemnation to me! The law demands death: "The soul that sins, it shall die." Lo, there is the death it asks and more! Christ, my Lord, has died, died in my place, as it is written, "Who His own self bore our sins in His own body on the tree." Such a sacrifice is more than even the most rigorous law could demand! "Christ our Passover is sacrificed for us." "Christ has redeemed us from the curse of the law, being made a curse for us." Therefore do we sit securely within doors, desiring no guard outside to drive away the destroyer, for, when God sees the blood of Jesus, He will pass over us! "In His days Judah shall be saved and Israel shall dwell safely: and this is His name whereby He shall be called, the Lord our righteousness" (Jer. 23:6). I say again, it was the beginning of life to me when I saw Jesus as dying in my place! I beheld the first sight that was worth beholding, let all the rest be darkness and as the shadow of death! Then did my soul rejoice when I understood and accepted the substitutionary sacrifice of the appointed Redeemer. That is the first view of this event: the blood of sprinkling made Israel secure.
 
