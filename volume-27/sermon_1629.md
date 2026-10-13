@@ -1,7 +1,7 @@
 # Sermon 1629 | Two Good Things
 
-> It is good for me that I have been afflicted; that I might learn Your statutes.
-> Psalm 119:71
+> It is good for me that I have been afflicted; that I might learn Your statutes.  
+> Psalm 119:71  
 
 "It is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works." Psalm 73:28.
 
@@ -77,7 +77,7 @@ They themselves took the word from Christ, just as they took the bread out of Ch
 
 Now, let us join in thanking God, if He has afflicted us, and if He has drawn us near to Himself. And let us go forth, not to ask for afflictions, that would be unwise, but to accept them hopefully when they come! Let us draw near to God, tonight, and let us not go to our beds till we have seen the face of the Well-Beloved. This shall be my vesper song
 
-> Sprinkled afresh with pardoning blood,
-> I lay me down to rest,
-> As in the embraces of my God,
-> Or on my Sa vior's breast.
+> Sprinkled afresh with pardoning blood,  
+> I lay me down to rest,  
+> As in the embraces of my God,  
+> Or on my Sa vior's breast.  
