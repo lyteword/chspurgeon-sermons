@@ -1,7 +1,7 @@
 # Sermon 1692 | "Without Carefulness"
 
-> I would have you without carefulness.
-> 1 Corinthians 7:32
+> I would have you without carefulness.  
+> 1 Corinthians 7:32  
 
 At the time when Paul wrote these words he was giving judgment as to whether it was expedient for Christians in those days to marry. The question was whether they were likely to be better Christians married or unmarried. This was a question of much delicacy and Paul answered it with remarkable discretion and fidelity. And, in so doing, he laid down a great general principle which is of much more value to the church, today, than Paul's private opinion about the matter of marriage or non-marriage. Paul tells us that concerning virgins, he had no commandment of the Lord, but gave his judgment as one that had obtained mercy of the Lord to be faithful, he did not speak, in this case, as under divine inspiration, but as an experienced and consecrated man giving his judgment for the good of others, and for the benefit of the great work so dear to him.
 
@@ -79,10 +79,10 @@ The next thing is, if you would be without carefulness, be quite content with th
 
 And I believe, and I speak experimentally, that when you are racked with pain, if God teaches you to submit, (and it is often a hard lesson), you can suffer in every limb and yet sing in your inmost soul! This is the way to live without carefulness, first, not to meet trouble before it comes and, next, when it does come, to be content, saying, "It is the Lord: let Him do what seems good to Him." The next thing is to be quite sure about the love of God. He cannot make a mistake and He cannot fail His people. If the worst thing, as it seems to us, should happen, it must be the right thing because God has sent it! Be sure, also, that when our needs come, God's supplies will come, too. The Lord is bound by His own promise to provide for all the real necessities of those who trust in Him. Oh, that we did thoroughly know God and did fully believe in Him! Then would our peace be as a river, and our joy like that of birds when the sun is rising. Then should we sing:
 
-> I have no cares,
-> blessed Lord,
-> For all my cares are Thine!
-> 1 live in triumph, too, for You Have made Your triumphs mine!
+> I have no cares,  
+> blessed Lord,  
+> For all my cares are Thine!  
+> 1 live in triumph, too, for You Have made Your triumphs mine!  
 
 Another sweet thing would help us to be without care and that is to believe fully in the power of prayer, and in the fact that God does actually answer it. God will grant His children's desires and answer their prayers! We constantly meet with instances in which God does most manifestly come to the help of those that walk before Him aright. I personally met this week with a notable case. A dear sister is left a widow, with three children. She wonders what she shall do for the morning's bread. There is none in the house. She thinks to herself that she formerly kept shop and that she has a few goods left, a little stained and soiled, but still saleable at a price. She goes into her room and prays God, in her agony of soul, to direct her to a customer. To her delight a person asks her whether she kept shop, once, at such-and-such a road.
 
