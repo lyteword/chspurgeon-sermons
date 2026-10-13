@@ -1,7 +1,7 @@
 # Sermon 1621 | The Ark of the Covenant
 
-> And it shall come to pass, when you are multiplied and increased in the land, in those days, says the Lord, they shall say no more, The ark of the co venant of the Lord: neither shall it come to mind: neither shall they remember it; neither shall they visit it; neither shall that be done any more.
-> Jeremiah 3:16
+> And it shall come to pass, when you are multiplied and increased in the land, in those days, says the Lord, they shall say no more, The ark of the co venant of the Lord: neither shall it come to mind: neither shall they remember it; neither shall they visit it; neither shall that be done any more.  
+> Jeremiah 3:16  
 
 This text speaks concerning the material ark. I should like to append to that another which speaks of the ark spiritually and tells us where its antitype is to be found: "And the temple of God was opened in Heaven and there was seen in His temple the ark of His testament (or covenant) "Revelation 1119.
 
@@ -91,15 +91,15 @@ And, next, if we should ever grow dull or cold at any time, let us take the thir
 
 If I have not this enjoyment now, I will remember it and struggle till I find my Lord again. O my Lord, I will remember You. If I forget You, let my heart forget to beat
 
-> Gethsemane, can I forget?
-> Or there Your conflict see,
-> Your agony and bloody sweat,
-> And not remember Thee!
-> When to the Cross I turn m eyes,
-> And rest on Calvary,
-> Lamb of God! My Sacrifice!
-> 1 must remember Thee. Remember You and all Your pains, And all Your love to me.
-> Yes, while a breath, a pulse remains, Will I remember Thee.
+> Gethsemane, can I forget?  
+> Or there Your conflict see,  
+> Your agony and bloody sweat,  
+> And not remember Thee!  
+> When to the Cross I turn m eyes,  
+> And rest on Calvary,  
+> Lamb of God! My Sacrifice!  
+> 1 must remember Thee. Remember You and all Your pains, And all Your love to me.  
+> Yes, while a breath, a pulse remains, Will I remember Thee.  
 
 O memory, leave no other name than that of Jesus recorded upon your tablets! Let us sometimes set apart a little space for the exercise of our memory. It is good for children at school to have their memories trained. Should not we sometimes, especially we who speak so much, get alone and sanctify our memory by going over all the blessings of the Covenant which come to us by Christ. All the glory of His Person and all the wonders of His work? Oh, yes, we must remember it!
 
