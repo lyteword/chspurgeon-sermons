@@ -1,7 +1,7 @@
 # Sermon 1596 | Hearken and Look; or, Encouragement for Believers
 
-> Look unto Abraham your father, and unto Sarah that bare you: for I called him alone, and blessed him, and increased him. For the Lord shall comfort Zion: he will comfort all her waste places; and he will make her wilderness like Eden, and her desert like the garden of the Lord; joy and gladness shall be found therein, thanksgiving, and the voice of melody.
-> Isaiah 51:2-3
+> Look unto Abraham your father, and unto Sarah that bare you: for I called him alone, and blessed him, and increased him. For the Lord shall comfort Zion: he will comfort all her waste places; and he will make her wilderness like Eden, and her desert like the garden of the Lord; joy and gladness shall be found therein, thanksgiving, and the voice of melody.  
+> Isaiah 51:2-3  
 
 The second verse contains my actual text. It is the argument by which faith is led to look for the blessings promised in the third verse.
 
