@@ -1,13 +1,13 @@
 # Sermon 1683 | The Great Cross-bearer and His Followers
 
-> And when they had mocked Him, they took off the purple from Him, and put His own clothes on Him, and led Him out to crucify Him.
-> Mark 15:20
+> And when they had mocked Him, they took off the purple from Him, and put His own clothes on Him, and led Him out to crucify Him.  
+> Mark 15:20  
 
-> "And He, bearing His Cross, went forth."
-> John 19:17.
+> "And He, bearing His Cross, went forth."  
+> John 19:17.  
 
-> "And they compelled one Simon, a Cyrenian who passed by, coming out of the country, the father of Alexander and Rufus, to bear the Cross."
-> Mark 15:21.
+> "And they compelled one Simon, a Cyrenian who passed by, coming out of the country, the father of Alexander and Rufus, to bear the Cross."  
+> Mark 15:21.  
 
 When our Lord had been condemned to die, the execution of His sentence was hurried. The Jews were in great haste to shed His blood. So intense was the enmity of the chief priests and Pharisees, that every moment of delay was wearisome to them. Besides, it was the day of the Passover and they wished to have this matter finished before they went, with hypocritical piety, to celebrate the festival of Israel's deliverance! We do not wonder at their eagerness, for they could not bear themselves while He lived, since His very presence reproved them for their falsehood and hypocrisy.
 
@@ -37,10 +37,10 @@ Let us draw near to our Lord for a while and carefully observe each instructive 
 
 Is not this highly probable? Surely if the thorny crown had been withdrawn, this would have been the place to have said, "They took off the purple from Him and removed the crown of thorns." But it is not so written and, therefore, we may believe that the sorrowful coronet remained upon Him. Pilate wrote upon his accusation, "the King of the Jews," and it was not unfitting that He should continue to wear a crown. Jesus died a crowned monarch, King of the curse! The Lord God in justice said to rebel man, "Cursed is the ground for your sake: thorns, also, and thistles shall it bring forth to you." And lo, the man by whom we are redeemed is crowned with that product of the earth which came of the curse:
 
-> O sacred head surrounded
-> By crown of piercing thorn!
-> O bleeding head, so wounded,
-> Reviled and put to scorn.
+> O sacred head surrounded  
+> By crown of piercing thorn!  
+> O bleeding head, so wounded,  
+> Reviled and put to scorn.  
 
 Probably also, as I have said, He was bound, for they led Him as a sheep to the slaughter. But this binding was probably more abundant than that which we have hinted at, if it is, indeed, true that by Roman custom criminals were bound with cords to the cross which they were doomed to carry. If this was the case, you may picture our Lord with His Cross hound to Himself and hear Him say, "Bind the sacrifice with cords, even to the horns of the altar." But the chief point to be noted is that Jesus wore His own clothes, the usual garments which He was accustomed to wear and this, no doubt, for identification, that all who looked on might know that it was the same person who had preached in their streets and had healed their sick. They were under no misapprehension, they knew that it was Jesus of Nazareth, the keen hate of the scribes and Pharisees would not have permitted any substitution of another. It was none other than He and His garments were the ensigns of that truth.
 
