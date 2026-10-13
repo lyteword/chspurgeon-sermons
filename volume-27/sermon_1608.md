@@ -1,7 +1,7 @@
 # Sermon 1608 | The Double "Come"
 
-> And the Spirit and the bride say, Come. And let him that hears say, Come.
-> Revelation 22:17
+> And the Spirit and the bride say, Come. And let him that hears say, Come.  
+> Revelation 22:17  
 
 We have open before us the last page of the Word of God. The Spirit of God will not dictate a single fresh line of Truth. We have come to the last chapter and very soon we shall reach the Amen! We are also, according to Divine Revelation, approaching the last page of human history. So short a time will elapse before the present economy shall conclude that the angel says, "Seal not the sayings of the prophecy of this Book: for the time is at hand." How shall the Book finish? If we have come almost to its last verse, how shall it conclude? If we could have been asked by the great Spirit of God, "How shall it close?" what would have been our reply? We must certainly have left it entirely to His infinite wisdom, but what suggestions might we have made?
 
@@ -83,10 +83,10 @@ All of you who believe in Jesus are God's clergy and are authorized to speak the
 
 But this verse is more than a permission, it is a commission! It means that the hearing man ought to speak and this he should do personally. The text does not say, "Let them that hear say, Come," for what is everybody's business is nobody's business. No, it says, "Let him that hears say, Come", that is to say, each man who knows the Gospel in his heart is bound to say, "Come." When is he bound to say it? Why, now, at once! Let him that hears say, "Come," upon the first opportunity that presents itself! And when is he to stop saying it? Never at all! Let him that hears still say, "Come." Let him begin to say it as soon as he has heard it! Let him keep on saying it as long as He lives!
 
-> His only righteousness I show, His saving truth proclaim.
-> 'Tis all my business here below
-> To cry, 'Behold the Lamb!' Happy, if with my latest breath I may but gasp His name. Preach Him to all, and cry in death,
-> Behold, behold the Lamb!'
+> His only righteousness I show, His saving truth proclaim.  
+> 'Tis all my business here below  
+> To cry, 'Behold the Lamb!' Happy, if with my latest breath I may but gasp His name. Preach Him to all, and cry in death,  
+> Behold, behold the Lamb!'  
 
 This is your commission. Mind that you attend to it. O you commissioned officers of Christ, see that you sound aloud your Master's Word!
 
