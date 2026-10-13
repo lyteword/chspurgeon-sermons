@@ -1,7 +1,7 @@
 # Sermon 1585 | Truthfulness
 
-> O Lord, are not Your eyes upon the truth?
-> Jeremiah 5:3
+> O Lord, are not Your eyes upon the truth?  
+> Jeremiah 5:3  
 
 The allusion is not to doctrinal Truth of God, or truth in the abstract, but to practical truth as it should exist in the hearts and lives of men. It might be read, "Lord, are not Your eyes upon truthfulness?" Or, "upon faithfulness?" The Lord bade them produce a single truthful man in all Jerusalem and Jeremiah answers that if truth were to be found, the Lord Himself best knew where it was, for His eyes were always upon it. In this chapter you must have noticed, when I was reading it, that we have a fearful description of the condition of things in the days of the Prophet Jeremiah. We have also a most melancholy set of pictures of untruthful men which are drawn to the life with a grimly graphic touch which strangely reminds me of the series of Hogarth's sketches known as, "the Rake's Progress." They hold the mirror up not only to the life, but to the heart of the men of the times.
 
@@ -57,9 +57,9 @@ The same holds good in reference to faith. A man may say, "I believe," as thousa
 
 Are you truly and sincerely believing in God and God's Word and God's Son and God's Gospel? If not, all your professed faith is useless! True faith the Lord accepts and smiles upon, but it is a real thing and dwells deeper down than the lips and the throat. As to love to Christ, you know how very easy it is to sing sweet hymns about love to Jesus and yet how few are living so as to prove their attachment to the Redeemer. We say
 
-> O love Divine, how sweet You are!
-> When shall I find my willing heart
-> All taken up by You?
+> O love Divine, how sweet You are!  
+> When shall I find my willing heart  
+> All taken up by You?  
 
 But are we knit to Jesus? Is it heart-work? Does our very soul cleave to Jesus? Do we follow after Him as the thirsty hart after the water brook, resolved to find Him and to abide by Him, or to die in the attempt?
 
