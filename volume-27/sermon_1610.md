@@ -1,7 +1,7 @@
 # Sermon 1610 | A Miniature Portrait Of Joseph
 
-> The Lord was with Joseph.
-> Genesis 39:2
+> The Lord was with Joseph.  
+> Genesis 39:2  
 
 Scripture frequently sums up a man's life in a single sentence. Here is the biography of Joseph sketched by Inspiration: "God was with him," so Stephen testified in his famous speech recorded in Acts 7:9. Here is the life story of Abraham: "Abraham believed God." Of Moses, we read, "The man Moses was very meek." Take a New Testament life, such as that of John the Baptist, and you have it in a line: "John did no miracles, but all things that he spoke concerning Jesus were true." The mere name of John: "that disciple whom Jesus loved". Would serve for an epitaph of him. It pictures both the man and his history. Holy Scripture excels in this kind of full-length miniature paintings! Michelangelo is said to have drawn a portrait with a single stroke of his crayon and so the Spirit of God sketches a man's life in a single sentence: "The Lord was with Joseph."
 
