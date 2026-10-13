@@ -1,7 +1,7 @@
 # Sermon 1719 | The Tent Dissolved and the Mansion Entered
 
 > For we know that if our earthly house of this tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens.  
-> 2 Corinthians 5:1
+> 2 Corinthians 5:1  
 
 Paul ranks among the bravest of the brave. We note, also, with admiration, how the hero of so many dangers and conflicts, who could glow and burn with fervor, was yet among the calmest and quietest of spirits. He had learned to live beyond those present circumstances which worry and disturb. He had stolen a march upon the shadows of time and entered into possession of the realities of eternity! He looked not on the things which are seen, but he set his whole regard on the things which are not seen, and by this means he entered into a deep and joyful peace which made him strong, resolute, steadfast, immovable. I would to God that we had all acquired Paul's art of being "always confident", his habit of having the inward man renewed day by day!
 
@@ -27,7 +27,7 @@ A house of solid masonry may need a crowbar and a pick to remove its stones from
 
 Is it not a wonderful thing that we continue to live? Much more wonderful than that we should die? Dr. Watts has wisely said:
 > Our life contains a thousand springs, and dies if one is gone.  
-> Strange that a harp of thousand strings Should keep in tune so long!   
+> Strange that a harp of thousand strings Should keep in tune so long!  
 
 Some small affair interferes with a minute valve or organ of secretion, mischief is engendered by it, the whole current of life is hindered and, by-and-by, death ensues. It is a very delicate process by which dust remains animated! A thousand things can stop the process and then our body is dissolved! Paul, therefore, because he saw his body to be frail as a bubble, looked forward to the time when the earthly house of his soul would be dissolved. When he was writing this Epistle, he had many signs about him that his body would be dissolved. His many labors were telling upon him. He was worn down with fatigue. He was spent in his Master's service.
 
