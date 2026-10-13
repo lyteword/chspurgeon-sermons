@@ -1,7 +1,7 @@
 # Sermon 1743 | A Loving Entreaty
 
 > Put Me in remembrance: let us plead together: declare you, that you may be justified.'  
-> Isaiah 43:26
+> Isaiah 43:26  
 
 We shall mainly dwell upon the first invitation of the text: "Put Me in remembrance." If you will cast your eyes upon the Scripture, itself, you will be struck with its singular position, it makes a paradox of the most striking kind if you read it in connection with the preceding clause: "I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins. Put Me in remembrance." This looks like a contradiction, but, as a wise teacher will win attention by dark sayings, so does the Word of God abound in expressions by which thought is excited and the lesson is more deeply impressed upon the mind. Many are the paradoxes of the Prophets and of the Lord and Leader of all the Prophets. Who can read without attention two such sentences as these in succession, "I will not remember your sins," and, "Put me in remembrance"?
 
@@ -93,8 +93,8 @@ God is magnified in the work of Grace, for it is His from top to bottom! In the 
 
 Thus have I tried to plead with you for the Lord, wishing only your good and His Glory! I am very conscious of my own weakness, much more so, perhaps, than ever I was in my life, but yet I expect to succeed with many of you! What am I apart from the Spirit of all Grace? What am I but as a sounding brass and as a tinkling cymbal? And yet I am not feebler than other servants of God in this respect, for we are all nothing apart from the Spirit:
 > Till God diffuse His Graces down,  
-> Like showers of heavenly rain,   
-> In vain Apollos sows the ground,   
-> And Paul may plant in vain.   
+> Like showers of heavenly rain,  
+> In vain Apollos sows the ground,  
+> And Paul may plant in vain.  
 
 Blessed be God we shall not plant in vain, for He is with us! Some of you have received the message and I shall hear from you soon. Let it sink into the spirits of all of you. Do you feel any degree of softness creeping over you? Yield to it! It is the blessed Spirit now inclining you to repent, making you feel serious and thoughtful, anxious and desirous. Bow before His heavenly breath as the rush by the river yields to the wind! Yours shall be the benefit, but to the sweet Spirit of Love, together with the Father and the Son, shall be Glory forever and ever! Amen and Amen!
