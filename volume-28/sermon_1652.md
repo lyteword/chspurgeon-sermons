@@ -1,7 +1,7 @@
 # Sermon 1652 | The Singing Pilgrim
 
-> Your statutes have been my songs in the house of my pilgrimage.
-> Psalm 119:54
+> Your statutes have been my songs in the house of my pilgrimage.  
+> Psalm 119:54  
 
 The one hundred and nineteenth Psalm is said, by many, to consist of detached sentences and to be rather a casket of gold rings than a chain of united golden links, yet the position of this verse is somewhat remarkable, for the verse before it runs thus: "Horror has taken hold upon me because of the wicked that forsake Your law." Most of you know for yourselves what that sentence means, for if you hear a man swear in the streets, your blood runs chill with horror. And when you think of what has been said by blasphemers against the person of our divine Lord and against the divine truths of Revelation, you are horrified that men should have had the audacity to think, much less to say, such wicked things against the Most High God.
 
