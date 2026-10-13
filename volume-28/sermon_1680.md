@@ -1,7 +1,7 @@
 # Sermon 1680 | Bochim, Or, the Weepers
 
-> And it came to pass, when the Angel of the Lord spoke these words unto all the children of Israel, that the people lifted up their voice, and wept. And they called the name of that place Bochim: and they sacrificed there unto the Lord.
-> Judges 2:4, 5
+> And it came to pass, when the Angel of the Lord spoke these words unto all the children of Israel, that the people lifted up their voice, and wept. And they called the name of that place Bochim: and they sacrificed there unto the Lord.  
+> Judges 2:4, 5  
 
 Let me give an outline of the chapter, that we may put the text into its proper setting. God had brought His people out of Egypt and divided Jordan that they might march through, dry-shod, into the land which He had promised to their fathers. He charged them to drive out the Canaanites, a race that had become so loathsome in God's sight that He decreed their destruction and appointed the tribes of Israel to be their executioners. It was for the good of the universal world that this pest-house should be broken up and that the filthy races should be destroyed, and God gave His people that charge to carry out.
 
@@ -83,8 +83,8 @@ We have numbers around us of that kind. What shall I call them, men of wax? Crea
 
 All that readiness to cry, all that readiness to receive the Word of God with joy and to leap at once into faith may be nothing but mental weakness. Some men weep profusely because they have been drunk and that gives them a drop in their eye, this is a miserable business! I like the strong man who cries within and is weary of the visible rain showers. I know really tender-hearted men who could not shed a tear for their lives, but feel a far deeper anguish than those whose griefs are shallow and watery. It is very beautiful to talk of the tears streaming down their faces, but many converts have never shed a tear and, perhaps, never will. But this does not prove that they are not converted, far from it, the tear is but a natural drop of moisture and soon evaporates! The better thing is the inward torrent of grief within the soul which leaves an indelible mark within. You know how we sang just now:
 
-> Tears, though flowing like a river, Never can one sin erase; Jesus' tears would not avail you, Blood, alone, can meet your case; Fly to Jesus!
-> Life is found in His embrace.
+> Tears, though flowing like a river, Never can one sin erase; Jesus' tears would not avail you, Blood, alone, can meet your case; Fly to Jesus!  
+> Life is found in His embrace.  
 
 One grain of faith is better than a gallon of tears. A drop of genuine repentance is more precious than a torrent of weeping.
 
