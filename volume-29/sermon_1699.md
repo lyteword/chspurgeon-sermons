@@ -7,8 +7,8 @@ I was sitting about a fortnight ago in a very lovely garden, in the midst of all
 
 It is not an unnatural supposition, surely; for if we may truly sing
 
-> We are a garden walled around,   
-> Chosen and made peculiar ground,   
+> We are a garden walled around,  
+> Chosen and made peculiar ground,  
 
 that enclosure needs a gardener. Are we not all the plants of his right hand planting? Do we not all need watering and tending by his constant and gracious care? He says, "I am the true vine: my Father is the husbandman," and that is one view of it; but we may also sing, "My well-beloved hath a vineyard in a very fruitful hill: and he fenced it, and gathered out the stones thereof, and planted it with the choicest vine", that is to say, he acted as gardener to it. Thus has Isaiah taught us to sing a song of the Well-beloved touching his vineyard. We read of our Lord just now under these terms, "Thou that dwellest in the gardens, the companions hearken to thy voice." To what purpose does he dwell in the vineyards but that he may see how the vines flourish and care for all the plants? The image, I say, is so far from being unnatural that it is most pregnant with suggestions and full of useful teaching. We are not going against the harmonies of nature when we are "supposing him to be the gardener."
 
