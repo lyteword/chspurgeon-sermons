@@ -1,7 +1,7 @@
 # Sermon 1587 | Jesus At a Standstill
 
-> And Jesus stood still.
-> Mark 10:49
+> And Jesus stood still.  
+> Mark 10:49  
 
 A friend enquired of me yesterday, "Will you preach on Sunday morning to saints or to sinners?" I could not, at the moment, answer him, but afterwards I thought to myself. If I preach concerning Jesus Christ, our Lord and Savior, I shall kill two birds with one stone and give both saints and sinners a profitable theme for thought. There is but one message of the Gospel and it has a voice to all. Saints know no sweeter music than the name of Jesus and sinners know no richer comfort than His Person and His work. We preach to all when we preach Him who is All in All. Christ comes as life to the dead and He is equally life to the living.
 
@@ -51,14 +51,14 @@ The blind beggar of Jericho had learned to use the name of Jesus and he called H
 
 I suppose the main thing which brought our gracious Master to a standstill was the fact that He had now an opportunity for doing good. Jesus has come to seek His lost sheep and when His eyes light upon one all torn and lame, He stops to deal tenderly with it. Our Lord was an itinerant Savior and wherever He found that He was needed, there He stayed. The objective of His mission is still the same
 
-> He comes, from thickest films of vice,
-> To clear the mental ray.
-> And on the eyes of the blind
-> To pour celestial day.
-> He comes, the broken heart to bind,
-> The bleeding soul to cure.
-> And with the treasures of His Grace,
-> To enrich the humble poor.
+> He comes, from thickest films of vice,  
+> To clear the mental ray.  
+> And on the eyes of the blind  
+> To pour celestial day.  
+> He comes, the broken heart to bind,  
+> The bleeding soul to cure.  
+> And with the treasures of His Grace,  
+> To enrich the humble poor.  
 
 Certain people in His day boasted that they could see, our Lord did not tarry to argue with them, they did not want Him and He, therefore, passed them by. But here is a blind man and was it not said of the Messiah that He should open the eyes of the blind? Here is the opportunity for Him and before that opportunity He stands still until His illuminating work shall be done!
 
@@ -66,18 +66,18 @@ You good people who imagine that you will go to Heaven by your own works, my Lor
 
 He turns indignantly from fancied claims of proud, self-righteous men, but He hastens to relieve those who confess their faults and seek His face. This is the work and office of Jesus, and He loves to exercise His high calling! Come to Him and put your case into His hands. Be this your prayer
 
-> Since You still go about to do
-> Your needy creatures good,
-> On me, that I, Your praise may show,
-> Be all Your wonders showed.
-> If You, my God, are passing by,
-> Oh let me find You near!
-> Jesus, in mercy hear my cry,
-> You, Son of David, hear!
-> Behold me waiting, in the way,
-> For You, the heavenly light!
-> Command me to be brought, and say,
-> 'sinner, receive your sight.'
+> Since You still go about to do  
+> Your needy creatures good,  
+> On me, that I, Your praise may show,  
+> Be all Your wonders showed.  
+> If You, my God, are passing by,  
+> Oh let me find You near!  
+> Jesus, in mercy hear my cry,  
+> You, Son of David, hear!  
+> Behold me waiting, in the way,  
+> For You, the heavenly light!  
+> Command me to be brought, and say,  
+> 'sinner, receive your sight.'  
 
 Thus I have tried to show what was the power which riveted the Savior to the spot so that the Gospel says, "Jesus stood still."
 
@@ -85,14 +85,14 @@ Under our third head we shall now enquire. What was there special about this bli
 
 Ah, you doubly lost one, Jesus will stand still for you! You who are blind and poverty-stricken, too, shall have speedy audience! You that have nothing and can see no hope of ever having anything. You are the favored ones whose pleading voices Jesus never disregards! Cry mightily to Him at once! He waits at this moment. "Why," says one, "you are preaching up our poverty, our begging, our bankruptcy." Exactly so
 
-> 'Tis perfect poverty alone
-> That sets the soul at large.
-> While we can call one mite our own
-> We get no full discharge.
-> But let our debts be what they may,
-> However great or small,
-> As soon as we have naught to pay,
-> Our Lord forgives us all!
+> 'Tis perfect poverty alone  
+> That sets the soul at large.  
+> While we can call one mite our own  
+> We get no full discharge.  
+> But let our debts be what they may,  
+> However great or small,  
+> As soon as we have naught to pay,  
+> Our Lord forgives us all!  
 
 But there was another specialty about this man besides his double need and that was his strong desire. When he sought for sight he meant it and there was no question about his sincerity and eagerness. His was no prayer which froze on the lips.
 
