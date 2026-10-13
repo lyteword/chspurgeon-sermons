@@ -76,13 +76,13 @@ Here let me enquire whether you belong to the company upon whom the Divine bless
 
 He is our Trustee, holding the heritage for us and this is the form of our tenure, "joint-heirs with Christ." How precious, then, is our union with Him! Of what vital importance is it to be bound up in the bundle of life with Him! As without Him we can do nothing, without Him we can possess nothing. In Him we have already received a thousand blessings in actual experience and in Him there is laid up a boundless supply for future enjoyment. At the thought of this let our hearts sing hallelujahs! In the spirit of sonship let us reverence the Father of our spirits who is also the Father of mercies and the God of all consolation. Blessed, forever blessed, be the Lord God of Heaven and earth, for His unutterable goodness to His chosen in the Person of His dear Son. Let us sing unto Him:
 > O measureless might!  
-> Ineffable love!   
-> While angels delight   
-> To hymn You above,   
-> The humbler creation,   
-> Though feeble their lays,   
-> With true adoration   
-> Shall lisp to Your praise.   
+> Ineffable love!  
+> While angels delight  
+> To hymn You above,  
+> The humbler creation,  
+> Though feeble their lays,  
+> With true adoration  
+> Shall lisp to Your praise.  
 
 Thirdly and briefly, let us observe the first outflow of these heavenly blessings. The fountain of eternal love bursts forth in our election, "According as He has chosen us in Him before the foundation of the world." Consider these words, one by one. The first is, He has chosen, God has a will and a choice in the matter of salvation! Some people do not like this doctrine, but they must have it whether they like it or not, or else they must reject the Words of Inspiration! Is man's will to be deified? Is the whole result of the scheme of salvation to depend upon the creature's choice? God forbid! The Father has made a choice of some men unto eternal life, these He has given to His Son Jesus, all these the Lord Jesus has redeemed with His own blood and pledged Himself to bring them to Glory. Has He not said, "All that the Father gives Me shall come to Me?"
 
@@ -90,7 +90,7 @@ God has made a choice, then, and you who are Believers in Christ may rest assure
 
 The next words are, "He has chosen us." Herein is Grace, indeed! What could there be in us that the Lord should choose us? Some of us feel ourselves the most unworthy of the unworthy and we can see no trace of a reason for our being chosen. So far from being choice men in our own esteem, we feel ourselves, by nature, to be the very reverse. But if God has chosen us, then let our hearts love Him, our lips extol Him, our hands serve Him and our whole lives adore Him:
 > Loved of my God, for Him again With love intense I burn! Chosen of You before time began,  
-> I choose You in return.   
+> I choose You in return.  
 
 Then we are told He has chosen us in Christ Jesus. He first chose Christ as the Head and then looked through Christ upon us and chose us to be members of Christ's mystical body. We are, none of us, chosen apart from Jesus Christ, but we are chosen in Christ, loved in Christ, given to Christ, united to Christ and accepted in Christ. This is a blessed way of being chosen, for none can separate us from Christ and, consequently, till the Father changes His choice of Christ, He cannot and will not reverse His choice of His people! Until Christ ceases to be God's elect, the Father can never cast away those who are chosen in Christ Jesus!
 
