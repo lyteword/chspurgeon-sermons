@@ -1,7 +1,7 @@
 # Sermon 1673 | Who Is This?
 
-> For who is this that engaged His heart to approach unto Me? says the Lord.
-> Jeremiah 30:21
+> For who is this that engaged His heart to approach unto Me? says the Lord.  
+> Jeremiah 30:21  
 
 I mentioned in the reading that there is a very remarkable change of tone in the book of Jeremiah, at the thirtieth chapter. You read on through the 29 chapters and you hear nothing but "a weeping and wailing," while the prophet stands before you, girt with sackcloth, bidding Israel, "lament and howl: for the fierce anger of the Lord is not turned back from us." When you come to the middle of the thirtieth chapter, all is changed, you have left the dungeon for the pleasant meads and you hear "thanksgiving and the voice of them that make merry." Here flowers of promise glorify the fields and birds of praise sweeten the air with music. The people are first made to tremble and fear on account of sin and all faces are turned into paleness, and then the Lord declares His immeasurable grace, saying, "I am with you to save you: though I make a full end of all nations where I have scattered you, yet will I not make a full end of you."
 
@@ -83,10 +83,10 @@ Tune your harps, you angels! Make this Sabbath on which we think of this sublime
 
 And now, today, beloved, Jesus Christ rejoices to think that He has approached unto God on our behalf and made eternal amity between God and man! Let us rejoice with Him! Let us become happy in fellowship with our God:
 
-> 'Tis finished all; the veil is rent,
-> The welcome sure, the access free;
-> Now then, we leave our banishment,
-> O Father, to return to Thee!
+> 'Tis finished all; the veil is rent,  
+> The welcome sure, the access free;  
+> Now then, we leave our banishment,  
+> O Father, to return to Thee!  
 
 This is the joy of Christ's heart forever! He welcomes our return to God! He is glad when our communion is hearty and continuous! By His Holy Spirit He draws us near! Blessed be His name!
 
@@ -104,10 +104,10 @@ This bliss comes to those of us who rejoice in Christ Jesus and have no confiden
 
 But what, or who is this? Where is a treasure meet for sacrifice? Then Curtius, a belted knight, mounted his charger and, rightly judging that valor and love of country were the noblest treasures of Rome, he leaped into the gulf! The yawning earth closed upon a great-hearted Roman, for her hunger was appeased. Perhaps it is but an idle tale, but what I have declared is the truth of God! There gaped between God and man a dread abyss, deep as Hell, wide as eternity and only the best thing that Heaven contained could fill it! That best thing was He, the peerless Son of God, the matchless, perfect man and He came, laying aside His glory, making Himself of no reputation. And He sprang into the gulf which then and there closed, once and for all!:
 
-> Down from the shining seats above With joyful haste He fled, Entered the grave in mortal flesh, And dwelt among the dead. Oh, for this love let rocks and hills
-> Their lasting silence break
-> And all harmonious human tongues
-> The Savior's praises speak.
+> Down from the shining seats above With joyful haste He fled, Entered the grave in mortal flesh, And dwelt among the dead. Oh, for this love let rocks and hills  
+> Their lasting silence break  
+> And all harmonious human tongues  
+> The Savior's praises speak.  
 
 One great result of Christ's having died is to leave us a way of access which is freely opened to every poor, penitent sinner. Come! Are you using that way of access? Do you use it every day? Having used it and thus having drawn near to God, do you dwell near to God? Do you abide in God? Is God the main thought of your life, the chief delight and object of your being? If it is not so, I earnestly invite you, by the Spirit's help, to make it so. You must engage your heart to come to God in Christ. There is no coming to God without sincere resolve and eager desire. Are you engaged to such an end? Alas, it may be you are drawn elsewhere. Are you engaged? Alas, some are engaged to madame bubble! Some are engaged to Belial! Some are engaged to self! Some are engaged to mammon! Some seem engaged to the very devil of Hell!
 
