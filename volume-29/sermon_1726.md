@@ -1,7 +1,7 @@
 # Sermon 1726 | Buying Without Money
 
 > He that has no money; come, buy, and eat.  
-> Isaiah 55:1
+> Isaiah 55:1  
 
 There is a semicolon in our translation, but we need not take notice of it. It should not be there, since the text is the second of two parallel sentences arranged according to the method of Hebrew poetry, "Ho, everyone that thirsts, come you to the waters, And he that has no money, come, buy, and eat." We have before us the figure of a merchant selling his wares and crying like a chapman in the market, "Ho!" To attract attention he calls aloud, "Come! Come! Come!" three times; and he adds to this the cry of, "Buy! Buy!" Shall the Great King thus liken Himself to a trader in the market, earnest to dispose of His goods? It is even so and I, therefore, call upon you to admire the mercy of the Lord! In the fifty-third and fifty-fourth chapters, this Divine Merchantman has been spreading out His wares. What treasures they are! Look at the fifty-third chapter, what do you see there?
 
