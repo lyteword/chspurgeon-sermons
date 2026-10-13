@@ -7,9 +7,9 @@ The servants of God were not left to originate a gospel for themselves, as certa
 
 Ye that would faithfully serve Christ note carefully how he taught his disciples what they were to preach. We find different descriptions of the subject of our preaching, but on this occasion it is comprised in two things, repentance and remission of sins. I am glad to find in this verse that old-fashioned virtue called repentance. It used to be preached, but it has gone out of fashion now. Indeed, we are told that we always misunderstood the meaning of the word "repentance"; and that it simply means a "change of mind," and nothing more. I wish that those who are so wise in their Greek knew a little more of that language, for they would not be so ready with their infallible statements. True, the word does signify a change of mind, but in its Scriptural connection it indicates a change of mind of an unusual character. It is not such a fitful thing as men mean when they speak of changing their minds, as some people do fifty times a day; but it is a change of mind of a deeper kind. Gospel repentance is a change of mind of the most radical sort, such a change as never was wrought in any man except by the Spirit of God. We mean to teach repentance, the old-fashioned repentance, too; and I do not know a better description of it that the child's verse:
 > Repentance is to leave  
-> The things we loved before,   
-> And show that we in earnest grieve   
-> By doing so no more.   
+> The things we loved before,  
+> And show that we in earnest grieve  
+> By doing so no more.  
 
 Let every man understand that he will never have remission of sin while he is in love with sin; and that if he abides in sin he cannot obtain the pardon of sin. There must be a hatred of sin, a loathing of it, and a turning from it, or it is not blotted out. We are to preach repentance as a duty. "The times of this ignorance God winked at, but now commandeth all men everywhere to repent." "Repent, and be baptized every one of you in the name of Jesus Christ for the remission of sins." He that has sinned is bound to repent of having sinned: it is the least that he can do. How can any man ask God for mercy while he abides in his sin?
 
