@@ -1,7 +1,7 @@
 # Sermon 1665 | The Exceeding Riches of Grace
 
-> That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through Christ Jesus.
-> Ephesians 2:7
+> That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through Christ Jesus.  
+> Ephesians 2:7  
 
 From this verse it is clear that Paul fully expected the gospel of the grace of God to be preached in the ages to come. He had no notion of a temporary gospel to develop into a better, but he was assured that the same gospel would be preached to the end of the dispensation. Nor this alone, for as I take it, he looked to the perpetuity of the gospel, not only through the ages which have already elapsed since the first advent of our blessed Lord, but throughout the ages after He shall have come a second time. Eternity, itself will not improve upon the gospel. When all the saints shall be gathered home they shall still talk and speak of the wonders of Jehovah's love in Christ Jesus! And in the golden streets they shall stand up and tell what the Lord has done for them to listening crowds of angels, principalities and powers.
 
