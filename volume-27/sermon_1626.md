@@ -1,7 +1,7 @@
 # Sermon 1626 | The Principal Wheat
 
-> The principal wheat.
-> Isaiah 28:25
+> The principal wheat.  
+> Isaiah 28:25  
 
 The whole passage runs on this wise: "Give you ear, and hear my voice; hearken, and hear my speech. Does the plowman plow all day to sow? Does he open and break the clods of his ground? When he has made plain the face thereof, does he not cast abroad the fitches, and scatter the cummin, and cast in the principal wheat and the appointed barley and the spelt in its place? For his God does instruct him to discretion, and does teach him. For the fitches are not threshed with a threshing instrument, neither is a cart wheel turned about upon the cummin; but the fitches are beaten out with a staff, and the cummin with a rod. Bread corn is bruised; because he will not ever be threshing it, nor break it with the wheel of his cart, nor bruise it with his horsemen. This also comes forth from the Lord of Hosts, which is wonderful in counsel, and excellent in working."
 
@@ -31,14 +31,14 @@ Brothers and Sisters, the Eastern farmer knew that wheat was the most fitting fo
 
 If I can get my God, my Savior, I find my Heaven and my all. My soul sits down to a crumb of Truth concerning the Father, the Son and the Holy Spirit, and finds the greatest satisfaction in living upon it! The more we can know God, enjoy God and become like God, and the more Christ is our daily Bread, the more do we perceive the fitness of all this to the new-born soul. O Beloved, make that your principal thing which is the fittest theme for an immortal mind
 
-> Religion is the chief concern
-> Of mortals here below.
-> May I, its great importance learn,
-> Its sovereign virtue know!
-> More needful this than glittering wealth,
-> Or anything the world bestows.
-> Not reputation, food, or health,
-> Can give us such repose.
+> Religion is the chief concern  
+> Of mortals here below.  
+> May I, its great importance learn,  
+> Its sovereign virtue know!  
+> More needful this than glittering wealth,  
+> Or anything the world bestows.  
+> Not reputation, food, or health,  
+> Can give us such repose.  
 
 Moreover, this farmer was wise because he made the principal thing that which was the most profitable. Under certain circumstances, in our own country, wheat is not the most profitable thing which a man can grow. But, ordinarily, wheat is the best crop that the earth yields for general consumption and, therefore, the text speaks of "the principal wheat."
 
@@ -48,22 +48,22 @@ You will say it is a strange way of starting in business, but the believing sinn
 
 It is a wonderful business, this, in which bankrupts make fortunes, in which beggars rise to sit among princes!
 
-> 'Tis perfect poverty alone
-> That sets the soul at large;
-> While we can call one mite our own, We have no full discharge.
-> But let our debts be what they may,
-> However great or small,
-> As soon as we have naught to pay,
-> Our Lord forgives us all.
+> 'Tis perfect poverty alone  
+> That sets the soul at large;  
+> While we can call one mite our own, We have no full discharge.  
+> But let our debts be what they may,  
+> However great or small,  
+> As soon as we have naught to pay,  
+> Our Lord forgives us all.  
 
 Being freely discharged of our sins, we are, by overflowing Grace, greatly enriched, so that we number among our possessions Heaven itself, Christ Himself, God Himself! All things are ours! Oh, what a blessed trade it is to enter upon! There never was such a transaction as this, for when an empty sinner trades with a full Savior, he is, himself, filled with all the fullness of God! Assuredly this soul-enriching communion with Christ ought to be first upon our thoughts!
 
 Then let godliness be the principal wheat, for there is nothing so profitable! Godliness is profitable for the life that now is and for that which is to come. Godliness is a blessing to a man's body. It keeps him from drunkenness and vice. It is a blessing to his soul. It makes it sweet and pure. It is a blessing to him in every way. If I had to die like a dog, I would like to live like a Christian. If there were no hereafter, yet still, for comfort and for joy, give me the life of one that lives like Christ, or strives to do so! There is a practical everyday truth in the verse
 
-> 'Tis religion that can give
-> Sweetest pleasures while we live.
-> 'Tis religion must supply
-> Solid comfort when we die.
+> 'Tis religion that can give  
+> Sweetest pleasures while we live.  
+> 'Tis religion must supply  
+> Solid comfort when we die.  
 
 Only that religion must not be of the common sort, it must not be a vain profession, it must have for its root a hearty faith in Jesus Christ. See you to it. Religion must be either everything or nothing, either first or nowhere. Make it the principal thing and it will fill your soul with treasure. Thus, you see, the farmer was right in having a principal crop and in selecting the right seed to be his principal care.
 
