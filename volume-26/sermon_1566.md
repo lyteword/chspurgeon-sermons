@@ -1,7 +1,7 @@
 # Sermon 1566 | Cheer for the Worker and Hope for London
 
-> Then spoke the Lord to Paul in the night by a vision, Be not afraid, but speak and hold not your peace: for I am with you and no man shall set on you to hurt you: for I have much people in this city.
-> Acts 18:9,10
+> Then spoke the Lord to Paul in the night by a vision, Be not afraid, but speak and hold not your peace: for I am with you and no man shall set on you to hurt you: for I have much people in this city.  
+> Acts 18:9,10  
 
 It is clear from this, dear friends, that even he who was not a whit behind the chief of the apostles sometimes needed special comfort. It is possible that even the bravest of the brave may be afraid. Sinking of heart assailed even Samson while as yet the thousand slain lay in heaps around him. Moses was cast down in the desert and David on the throne. Even iron will melt, much more a heart of flesh. Remember the faintness of Elijah when he said, "Let me die, I am no better than my fathers," and recollect that this was a lion-like man, one of those ministers of God who are as a flame of fire! The second Elijah, he who rebuked Herod to his face, was sadly staggered while he lay in prison. John the Baptist sent to Jesus to inquire, "Are you He that should come?"
 
@@ -35,20 +35,20 @@ Sometimes the aversion which people display and the contempt which they profess 
 
 And as for christian people who are so very modest that they get out of the way of everything that is to be done for Christ, I do not know how they will answer for it to their superior Officer at the last. Come, dear Brother, you sang the other day,
 
-> Am I a soldier of the Cross,
-> A follower of the Lamb
-> And shall I fear to own His cause,
-> Or blush to speak His name?
+> Am I a soldier of the Cross,  
+> A follower of the Lamb  
+> And shall I fear to own His cause,  
+> Or blush to speak His name?  
 
 and so on and yet you are a coward? Yes, put it down in English; you are a coward! If anybody called you so, you would turn red in the face and perhaps you are not a coward in reference to any other subject. What a shameful thing it is that while you are bold about everything else you are cowardly about Jesus Christ! Brave for the world and cowardly towards Christ!! A christian ought to be afraid to be afraid, for His Lord has said, "Whoever, therefore, shall be ashamed of Me and of My words in this adulterous and sinful generation; of him, also, shall the Son of man be ashamed, when He comes in the glory of His Father with the holy angels."
 
 "Oh, but I am naturally timid," says one. It is to you, then, that the Lord's word is addressed:"Say to them that are of a fearful heart, Be strong, fear not." I have heard and I think I have observed that the bravest men in the hour of danger are timid in the prospect of it. They say that a fire-eater who dashes to the battle is often the man who fails, but he who stands trembling at the first shot, in his inmost soul dreading death, is, nevertheless, the very man to act the hero's part because he is so overpowered by a stern sense of duty that he masters fear and steadily keeps his position with cool, immovable resolve,
 
-> The brave man is not
-> He who feels no fear,
-> For that were stupid and irrational.
-> But he whose noble soul, its fear subdues,
-> And bravely bares the danger nature shrinks from.
+> The brave man is not  
+> He who feels no fear,  
+> For that were stupid and irrational.  
+> But he whose noble soul, its fear subdues,  
+> And bravely bares the danger nature shrinks from.  
 
 Up, then, you tremblers and play the man! In the matter of speaking for Jesus this should not be a severe ordeal. Oh, do not, I pray you, let timidity so check you that you cannot speak a word to your own children; cannot pray with your own girl, cannot plead as a father with your own boy, cannot speak as a neighbor or a fellow workman to the man who works side by side with you at the bench. May God help you to get out of the cold shade of cowardice, for the text says, "Be not afraid."
 
