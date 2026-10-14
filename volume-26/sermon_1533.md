@@ -1,7 +1,7 @@
 # Sermon 1533 | Fear Not
 
-> Fear not.
-> Revelation 1:17
+> Fear not.  
+> Revelation 1:17  
 
 "Fear not" is a plant which grows very plentifully in God's garden. If you look through the lily beds of scripture you will continually find, by the side of other flowers, the sweet," Fear nots" peering out from doctrines and precepts even as violets look up from their hiding among places of green leaves. "Fear nots" bloomed in the old times at the feet of Abraham when he returned from fighting with the kings. Melchisedec blessed him and the Lord comforted him. The patriarch might have been half afraid that he would always lead a troubled life, now that he had once drawn the sword. But the Lord came to him in vision and said," Fear not, Abram. I am your shield and your exceedingly great reward." If he had to undergo a soldier's toils, he should have a soldier's shield and a soldier's pay and both should be exceedingly great, for he should find them both in God!
 
@@ -21,10 +21,10 @@ Our first text you will kindly look for if you have your bibles with you. I hope
 
 Did you ever think of Jesus as divine and try to form some idea of His grandeur, His triumph and His exaltation above the thrones and principalities of heaven? As your soul has extolled Him and your mind has been expanded with high thoughts of the All-Glorious Son of God, has it not occurred to you to say within yourself, "How dare I think that He is my Beloved and that I am His? Could such majesty meet such misery? Could such glory bring itself into union with such insignificance as mine?''" I know you must have experienced that feeling and yet you must not yield to it, for our Lord Jesus, although He loves to see your holy awe, would not have that reverence freeze into a chill reserve or a slavish trembling! No, though He is divine, He invites you to approach Him without dread! Great as He is, you may dare to be free with Him,
 
-> Let us be simple with Him, then,
-> Not backward, stiff, or cold,
-> As though our Bethlehem could be
-> What Sinai was of old.
+> Let us be simple with Him, then,  
+> Not backward, stiff, or cold,  
+> As though our Bethlehem could be  
+> What Sinai was of old.  
 
 Let your Lord be glorious to you, but still let Him be near you. Exalt Him on His throne, but remember that you sit there with Him. However glorious He may be, He has desired that you may behold His glory and be with Him where He is. To you has He given to overcome and to sit upon His throne even as He has overcome and has sat down with the Father upon His throne. If you have studied the matchless purity of His character with adoring admiration, you must have been amazed at the absolute perfection of His Manhood and the glory of His moral and spiritual character. At such times, if you have had a true sense of your own position, you have been ready to sink into the dust and you have exclaimed, "Shall He wash my feet? Shall He give Himself for me? Can it be that He could have loved one so stained and polluted, so mean and so beggarly, so altogether unworthy even to live, much less to be loved by such an altogether
 
@@ -130,8 +130,8 @@ The angels will be pleased as you tell them, "Oh yes, we still went to the heave
 
 Oh, you that are brought very low, you have grand opportunities for honoring God if you will but trust Him. "Fear not." "Fear not.",
 
-> Fear not the loss of outward good, He will for His provide.
-> Give them supplies of daily food, And all they need beside.
+> Fear not the loss of outward good, He will for His provide.  
+> Give them supplies of daily food, And all they need beside.  
 
 And He will give you spiritual food, too. When God saves His people He gives them spiritual food to live upon till they get to heaven. God does not give us treatment like that which the Duke of Alva measured out to a city which had surrendered. He agreed to give the inhabitants their lives, but when they complained that they were dying of hunger, he maliciously replied, "I granted you your lives, but I did not promise you food." Our God does not talk so. He includes in the promise of salvation all that goes with it, and you shall have all you really need between here and heaven! Fear not!
 
