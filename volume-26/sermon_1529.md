@@ -1,7 +1,7 @@
 # Sermon 1529 | A Powerful Reason For Coming To Christ
 
-> A great multitude, when they had heard what great things He did, came unto Him.
-> Mark 3:8
+> A great multitude, when they had heard what great things He did, came unto Him.  
+> Mark 3:8  
 
 The opposition of the great ones of the earth did not, after all, hinder the cause of Christ. The Pharisees, who were the leaders of religious thought, combined with the Herodians, who were the court party, to destroy Jesus, but at the very moment when their wrath had reached its highest pitch the crowd about the Savior's person was greater than ever. Let us not, therefore, dear friends, be at all dismayed if great men and learned men and nominally religious men, should oppose the simple gospel of Christ! All the world is not bound up in a Pharisee's phylactery, nor held in chains by a philosopher's new fancy. If some will not have our Savior, others will; God's eternal purpose will stand and the kingdom of His anointed shall come.
 
@@ -65,9 +65,9 @@ There is no salvation in men! And ministers must not be mistaken for priests. I 
 
 These people were wise in not staying with the disciples, for they could not meet their varied needs. They did not rest in the society of the virgin mother, nor in that of Peter, or James, or John; they hastened at once to the Lord Jesus Himself to touch His blessed person for themselves. In this I would have you all imitate them. O that you would,
 
-> Steal away steal away to Jesus,
-> Steal away home
-> For Jesus waits to save you.
+> Steal away steal away to Jesus,  
+> Steal away home  
+> For Jesus waits to save you.  
 
 Go to no one else but Jesus, for the great things that He did and not the poor things that such worms as we are can ever do, should raise hope in your bosoms! Observe, again, that these people who came to Jesus in such crowds must have left their businesses. I do not know what became of their farms, their olive gardens, their cattle, their shops, but they certainly left them to journey to Jesus. We do not commend any man for neglecting his business and daily calling, but I will say this, that when a man's soul is not saved he cannot be blamed if he neglects everything till it is!
 
@@ -85,10 +85,10 @@ One thing I want to call very particular attention to is this; these poor people
 
 Are you a drunk? You have to give up the drink, but you must come to Him as you are to help you to give it up! Have you lived in uncleanness of life? Come and trust in Christ, unclean as you are; trust Him to make you pure! Have you been dishonest? Come to Him as dishonest, that He may make you honest! Do not attempt to make yourself fit for salvation, for it is clear that no one is so fit for saving as the lost; no one so fit for washing as the foul, no one so fit for healing as the sick! Come to the Savior! Come just as you are. Catch the spirit of the hymn,
 
-> Come needy and guilty,
-> Come loathsome and bare!
-> You can't come too filthy,
-> Come just as you are.
+> Come needy and guilty,  
+> Come loathsome and bare!  
+> You can't come too filthy,  
+> Come just as you are.  
 
 If you think that it is necessary to begin the work yourself, what is that but to insinuate that the Lord Jesus cannot do anything till you have started the work? Would you have it to be supposed that He is not quite up to the mark and needs help from you? Is He so poor a Savior that He is nothing till you enable Him to work? Think not so, but come along! You have heard what great things He has done, come, then, to Him even now, that the same great things may be worked in you!
 
