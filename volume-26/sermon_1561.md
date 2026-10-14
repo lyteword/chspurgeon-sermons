@@ -1,7 +1,7 @@
 # Sermon 1561 | Asleep and Yet Awake: a Riddle
 
-> I sleep, but my heart is awake: it is the voice of my Beloved that knocks.
-> Song of Solomon 5:2
+> I sleep, but my heart is awake: it is the voice of my Beloved that knocks.  
+> Song of Solomon 5:2  
 
 We are glad to perceive in this Song the varied experience of the bride. She was the well-beloved of the heavenly Bridegroom, but she was not without her faults. Though the "fairest among women," she was human and, therefore, she had not reached angelical perfection. She was not perfect, to begin with, for at the outset she confessed, "I am black, because the sun has looked upon me: they made me the keeper of the vineyards; but my own vineyard have I not kept." She was not perfect even in the exhibition of her love to Him who had chosen her, for she has to acknowledge, as upon the occasion before us, that she treated Him in an unworthy manner. She kept Him waiting at her door in the chilly night and grieved Him so that He withdrew. She was not perfect, even, to the end of the chapter, for she could not hear her Lord's voice so clearly as certain of her companions and she cried in the last chapter of her Song, "Cause me to hear it."
 
@@ -75,10 +75,10 @@ I'm in my own and others' eyes
 
 a labyrinth of mysteries." We are asleep and awake at the same time. As Erskine rhymes it,
 
-> Both sleeping flesh I have, that rests
-> In sloth unto my shame,
-> And waking Grace, that still protests
-> Against this lazy frame.
+> Both sleeping flesh I have, that rests  
+> In sloth unto my shame,  
+> And waking Grace, that still protests  
+> Against this lazy frame.  
 
 There is an inner life within every christian which can never die and there is about him an inward death which can never rise to life. Jesus said, "The water that I shall give him shall be in him a well of water springing up into everlasting life." Therefore this divine life, though it may grow weak and feeble and slumbering, yet never passes into the condition of absolute death, or even of complete insensibility. Somewhat of heaven is about the man of God when the earth encompasses him most. "Sin shall not have dominion over you"; God still has the throne, even when Satan rages most. This inward life usually shows itself in the uneasiness of the declining heart. When a believer feels that he is not what he ought to be, nor what he wants to be, he cannot be happy. He cannot rest and be content. There was a time when such a condition would have satisfied him, but now he is distressed beyond measure and, like Noah's dove, finds no rest for the sole of his feet. Hear him sing in the minor key:
 
