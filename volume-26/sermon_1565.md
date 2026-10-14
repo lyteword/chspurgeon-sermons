@@ -1,7 +1,7 @@
 # Sermon 1565 | Maschil Of Ethan, a Majestic Song
 
-> I will sing of the mercies of the Lord forever: with my mouth will I make known Your faithfulness to all generations. ForIhave said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens.
-> Psalm 89:1,2
+> I will sing of the mercies of the Lord forever: with my mouth will I make known Your faithfulness to all generations. ForIhave said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens.  
+> Psalm 89:1,2  
 
 This Psalm is one of the very choicest songs in the night. Midst a stream of troubled thoughts there stands a fair island of rescue and redemption which supplies standing room for wonder and worship while the music of the words, like the murmuring of a river, sounds sweetly in our ears! Read the Psalm carefully and it will awaken your sympathy, for he who wrote it was bearing bitter reproach and was almost broken-hearted by the grievous calamities of his nation. Yet his faith was strong in the faithfulness of God and so he sang of the stability of the divine covenant when the outlook of circumstances was dark and cheerless. Nor did he ever sing more sweetly than he sang in that night of his sorrow. Greatly does it glorify God for us to sing His high praises in storms of adversity and on beds of affliction. It magnifies His mercy if we can bless and adore Him when He takes, as well as when He gives.
 
@@ -111,7 +111,7 @@ We will go on exulting in God's mercy as long as we have any being and that shal
 
 We can never stop! We can never cease! But as the heavens are telling the glory of God and every star declares in wondrous diversity His praise, so where the stars differ from one another in the glory of God above, the saints shall be forever telling the story which shall remain untold, the love we knew, but which surpassed our knowledge, the grace of which we drank, but yet was deeper than our draughts! We will be telling of the bounty in which we swam until we seemed to lose ourselves in love; the favor which was still greater than our utmost conceptions and rose above our most eager desires. God bless you, brothers and sisters, and send you away singing,
 
-> All that remains for me
-> Is but to love and sing,
-> And wait until the angels come,
-> To bear me to my King!
+> All that remains for me  
+> Is but to love and sing,  
+> And wait until the angels come,  
+> To bear me to my King!  
