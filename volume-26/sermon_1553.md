@@ -1,7 +1,7 @@
 # Sermon 1553 | Faith Working By Love
 
-> Faith which works by love.
-> Galatians 5:6
+> Faith which works by love.  
+> Galatians 5:6  
 
 All ways of justification by human works and outward forms are set aside by the apostle. In one sentence he closes up every road which is cast up by man and opens up the way of the Lord, even the way of salvation by grace through faith in Christ Jesus. Some hope to be saved by ritualism; their hopes are struck hip and thigh by these words, "Neither circumcision avails anything." On the other hand, many are relying upon their freedom from all ceremonies and place their reliance upon a sort of anti-ritualism; they are struck by the words," nor uncircumcision." As Jews relied upon circumcision, so do many depend upon baptism and sacraments; to these the apostle gives no quarter. Others glory in uncircumcision, they have practiced no rites nor ceremonies, their mode of worship is plain even to unsightliness, free almost to disorder and of this they are apt to make a righteousness.
 
@@ -51,9 +51,9 @@ The bosom of Jesus Christ is the pillow of faith and the heart of God is the pav
 
 most opposed to Him would become His friends if you knew Him! It is not possible for a believer to be in Christ's company an hour without feeling his heart warmed. The pilgrims to Emmaus said, "Did not our hearts burn within us while He spoke with us by the way?" Those who have known and believed His love towards them must feel His spell upon their affections holding them captive. There is none like He among the sons of men; His beauties ravish the heart! If Jesus does but lift the veil and let us have a glimpse of one of His eyes for a moment, our hearts are melted within us,
 
-> Where can such sweetness be
-> As I have tasted in Your love,
-> As I have found in Thee?
+> Where can such sweetness be  
+> As I have tasted in Your love,  
+> As I have found in Thee?  
 
 Because faith thus makes us familiar with our divine Lord, it must inevitably produce love in the soul. And here again, are two links instead of one, our familiarity with Christ soon begets congeniality of disposition and spirit, for that we are much with Christ, we become much like Christ. He who lies on a bed of spices will naturally find his garments smell of the same. A mirror upon which the sun is shining is, itself, bright and flashes its reflected rays afar. He that walks with wise men will be wise, but he that dwells with the infinite wisdom shall be taught of God! Doubtless, happy couples who live together in mutual affection and confidence become very much like each other, the one becomes the other's self, they have the same aims and objectives, they are often surprised to find that they have thought the same thoughts and are about to say the same words at the same moment.
 
@@ -65,14 +65,14 @@ Love must be free-born, it cannot be bought or forced. We cannot tell what love 
 
 Love slumbers in you like fire in a flint, or rather, it smolders like fire in smoldering turf. But before long it will burn vehemently like coals of juniper! Look well to your faith and your love will not fail. Remember the lines of a sweet poet and pray that you may sing them out of your own soul,
 
-> Hallelujah! I believe!
-> Now, Olove! I know your power,
-> You have no false or fragile fetters,
-> Nor the rose-wreaths of an hour.
-> Christian bonds of holy union
-> Death itself does not destroy;
-> Yes, to live and love forever,
-> Is our heritage of joy.
+> Hallelujah! I believe!  
+> Now, Olove! I know your power,  
+> You have no false or fragile fetters,  
+> Nor the rose-wreaths of an hour.  
+> Christian bonds of holy union  
+> Death itself does not destroy;  
+> Yes, to live and love forever,  
+> Is our heritage of joy.  
 
 Let me now enlarge upon a second remark; love is entirely dependent upon faith. "Faith which works by love." Love, then, does not work of itself, except in the strength of faith. Love is so entirely dependent upon faith that, as I have already said, it cannot exist without it! No man loves a Savior in whom he reposes no confidence. There may be an admiration of the character of Christ, but the emotion which the scripture treats as," love," only comes
 
