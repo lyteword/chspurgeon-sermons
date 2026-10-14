@@ -1,7 +1,7 @@
 # Sermon 1573 | Bad Lodgers and How To Treat Them
 
-> O Jerusalem, wash your heart from wickedness that you may be saved. How long shall your vain thoughts lodge within you?
-> Jeremiah 4:14
+> O Jerusalem, wash your heart from wickedness that you may be saved. How long shall your vain thoughts lodge within you?  
+> Jeremiah 4:14  
 
 One notices, in reading such a chapter as this fourth of Jeremiah, that the change which God required in the Jewish people was a very deep and thorough one. It was not only the washing of their hands, nor the cleansing of their outward lives, but the washing of their hearts from wickedness, and the Lord did not only require of them that they should cease from wicked actions, but even from vain thoughts. The like demand He makes of us, for He says by the mouth of His servant James, "Cleanse your hands, you sinners; and purify your hearts, you double minded." This makes our holy religion a weighty and solemn business!
 
@@ -45,10 +45,10 @@ If you want an old man to move quickly out of the road when you are driving, alw
 
 Someone said to a christian man, "What is your age?" and he replied, "I am on the right side of seventy." They found out that he was 75 and they said, "You told us you were on the right side of seventy." "So I am," he answered," that is the right side, for it is the side which is nearest heaven, my blessed Home." Why should not all christians think so? They do think so when they judge rightly, for they joyfully sing,
 
-> Here in the body tent,
-> Absent from Him I roam,
-> Yet nightly pitch my moving tent
-> A day's march nearer Home.
+> Here in the body tent,  
+> Absent from Him I roam,  
+> Yet nightly pitch my moving tent  
+> A day's march nearer Home.  
 
 If a day's march is worth singing about, is not a year's journey nearer Home a theme for still greater delight? Should we try to make out that we have so much longer to stay in exile, so much longer before we shall see the face of the Well-Beloved, so much longer before, like heirs that have come of age, we shall enter on our divine inheritance?
 
