@@ -1,7 +1,7 @@
 # Sermon 1530 | Following the Risen Christ
 
-> If you then are risen with Christ, seek those things which are above, where Christ sits at the right hand of God. Set your affection on things above, not on things on the earth.
-> Colossians 3:1,2
+> If you then are risen with Christ, seek those things which are above, where Christ sits at the right hand of God. Set your affection on things above, not on things on the earth.  
+> Colossians 3:1,2  
 
 The resurrection of our divine Lord from the dead is the cornerstone of christian doctrine. Perhaps I might more accurately call it the keystone of the arch of christianity, for if that fact could be disproved, the whole fabric of the gospel would fall to the ground. If Jesus Christ is not risen, then is our preaching in vain and your faith is also in vain; you are yet in your sins. If Christ is not risen, then they which have fallen asleep in Christ have perished and we, ourselves, in missing so glorious a hope as that of resurrection, are, of all men, the most miserable! Because of the great importance of His resurrection, our Lord was pleased to give many Infallible proofs of it, by appearing again and again in the midst of His followers.
 
@@ -11,9 +11,9 @@ They could not all have been deceived. It is not possible that any historical fa
 
 sing,
 
-> Today He rose and left the dead,
-> And Satan's empire fell!
-> Today the saints His triumph spread, And all His wonders tell.
+> Today He rose and left the dead,  
+> And Satan's empire fell!  
+> Today the saints His triumph spread, And all His wonders tell.  
 
 To set apart an Easter Sunday for special memory of the resurrection is a human device for which there is no scriptural command. But to make every Lord's-day an Easter Sunday is due to Him who rose early on the first day of the week. We gather together on the first, rather than upon the seventh day of the week, because redemption is even a greater work than creation and more worthy of commemoration and because the rest which followed creation is far outdone by that which ensues upon the completion of redemption! Like the apostles, we meet on the first day of the week and hope that Jesus may stand in our midst and say," peace be unto you."
 
@@ -109,10 +109,10 @@ O to love God with all our heart and with all our soul and with all our mind and
 
 But what do I see above next? I see the new Jerusalem which is the mother of us all! I see the church of Christ triumphant in heaven, with which the church militant is one. We do not realize enough the fact that we are come unto the general assembly and church of the Firstborn, whose names are written in heaven. Love all the saints, but do not forget the saints above! Have fellowship with them, for we make but one communion. Remember those,
 
-> Who once were mourning here below,
-> And wet their couch with tears,
-> Who wrestled hard, as we do now,
-> With sins and doubts and fears.
+> Who once were mourning here below,  
+> And wet their couch with tears,  
+> Who wrestled hard, as we do now,  
+> With sins and doubts and fears.  
 
 Speak with the brave ones who have won their crowns, the heroes who have fought a good fight and now rest from their labors, waving the palm. Let your hearts be often among the perfected, with whom you are to spend eternity.
 
