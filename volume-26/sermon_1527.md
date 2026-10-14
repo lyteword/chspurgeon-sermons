@@ -1,7 +1,7 @@
 # Sermon 1527 | Perfect Sanctification
 
-> By that will we have been sanctified through the offering of the body of Jesus Christ once for all.
-> Hebrews 10:10
+> By that will we have been sanctified through the offering of the body of Jesus Christ once for all.  
+> Hebrews 10:10  
 
 Dear friends, ever since the Lord has quickened us by His grace we have begun to look into ourselves and to search our hearts to see our condition before God. Hence many things which once caused us no disquietude now create in us great anxiety. We thought that we were all right and felt it to be enough to be quite as good as others. We dreamed that if we were not quite as good as we should be, we would certainly grow better, though we did not stop to inquire how or why. We took stock of our condition and concluded that we were rich and increased with goods and had need of nothing. A change has come over the spirit of the scene; the grace of God has made us thoughtful and careful. We dare not take things for granted. We test and prove things, for we are very anxious not to be deceived. We look upon eternal realities as being of the utmost consequence and we dare not take them for granted as being certain to be right.
 
@@ -85,14 +85,14 @@ And my heart does rejoice at the sound of His name." Now I close with our third 
 
 Next, they are reconciled. There is no quarrel, now, between God and those who are in Christ Jesus. Peace is made between them forever. The middle wall that stood between them is taken away. Christ, by His one sacrifice, has made peace for all His people and effectually established an amity which never shall be broken,
 
-> Lord Jesus, we believing
-> In You have peace with God,
-> Eternal life receiving
-> The purchase of Your blood.
-> Our curse and condemnation
-> You bore in our stead
-> Secure is our salvation
-> In You, our risen Head.
+> Lord Jesus, we believing  
+> In You have peace with God,  
+> Eternal life receiving  
+> The purchase of Your blood.  
+> Our curse and condemnation  
+> You bore in our stead  
+> Secure is our salvation  
+> In You, our risen Head.  
 
 Moreover, they are not only accepted and reconciled, but they are purified; the taint that was upon them is taken away. In God's sight they are regarded no more as unclean. They are no longer shut outside the camp; they may come to the throne of the heavenly grace whenever they will. God can have communion with them! He regards them as fit to stand in His courts and to be His servants, for they are purified, reconciled, expiated through the one offering of Christ! Their admission into the closest intimacy with God could never be allowed if He did not regard them as purged from all uncleanness and this has been effected not at all by themselves, but only by the great sacrifice:
 
