@@ -1,7 +1,7 @@
 # Sermon 1542 | Free Grace a Motive for Free Giving
 
-> Now our Lord Jesus Christ Himself and God, even our Father, which has loved us and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work.
-> 2 Thessalonians 2:16,17
+> Now our Lord Jesus Christ Himself and God, even our Father, which has loved us and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work.  
+> 2 Thessalonians 2:16,17  
 
 On behalf of the free hospitals of London.
 
@@ -81,8 +81,8 @@ Father"!
 
 Now, Beloved, the spirit of adoption is never a spirit of bondage or legality. It never boasts of human merit, but its one song is," free grace and dying love." May our Father's free favor make your hearts sing concerning this and I know that this will be your tune,
 
-> Behold what wondrous Grace The Father has bestowed
-> On sinners of a mortal race To call them sons of God!
+> Behold what wondrous Grace The Father has bestowed  
+> On sinners of a mortal race To call them sons of God!  
 
 Look at the text again and you will see how explicit Paul is upon one point. To make us see the freeness of those consolations which come to God's troubled people, he writes it, "Our Lord Jesus Christ Himself and God, even our Father, which has loved us." Divine love is the foundation of our consolation! No everlasting consolation could have visited our hearts if the Father and the Son had not loved us! I always feel inclined to sit down when my ministry causes me to come across the great truth of God's love to His people because it is not so much a truth of God to speak upon with the tongue as to enjoy in silence in the heart.
 
