@@ -1,7 +1,7 @@
 # Sermon 1550 | The Unspeakable Gift
 
-> Thanks be unto God for His unspeakable gift!
-> 2 Corinthians 9:15
+> Thanks be unto God for His unspeakable gift!  
+> 2 Corinthians 9:15  
 
 Paul had spoken of the liberality of the Corinthian believers and he had endeavored to stir them up to a prudent preparation for displaying it. "Now, therefore," he said," perform the doing of it, that as there was a readiness to will, so there may be a performance, also, out of that which you have." He closes his exhortation by this remarkable sentence:"Thanks be unto God for His unspeakable gift!"; intending, no doubt, to thereby give expression to his own hearty thankfulness and also to deliver a master stroke of argument for christian liberality. Nothing can so excite God's people as to give to Him, as the remembrance of what God has given to them. "Freely you have received, freely give," is our Lord's own argument. Gospel graces are best stimulated by gospel motives.
 
@@ -45,10 +45,10 @@ Himself! Think of His infinite perfections and boundless deservings and of the s
 
 Every step of His way of love is full of wonders! His becoming one with us according to the flesh is a great marvel. Imagine, if you can, of what it must mean that "the Word was made flesh and dwelt among us." Incarnation is but the first step, but of that first descent of love, who shall declare the mystery? And this was merely the beginning; He became a man that He might go further and become man's substitute. Try, if you can, to conceive of Incarnate God as having sin imputed to Him, transgression laid upon Him! Why, the very idea must have been horror to His perfect spirit! Imagine of justice with its iron rod, bruising and pounding the innocent Son of God with vicarious griefs borne for us!
 
-> Much we talk of Jesus'love,
-> But how little is understood!
-> Of His sufferings, so intense,
-> Angels have no perfect sense.
+> Much we talk of Jesus'love,  
+> But how little is understood!  
+> Of His sufferings, so intense,  
+> Angels have no perfect sense.  
 
 "Your unknown sufferings," says the Greek Liturgy and unknown they must forever be. O Jesus, what a price it was that You paid! What griefs they were to which You bowed Yourself till You were covered with a bloody sweat! O Lord Jesus, the brightest spirit before Your throne who has dwelt with You ever since Your Ascension cannot tell us what You endured! Your groans are an unspeakable gift!
 
