@@ -1,7 +1,7 @@
 # Sermon 1572 | Untitled Sermon
 
-> The righteousness of Your testimonies is everlasting: give me understanding and I shall live.
-> Psalm 119:144
+> The righteousness of Your testimonies is everlasting: give me understanding and I shall live.  
+> Psalm 119:144  
 
 Yesterday afternoon I was the subject of a somewhat singular circumstance. An esteemed friend and relative came over to my house, evidently laboring under great disturbance of mind and having enquiries to make of a very important order. I was, at the time, walking in the garden, so that I did not see him and he appeared to have great difficulty in mentioning the subject of his concern to my wife. At last it came out that he had seen a gentleman who had informed him that it was generally rumored that I had been taken ill with heart disease and had died in a very short time. My friend came to the point by cautious degrees and asked at length if I was seriously ill. "No," was the joyful reply of my beloved," he is much the same as usual."
 
@@ -51,10 +51,10 @@ I thank God that a large number now present are not so much sufferers as workers
 
 myself. I need to get alive to the utmost; not only having life, but having it "more abundantly." I have some life in me, thank God, but I need it to quicken me more completely! Sometimes we get into a sleepy state and then the Spirit chides us and we cry, "This will never do.",
 
-> Dear Lord! Shall we always live
-> At this poor dying rate?
-> Our love so faint, so cold to You,
-> And You to us so great?
+> Dear Lord! Shall we always live  
+> At this poor dying rate?  
+> Our love so faint, so cold to You,  
+> And You to us so great?  
 
 We need quickening, brothers and sisters! Do you not feel that it is so? I believe that those who are most earnest are the very persons who blame themselves the most for need of earnestness. When your whole soul is being consumed, you feel as if you need the coals of juniper to be blown up to a yet more vehement flame that you may go up like a cloud of incense unto God, dissolved in His service, consumed in His praise! Here, then, is our prayer, "Give me understanding and I shall live. Make me so to feel the power of Your Word that I may be ardent, fervent, full of life!" I will alter the poet's lines and say:
 
