@@ -1,7 +1,7 @@
 # Sermon 1523 | The Royal Prerogative
 
-> He that is our God is the God of salvation; and unto God the Lord belong the issues from death. But God shall wound the head of His enemies and the hairy scalp of such an one as goes on still in his trespasses.
-> Psalm 68:20,21
+> He that is our God is the God of salvation; and unto God the Lord belong the issues from death. But God shall wound the head of His enemies and the hairy scalp of such an one as goes on still in his trespasses.  
+> Psalm 68:20,21  
 
 Whatever may be said of the Old Testament dispensation, however dimly it may have revealed certain truths of God, there was one matter about which it was clear as the sun. Under the Old Testament economy the Lord God of Israel is always most conspicuous. God is in all and over all, and from the pages of the prophets, as well as from the lips of the temple choirs, we hear loudly sounding forth the note:"The Lord shall reign forever, even your God, O Zion, unto all generations. Hallelujah!" By priest and prophet, saint and seer, the one testimony is borne, "The Lord reigns." You cannot read the book of Job without trembling in the majestic presence of the Almighty. Nor can you turn to the Psalms without being filled with solemn awe as you see David and Asaph and Heman adoring the Lord who made heaven and earth and the sea.
 
