@@ -1,7 +1,7 @@
 # Sermon 1560 | The Plain Man's Pathway To Peace
 
-> And when Jesus departed from there, two blind men followed Him, crying and saying, You son of David, have mercy on us! And when He was come into the house, the blind men came to Him: and Jesus said unto them, Do you believe that I am able to do this? They said unto Him, Yes, Lord. Then He touched their eyes, saying, According to your faith be it unto you. And their eyes were opened; and Jesus straitly charged them, saying, See that no one knows it.
-> Matthew 9:27-30
+> And when Jesus departed from there, two blind men followed Him, crying and saying, You son of David, have mercy on us! And when He was come into the house, the blind men came to Him: and Jesus said unto them, Do you believe that I am able to do this? They said unto Him, Yes, Lord. Then He touched their eyes, saying, According to your faith be it unto you. And their eyes were opened; and Jesus straitly charged them, saying, See that no one knows it.  
+> Matthew 9:27-30  
 
 I am not about to expound this incident, nor to draw illustrations from it, but only to direct your attention to one single point in it and that is, its extreme simplicity. There are other cases of blind men and we have various incidents connected with them, such as, in one instance, the making of clay and the sending of the patient to wash at the pool of Siloam and so forth. But here the cure is extremely simple; the men are blind, they cry to Jesus, they come near, they confess their faith and they receive their sight straightway! In many other cases of miracles that were worked by Christ there were circumstances of difficulty. In one case a man is let down through the roof, being borne of four; in a second case a woman comes behind Him in the press and touches the hem of His garment with great effort.
 
@@ -75,10 +75,10 @@ Taught from their very youth the way of God; trained by godly parents; they came
 
 Now, we do not tell you that there are a few such plain cases, but we assert boldly that we know hosts of like instances and that there are thousands of God's most honored servants who are walking before Him in holiness and are eminently useful whose experience is as simple as a B C. Their whole story might be summed up in the verse,
 
-> I came to Jesus as I was,
-> Weary and worn and sad;
-> I found in Him a resting place,
-> And He has made me glad.
+> I came to Jesus as I was,  
+> Weary and worn and sad;  
+> I found in Him a resting place,  
+> And He has made me glad.  
 
 I will go yet further and assure you that many of those who give the best evidence that they are renewed by grace cannot tell you the day in which they were saved and cannot attribute their conversion to any one sermon or to any one text of scripture, or to any one event in life! We dare not doubt their conversion for their lives prove its truth. You may have many trees in your garden of which you must admit that you don't know when they were planted, but if you get plenty of fruit from them, you are not very particular about the date of their striking root.
 
