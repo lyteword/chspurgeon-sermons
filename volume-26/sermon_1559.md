@@ -1,7 +1,7 @@
 # Sermon 1559 | Tokens For Good
 
-> Show me a token for good; that they which hate me may see it and be ashamed: because You, Lord, have helped me and comforted me.
-> Psalm 86:17
+> Show me a token for good; that they which hate me may see it and be ashamed: because You, Lord, have helped me and comforted me.  
+> Psalm 86:17  
 
 I would have you note, beloved friends, at the outset, how this man of God, in the hour of conflict, looks to his divine Protector. He does not run about to consult with friends, nor does he set himself down to digest his bitter sorrow in solitude, but he gets away to the Lord, his God, who has covenanted to help him. That same God who in his brightest days was his great joy, is, in his darkest night, his surest consolation. Therefore he cries, "Lord, show me a token for good. Show it! Let it come from You. All other signs and tokens I can forego, but You show me a token for good and my spirit will be revived at once." You see, he looks away from the secondary to the Primary, from the temporal to the eternal, from that which he could see with his eyes, to Him whom, having not seen, he trusted and rejoiced in.
 
@@ -9,11 +9,11 @@ mourner, learn wisdom from the father of the wisest of men! We need not hesitate
 
 Trust the quicksand of human confidence no longer. Look only to the Lord! It is a severance from man, a complete deliverance from the arm of flesh that God designs by our trouble and the sooner we come to it the better for us. Certainly we shall the more quickly obtain the benefit designed by our trouble and probably we shall the sooner come to the end of it,
 
-> Trust with a faith untiring In your Omniscient King, And you shall see admiring
-> What He to light will bring!
-> Of all your griefs the reason
-> Shall at the last appear;
-> Though hidden for a season It will shine in letters clear.
+> Trust with a faith untiring In your Omniscient King, And you shall see admiring  
+> What He to light will bring!  
+> Of all your griefs the reason  
+> Shall at the last appear;  
+> Though hidden for a season It will shine in letters clear.  
 
 Observe that in the case of David, all his troubles drove him to his God. I have noticed in the case of too many professors that they seem to have a fair-weather religion, a summer-season faith which shrinks and loses its color in a little rain or a sharp frost, or when the wind blows from the cold corner of affliction.
 
@@ -69,9 +69,9 @@ When I think over the seasons in which the Lord has specially answered me, I bid
 
 It may be that your prayer is like a ship, which, when it goes on a very long voyage, does not come home laden so soon but, when it does come home, it has a richer freight. Mere coasters will bring you coals, or such like ordinary things. But they that go afar to Tarshish return with gold and ivory! Coasting prayers such as we pray every day bring us many necessities, but there are great prayers which, like the old Spanish galleons, cross the main ocean and are longer out of sight, but come home laden with golden freight! When prayer has tarried, the Lord our God has made up for the delays and shown us why He delayed; to give us a richer and a rarer blessing through our waiting and also to prepare us to receive it. Go on in prayer if you have no immediate answer and let the answers you have had in years gone by be tokens for good to your soul at this time,
 
-> God lives still!
-> Trust, my Soul, and fear no ill. God is good. From His compassion Earthly help and comfort flow! Strong is His right hand to fashion All things well for men below. Trials often the most distressing,
-> In the end have proved a blessing. Why then, my Soul, despair.9 God still lives and hears prayer.
+> God lives still!  
+> Trust, my Soul, and fear no ill. God is good. From His compassion Earthly help and comfort flow! Strong is His right hand to fashion All things well for men below. Trials often the most distressing,  
+> In the end have proved a blessing. Why then, my Soul, despair.9 God still lives and hears prayer.  
 
 You meet with another class of tokens in the Psalm and these concern the preservation of character. Kindly read the second verse:"Preserve my soul, for I am holy." I know I am speaking in these dark and troubled times to many of God's children who are tried in business and sorely exercised by the general depression; your great fear arises out of a dread of failure to discharge your debts. You have been praying to the Lord about your business and, perhaps, Satan has tempted you to a measure of unbelief against which you are daily fighting. Now, has the Lord helped you to do that which is honest and upright before men? Has He preserved your soul because you are consecrated to Him?
 
@@ -87,8 +87,8 @@ When these things come, they are to be regarded as tokens for good if they come 
 
 There ought to be praises where there have been deliverances. When we have gone to God in prayer with open mouth and He has filled it, then should we go back again with the open mouth, to have it filled with His praises all the day long! Come, friends, look back upon the rescues and recoveries of the past and rejoice in the Lord! One good old saint, when she heard one sing,
 
-> Each sweet Ebenezer I have in review,
-> Confirms His good pleasure to help me quite through,
+> Each sweet Ebenezer I have in review,  
+> Confirms His good pleasure to help me quite through,  
 
 said, "Why, my road, when I look back upon it, is paved with Ebenezers! I cannot take a step but what I step upon a stone of help and on both sides I see so many records of the Lord's goodness that the road seems walled up by them on both sides." Many of us can say the same. Surely:
 
