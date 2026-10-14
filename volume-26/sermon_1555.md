@@ -1,7 +1,7 @@
 # Sermon 1555 | The Glories of Forgiving Grace
 
-> In whom we have redemption through His blood, the forgiveness of sins, according to the riches of His Grace.
-> Ephesians 1:7
+> In whom we have redemption through His blood, the forgiveness of sins, according to the riches of His Grace.  
+> Ephesians 1:7  
 
 Last Sunday morning the subject was redemption, "You are not your own: you are bought with a price." The sequel to redemption is pardon; the text gives us that doctrine, for it tells us that redemption through the blood of Jesus involves the forgiveness of sins. Our subject, at this time, shall be the forgiveness of sin, the measure, mode, medium and manifestation of it as set forth in the words before us. May the Holy Spirit sweetly open up to us the glories of our sin-forgiving God and cause us to exult in the riches of His grace.
 
@@ -57,8 +57,8 @@ Let me draw another inference. If pardon is "according to the riches of His grac
 
 I never hated sin so much as when I knew that God had forgiven me! With all my soul do I sometimes sing to myself the choice lines of Mr. Monsell,
 
-> My sins, my sins, my Savior! How sad on You they fall, Seen through your gentle patience, I tenfold feel them all. I know they are forgiven, But still their pain to me Is all the grief and anguish They laid, my Lord, on Thee. My sins, my sins, my Savior! Their guilt I never knew Till, with You, in the desert I near Your passion drew. Till with You in the garden
-> I heard Your pleading prayer, And saw the sweat drops bloody That told Your sorrow there.
+> My sins, my sins, my Savior! How sad on You they fall, Seen through your gentle patience, I tenfold feel them all. I know they are forgiven, But still their pain to me Is all the grief and anguish They laid, my Lord, on Thee. My sins, my sins, my Savior! Their guilt I never knew Till, with You, in the desert I near Your passion drew. Till with You in the garden  
+> I heard Your pleading prayer, And saw the sweat drops bloody That told Your sorrow there.  
 
 "But," says one, "I am so afraid that I can never be forgiven." You have no right to entertain such a fear, for that is making God a liar! "But I dare not trust Christ." My hearer, mind what you say on that score, for it is a tender point. You ought not to dare to doubt Christ and there is no daring in trusting Him. When God sets forth His dear Son to be a propitiation for sin, it is not humility, it is wicked pride that makes anyone say, "I dare not trust Him." Who are you to raise a question about trusting Jesus, the faithful and true? It is black presumption to refuse your confidence to God who cannot lie!
 
