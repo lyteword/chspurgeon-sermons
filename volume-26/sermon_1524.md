@@ -1,7 +1,7 @@
 # Sermon 1524 | Your Personal Salvation
 
-> Receiving the end of your faith; the salvation of your souls. Of this salvation the Prophets have inquired and searched diligently, who prophesied of the Grace that would come to you, searching what, or what manner of time the Spirit of Christ which was in them did indicating, when He testified beforehand the sufferings of Christ and the glories that would follow. To whom it was revealed, that not to themselves, but to us they did minister the things which are now reported to you by them that have preached the Gospel to you by the Holy Spirit sent down from Heaven, which things angels desire to look into.
-> 1 Peter 1:9-12
+> Receiving the end of your faith; the salvation of your souls. Of this salvation the Prophets have inquired and searched diligently, who prophesied of the Grace that would come to you, searching what, or what manner of time the Spirit of Christ which was in them did indicating, when He testified beforehand the sufferings of Christ and the glories that would follow. To whom it was revealed, that not to themselves, but to us they did minister the things which are now reported to you by them that have preached the Gospel to you by the Holy Spirit sent down from Heaven, which things angels desire to look into.  
+> 1 Peter 1:9-12  
 
 "Let Your mercies come also unto me, O Lord, even Your salvation, according to Your Word."
 
@@ -59,10 +59,10 @@ We know very little of these heavenly beings. We do know, however, that they are
 
 Can you quite see the beauty of this spectacle? If we knew that a door was opened in heaven, would not men be anxious to look in and see heaven's wonders? But the case is here reversed, for we see a window opened towards this fallen world and heavenly beings looking down upon the earth, as if heaven, itself, had no such Object of attraction as Christ and His salvation! Watts sang not amiss when he gave us the verse,
 
-> Archangels leave their high abode
-> To learn new mysteries here and toll
-> The love of our descending God,
-> The glories of Immanuel.
+> Archangels leave their high abode  
+> To learn new mysteries here and toll  
+> The love of our descending God,  
+> The glories of Immanuel.  
 
 Paul tells us that to principalities and powers in the heavenly places shall be made known by the church the manifold wisdom of God. For men to be lessons to angels, books for seraphs to read, is a strange fact! Perhaps the angelic enquirers ask such questions as this, How is God just and yet the Justifier of the ungodly? At first it must have been, I think, a wonder that He who said, "In the day you eat thereof you shall surely die," could have permitted man to live on and to have a hope of eternal life.
 
