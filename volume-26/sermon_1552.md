@@ -1,7 +1,7 @@
 # Sermon 1552 | The Friends Of Jesus
 
-> You are My friends if you do whatever I command you.
-> John 15:14
+> You are My friends if you do whatever I command you.  
+> John 15:14  
 
 Our Lord Jesus Christ is beyond all comparison the best of friends; a friend in need, a friend indeed. "Friend!" said Socrates," there is no friend!" But Socrates did not know our Lord Jesus, or he would have added," except the Savior." In the heart of our Lord Jesus there burns such friendship towards us that all other forms of it are as dim candles to the sun. "Greater love has no man than this, that he lay down his life for his friend." An ordinary man has gone as far as he can when he has died for his friend and yet he would have died anyway, so that in dying for his friend he does but pay, somewhat beforehand, a debt which must inevitably be discharged a little further on. With Christ there was no necessity to die at all and this, therefore, places His love and His friendship by itself.
 
@@ -85,8 +85,8 @@ If a man suffers for Christ's sake while steadily pursuing the course of holines
 
 They may call the faithful one fanatic and enthusiast and all such ill-sounding names, but over these there is no need to fret, for the honor of being Christ's friend infinitely outweighs the world's opinion. When we follow the Lamb wherever He goes, He is responsible for the results, we are not,
 
-> Though dark is my way, since He is my guide,
-> 'Tis mine to obey, 'tis His to provide.
+> Though dark is my way, since He is my guide,  
+> 'Tis mine to obey, 'tis His to provide.  
 
 The consequences which follow from our doing right belong to God! Abhor the theory that for the sake of a great good you may do a little wrong! I have heard men say, yes, christian men, too, "If I were strictly to follow my convictions I should have to leave a post of great usefulness and, therefore, I remain where I am and quiet my conscience as well as I can. I should lose opportunities of doing good which I now possess if I were to put in practice all I believe and, therefore, I remain in a position which I could not justify on any other ground."
 
@@ -120,9 +120,9 @@ let this be the weight; is it a friendly action towards your Redeemer? I wish th
 
 Behave as you would act under the realized presence of the Well-Beloved. You would not do anything unkind to Him, would you? Certainly you would not do anything to grieve Him if you saw Him before your eyes! Well, keep Him always before you. The Psalmist cried, "I have set the Lord always before me." You will need much of the Holy Spirit's anointing to do this. May God give it to you. Live, dear friends, as if Christ would come at once and detect you in the very act. Do that which you would not be ashamed of if the next instant you should see the Lord sitting on the throne of His glory and calling you before His bar. Thus living, you shall delight yourself in the abundance of peace,
 
-> So shall your walk be close with God,
-> Calm and serene your frame.
-> So purer light shall mark the road
-> That leads you to the Lamb.
+> So shall your walk be close with God,  
+> Calm and serene your frame.  
+> So purer light shall mark the road  
+> That leads you to the Lamb.  
 
 Obedience will gladden you with the blissful presence of your Lord and in that presence you shall find fullness of joy. You shall be the envied of all wise men, for you shall be the beloved of the Lord. And your pathway, if it is not always smooth, shall always be safe, for Jesus never leaves His friends and He will never leave you! He will keep you even to the end. May this be my happy case and yours. Amen.
