@@ -1,7 +1,7 @@
 # Sermon 1563 | The Duty of the Present Hour
 
-> Break up your fallow ground: for it is time to seek the Lord, till He comes and rains righteousness upon you.
-> Hosea 10:12
+> Break up your fallow ground: for it is time to seek the Lord, till He comes and rains righteousness upon you.  
+> Hosea 10:12  
 
 "break up your fallow ground." Nature at its largest is but a small farm and we had need to get a harvest out of every acre of it, for our needs are great. Have we left any part of our small allotment uncultivated? If so, it is time to look into the matter and see if we cannot improve this wasteful state of things. What part of our small allotment have we left fallow? We should think very poorly of a farmer who, for many years, allowed the best and the richest part of his farm to lie altogether neglected and untilled. An occasional fallow has its benefits in the world of nature, but if the proprietor of rich and fruitful land allowed the soil to continue fallow year after year, we would judge him to be out of his wits! The wasted acres ought to be taken from him and given to another farmer who would worthily cherish the generous fields and encourage them to yield their harvests. Bad is the man who neglects to cultivate his farm, but what shall be said of the sluggard who fails to cultivate himself. If it is wrong to leave untended a part of our estate, how much worse must it be to disregard a portion of ourselves!
 
@@ -55,18 +55,18 @@ Let me argue with any that have been living a life of sin and have never come to
 
 Oh, if He means to save you according to His everlasting purpose, He will come into your heart's bedchamber if He waits till cock-crowing! But do not, I pray you, treat contemptuously your loving, tender, patient Lord! Can you make Him wait, even, for another moment? Surely, by the memories of His long-enduring love, it is time that you should seek His face! Here are some sweet words which I would gladly put into your mouths,
 
-> He has called, I cannot tarry,
-> I have heard His voice before.
-> I will leave these deadly slumbers,
-> And set open wide the door.
-> In the north blast He rebuked me,
-> And I knew the message well.
-> In the south wind now He whispers,
-> And no longer I'll rebel.
-> Even now again I hear Him,
-> Come, my Lord and enter in,
-> How can I resist Your knocking?
-> Come and cover all my sin.
+> He has called, I cannot tarry,  
+> I have heard His voice before.  
+> I will leave these deadly slumbers,  
+> And set open wide the door.  
+> In the north blast He rebuked me,  
+> And I knew the message well.  
+> In the south wind now He whispers,  
+> And no longer I'll rebel.  
+> Even now again I hear Him,  
+> Come, my Lord and enter in,  
+> How can I resist Your knocking?  
+> Come and cover all my sin.  
 
 There are certain occasions in our lives upon which there seems to be a special mark set, a sort of note bank, to make us note well that just now is a happy occasion. Tides to be taken at the flood happen in men's lives and it is well if they are turned to profitable use.
 
@@ -76,14 +76,14 @@ grace; it is a place whose name might be called, "Jehovah Shammah, the Lord is t
 
 And why not you? Why not you? The same gospel is being preached to you and by the same voice, too, which God has made effectual to others and with the same desire that it should be made effectual to you. The preacher can truly say that it is a desire which grows on him and absorbs the whole strength of his soul; the desire that you should be saved. "If by any means I might save some." The place is hopeful; it is a very Bethesda, a house of mercy, a hospital of healing! Why should you not now seek and find the Savior? Perhaps you are feeling in your heart, at this moment, a measure of thoughtfulness and softening; some drawings are upon you. This shows that it is time for you to seek the Lord,
 
-> Even at this hour He calls you!
-> It is not yet too late!
-> He has not closed the day of Grace,
-> He has not shut the gate.
-> He calls you! Hush! He calls you!
-> He would not have you go
-> Another step without Him
-> Because He loves you so.
+> Even at this hour He calls you!  
+> It is not yet too late!  
+> He has not closed the day of Grace,  
+> He has not shut the gate.  
+> He calls you! Hush! He calls you!  
+> He would not have you go  
+> Another step without Him  
+> Because He loves you so.  
 
 Do not trifle with your heart when it begins to open! Oh, I have known some that have come to me and said, "We were once tender and hopeful, but now we are like the man in the iron cage; we cannot feel. We are almost past concern and conviction and nothing awakens us." Beloved hearer, if it is not so with you, you ought to be thankful, but do not rest in your tenderness, nor think that you are any better than others; bless the mercy which still waits for you and pleads with you. When sailors go to sea, they make use of every breeze, I know they would like a brisk trade-wind to carry them along from day to day, but if no such wind arises, they are glad of any favoring breeze. If there is only a puff, or a capful, they catch at it and tack about to use every breath of it.
 
