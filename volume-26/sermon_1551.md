@@ -1,7 +1,7 @@
 # Sermon 1551 | Today! Today! Today!
 
-> Today if you will hear His voice, harden not your heart.
-> Psalm 95:7,8
+> Today if you will hear His voice, harden not your heart.  
+> Psalm 95:7,8  
 
 This Psalm is a burst of praise. It resounds with the joyful noise of hearty thanksgiving unto Jehovah and yet before it closes you hear the solemn tones of exhortation to men to hearken to the voice of their God. Alas that it should be true, but true it is, that the Canaanite still dwells in the midst of Israel! In every gathering of the faithful there is a mixture of those who know not the ways of God. When Israel came out of Egypt, a mixed multitude came forth with the people of God, that mixed multitude did them great damage and often brought them under great sin and consequent sorrow, but they were always there. And they are always here, too, in the church and around it, dishonoring us by their evil behavior. Not only in the great congregations, but even in little gatherings of believers we meet with the unworthy ones. Scarcely are 12 met together without a Judas in the midst of them.
 
@@ -49,10 +49,10 @@ Some other words followed which he did not hear so well, but presently in a loud
 
 Over and over again those same words were whispered or spoken close to the spot where he was lying. It so impressed him that when his young friend, the physician, asked him how he was, he looked at him earnestly and replied,
 
-> Today you live, yet
-> Today turn you to God,
-> For before tomorrow comes
-> You may be with the dead.
+> Today you live, yet  
+> Today turn you to God,  
+> For before tomorrow comes  
+> You may be with the dead.  
 
 The physician took his hand and said, "Your pulse is better, but if it were not for that I should think you worse, for you are evidently raving." To this he received no answer but a repetition of the lines. He could get nothing out of his patient but that verse, spoken with an awe-struck look and thrilling voice. The young physician went home thoughtful and when he came next time he found his friend much better, sitting up in bed, reading the scriptures. The two sought and found the Savior, for those warning words had drawn them across the boundary line and made them decide for God and for His
 
@@ -146,9 +146,9 @@ of time!"
 
 May God grant that such may never be your lot, for if you so die; there is a something after death still more awful! I will say but little on that alarming theme, but put it in one verse as I learned it when a child and as I believed it after many an anxious thought. Hear the truth of God, tremble and turn unto the Lord!
 
-> There is a dreadful Hell,
-> And everlasting pains,
-> Where sinners must with devils dwell
-> In darkness, fire and chains.
+> There is a dreadful Hell,  
+> And everlasting pains,  
+> Where sinners must with devils dwell  
+> In darkness, fire and chains.  
 
 Escape for your life! Today if you will hear His voice, harden not your heart!
