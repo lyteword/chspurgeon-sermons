@@ -1,7 +1,7 @@
 # Sermon 1522 | Expected Proof of Professed Love
 
-> Show you the proof of your love.
-> 2 Corinthians 8:24
+> Show you the proof of your love.  
+> 2 Corinthians 8:24  
 
 In every believer's heart there is love to God, otherwise he cannot be a child of God! In every christian's soul there is love to Jesus Christ. How could he be a christian otherwise? As a consequence of this, in every christian's bosom there is a love to the brotherhood:"We know that we have passed from death unto life because we love the brethren." In every christian's breast there is also a love to all mankind. He practices that second great commandment, "You shall love your neighbor as yourself." The spirit of God has cast out the demon of selfishness and, in proportion as that is the case, the man possesses the mind of Christ which is love. As all the law is fulfilled in one word which is," love," so the outcome of our holy faith is also contained in that one word," love."
 
@@ -19,8 +19,8 @@ These are some of the apostle John's great little words, which, in their miniatu
 
 should be very distinct and unmistakable. We should make our calling and election sure, and those things can never be sure unless we have abundant proofs of our love. It is vital in its necessity. However great that love becomes and I have spoken of it as rising to a superlative degree, it is warranted by the facts of the case. Love to God; I will not spend a word in justifying it. Love to Christ, how can it be necessary to commend it to you?
 
-> Love so amazing, so Divine,
-> Demands our soul, our life, our all.
+> Love so amazing, so Divine,  
+> Demands our soul, our life, our all.  
 
 And it shall have it, too!
 
