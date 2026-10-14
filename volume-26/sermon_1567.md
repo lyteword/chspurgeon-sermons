@@ -1,7 +1,7 @@
 # Sermon 1567 | The Blood of the Covenant
 
-> This is the blood of the Testament which God has enjoined unto you.
-> Hebrews 9:20
+> This is the blood of the Testament which God has enjoined unto you.  
+> Hebrews 9:20  
 
 [The original title of this sermon was The Blood of the Testament..
 
@@ -115,10 +115,10 @@ your own, you are bought with a price." "You were not redeemed with corruptible 
 
 You have believed, that believing has applied the blood to you and you are Christ's. Cannot you see the private token which the Lord has set on you? Do you not feel it? Oh, then, acknowledge its claims in your daily life! Being so set apart, you are, therefore, ordained with due solemnity to be a servant of God, even as Aaron and his sons were consecrated to their priesthood. I have been sometimes asked, "Were you ever ordained?" Yes, I was. Not by the laying on of the hands of any mortal man, but by that precious blood whose purchase-power I feel. When that blood fell upon me and I rejoiced in its cleansing power, I longed, at once, to tell of its efficacy to others. I hope I can say most honestly to my Lord,
 
-> Ever since by faith I saw the stream
-> Your flowing wounds supply,
-> Redeeming lo ve has been my theme,
-> And shall be tiil I die!
+> Ever since by faith I saw the stream  
+> Your flowing wounds supply,  
+> Redeeming lo ve has been my theme,  
+> And shall be tiil I die!  
 
 That same blood has fallen on you, Brother, Sister, and it has ordained you that you should go and bear fruit and that your fruit should remain. Is it not written, "You were slain and have been made unto our God kings and priests?" The slaying of Christ is the ground of our priesthood and the claim for our perpetual service. Let us praise, forever, the Lord who has worked everlasting redemption for us! If we have not Milton's power of song, at least let us come to the same resolve at which he arrived:
 
