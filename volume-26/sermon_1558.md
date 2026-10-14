@@ -1,7 +1,7 @@
 # Sermon 1558 | Rare Fruit
 
-> I create the fruit of the lips: Peace, peace.
-> Isaiah 57:19
+> I create the fruit of the lips: Peace, peace.  
+> Isaiah 57:19  
 
 "the fruit of the lips"! The lips are neither trees of the orchard nor herbs of the garden. What fruit can they bear? The scattering of Babel came of human speech when languages were multiplied and the united race split up into fragments. Wars and fighting and hatred and bloodshed have sprung of talk and bluster, these are deadly fruits, the very mention of which brings pain to the heart, surely it is in vain to look for much that is worth gathering from mouths and tongues! Great talkers are proverbially little doers and the more talk, the less work. We may come for years looking for fruit on this fig tree and find none. "Nothing but leaves" will be gathered by those who look to the lips for a harvest to fill the barn. This is most true. It you let the lips alone, they produce mischief and trouble and not much else.
 
@@ -57,12 +57,12 @@ Then the Redeemer shows that He bore the burden of guilt effectually and carried
 
 "Ah, that I will, my Lord!" "Then I bore your sin. I was punished in your place. Your iniquity has ceased to be. Your sins I have cast into the depths of the sea. Your transgression shall never be mentioned against you again forever! Go and sin no more. Peace, peace!" What can break a peace like this? Why need I fret about sin which is hurled into oblivion? Why should I despair because of my guilt and reckon myself condemned? I am not condemned, for Jesus was condemned for me, even He in whom my spirit fixes all her trust. He paid my debts and discharged my liability to justice and, therefore, my soul is clear. Peace, peace! Was there ever peace like this? Glory be to my Redeemer for such rest! Truly God has given us this repose,
 
-> O You who did Your Glory leave
-> Apostate sinners to retrie ve
-> From Nature's deadly fall,
-> You have purchased me with a price,
-> Nor shall my crimes in judgment rise,
-> For You have borne them all.
+> O You who did Your Glory leave  
+> Apostate sinners to retrie ve  
+> From Nature's deadly fall,  
+> You have purchased me with a price,  
+> Nor shall my crimes in judgment rise,  
+> For You have borne them all.  
 
 But did you ever see Christ as He is risen from the dead? Here is another vision of consolation, another fountain of peace. The poor heart lies prostrate at the Savior's feet and cries, "I see You, my Lord! I see how You have put away my sin and I am at peace! But alas, I am a poor fool and shall sin again and I have a wayward, wandering heart that will soon
 
@@ -72,13 +72,13 @@ Do you know the peace which the resurrection of the Lord Jesus brings into the s
 
 Jesus answers such fears in His own sweet fashion by saying, "Do you not know that I am risen from the dead and that I have gone into glory to prepare a place for you? I will come to you at the last and I will take your spirit away to dwell with Me forever. You need not fear to die, for he that lives and believes in Me shall never die. He that believes in Me, though he were dead, yet shall he live. I will help you. Death shall be no death to you! I will take your soul away and you shall never know it till you see Me face to face! As for your poor dust, it shall lie in the grave a little while, but I will take care of every atom of it and when I shall descend on the Last day, My archangel shall sound his trumpet and your poor body shall rise again, only more fair and beautiful than when you had it in its best estate below, and so you shall be forever with Me, both as to body and soul." Does not this breathe," peace, peace, peace"?
 
-> Surely the last end
-> Of the good man is peace!
-> How calm his exit!
-> Night dews fall not more
-> Calmly on the ground,
-> Nor weary worn out winds
-> Expire so softly.
+> Surely the last end  
+> Of the good man is peace!  
+> How calm his exit!  
+> Night dews fall not more  
+> Calmly on the ground,  
+> Nor weary worn out winds  
+> Expire so softly.  
 
 If I were to go on picturing our glorious Lord Jesus Christ in any and all of His relationships to us, we should, in each case, hear Him say," peace, peace." His voice is the sovereign balm which heals every wound, the cordial which removes every fear! No distress or amazement can seize upon you for which, in Christ, there is not a peace that passes all understanding to keep your heart and soul against all dread. This is the fruit of the lips of the Well-Beloved; peace, peace, peace. If you do not come to Him, you will receive no peace! If you do not stay near Him, you will retain no peace! And if you do not come growingly nearer and nearer to Him, you will miss much of the peace that you might have had. Abide in Christ Jesus and let Him abide in you and you shall have abundance of peace so long as the moon endures!.
 
