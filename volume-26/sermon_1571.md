@@ -1,7 +1,7 @@
 # Sermon 1571 | The Joy Of Jesus
 
-> In that hour Jesus rejoiced in spirit and said, I thank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent and have revealed them unto babes. Even so, Father, for so it seemed good in Your sight. All things are delivered to Me of My Father: and no man knows who the Son is, but the Father; and who the Father is, but the Son and He to whom the Son will reveal Him.
-> Luke 10:21,22
+> In that hour Jesus rejoiced in spirit and said, I thank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent and have revealed them unto babes. Even so, Father, for so it seemed good in Your sight. All things are delivered to Me of My Father: and no man knows who the Son is, but the Father; and who the Father is, but the Son and He to whom the Son will reveal Him.  
+> Luke 10:21,22  
 
 Last Lord's-day morning we considered the lamentations of Jesus. We will now turn our thoughts to the joys of Jesus. It is remarkable that this is the only instance on record in the gospels in which our Lord is said to have rejoiced. It stands alone and is, therefore, the more to be prized:"In that hour Jesus rejoiced in spirit." He was the "man of sorrows and acquainted with grief for our sakes and, therefore, we are not astonished to find few indications of joy in the story of His life. Yet I do not think it would be fair to infer from the fact of a solitary mention of His rejoicing that He did not rejoice at other times. On the contrary, our Lord must, despite His sorrow, have possessed a peaceful, happy spirit.
 
@@ -63,17 +63,17 @@ At first came the Gnostics with their philosophy and into what perils they dragg
 
 It is with human wisdom as it is with human riches, how difficult shall they that have it enter into the kingdom of God! True wisdom is another thing, that is a gift which comes from above and causes no puffing up of the heart, for it adores the God from whom it came! The wisdom which is true and real, the Lord is prepared to give to those who confess their ignorance; to those who will be babes in His sight. It is not ignorance which God loves, but conceit that He hates! Knowledge is good, but the affectation of it is evil! O for more true wisdom! May God give us much of it and may those who are babes, as yet, come to be men of full stature in Christ Jesus! Yet forget not your Lord's joy in the character of His converts, but remember the lines in which the poet of the sanctuary paraphrases our text,
 
-> Jesus, the man of constant grief,
-> A mourner all His days,
-> His Spirit once rejoiced aloud,
-> And turned His joy to praise.
-> Father, I thank Your wondrous love,
-> That has revealed Your Son
-> To men unlearned and to babes
-> Has made Your Gospel known.
-> The mysteries of redeeming Grace
-> Are hidden from the wise,
-> While pride and carnal reasoning join To swell and blind their eyes.
+> Jesus, the man of constant grief,  
+> A mourner all His days,  
+> His Spirit once rejoiced aloud,  
+> And turned His joy to praise.  
+> Father, I thank Your wondrous love,  
+> That has revealed Your Son  
+> To men unlearned and to babes  
+> Has made Your Gospel known.  
+> The mysteries of redeeming Grace  
+> Are hidden from the wise,  
+> While pride and carnal reasoning join To swell and blind their eyes.  
 
 Our Lord's joy sprang from one other source, namely, His view of the manner in which God was pleased to save His people. It was by revealing these things to them. There is, then, to every man who is saved, a revelation, not of anything over and above what is given us in the Word of God, but of that same truth of God to himself, personally, and with power. In the Word of God is the light of God, but what is needed is that each man's eyes should be opened by the finger of God to see it! Truth in the scriptures will never save till it becomes the truth of God in the heart; it must be "revealed" unto the most unprejudiced and true-hearted.
 
