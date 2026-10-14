@@ -1,7 +1,7 @@
 # Sermon 1574 | I Was Before
 
-> Who was before a blasphemer and a persecutor and injurious.
-> 1 Timothy 1:13
+> Who was before a blasphemer and a persecutor and injurious.  
+> 1 Timothy 1:13  
 
 I am not going to dwell, at this time, upon the special items of the text as to what Paul was before his conversion because none of us have been exactly as he was. We have all gone astray like lost sheep, but each one of us has taken a distinct course from all the rest. You might have to describe your transgressions in very different words from those used by the apostle because yours have been a different form of guilt from his. Paul said of himself that he," was before a blasphemer and a persecutor and injurious." Saul of Tarsus was a blasphemer. He does not say that he was an unbeliever and an objector, but he uses a very strong word, though not too strong, and says that he was a blasphemer.
 
@@ -61,14 +61,14 @@ Oh, who can tell what that likeness would have been but for the interpositions o
 
 I should not wonder, too, if some of us, when we look in the mirror, were to see somebody there that would have been a very deep-dyed sinner if it had not been for the change of heart which Sovereign grace has worked. This ought to keep us very humble and very lowly before God. I invite you, friends, to think this over and when you feel yourselves beginning to swell a little, let the bladder of your foolish and wicked pride be pricked with the needle of conscience as you remember what you used to be and you will be all the better for letting some of the gas escape! Come back as speedily as you can to your fine shape, for what are you, after all? If you are anything that is good, or right, or pleasing in the eyes of the Lord, you must still say, "By the grace of God I am what I am.",
 
-> All that I was, my sin, my guilt,
-> My death, was all my own.
-> All that I am, I owe to You,
-> My gracious God, alone.
-> The evil of my former state
-> Was mine and only mine.
-> The good in which I now rejoice
-> Is Thine and only Thine.
+> All that I was, my sin, my guilt,  
+> My death, was all my own.  
+> All that I am, I owe to You,  
+> My gracious God, alone.  
+> The evil of my former state  
+> Was mine and only mine.  
+> The good in which I now rejoice  
+> Is Thine and only Thine.  
 
 Well, those are two of the inferences which result from looking back at what you were; the retrospect excites gratitude and sustains humility.
 
