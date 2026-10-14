@@ -1,7 +1,7 @@
 # Sermon 1525 | The Lily Among Thorns
 
-> As the lily among thorns, so is My love among the daughters.
-> Song of Solomon 2:2
+> As the lily among thorns, so is My love among the daughters.  
+> Song of Solomon 2:2  
 
 We shall not enter into any profitless discussion this morning. We take it for granted that the Song of Solomon is a sacred marriage song between Christ and His church and that it is the Lord Jesus who is here speaking of His church and, indeed, of each individual member, saying, "As the lily among thorns, so is My love among the daughters." I will not even enter into any study as to what particular flower is here intended by the word translated," lily," for it would be very difficult to select a plant from the Holy Land about which travelers and botanists would agree. The lily, which we should most naturally fix upon, is, as I have gathered from books on travel, not at present found in that country, though we may not, therefore, be sure that it was never there, or may not yet be discovered. Several other fair and beautiful forms, according to the fancies of various travelers, have been preferred to occupy the place of the plant intended by the original Hebrew, but none of them quite come up to the ideal suggested to an English reader by our translation.
 
@@ -95,19 +95,19 @@ Secondly, in the comparison of the saint to the lily we remark that he has, like
 
 sin. "Thorns, also, and thistles shall it bring forth unto you." Not so the lily; it is a fair type of the blessing which makes rich without the sorrow of carking care. The thorn is the mark of wrath and the lily is the symbol of divine providence. A true believer is a blessing, a tree whose leaves heal and whose fruit feeds. A genuine christian is a living gospel, an embodiment of goodwill towards men. Did not the old covenant blessing run, "In you and in your seed shall all the nations of the earth be blessed?" I cannot refrain from quoting a metrical meditation of one who loved the Song of Solomon and drank into its spirit. He says of the church, she is,
 
-> A radiant thing, where all is gloomy else,
-> Florescent where all else is barrenness.
-> A blossom in the desert, that proclaims
-> Man is no friendless outcast, hopeless doomed
-> To traverse scenes of wickedness and grief,
-> But, pilgrim as he is, has One who plans,
-> Not only to protect but cheer his way!
-> Oh, ever testifying desert flower,
-> Still holding forth the story of God's love,
-> How amazing it is that busy throngs
-> Pause not to look on you!
-> That few reflect
-> On the strange fact of your existence still, a lily among thorns; a life in death, Distinct from, yet in contact with the world; Burning, yet unconsumed; though cumbered, free With glorious liberty!
+> A radiant thing, where all is gloomy else,  
+> Florescent where all else is barrenness.  
+> A blossom in the desert, that proclaims  
+> Man is no friendless outcast, hopeless doomed  
+> To traverse scenes of wickedness and grief,  
+> But, pilgrim as he is, has One who plans,  
+> Not only to protect but cheer his way!  
+> Oh, ever testifying desert flower,  
+> Still holding forth the story of God's love,  
+> How amazing it is that busy throngs  
+> Pause not to look on you!  
+> That few reflect  
+> On the strange fact of your existence still, a lily among thorns; a life in death, Distinct from, yet in contact with the world; Burning, yet unconsumed; though cumbered, free With glorious liberty!  
 
 Yes, the church is a blessing, a blessing abiding and scattering its delights in the midst of the curse, and each particular believer is, in his measure, a blessing, too," as the lily among thorns."
 
@@ -117,9 +117,9 @@ He is all tenderness and gentleness and yet it may be he lives among the envious
 
 When I was resting in the south I wandered by the side of a flowing stream, gathering handfuls of maiden-hair fern from the verdant bank, and as I walked along I was conscious of a most delicious fragrance all around me. I cast my eye downward and I saw blue eyes looking up from among the grass at my feet. The violets had hidden themselves from sight, but they had betrayed themselves by their delicious scent. So does a christian reveal his hidden life. His tone and temper and manners speak of his royal lineage, if, indeed, the Spirit of God is in him. Such are the people of God, they court no observation, but are like that modest flower of which the poet says,
 
-> She never affects
-> The public walk, nor gaze of midday sun. She to no state nor dignity aspires, But silent and alone puts on her suit
-> And sheds a lasting perfume, but for which We had not known there was a thing so sweet Hidden in the gloomy shade.
+> She never affects  
+> The public walk, nor gaze of midday sun. She to no state nor dignity aspires, But silent and alone puts on her suit  
+> And sheds a lasting perfume, but for which We had not known there was a thing so sweet Hidden in the gloomy shade.  
 
 I want you, dear christian people, to be just like this; to have about you a surpassing wealth of blessing and an unrivalled sweetness of influence by which you shall be known of all men! Is it so with you, or are you as rough and stern and repellant as a thorn thicket? Are you as selfish and as quarrelsome as the unregenerate? Or do you shed yourself away in sweet odors of self-denying kindness in your families and among your neighbors? If you do, then does Jesus say of you, "As the lily among thorns, so is My love among the daughters."
 
