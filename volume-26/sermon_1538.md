@@ -1,7 +1,7 @@
 # Sermon 1538 | Divine Surprises
 
-> When You did terrible things which we looked not for, You came down, the mountains flowed down at Your Presence.
-> Isaiah 64:3
+> When You did terrible things which we looked not for, You came down, the mountains flowed down at Your Presence.  
+> Isaiah 64:3  
 
 The people of God were in a very sad state when this chapter described them. Isaiah pictures them as brought into the lowest degree of fear and sorrow. He pleads with God to return to His chosen people and restore their former peace and prosperity. He makes use of the past as an argument for the future and recites the wonderful acts of God in days gone by as an encouragement to expect that He would do the same again. If it were not that God is unchangeable, no inference could be drawn from His past behavior toward us, but inasmuch as He is immutably the same, yesterday, today and forever, we may safely infer that what He has done He will do again.
 
@@ -27,8 +27,8 @@ When they grieved Him and provoked Him, then the feeblest of the nations round a
 
 The world would have perished if God had not come down to it in the person of His dear Son. At Bethlehem the wondrous mystery was seen; the godhead veiled beneath the form of a Babe. This was the birth of hope. So, too, when the Lord Jesus comes to any one of us by His Spirit, our hope begins! We see Him as our Immanuel and we are comforted. Dr. Watts most sweetly sings,
 
-> Till God in human flesh I see, My thoughts no comfort find.
-> The holy, just and sacred Three Are terrors to my mind. But if Immanuel's face appears My hope, my joy begins! His name forbids my slavish fear, His Grace removes my sins.
+> Till God in human flesh I see, My thoughts no comfort find.  
+> The holy, just and sacred Three Are terrors to my mind. But if Immanuel's face appears My hope, my joy begins! His name forbids my slavish fear, His Grace removes my sins.  
 
 God saves us by coming to us in Christ with an atonement in His hands to put away our sins. Yes, and our hope of the perfection of our salvation still lies in the coming of Christ to us! We expect that when He comes in the latter day, though our bodies may have seen corruption and the worms may have devoured them, yet in our flesh we shall see God! When Christ shall come a second time the Archangel's trumpet shall sound and then shall we receive the adoption, to wit, the redemption of the body for which we now hopefully await.
 
@@ -86,8 +86,8 @@ His favorite and most promising Churchman, a Mr. Aitken, had become a Dissenter 
 
 Instead of that, his eye lighted on the text, "What think you of Christ?" and he thought he would make a few observations upon that question before dismissing the congregation. For the rest, I will quote his own words, lest I should seem to color the incident by telling it in my own language:"As I went on to explain the passage, I saw that the Pharisees and scribes did not know that Christ was the Son of God, or that He was come to save them. They were looking for a king, the son of David, to reign over them as they were. Something was telling me, all the time, 'You are no better than the Pharisees, yourself; you do not believe that He is the Son of God and that He is come to save you any more than they did.' I do not remember all I said, but I felt a wonderful light and joy coming into my soul and I was beginning to see what the Pharisees did not.
 
-> Whether it was something in my words, or my manner, or my look, I know not, but all of a sudden a local preacher, who happened to be in the congregation, stood up and, putting up his arms, shouted out in Cornish manner, 'The parson is converted! The parson is converted! Hallelujah!' and in another moment his voice was lost in the shouts and praises of three or four hundred of the congregation! Instead of rebuking this extraordinary 'brawling,' as I would have done in a former time, I joined in the outburst of praise, but to make it more orderly, I gave out the Doxology:'Praise God, from whom all blessings flow', and the people sang it with heart and voice over and over again! When this subsided, I found
-> at least 20 people crying for mercy, whose voices had not been heard in the excitement and noise of thanksgiving. They all professed to find peace and joy in believing. Among this number there were three from my own house, and we returned home praising God.
+> Whether it was something in my words, or my manner, or my look, I know not, but all of a sudden a local preacher, who happened to be in the congregation, stood up and, putting up his arms, shouted out in Cornish manner, 'The parson is converted! The parson is converted! Hallelujah!' and in another moment his voice was lost in the shouts and praises of three or four hundred of the congregation! Instead of rebuking this extraordinary 'brawling,' as I would have done in a former time, I joined in the outburst of praise, but to make it more orderly, I gave out the Doxology:'Praise God, from whom all blessings flow', and the people sang it with heart and voice over and over again! When this subsided, I found  
+> at least 20 people crying for mercy, whose voices had not been heard in the excitement and noise of thanksgiving. They all professed to find peace and joy in believing. Among this number there were three from my own house, and we returned home praising God.  
 
 This is a memorable illustration of the statement that when God comes down among a people He does things we looked not for! You may hope that the divine Spirit will still display His power over the most unlikely persons to the glory of His grace. He can save the most obstinate and bring opposers to the feet of Jesus. Plead with Him to do so!
 
