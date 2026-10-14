@@ -1,7 +1,7 @@
 # Sermon 1549 | Good News For Thirsty Souls
 
-> I will give unto him that is thirsty of the fountain of the water of life freely.
-> Revelation 21:6
+> I will give unto him that is thirsty of the fountain of the water of life freely.  
+> Revelation 21:6  
 
 Salvation is no small thing. It filled the heart and hands of the Son of God and, therefore, it ought not to be neglected by us. The precious promise before us concerns the gift of eternal salvation and it is set forth as the personal Word of the Lord Jesus Christ, Himself. The apostle is very careful to make this clear, for he inserts the words, "And He said unto me," as if John knew that poor, troubled hearts might doubt so large a promise were they not assured that Jesus, Himself, had expressly given it. John is a faithful and true witness. In this, as in another case, he could have written, "He knows what He says is true." He declares to us that He who is Alpha and Omega, Himself, gave to him this word of promise. So especially careful was our Lord that the gospel of grace should be published correctly and without fail, that He delivered it, Himself, to John and also said to him, "Write: for these words are true and faithful."
 
@@ -77,8 +77,8 @@ Our gracious Lord, still further to encourage souls to come to Him, has been ple
 
 I have opened up the plan of salvation many, many times, but I will try again. To be saved you must heartily trust Christ and Him alone. You are to believe on Him. First believe Him, that is, be convinced that what He says is true and then believe on Him, that is, depend upon what He has done and on what He is. He will make His Word good to you. Commit your soul to the Redeemer's keeping and He will keep it safely,
 
-> Venture on Him; venture wholly;
-> Let no other trust intrude.
+> Venture on Him; venture wholly;  
+> Let no other trust intrude.  
 
 There is no venture, but I put it so that you may catch the idea. Lean your whole weight on Jesus. Hold on to Jesus as to a life buoy. Buckle your fate to Jesus, to sink or swim with Him. If He is a Savior, trust Him! Put all your eggs into this basket. Float all your treasures in this vessel. Let it be so that if He can and will save sinners He will save you. His Word is pledged that He will save all those who trust Him; accept that Word as Infallible and confide all your future to its truth. This is the way of life.
 
