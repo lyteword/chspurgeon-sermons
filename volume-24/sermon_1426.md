@@ -1,7 +1,7 @@
 # Sermon 1426 | The Lifting Up of the Bowed Down
 
-> And He was teaching in one of the synagogues on the Sabbath. And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bowed together, and could in no wise lift herself up. And when Jesus saw her, He called her to Him, and said unto her, Woman, you are loosed from your infirmity. And He laid His hands on her: and immediately she was made straight, and glorified God.
-> Luke 13:10-13
+> And He was teaching in one of the synagogues on the Sabbath. And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bowed together, and could in no wise lift herself up. And when Jesus saw her, He called her to Him, and said unto her, Woman, you are loosed from your infirmity. And He laid His hands on her: and immediately she was made straight, and glorified God.  
+> Luke 13:10-13  
 
 I believe that the infirmity of this woman was not only physical but spiritual. Her outward appearance was the index of her deep and long-continued depression of mind. She was bent double as to her body and she was bowed down by sadness as to her mind. There is always a sympathy between body and soul, but it is not always so plainly seen as in her case. Many sad sights would meet us on all hands if it were so. Imagine for a moment what would be the result upon the present congregation if our outward forms were to set forth our inward states. If someone having an eye like that of the Savior could gaze upon us, now, and could see the inward in the outward, what would be the appearance of this crowd?
 
@@ -71,10 +71,10 @@ When He had gazed upon her, He called her to Him. Did He know her name? Oh, yes,
 
 He bids them approach Him as they are and does not ask them to mend or prepare. May my blessed Master, this morning, look on some of you till you feel, "The preacher means me, the preacher's Master means me!" And then may there sound a voice in your ears saying, "Come to Jesus just as you are." Then may you have grace to reply,
 
-> Just as I am, poor, wretched, blind,
-> Sight, riches, healing of the mind,
-> Yes, all I need, in You to find,
-> O Lamb of God, I come.
+> Just as I am, poor, wretched, blind,  
+> Sight, riches, healing of the mind,  
+> Yes, all I need, in You to find,  
+> O Lamb of God, I come.  
 
 When the woman came, the great Liberator said to her, "Woman, you are loosed from your infirmity." How could that be true? She was still as bent as she was before! He meant that the spell of Satan was taken off from her, that the power which had made her thus to bow herself was broken. This she believed in her inmost soul, even as Jesus said it, though as yet she was not at all different in appearance from her former state.
 
