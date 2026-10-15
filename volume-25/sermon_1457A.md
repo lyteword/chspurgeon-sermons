@@ -77,9 +77,9 @@ Oh, Church of God in this place and Church of God everywhere, shake yourself fro
 
 PORTION OF SCRIPTURE READ BEFORE SERMON: Matthew 11. HYMNS FROM "OUR OWN HYMN BOOK": 429, 503, 549.
 
-TO MY CHURCH AND PEOPLE:
+To my church and people:
 
-DEAR FRIENDS: I am hoping and praying that the special services at the Tabernacle may excel all that have gone before. To urge you to the utmost earnestness about them, I have written the short sermon of this week. It would give me great joy to hear, as I feel sure I shall, that in this as in all the other works of the Church, you are abundantly filled with zeal and constancy.
+Dear friends: I am hoping and praying that the special services at the Tabernacle may excel all that have gone before. To urge you to the utmost earnestness about them, I have written the short sermon of this week. It would give me great joy to hear, as I feel sure I shall, that in this as in all the other works of the Church, you are abundantly filled with zeal and constancy.
 
 My one concern is lest the Lord's work should suffer by my absence. I entreat you, do not permit it to be so in any point or degree. The damp and dull weather, which has reached us even here, has somewhat retarded my progress to health and strength, so that I remain a very feeble traveler, but yet I am greatly improved and feel that my mind and spirits are the better for the rest.
 

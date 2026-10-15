@@ -99,9 +99,9 @@ Yes, in less than it takes the moon to fill her horns you shall be where the Lor
 
 PORTION OF SCRIPTURE READ BEFORE SERMON: Genesis 21:1-21. HYMNS FROM "OUR OWN HYMN BOOK": 852, 785.
 
-LETTER FROM MR. Spurgeon:
+Letter from Mr. Spurgeon:
 
-TO MY FRIENDS IN ENGLAND,
+To my friends in England,
 
 Until yesterday the weather here has been so unsettled that it was not favorable to my complaint, but now I hope it has taken a turn for the better and will be more suitable for rheumatic joints. It has taken me six weeks to get rid of the disease and now I hope to spend the rest of my sojourn here in gathering strength. If it may please God to permit me to return in full vigor to my delightful work, I shall indeed rejoice! Till then be so good as to maintain by your prayers and liberality the good works over which I have so long presided, so that there may be no lack. College, Orphanage, Colportage and Evangelists are all work and must not be forgotten. May the Lord's own blessing rest on them all.
 

@@ -115,9 +115,9 @@ I have not said anything to the unconverted and yet I have meant it all for them
 
 PORTION OF SCRIPTURE READ BEFORE SERMON: John 6:41-71. HYMNS FROM "OUR OWN HYMN BOOK": 260, 820, 761.
 
-LETTER FROM MR. Spurgeon:
+Letter from Mr. Spurgeon:
 
-BELOVED FRIENDS, By the time that this note is printed, the Special Services at the Tabernacle will be drawing to a close and it will be meet to harrow in the seed with renewed supplication. Shall so much effort be in vain? It cannot be and yet everything depends upon the mighty working of the Spirit of God and, therefore, we must seek His face if we would see large results! I suggest that every sermon reader should spend a special time in prayer, next Lord's Day, in pleading for the revival of Evangelical religion.
+Beloved friends, By the time that this note is printed, the Special Services at the Tabernacle will be drawing to a close and it will be meet to harrow in the seed with renewed supplication. Shall so much effort be in vain? It cannot be and yet everything depends upon the mighty working of the Spirit of God and, therefore, we must seek His face if we would see large results! I suggest that every sermon reader should spend a special time in prayer, next Lord's Day, in pleading for the revival of Evangelical religion.
 
 The Times pronounced the funeral oration of the Evangelical party, but it is not dead, even, within the Established Church and certainly not among Dissenters! Let us, however, pray that it may exhibit more vigorous life. There is need of such supplication, but it must be presented in faith and with holy importunity. So let it be.
 

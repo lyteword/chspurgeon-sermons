@@ -119,9 +119,9 @@ Then up comes the first wave of the wash and another and another and another and
 
 PORTION OF SCRIPTURE READ BEFORE SERMON: 2 Timothy 2. HYMNS FROM "OUR OWN HYMN BOOK": 192, 664, 196.
 
-TO MY BELOVED CHURCH AND CONGREGATION:
+To my beloved church and congregation:
 
-DEAR FRIENDS: After a long and severe illness I am now on my way to the South of France to seek rest and gather strength in a less trying climate. The Church has requested me to take three months' furlough and as this corresponds with the serious counsel of physicians and judicious friends, I shall probably accept the considerate advice. I have promised to correspond with you and with my sermon readers, week by week, by a note appended to the sermon, or by a short discourse such as I have written during the last two weeks.
+Dear friends: After a long and severe illness I am now on my way to the South of France to seek rest and gather strength in a less trying climate. The Church has requested me to take three months' furlough and as this corresponds with the serious counsel of physicians and judicious friends, I shall probably accept the considerate advice. I have promised to correspond with you and with my sermon readers, week by week, by a note appended to the sermon, or by a short discourse such as I have written during the last two weeks.
 
 This, then, to commence with: I have reached Paris by easy stages and I am none the worse for the traveling, but all the better for the change. Snow is falling heavily and may detain us, but if not, we hope to be at Mentone next Wednesday. It would have been a far greater pleasure to me to have been able to occupy my pulpit, but as this must not be, I am right glad to speak by the press. May the weekly sermon be used by the Lord in a greater degree, now that the preacher's voice ceases for a while to proclaim His Gospel. One great favor I have to ask of you all: will you unite in hearty prayer that there may be a great revival at the Tabernacle during my absence?
 

@@ -104,9 +104,9 @@ I know that some poor souls are in such a state that they would be glad if we wo
 
 PORTION OF SCRIPTURE READ BEFORE SERMON: Deuteronomy 32:1-39. HYMNS FROM "OUR OWN HYMN BOOK": 187, 233, 235.
 
-LETTER FROM MR. Spurgeon:
+Letter from Mr. Spurgeon:
 
-DEAR FRIENDS: I had intended to be home to preach on April 6, but as dear friends at home press me to make the rest longer, I have so far yielded as to wait here another week. And I now propose to be home on the thirteenth of April. My knees are still feeble, but in all other respects I feel fit to return. Moreover, I long to be preaching in my own pulpit among my own people and I must come home, though I somewhat dread the cold weather. Please pray for me, that I may have an active mind in a body which will allow of its full exercise and that the blessing of God may rest on my future labors far more than on those of past years. I find that funds are coming in very slowly for the College and the Colportage has a pressing need. Earnest fellow workers will only need to know this. Yours to serve in love for Jesus' sake,
+Dear friends: I had intended to be home to preach on April 6, but as dear friends at home press me to make the rest longer, I have so far yielded as to wait here another week. And I now propose to be home on the thirteenth of April. My knees are still feeble, but in all other respects I feel fit to return. Moreover, I long to be preaching in my own pulpit among my own people and I must come home, though I somewhat dread the cold weather. Please pray for me, that I may have an active mind in a body which will allow of its full exercise and that the blessing of God may rest on my future labors far more than on those of past years. I find that funds are coming in very slowly for the College and the Colportage has a pressing need. Earnest fellow workers will only need to know this. Yours to serve in love for Jesus' sake,
 
 H. Spurgeon,
 
