@@ -1,7 +1,7 @@
 # Sermon 1397 | The Peace of God
 
-> And the peace of God, which passes all understanding, shall keep your hearts and minds through Christ Jesus.
-> Philippians 4:7
+> And the peace of God, which passes all understanding, shall keep your hearts and minds through Christ Jesus.  
+> Philippians 4:7  
 
 "Peace" is a heavenly word. When at the advent of our Lord angels came to sing among men a midnight sonnet, their second note was "Peace on earth." Would God the shining ones would chant that song again till yonder Balkans heard the strain and shook off the sulfurous cloud which now hangs around them. Those who have ever seen war, or even come near the trail of its bloody march, will be thankful to God for peace. I am almost of his mind who said that the worst peace is preferable to the very best war that was ever waged, if best there can be where all is bad as bad can be. Peace is most pleasant when religion sits beneath its shade and offers her joyful vows to heaven.
 
@@ -29,18 +29,18 @@ We are reconciled to God by Christ Jesus and accepted in the Beloved. Now this a
 
 If it were not so, why was there a Substitute permitted? Did God design to tantalize mankind by permitting an ineffectual substitution? What did He accomplish if He did not save those for whom He died? What meaning is there in the gospel if it does not reveal an effectual atonement? But truly the Lord Jesus was made sin for us and the chastisement of our peace was upon Him and by His stripes we are saved! Here the soul rests! At the foot of the cross it finds a peace it never could have found elsewhere. I hope that many of you are now able to sing:
 
-> Jesus was punished in my stead,
-> Outside the gate my Surety bled
-> To expiate my stain.
-> On earth the Godhead deigned to dwell,
-> And made of Infinite avail
-> The sufferings of the man.
-> And was He for such rebels given?
-> He was! The Incarnate King of Heaven
-> Did for His foes expire!
-> Amazed, O earth, the tidings hear
-> He bore, that we might never bear
-> His Father's righteous ire.
+> Jesus was punished in my stead,  
+> Outside the gate my Surety bled  
+> To expiate my stain.  
+> On earth the Godhead deigned to dwell,  
+> And made of Infinite avail  
+> The sufferings of the man.  
+> And was He for such rebels given?  
+> He was! The Incarnate King of Heaven  
+> Did for His foes expire!  
+> Amazed, O earth, the tidings hear  
+> He bore, that we might never bear  
+> His Father's righteous ire.  
 
 There take your full of peace, for by this sacrifice a covenant of peace is now established between you and your God, and it is sealed by atoning blood.
 
