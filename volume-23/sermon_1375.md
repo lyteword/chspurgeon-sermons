@@ -1,7 +1,7 @@
 # Sermon 1375 | "Now Then, Do It"
 
-> You sought for David in times past to be king over you: now then, do it: for the Lord has spoken of David, saying, By the hand of My servant David I will save My people Israel out of the hand of the Philistines, and out of the hand of all their enemies.
-> 2 Samuel 3:17,18
+> You sought for David in times past to be king over you: now then, do it: for the Lord has spoken of David, saying, By the hand of My servant David I will save My people Israel out of the hand of the Philistines, and out of the hand of all their enemies.  
+> 2 Samuel 3:17,18  
 
 You know the circumstances under which these words were spoken. God had cast off Saul because he had not been faithful and He had appointed David to be his successor, anointing him by the hand of Samuel. Yet when Saul was slain in battle, Israel seemed determined to choose her own king by selecting one of Saul's family, and under the leadership of Abner, the majority of the tribes set up Ishbosheth, son of Jonathan, to be king. Then commenced a civil war between the two parties and we read that the house of David waxed stronger and stronger, but the house of Saul grew weaker and weaker. In process of time Abner, the commander-in-chief and prime minister who was at the head of Saul's party, because it served his own purposes, changed his mind and resolved that David should become king over the whole land.
 
@@ -103,9 +103,9 @@ Many in this house will join with me in accepting our Lord Jesus, over again, to
 
 All this has long ago been done by many of us. We are only repeating the declaration which we have made hundreds of times before. Oh that some of you poor souls would hear the voice which says: "Now then, do it." To give you words with which to do it, we will all sing the verse:
 
-> 'Tis done, the great transaction's done!
-> I am my Lord's, and He is mine!
-> He drew me, and I followed on,
-> Charmed to confess the voice Divine.'
+> 'Tis done, the great transaction's done!  
+> I am my Lord's, and He is mine!  
+> He drew me, and I followed on,  
+> Charmed to confess the voice Divine.'  
 
 May the Lord bless you. Amen.
