@@ -1,7 +1,7 @@
 # Sermon 1362 | Mourning For Christ
 
-> I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications. And they shall look upon Me whom they have pierced, and they shall mourn for Him, as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his firstborn.
-> Zechariah 12:10
+> I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications. And they shall look upon Me whom they have pierced, and they shall mourn for Him, as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his firstborn.  
+> Zechariah 12:10  
 
 Look, Beloved, from where every good thing flows: "I will pour upon the house of David the Spirit of Grace." The starting point is the Lord's sovereign act in giving the Spirit! Every work of Grace begins with God! No gracious thought or act ever originates in the free will of unregenerate man. The Lord is first in all things which are acceptable in His sight. It is God that "works in us to will and to do of His own good pleasure." "You have worked all our works in us." Then notice how exceedingly effectual the work of the Lord is. Men may persuade and even inspired Prophets may warn without effect, but when the Lord puts His hand to the work, He never fails! As soon as He says, "I will pour," the next sentence is, "and they shall look."
 
@@ -101,8 +101,8 @@ I know some who, I hope, love Him. They go from day to day without hearing His v
 
 We have asked you and I pray the Spirit of God to enable you, to mourn over the past, but what shall we say as to the present? Take stock, now, of last week. I invite myself and you, for we are one in Christ if we are Believers, to look through last week. Did you make any survey of the days as they passed? If so, I think you might have said with Dr. Watts:
 
-> What have I done for Him that died
-> To save my guilty soul? How are my follies multiplied, Fast as my minutes roll!
+> What have I done for Him that died  
+> To save my guilty soul? How are my follies multiplied, Fast as my minutes roll!  
 
 Has it been a week of real service for Christ? You have done something. Did you do your best? Did you throw your heart into it? Did you feel that tenderness, when you were trying to bring others to Christ, which a Christian ought to feel? You had some little contention with another. Did you act in a Christian spirit? Did you show the mildness and gentleness of Jesus? You were offended. Did you freely forgive? For His dear sake did you cast it all behind your back? You have been somewhat in trouble. Did you take your burden to Him as naturally as a little child runs to its mother with a cut finger? Did you tell Him all and leave it all to Him? You had a loss. Did you voluntarily resign all to His will?
 
