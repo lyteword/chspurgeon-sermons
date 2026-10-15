@@ -1,7 +1,7 @@
 # Sermon 1446 | The Best Beloved
 
-> "Yea, he is altogether lovely."
-> Solomons Song 5:16.
+> "Yea, he is altogether lovely."  
+> Solomons Song 5:16.  
 
 No words can ever express the gratitude we owe to Him who loved us even when we were dead in trespasses and sins: the love of Jesus is unutterably precious and worthy of daily praise. No songs can ever fitly celebrate the triumphs of that salvation which he wrought singlehanded on our behalf: the work of Jesus is glorious beyond compare, and all the harps of angels fall short of its worthy honour. Yet I do believe, and my heart prompts me to say so, that the highest praise of every ransomed soul and of the entire Christian church should be offered to the blessed person of Jesus Christ, our adorable Lord. The love of his heart is excelled by the heart which gave forth that love, and the wonders of his hand are outdone by the hand itself, which wrought those godlike miracles of grace. We ought to bless him for what he has done for us as Mediator in the place of humble service under the law, and for what he suffered for us as Substitute on the altar of sacrifice from before the foundation of the world; and for what he is doing for us as Advocate in the place of highest honour at the right hand of the Majesty on high: but still the best thing about Christ is Christ himself. We prize his, but we worship him. His gifts are valued, but he himself is adored. While we contemplate, with mingled feelings of awe, admiration, and thankfulness, his atonement, his resurrection, his glory in heaven, and his second coming, still it is Christ himself, stupendous in his dignity as the Son of God, and superbly beautiful as the Son of man, who sheds an incomparable charm on all those wonderful achievements, wherein his might and his merit, his goodness and his grace appear so conspicuous. For him let our choicest spices be reserved, and to him let our sweetest anthems be raised. Our choicest ointment must be poured upon his head, and for his own self alone our most costly alabaster boxes must be broken.
 
@@ -9,10 +9,10 @@ No words can ever express the gratitude we owe to Him who loved us even when we 
 
 Our text tells us that Christ is altogether lovely. What a wealth of thought and feeling is contained in that exclamation! I am embarrassed to know how to preach on such a subject, and half inclined to wish it had not been laid so much upon my heart. What, I pray you, what is loveliness? To discern it is one thing, but it is quite another thing to describe it. There is not one amongst us but knows how to appreciate beauty, and to be enamoured of its attractions, but how many here could tell us what it is? Stand up, my brother, and define it. Perhaps while you were sitting down you thought you could easily tell the tale, but now you are on your feet you find that it is not quite so easy to clothe in words the thoughts which floated through your brain. What is beauty? Cold-blooded word-mongers answer, fitness. And certainly there is fitness in all loveliness. But do not tell me that beauty is mere fitness, for I have seen a world of fitness in this world which, nevertheless, seemed to me to be inexpressibly ugly and unlovable. A wise man tells me that beauty is proportion; but neither is this a full description by many a league. No doubt it is desirable that the features should be well balanced; the eyes should be fitly set, no one feature should be exaggerated, and none should be dwarfed.
 
-> In nature what affects our hearts,
-> Is not th' exactness of peculiar parts;
-> 'Tis not a lip or eye we beauty call,
-> But the joint force and full result of all.
+> In nature what affects our hearts,  
+> Is not th' exactness of peculiar parts;  
+> 'Tis not a lip or eye we beauty call,  
+> But the joint force and full result of all.  
 
 Harmony is beauty. Yet I have seen the chiselled marble, fashioned with skilful art into a well-nigh perfect form, which did not, could not, impress me with a sense of loveliness. There stands in one of the halls of the Vatican a statue of Antinous. Every feature in that statue is perfect in itself, and in complete harmony with all the rest. You could not find the slightest fault with eye or nose or mouth. It is indeed as much the ideal of male beauty as the Venus is of female charms, yet no one could ever have been enchanted with the statue, or have felt affection to the form which it represents. There is no expression whatever in the features. Everything is so adjusted and proportioned that you want a divergence to relieve you. The materialism is so carefully measured out that there needs a stir, a break in the harmony to give at least some semblance of a soul. Beauty, then, consists not in mere harmony, nor in balancing the features.
 
