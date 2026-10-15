@@ -1,7 +1,7 @@
 # Sermon 1388 | Jesus Christ Himself
 
-> Jesus Christ Himself.
-> Ephesians 2:20
+> Jesus Christ Himself.  
+> Ephesians 2:20  
 
 "Jesus Christ Himself is to occupy all our thoughts this morning. What an ocean opens up before me! Here is room in the sea for the largest ship! In which direction shall I turn your thoughts? I am embarrassed with riches. I know not where to begin, and when I once begin, where shall I end? Assuredly we need not go abroad for joys this morning, for we have a feast at home! The words are few, but the meaning vast: "Jesus Christ Himself." Beloved, the religion of our Lord Jesus Christ contains in it nothing so wonderful as Himself. It is a mass of marvels, but He is the miracle of it! The wonder of wonders is "The Wonderful" Himself!
 
@@ -97,9 +97,9 @@ It is not passing through Baptism, nor bearing the name of Christ. It is having 
 
 But what can the poet do? Ah, you, also, fail. You cannot sing Him any more than your friend can paint Him. Fruitful conception and soaring imagination may come to your aid, but they cannot prevent your failure! He is too beautiful to be described. He must be seen. Yet here comes the marvel: "We shall be like He is," like Jesus Christ Himself! O saint, when you are risen from the dead how lovely you will be! Will you know yourself? Today you are wrinkled with old age, scarred with the marks of disease and pain. Perhaps you are deformed by accident, or blanched with consumption, but none of these shall blemish you then! You will be without spot or wrinkle, faultless before the Throne:
 
-> O glorious hour!
-> blessed abode!
-> I shall be near And like my God!
+> O glorious hour!  
+> blessed abode!  
+> I shall be near And like my God!  
 
 And not only in bodily form shall we be like He is whose eyes are as the eyes of doves and whose cheeks are as beds of spices, but in spirit and in soul shall we be perfectly conformed to the Well-Beloved! We shall be holy, even as He is holy and happy as He is happy. We shall enter into the joy of our Lord. The joy of Jesus Himself! I don't say that we can be Divine. That cannot be, but still, Brothers and Sisters, we shall be very near the Throne. O what rapture to know that my next of kin lives and when He shall stand, in the last day, upon the earth, I shall not only see God in this, my flesh, but I shall be like He is, for I shall see Him as He is! Christ Himself, then, becomes to us unspeakably precious, as the model of our present life and the image of the perfection towards which the Holy Spirit is working us.
 
@@ -113,7 +113,7 @@ Brethren, what must the unveiled vision be! If the sight of Him, here, is so swe
 
 Will it be amazed and cry, "It is He, even He, my best Beloved, Jesus Himself! He has come to meet me! Heaven might have been too great a surprise. Even my disembodied spirit might have swooned away, but it is He, the Man Christ Jesus whom I trusted down below and who was the dear companion of my dying hours! I have changed my place and state, but I have not changed my Friend nor changed my joy, for here He is." What a glance of love will that be which He will give to us and which we shall return to Him! Shall we ever take our eyes away from Him? Shall we ever wish to do so? Will not the poet's words be true:
 
-> Millions of years my wondering eyes, Shall over Your beauties rove. And endless ages I'll adore
-> The glories of Your love.
+> Millions of years my wondering eyes, Shall over Your beauties rove. And endless ages I'll adore  
+> The glories of Your love.  
 
 Within a week it may be our meeting with Jesus Himself may take place! Perhaps within an hour! A poor girl lying in the hospital was told by the doctor or the nurse that she could only live another hour. She waited patiently and when there remained only one quarter of an hour more, she exclaimed, "One more quarter of an hour and then," she could not say what! Neither can I, but Jesus Himself has said, "Father, I will that they, also, whom You have given Me, be with Me where I am that they may behold My Glory." And as He has prayed, so shall it be and so let it be! Amen and Amen.
