@@ -1,7 +1,7 @@
 # Sermon 1363 | Sudden Sorrow
 
-> Suddenly are my tents spoiled, and my curtains in a moment.
-> Jeremiah 4:20
+> Suddenly are my tents spoiled, and my curtains in a moment.  
+> Jeremiah 4:20  
 
 "And when you are spoiled, what will you do?" Jeremiah 4:30.
 
@@ -89,8 +89,8 @@ Can you trust the Lord when the fierce winds from the wilderness threaten to ove
 
 If all things are right within us when our tents are spoiled, we shall live closer to God than ever and thus we shall be gainers by our losses because they have increased our spirituality and our peace. It would be a blessed thing to be like the planet Venus, of which it is certain that the earth can never come between her and the sun. The world often hides our God from us and when our comforts are swept away there is all the less likelihood of its doing so. If our bereavements bring us into the clear and ever-abiding sunlight of the Lord's own face, we may be thankful to lose that which before caused the eclipse:
 
-> Nearer, my God, to You! Nearer to You! What, though it is a cross That raises me,
-> This, still, my cry shall be, Nearer to Thee, Nearer to Thee!
+> Nearer, my God, to You! Nearer to You! What, though it is a cross That raises me,  
+> This, still, my cry shall be, Nearer to Thee, Nearer to Thee!  
 
 Blessed is he who is resolved with Job and, by God's Grace, is enabled to abide by it, "Though He slay me, yet will I trust in Him." We should learn to give up everything that is dear to us in this present life and find our comfort in the hopes of the next world! So that, like David, when his darling child had been taken away, we may say, "I shall go to him. He shall not return to me." Happy and blessed is the man who acts thus! He shall not be cast down in the cloudy and dark day. "He shall not be afraid of evil tidings. His heart is fixed, trusting in the Lord." Oh, you worldlings, what will you do in the time of trouble? How will you comfort your hearts in the day of visitation?
 
