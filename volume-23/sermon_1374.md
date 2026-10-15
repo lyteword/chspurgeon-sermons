@@ -1,7 +1,7 @@
 # Sermon 1374 | "Forever With The Lord"
 
-> So shall we be forever with the Lord.
-> 1 Thessalonians 4:17
+> So shall we be forever with the Lord.  
+> 1 Thessalonians 4:17  
 
 We know that these words are full of consolation, for the Apostle says in the next verse, "Therefore comfort one another with these words." The very words, it appears, were dictated by the Holy Spirit, the Comforter, to be repeated by the saints to each other with the view of removing sorrow from the minds of the distressed. The comfort is intended to give us hope in reference to those who have fallen asleep. Look over the list of those beloved in the Lord who have departed from you, to your utmost grief, and let the words of our text be a handkerchief for your tears.
 
@@ -27,14 +27,14 @@ It is essential to salvation to be a sheep of Christ's fold. No, more. A partake
 
 Sometimes this union is very sweetly apparent to ourselves." We know that we are in Him that is true," and in consequence we feel an intense joy, even Christ's own joy fulfilled in us! For the same reason we are at times bowed down with intense sorrow, for being in and with Christ, we have fellowship with Him in His sufferings, being made conformable with His death. This is such sweet sorrow that the more we experience it, the better:
 
-> Live or die, or work or suffer,
-> Let my weary soul abide,
-> In all changes whatever,
-> Sure and steadfast by Your side.
-> Nothing can delay my progress,
-> Nothing can disturb my rest,
-> If I shall, wherever I wander,
-> Lean my spirit on Your breast.
+> Live or die, or work or suffer,  
+> Let my weary soul abide,  
+> In all changes whatever,  
+> Sure and steadfast by Your side.  
+> Nothing can delay my progress,  
+> Nothing can disturb my rest,  
+> If I shall, wherever I wander,  
+> Lean my spirit on Your breast.  
 
 This companionship is, we trust, made manifest to others by its fruits. It ought always to be so. The life of the Christian should be manifestly a life with Christ. Men should take knowledge of us, that we have been with Jesus and have learned of Him.
 
@@ -100,8 +100,8 @@ And thrones and powers before Him fall!
 
 The God shines gracious through the Mian, And sheds sweet glories on them all." We shall be forever with the Lord and His Lordship shall be most upon our minds! He has been raised into Glory and honor and is no more able to suffer shame!
 
-> No more the bloody spear,
-> The Cross and nails no more! For Hell itself shakes at His word, And all the heavens adore.
+> No more the bloody spear,  
+> The Cross and nails no more! For Hell itself shakes at His word, And all the heavens adore.  
 
 Now we come to our third point and shall consider what, for lack of a better word, I entitle a coherence. Those who are acquainted with the Greek language know that the, "with," here, is not meta, which signifies being in the same place with a person, but one which goes much further and implies a coherence. The two who are with each other are intimately connected. Let me show you what I mean.
 
