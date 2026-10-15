@@ -1,7 +1,7 @@
 # Sermon 1414 | No Difference
 
-> He makes His sun to rise on the evil and on the good and sends rain on thejust and on the unjust.
-> Matthew 5:45
+> He makes His sun to rise on the evil and on the good and sends rain on thejust and on the unjust.  
+> Matthew 5:45  
 
 You see our Lord Jesus Christ's philosophy of nature. He believed in the immediate presence and working of God. As the great Son of God, He had a very sensitive perception of the presence of His Father in all the scenes around Him and, therefore, He calls the sun, God's sun: "He makes His sun to rise." He does not speak of the daybreak as a thing which happens of itself as a matter of course, but He traces the morning light to His Father and declares, "He makes His sun to rise." As for the rain, our great Lord and Master does not speak of the laws of condensation causing the vapor to become fluid and fall to the earth in a beneficial shower, but He says of His Father, "He sends rain upon the just and upon the unjust."
 
