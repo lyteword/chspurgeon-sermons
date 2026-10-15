@@ -1,7 +1,7 @@
 # Sermon 1335 | A Cheery Word in Troublous Times
 
-> Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me.
-> Acts 27:25
+> Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me.  
+> Acts 27:25  
 
 The presence of a brave man in the hour of danger is a very great comfort to his companions. It is a grand thing to observe Paul so bold, so calm in the midst of all the hurly burly of the storm. He was talking so cheerfully and so encouragingly to the crew and to the soldiers and to the prisoners. You must have seen, in many events in history, that it is the one man, after all, that wins the battle. All the rest play their parts well when the one heroic spirit lifts the standard. Every now and then we hear some simpleton or other talking against a "one-man ministry," when it has been a one-man ministry from the commencement of the world to the present day! And whenever you try to have any other form of ministry, except that of each individual saint discharging his own ministry, and doing it thoroughly and heartily and independently and bravely in the sight of God, you very soon run upon quicksand.
 
@@ -27,15 +27,15 @@ He did not say "I believe in you, the centurion, that you can maintain military 
 
 The common run of men's faith is fair-weather faith. Faith which loves to see its beautiful image mirrored in the glassy waves, but is far away when the storm clouds are marshalling the battle! The faith of God's elect is the faith that can see in the dark! The faith that is calm in the tumult! The faith that can sing in the midst of sorrow! The faith that is brightest when everything around her is black as midnight. "I believe God," Paul said, when he had nothing else to believe in. "My Soul, wait only upon God, for my expectation is from Him." Say, O my Soul, "Though the earth is removed, and though the mountains are carried into the midst of the sea, will we not fear, for God is our refuge and strength, a very present help in trouble."
 
-> God lives still! Trust, my Soul, and fear no ill!
-> Heaven's huge vault may cleave asunder,
-> Earth's round globe in ruins burst.
-> Devil's fullest rage may thunder,
-> Death and Hell may spend their worst.
-> Then will God keep safe and surely
-> Those who trust in Him securely!
-> Therefore then, my Soul, despair?
-> Mid the shipwreck, God is there.
+> God lives still! Trust, my Soul, and fear no ill!  
+> Heaven's huge vault may cleave asunder,  
+> Earth's round globe in ruins burst.  
+> Devil's fullest rage may thunder,  
+> Death and Hell may spend their worst.  
+> Then will God keep safe and surely  
+> Those who trust in Him securely!  
+> Therefore then, my Soul, despair?  
+> Mid the shipwreck, God is there.  
 
 Since the Apostle Paul believed God thus truly and really, he was not ashamed to say so. He said openly to all those around him, "There shall not a hair of your heads perish, for I believe God." Now, it is not so easy to thrust out your faith and expose it to rough weathers and to the hearing of rough men! Many a man has believed the promise but has not quite liked to say so, for there has been the whisper in his soul, "Suppose it should not come true, then how the enemy will rejoice! How those that listened to me will be saddened when they find that I was mistaken." Thus does the devil cause faith to be dumb and God is robbed of His honor.
 
