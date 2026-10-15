@@ -1,7 +1,7 @@
 # Sermon 1419 | Encouragement to Trust and Pray
 
-> He will be very gracious unto you at the voice of your cry; when He shall hear it, He will answer you.
-> Isaiah 30:19
+> He will be very gracious unto you at the voice of your cry; when He shall hear it, He will answer you.  
+> Isaiah 30:19  
 
 The great sin of man is his alienation from God. He has said in his heart, "No God," and in his life he labors to escape from the divine presence. The journey into the far country is not only made for the sake of the riotous living, but that he may get away from the Father's house. One would have thought man would turn unto the Lord in the day of trouble, even as Hosea said, "In their affliction they will seek Me early." But this, alas, is not in truth and sincerity, for too often the sinner follows the example of Ahaz, of whom it is written, "In the time of his distress did he trespass yet more against the Lord: this is that King Ahaz."
 
@@ -71,10 +71,10 @@ It is certain from the Character of God, which abounds in love, grace and mercy,
 
 In the text we have the word, "very." "He will be very gracious unto you." Do you need special comfort? You shall have it! Do you need great help? You shall have it! Come, you grievous Sinner, here is plenty forgiveness! Come, you sorely afflicted one, here is rich consolation! Come, you weary wanderer, here is complete restoration! Come you impoverished and needy one, here are abounding supplies!
 
-> Rivers of love and mercy here,
-> In a rich ocean join.
-> Salvation in abundance flows,
-> Like floods of milk and wine.
+> Rivers of love and mercy here,  
+> In a rich ocean join.  
+> Salvation in abundance flows,  
+> Like floods of milk and wine.  
 
 The assurance of the text is grounded upon the merciful nature of God and may be relied upon without hesitation! And next it is based upon the grand fact of the prevalence ofprayer. "He will be very gracious to you at the voice of your cry." Is it not an amazing thing that God permits men to pray? It is a more amazing thing that they do not pray when He permits them!
 
