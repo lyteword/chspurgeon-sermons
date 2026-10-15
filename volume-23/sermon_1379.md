@@ -1,7 +1,7 @@
 # Sermon 1379 | The Magnanimity of God
 
-> Behold, God is mighty, and despises not any: He is mighty in strength and wisdom
-> (or, in strength of heart) Job 36:5
+> Behold, God is mighty, and despises not any: He is mighty in strength and wisdom  
+> (or, in strength of heart) Job 36:5  
 
 We cannot wonder that, in the extreme bitterness of his soul, Job was driven to utter some expressions which he would not, afterwards, have attempted to justify. Among the rest Job had thought and almost said that God had despised him. In the tenth chapter, at the third verse, he appealed to Him thus, "Is it good unto You that You should oppress, that You should despise the work of Your hands?" Elihu, in his zeal to vindicate the righteousness of his Maker, fixes his mind, as I think, upon that expression of Job and meets it with a positive denial, proving his point from the might and the great-heartedness of the Lord. He had promised to fetch his argument from afar and, therefore, he does not argue against God's despising any from His mercy or goodness.
 
@@ -55,14 +55,14 @@ Man is neither the greatest, the strongest, nor the swiftest among animals. Lion
 
 That God should consider man is an instance of that great-mindedness which does not look at bulk and strength, but abounds in condescension. This is more clear, too, when you think of what sort of men God has most of all favored. Who are his chosen? Remember that the most intimate love of God has seldom fallen to the lot of the great ones of this earth. "Not many mighty, not many noble are called; but God has full often chosen the poor of this world."
 
-> When the Eternal bows the skies
-> To visit earthly things,
-> With scorn Divine He turns His eyes
-> From towers of haughty kings.
-> He bears His awful chariot roll
-> Far downward from the skies,
-> To visit every humble soul,
-> With pleasure in His eyes.
+> When the Eternal bows the skies  
+> To visit earthly things,  
+> With scorn Divine He turns His eyes  
+> From towers of haughty kings.  
+> He bears His awful chariot roll  
+> Far downward from the skies,  
+> To visit every humble soul,  
+> With pleasure in His eyes.  
 
 What does Paul say in His Epistle to the Corinthians? "Things which are despised has God chosen, yes, and things which are not, to bring to nothing things that are." He despises not any, we are sure, for when He ordained fathers in His Church and set 12 leaders in the Apostleship, He chose to this office neither philosophers, nor senators, nor kings, but lowly fishermen! And from that day, to this, it has been His pleasure to do His mightiest actions for His people by those who have been least esteemed among the sons of men, for He is so mighty that He despises not any.
 
