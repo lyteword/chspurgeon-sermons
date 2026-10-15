@@ -1,7 +1,7 @@
 # Sermon 1352 | Strong Consolation for the Lord's Refugees
 
-> That by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
-> Hebrews 6:18
+> That by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.  
+> Hebrews 6:18  
 
 When we read such a choice verse as this we are apt, at once, to conclude that it "belongs to them that are of full age, even to those who by reason of use have had their senses exercised to discern both good and evil." We set this aside as a choice morsel reserved for those who have worn well and borne the burden and heat of the day, for those who have attained to full assurance of faith and, therefore, are able to lay hold upon rich Covenant provisions. Let us at once correct this mistake, for the passage belongs to a very early form of Christian experience! It relates, indeed, to the lowest degree of Christian Grace!
 
@@ -35,13 +35,13 @@ He looks around and trembles at the fall of a leaf. Everything is changed. The p
 
 I remember well when I was in a similar state of heart as to my sins, for I saw my Lord upon the Cross and I felt that I was guilty of His death:
 
-> My conscience felt, and owned the guilt,
-> And plunged me in despair
-> I saw my sins His blood had spilt,
-> And helped to nail Him there.
-> Alas! I knew not what I did
-> But now my tears are vain!
-> Where shall my trembling soul be hid? For I, the Lord have slain!
+> My conscience felt, and owned the guilt,  
+> And plunged me in despair  
+> I saw my sins His blood had spilt,  
+> And helped to nail Him there.  
+> Alas! I knew not what I did  
+> But now my tears are vain!  
+> Where shall my trembling soul be hid? For I, the Lord have slain!  
 
 I discovered that I had so sinned as to have involved myself in eternal destruction! What a horrible discovery it was! Everything had been pleasant enough before, but, lo, I found myself a rebel against the Most High and my very existence was dreadful beyond conception. Where should I flee, or how should I escape? An awful dread was over me and I could not bear it. Hell had begun to burn within my spirit and the undying worm had begun its gnawing! It is the work of the Spirit of God to convict men of sin, of righteousness and of judgment to come, and it is well when the soul begins to fear, for then it begins to live.
 
