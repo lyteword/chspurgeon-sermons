@@ -1,7 +1,7 @@
 # Sermon 1394 | The Day of Salvation
 
-> Behold, now is the day of salvation.
-> 2 Corinthians 6:2
+> Behold, now is the day of salvation.  
+> 2 Corinthians 6:2  
 
 None can change the outward features of a day. The kings of the earth cannot command for themselves bright days nor inflict upon their enemies days of tempest. It belongs to a higher than they to command the morning and cause the daystar to know its place. It is little they can do in reference to the light, the sun, the clouds or the rain. They cannot bind the sweet influences of the Pleiades nor loose the bands of Orion. Still, rulers and governors and kings have accomplished much in shaping the social character of the days of their subjects. Sometimes, like the king of Nineveh, they have proclaimed days of fasting and their subjects have been clothed in sackcloth. On other occasions they have exercised the prerogative to ordain days of feasting, as Ahasuerus did at the palace of Shushan, when for 180 days, "He showed the riches of his glorious kingdom and the honor of his excellent majesty," by filling the capital with feasting.
 
@@ -49,8 +49,8 @@ Beloved, are you not glad to hear these words? If you are not curious to hear me
 
 What was veiled under types and shadows is evidently set forth before our eyes. Beloved, tell it all over the world that today salvation has come to the Gentiles and especially to the dwellers in the islands! How remarkable it is that islands are so often alluded to in the Scriptures and that they receive the gospel so much more readily than any other parts of the world. As for the ends of the earth, surely we are intended by that term, for our forefathers dwelt where Phoenicians made distant and dangerous journeys to find tin and other metals, and our land was thought to be upon creation's verge, inhabited by a barbarous people of uncouth tongue and yet to us, even to us, has the gospel come, and now,
 
-> The British islands are the Lord's, Here Abraham's God is known
-> While powers and princes, shields and swords, Submit before His Throne.
+> The British islands are the Lord's, Here Abraham's God is known  
+> While powers and princes, shields and swords, Submit before His Throne.  
 
 Jehovah, the God of the whole earth is our God at this day! In this let us exult, for it proves that to the Gentiles the day of salvation has come!
 
@@ -60,12 +60,12 @@ Mysterious was that bloody sweat! Oh you precious drops, you fell not by chance!
 
 I trust that among those who hear me there are persons unconverted as yet who, nevertheless, are special objects of the Redeemer's intercession and who shall find salvation because their great Substitute was heard on their account. We were all heard when our great high Priest was heard! The Father's answer to Him was an answer of peace to all His people. It is added, "In the day of salvation have I helped You." Help came to the man, Christ Jesus, in His hour of agony. The Father helped Him and there appeared unto Him an angel strengthening Him. How must that angel have marveled as he saw the face of the incarnate God red with a sweat of blood! The whole scene is beyond conception, the prostrate Savior in agonizing pangs utters strong cries and is helped of His God,
 
-> His earnest prayer, His deepening groans,
-> Were heard before angelic thrones!
-> Amazement wrapped the sky:
-> 'Go, strengthen Christ!' The Father said!
-> The astonished seraph bowed his head,
-> And left the realms on high.
+> His earnest prayer, His deepening groans,  
+> Were heard before angelic thrones!  
+> Amazement wrapped the sky:  
+> 'Go, strengthen Christ!' The Father said!  
+> The astonished seraph bowed his head,  
+> And left the realms on high.  
 
 The angel came to strengthen our Champion, not to join in the fight. None could share the conflict. Jesus must tread the winepress alone. But the angel was empowered to communicate strength to the Manhood of Christ and he did so. Then it was that being helped in His hour of need, our Master took the appointed cup full of woe and drank it to its utmost dregs and said, "It is finished!" 'Twas then that by one dreadful draught He pledged the justice of God and gave this day of salvation to the sons of men! You see, then, that our present day of privilege has come to us through the Lord's hearing and helping our Daysman and Redeemer.
 
