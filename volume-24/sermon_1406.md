@@ -1,7 +1,7 @@
 # Sermon 1406 | Remember!
 
-> You shall remember that you were a bondman in the land of Egypt, and the Lord your God redeemed you.
-> Deuteronomy 15:15
+> You shall remember that you were a bondman in the land of Egypt, and the Lord your God redeemed you.  
+> Deuteronomy 15:15  
 
 In an autobiography of William Jay we read that on one occasion he called to see the famous Mr. John Newton, At Olney, and he observed that over the desk at which he was accustomed to compose his sermons, he had written up in very large letters the following words: "Remember that you were a bondman in the land of Egypt, and the Lord your God redeemed you." To my mind this story invests the text with considerable interest: it was most fitting that such a remarkable convert as he should dwell upon such a theme and place such a text conspicuously before his eyes. Might it not with great propriety be placed in a similar position by each one of us?
 
