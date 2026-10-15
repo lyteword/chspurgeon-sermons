@@ -1,7 +1,7 @@
 # Sermon 1393 | Speak For Yourself. A Challenge!
 
-> He is of age; ask him: he shall speak for himself.
-> John 9:21
+> He is of age; ask him: he shall speak for himself.  
+> John 9:21  
 
 Our individuality and the personal responsibilities which fall upon ourselves in reference to Christ must not be lost sight of. If, for instance, a spiritual miracle has been worked upon us and we are obliged to confess. No, if we are delighted to confess that He has opened our eyes, then we are bound, especially those of us who are of ripe understanding, who may be said to be of full age, we are bound to bear our own personal testimony for Him. The allegation and the appeal may alike apply to each one of us, "He is of age; ask him: he shall speak for himself." Jesus Christ Himself bore our sins, as we heard this morning. He gave Himself for us. He served us, not by proxy, but by personal consecration.
 
@@ -57,8 +57,8 @@ This man born blind whose eyes were opened was prepared to meet the Pharisees an
 
 If your gratitude to Him is always at its full heat, I am not afraid but whenever you are taunted, whenever, at any time, you are put to the test, you will be faithful to your friend and able to say with a sound conscience:
 
-> I'm not ashamed to own my Lord, Or to defend His cause
-> Maintain the honor of His Word, The glory of His Cross.
+> I'm not ashamed to own my Lord, Or to defend His cause  
+> Maintain the honor of His Word, The glory of His Cross.  
 
 Every saved man and woman should willingly speak for Himself about Christ. I have said that you will be driven to it. I have also bid you to be prepared for it when you are driven to it. But now I have to urge that you ought willingly to do it. Are we not all debtors to Christ if, indeed, He has saved us? How can we acknowledge that debt if we are ashamed of Him? His testimony is: "He that believes and is baptized, shall be saved." Does the baptism save us? No, verily, but he that believes is bound to be baptized that he may thus confess His Lord! Baptism is the answer of a good conscience towards God. It is the disciple's grateful response to his Master's gracious call. You know how it is put: "He that with his heart believes, and with his mouth makes confession of Him, shall be saved."
 
@@ -106,16 +106,16 @@ No! When I blush, be this my shame,
 
 That I no more revere His name." Break the ice, then, and speak to somebody about this blessed message before you go to rest. Will you resolve to do so? Take care that you defer not till your heart grows cool and the words you purpose freeze on your lips. No, but do it and the thing will grow upon you. Presently you will greet the opportunity as much as you now shrink from the necessity. It will bless your life. I think it is Horatius Bonar who says:
 
-> He lives long who lives well!
-> All else is being flung away.
-> He lives longest who can tell
-> Of true things truly done each day.
-> Be what you seem. Live your creed.
-> Hold up to earth the torch divine! Be what you pray to be made. Let the great Master's steps be yours. Fill up each hour with what will last. Buy up the moments as they go.
-> The life above, when this is past, Is the ripe fruit of life below.
-> Waste not your being! Give to Him
-> Who freely gave it, freely give. Else is that being but a dream,
-> 'Tis but to be and not to live.
+> He lives long who lives well!  
+> All else is being flung away.  
+> He lives longest who can tell  
+> Of true things truly done each day.  
+> Be what you seem. Live your creed.  
+> Hold up to earth the torch divine! Be what you pray to be made. Let the great Master's steps be yours. Fill up each hour with what will last. Buy up the moments as they go.  
+> The life above, when this is past, Is the ripe fruit of life below.  
+> Waste not your being! Give to Him  
+> Who freely gave it, freely give. Else is that being but a dream,  
+> 'Tis but to be and not to live.  
 
 Dear friends, some of you who are believers in Christ have never yet confessed Him! I hope that you will resolve from this night to declare yourselves His disciples and become His faithful followers. You are of age. "Yes," says one, "I am of rather full age, for I am over fifty." Others of you are older than that and though you are believers in Christ you have never confessed Him! It will not do, brothers and sisters. It will not do. It will not do to die with. It does not do to think of now. When He comes, happy shall they be that were not ashamed of Him! But when He comes in His glory with all His holy angels. Trembling shall take hold on those that thought and said they loved Him but never dared to bear reproach for His name's sake or to suffer shame for the gospel! I hope these reflections will make you very uneasy, and constrain you to say, "Please God, I will join a Christian church before this week is over." If you are a believer in Christ, I charge you not to trifle with the voice of conscience, but to pay your vows to the Most High!
 
