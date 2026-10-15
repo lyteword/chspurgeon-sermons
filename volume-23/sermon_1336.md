@@ -1,7 +1,7 @@
 # Sermon 1336 | A Family Sermon
 
-> And the Lord said unto Noah, Come you and all your house into the ark...And Noah went in, and his sons, and his wife, and his sons' wives with him, into the ark, because of the waters of the flood.
-> Genesis 7:1, 7
+> And the Lord said unto Noah, Come you and all your house into the ark...And Noah went in, and his sons, and his wife, and his sons' wives with him, into the ark, because of the waters of the flood.  
+> Genesis 7:1, 7  
 
 God in infinite Grace had entered into Covenant with Noah that He would preserve him and his family alive. The tenor of that Covenant you will find in the eighteenth verse of the sixth chapter. "With you will I establish My Covenant; and you shall come into the ark, you, and your sons, and your wife, and your sons' wives with you." There was a positive foretelling of Noah's coming into the ark and finding safety. The thing was fixed and ordained so to be, and yet, when the time came, Noah was not carried into the ark by force, nor lifted into it against his will by a benevolent violence. He was bid to come into the ark in the most natural manner possible and he entered it voluntarily and cheerfully. He and his family left their houses to find a home in the ark, and so they were saved.
 
@@ -67,8 +67,8 @@ And now, from now on, your service must be to Him only. "You are not your own, y
 
 Thus, you see, Noah, in coming into the ark, left everything and found everything, even as by us the world is forsaken and Jesus becomes our All in All:
 
-> Jesus, I my cross have taken, All to leave, and follow You. Destitute, despised, forsaken, You, from now on, my All shall be. Let the world despise and leave me,
-> They have left my Savior, too: But my Lord will not deceive me, And in Him my all I view.
+> Jesus, I my cross have taken, All to leave, and follow You. Destitute, despised, forsaken, You, from now on, my All shall be. Let the world despise and leave me,  
+> They have left my Savior, too: But my Lord will not deceive me, And in Him my all I view.  
 
 Again, Noah must come into the ark never to go out again. "Come you," says God, "into the ark." He is not to make a visit, but he is to be shut in. As far as that world was concerned, Noah was to be in the ark as long as it lasted. When the new world came, then he walked out in joyful liberty. But you and I, dear Brothers and Sisters, are in Christ, not to be there for a time, but to abide in Him forever and ever!
 
@@ -80,17 +80,17 @@ There was a door to the ark and that door was open. Indeed, we are not told that
 
 The Lord never called any man by effectual Grace to believe in Christ next week. He calls them to believe in Christ directly, and one of the ways by which the effectual call may be judged is its presentness and its pressing character. It is "now, now, now!" Oh, may the Divine Spirit be pleading in some heart at this hour, saying, "Come to Jesus now, before the next word has left the speaker's mouth. Put your trust in Jesus before this service ends and you shall go your way to your chamber and to your bed justified and saved." The Spirit of God sweetly puts it, "Now is the accepted time, now is the day of salvation." Even as He did with Noah, who never dreamed of delays, but, when bid to come, came then and there:
 
-> Come to the ark, the waters rise The seas their billows fear!
-> While darkness gathers over the skies,
-> Behold a refuge near.
-> Come to the ark, all, all that weep
-> Beneath the sense of sin.
-> Without, deep calls unto deep
-> But all is peace within.
-> Come to the ark, before yet the flood
-> Your lingering steps oppose!
-> Come, for the door which open stood
-> Is now about to close.
+> Come to the ark, the waters rise The seas their billows fear!  
+> While darkness gathers over the skies,  
+> Behold a refuge near.  
+> Come to the ark, all, all that weep  
+> Beneath the sense of sin.  
+> Without, deep calls unto deep  
+> But all is peace within.  
+> Come to the ark, before yet the flood  
+> Your lingering steps oppose!  
+> Come, for the door which open stood  
+> Is now about to close.  
 
 And now notice, once more, and that is a sweet part of it. That the Lord said, "Come you and all your house into the ark." How good it is of the Lord to think of our children! That He should save us, oh, we must always bless Him for that! But that He should have a word for our wife, a word for our son and a word for our daughter. This is overflowing mercy! I have heard of a man who was unkind enough to say that he married his wife, but he did not intend to marry all her family. And it sometimes happens that your love to a person is a good deal tried by that person's relatives and friends, but when the Lord Jesus Christ takes to His heart the master or the mistress of a house, He is willing to take all the household!
 
