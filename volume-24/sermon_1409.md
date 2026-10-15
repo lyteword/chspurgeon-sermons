@@ -1,7 +1,7 @@
 # Sermon 1409 | The Shortest of the Seven Cries
 
-> "After this, Jesus knowing that all things were now accomplished, that the scripture might be fulfilled, saith, I thirst."
-> John 19:28.
+> "After this, Jesus knowing that all things were now accomplished, that the scripture might be fulfilled, saith, I thirst."  
+> John 19:28.  
 
 It was most fitting that every word of our Lord upon the cross should be gathered up and preserved. As not a bone of him shall be broken, so not a word shall be lost. The Holy Spirit took special care that each of the sacred utterances should be fittingly recorded. There were, as you know, seven of those last words, and seven is the number of perfection and fulness; the number which blends the three of the infinite God with the four of complete creation. Our Lord in his death-cries, as in all else, was perfection itself. There is a fulness of meaning in each utterance which no man shall be able fully to bring forth, and when combined they make up a vast deep of thought, which no human line can fathom. Here, as everywhere else, we are constrained to say of our Lord, "Never man spake like this man." Amid all the anguish of his spirit his last words prove him to have remained fully self-possessed, true to his forgiving nature, true to his kingly office, true to his filial relationship, true to his God, true to his love of the written word, true to his glorious work, and true to his faith in his Father.
 
@@ -49,9 +49,9 @@ Like a cloud did o'er thee lower,
 
 In that God-excluding hour;
 
-> We, who still, in thought and dead,
-> Often hold the bitter reed
-> To thee, in thy time of need.
+> We, who still, in thought and dead,  
+> Often hold the bitter reed  
+> To thee, in thy time of need.  
 
 I have touched that point very lightly because I want a little more time to dwell upon a fourth view of this scene. May the Holy Ghost help us to hear a fourth tuning of the dolorous music, "I thirst."
 
@@ -63,14 +63,14 @@ And now, brethren, our blessed Lord has at this time a thirst for communion with
 
 Lastly, the cry of "I thirst" is to us the pattern of our death with Him. Know ye not, beloved,, for I speak to those who know the Lord,, that ye are crucified together with Christ? Well, then, what means this cry, "I thirst," but this, that we should thirst too? We do not thirst after the old manner wherein we were bitterly afflicted, for he hath said, "He that drinketh of this water shall never thirst:" but now we covet a new thirst. A refined and heavenly appetite, a craving for our Lord. O thou blessed Master, if we are indeed nailed up to the tree with thee, give us a thirst after thee with a thirst which only the cup of "the new covenant in thy blood" can ever satisfy. Certain philosophers have said that they love the pursuit of truth even better than the knowledge of truth. I differ from them greatly, but I will say this, that next to the actual enjoyment of my Lord's presence I love to hunger and to thirst after him. Rutherford used words somewhat to this effect, "I thirst for my Lord and this is joy; a joy which no man taketh from me. Even if I may not come at him, yet shall I be full of consolation, for it is heaven to thirst after him, and surely he will never deny a poor soul liberty to admire him, and adore him, and thirst after him." As for myself, I would grow more and more insatiable after my divine Lord, and when I have much of him I would still cry for more; and then for more, and still for more. My heart shall not be content till he is all in all to me, and I am altogether lost in him. O to be enlarged in soul so as to take deeper draughts of his sweet love, for our heart cannot have enough. One would wish to be as a spouse, who, when she had already been feasting in the banqueting-house, and had found his fruit sweet to her taste, so that she was overjoyed, yet cried out, "Stay me with flagons, comfort me with apples, for I am sick of love." She craved full flagons of love though she was already overpowered by it. This is a kind of sweet whereof if a man hath much he must have more, and when he hath more he is under a still greater necessity to receive more, and so on, his appetite for ever growing by that which it feeds upon, till he is filled with all the fulness of God. "I thirst," ay, this is my soul's word with her Lord. Borrowed from his lips it well suiteth my mouth.
 
-> I thirst, but not as once I did,
-> The vain delights of earth to share;
-> Thy wounds, Emmanuel, all forbid
-> That I should seek my pleasures there.
-> Dear fountain of delight unknown!
-> No longer sink below the brim;
-> But overflow, and pour me down
-> A living and life-giving stream.
+> I thirst, but not as once I did,  
+> The vain delights of earth to share;  
+> Thy wounds, Emmanuel, all forbid  
+> That I should seek my pleasures there.  
+> Dear fountain of delight unknown!  
+> No longer sink below the brim;  
+> But overflow, and pour me down  
+> A living and life-giving stream.  
 
 Jesus thirsted, then let us thirst in this dry and thirsty land where no water is. Even as the hart panteth after the water brooks, our souls would thirst after thee, O God.
 
