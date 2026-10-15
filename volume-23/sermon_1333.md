@@ -1,7 +1,7 @@
 # Sermon 1333 | "Rest in the Lord"
 
-> Rest in the Lord.
-> Psalm 37:7
+> Rest in the Lord.  
+> Psalm 37:7  
 
 The occurrence of our text in the Psalm before us is an instance of the great rule that the Lord does nothing by halves. In this priceless Psalm, the Lord found His servant, in the first verse, liable to fretfulness and envy, and He exhorted him to cease from fretting. Then, in verse three, He taught him to trust. In verse four He led him on to delight. In verses five and six He conducted him into a peaceful committing of his way unto God and He did not stay the operation of His Grace till He had perfected that which concerned him and brought him up to the elevated point of our text, "Rest in the Lord, and wait patiently for Him." God does not merely cure the evil in us, but He confers unspeakable good! He takes away the disfiguring wound, but He imparts, also, comeliness and beauty.
 
@@ -33,14 +33,14 @@ When you have thus come out of the field and have arrived at the palace of Love,
 
 As for all your trials, come, now, and believe in God concerning them. Do not let anything make you mistrust or distrust your God. Know that He is God and "His mercy endures forever," and trust in Him forever! But let this faith be practical: "Trust in the Lord and do good." A dead faith will bring you but poor comfort. Yours must be a faith which can do as well as receive. It is through the exercise of faith that comfort comes to the heart, even as the exercise of our limbs warms our bodily frame. Do good even if you suffer for it and you shall partake in the joy of your Lord:
 
-> Commit your way to God,
-> The weight which makes you faint.
-> Worlds are to Him no load.
-> To Him breathe your complaint.
-> He who for winds and clouds
-> Makes a pathway free,
-> Through wastes, or hostile crowds
-> Will make a way for thee.
+> Commit your way to God,  
+> The weight which makes you faint.  
+> Worlds are to Him no load.  
+> To Him breathe your complaint.  
+> He who for winds and clouds  
+> Makes a pathway free,  
+> Through wastes, or hostile crowds  
+> Will make a way for thee.  
 
 When you have learned to trust and to do, you will have ascended a noble staircase of the royal Palace, and where does it land you? It lands you in the king's dining room, where it is written: "Verily you shall be fed." Observe the promise, if you have a living, active faith you shall be provided for! Your bodily needs, as they come, shall be relieved. Your mental needs, also, shall be satisfied. And as for the vast demands of your spirit, God All-Sufficient shall supply them all: "So shall you dwell in the land and verily you shall be fed." It will be a happy circumstance, dear Brothers and Sisters, if you can come up the first staircase this morning, leaving the fields, leaving the elder brother who complains concerning the many years of service in which his Father has never given him a kid, that he might make merry with his friends, if you, I say, can come up rejoicing to do the will of the Lord out of motives of love!
 
@@ -74,8 +74,8 @@ Grip the blessings and then understand that having believed that Jesus is the Ch
 
 Next, this rest is, in another aspect, contentment. Perfect satisfaction with our earthly lot. Ambition spoils rest. The constant greed of avarice puts rest out of the question. The worry, the fret, the fume of accumulating, of desiring more, of impatiently coveting more than God is pleased to give. All this ruins rest. Oh, to say, "The Lord's will be done! Having food and clothing, I am content." "I have learned, in whatever state I am, to be content," and to let ambition, lofty desires, fretfulness and complaining all go and just say, "God has appointed my portion and ordained all my ways. So let it be." This is rest! Put this together with security as to the eternal future and you have gained two very sweet ingredients with which to compose a rest worthy of the sons of God:
 
-> Rest, weary heart,
-> From all your silent griefs and secret pain, Your profitless regrets and longings vain. Wisdom and love have ordered all the past, All shall be blessedness and light at last! Cast off the cares that have so long oppressed. Rest sweetly, rest!
+> Rest, weary heart,  
+> From all your silent griefs and secret pain, Your profitless regrets and longings vain. Wisdom and love have ordered all the past, All shall be blessedness and light at last! Cast off the cares that have so long oppressed. Rest sweetly, rest!  
 
 Next, there is in this rest the idea of immovable confidence. Perfect confidence in God so that when severe trail comes, the soul says, "It is right. I am sure it is right. I cannot see the reason, but I know that the trial is sent in love. I am certain of that." When another trial befalls, child-like confidence in God still says, "It could not be better if God sends two troubles, they are better than one. And if He sends six, they are six times better than one, though they seem six times worse." That confidence says, also, "He will bring me out of it. He never sent me out, yet, upon the sea of tribulation but what He brought me home again! He never sent me to a battle at my own charges yet. He never bade me do a work but what He gave me strength for it! He never called me to suffer but what He sustained me under the pain."
 
@@ -105,8 +105,8 @@ Now, Beloved, come near to Jesus by a living faith! Hide yourselves in Jesus! En
 
 Let me tenderly entreat the tempted Believer to tell Jesus all his case and look to Him for that rest which He Himself promised when He said, "Take My yoke upon you and learn of Me, and you shall find rest unto your souls."
 
-> Rest, weary soul!
-> The penalty is borne, the ransom paid, For all your sins full satisfaction made! Strive not to do yourself what Christ has done, Claim the free gift and make the joy your own. No more by pangs of guilt and fear distress, Rest, sweetly rest!
+> Rest, weary soul!  
+> The penalty is borne, the ransom paid, For all your sins full satisfaction made! Strive not to do yourself what Christ has done, Claim the free gift and make the joy your own. No more by pangs of guilt and fear distress, Rest, sweetly rest!  
 
 Although this is obviously the main meaning, we may add that, "Rest in the Lord," means rest in Him as your Covenant God. You have not to deal with an abstract Deity who stands afar off as your offended Creator. Behold, Beloved, if you believe in Jesus, the Lord has entered into an everlasting Covenant with you, ordered in all things and sure! He has said concerning you, "I will not turn away from you to do you good." He has promised to keep you and preserve you and bring you into His eternal Glory by a Covenant signed and sealed with the precious blood of Christ!
 
