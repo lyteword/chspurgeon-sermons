@@ -1,7 +1,7 @@
 # Sermon 1429 | Faith's Sure Foundation
 
-> He that believes on Him shall not be confounded.
-> 1 Peter 2:6
+> He that believes on Him shall not be confounded.  
+> 1 Peter 2:6  
 
 My sermon last Sabbath morning was upon the true position of the witness within and I then tried to show that the guarantee and ground of our believing in Christ unto eternal life is the witness which God Himself has borne concerning His Son. Not our feelings, or experiences, but the testimony of God is to stand to us as the reason for our believing. I tried to set forth that doctrine very clearly and I have been greatly delighted to find that the blessing of God rendered it effectual. I have met with five young men who have each one said, "If this believing in Christ because God has set Him forth and borne witness to Him, is really the way of salvation, then we are saved and we come forward to declare that we are on the Lord's side."
 
@@ -103,13 +103,13 @@ No, Beloved, everything hangs upon the divine fidelity! If believers are lost, G
 
 If the devil could get a believer in hell, what a noise he would make about him! "Jesus of Nazareth! Here is one of Your own! One who trusted in You and yet he is in hell! You kept the strong because they kept themselves, but You could not keep the weak and, therefore, here is one lost. Lost forever." How would hellish malice exult if such an occasion for scorn were given! But it shall never be! Because Jesus lives, we also shall live and shall not be confounded! Let us rest in our Lord's faithfulness and accept the pledges of His eternal affection:
 
-> His honor is engaged to save
-> The meanest of His sheep!
-> All that His heavenly Father ga ve,
-> His hands securely keep.
-> Nor death nor Hell shall ever remove
-> His favorites from His breast:
-> In the dear bosom of His lo ve
-> They must forever rest.
+> His honor is engaged to save  
+> The meanest of His sheep!  
+> All that His heavenly Father ga ve,  
+> His hands securely keep.  
+> Nor death nor Hell shall ever remove  
+> His favorites from His breast:  
+> In the dear bosom of His lo ve  
+> They must forever rest.  
 
 Amen and amen!
