@@ -1,7 +1,7 @@
 # Sermon 1407 | Compassion on the Ignorant
 
-> Who can ha ve compassion on the ignorant, and on them that are out of the way; for that he himself also is compassed with infirmity.
-> Hebrews 5:2
+> Who can ha ve compassion on the ignorant, and on them that are out of the way; for that he himself also is compassed with infirmity.  
+> Hebrews 5:2  
 
 This is a part of the necessary qualification of a priest. Under the old law there were priests who were taken from among men in order that they might speak to God for men and might speak to men for God. They were taken from among men, not from among angels, and they were taken from men compassed with infirmity, not from absolutely perfect men like those in heaven, in order that they might be familiar with sinful and suffering men and on a level with them. When the people of Israel came to them they saw that they were speaking to persons who knew and understood their weaknesses and sorrows. Not to exalted beings who would look down upon them with serene indifference.
 
