@@ -1,7 +1,7 @@
 # Sermon 1474 | The Middle Passage
 
-> O Lord, I have heard Your speech, and was afraid; O Lord, revive Your work in the midst of the years, in the midst of the years make known; in wrath remember mercy.
-> Habakkuk 3:2
+> O Lord, I have heard Your speech, and was afraid; O Lord, revive Your work in the midst of the years, in the midst of the years make known; in wrath remember mercy.  
+> Habakkuk 3:2  
 
 (In commemoration of the completion of the twenty-fifth year of his Ministry over the Church meeting in the Tabernacle).
 
@@ -115,4 +115,4 @@ We fall without our God, but with God our feet shall never slide! He keeps the f
 As for me:
 
 > I'll praise Him while He lends me breath, And when my voice is lost in death, Praise shall employ my nobler powers! My days of praise shall never be past, While life, and thought, and being last,   
-> Or immortality endures.
+> Or immortality endures.  
