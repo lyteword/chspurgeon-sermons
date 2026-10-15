@@ -1,7 +1,7 @@
 # Sermon 1387 | God's Thoughts and Ways Far Above Ours
 
-> For My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts.
-> Isaiah 55:8,9
+> For My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts.  
+> Isaiah 55:8,9  
 
 Very often must the great Truth of God expressed by this Scripture have forced itself upon every thoughtful mind. Though we think and are so far like God because, being intelligent beings, we have thoughts of our own, yet our thoughts must forever be weak and fragmentary as compared with His thoughts. And though, as free agents, we have ways of our own choice. In some of which we move with great show of wisdom, yet our ways are upon the earth and cannot attain to the ways of the Lord which are far above us. This is true as to His proceedings in Providence. God's designs are vast and far-reaching and His methods are frequently strange and inscrutable, though always wise.
 
@@ -15,8 +15,8 @@ Could man have dreamed that he was the object of eternal love and that God would
 
 Even when the Lord explains His thoughts and ways to us, and brings them down to our comprehension as far as they can be, yet we cannot fail to wonder at their elevation and grandeur:
 
-> Great God of wonders! All Your ways
-> Are matchless, Godlike, and Divine.
+> Great God of wonders! All Your ways  
+> Are matchless, Godlike, and Divine.  
 
 Have you not often stood in mute astonishment as you have discovered some fresh blessing of the Covenant unknown to you before? Like a miner who turns over another nugget in the mine and stands in amazed delight, so have you mingled faith with astonishment! Have you not known what it is to do as David did when Nathan brought him tidings of the Lord's Covenant with him: "Then went king David in and sat before the Lord, and he said, Who am I, O Lord God? And what is my house, that You have brought me up to now? And is this the manner of man, O Lord God?"
 
