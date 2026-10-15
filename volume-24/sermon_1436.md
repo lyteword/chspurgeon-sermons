@@ -1,7 +1,7 @@
 # Sermon 1436 | What The Church Should Be
 
-> That you may know how you ought to beha ve yourself in the house of God, which is the Church of the living God, the pillar and basement of the Truth.
-> 1 Timothy 3:15
+> That you may know how you ought to beha ve yourself in the house of God, which is the Church of the living God, the pillar and basement of the Truth.  
+> 1 Timothy 3:15  
 
 Paul's design in this Epistle was to instruct young Timothy how he should behave himself in the Church of God, so as to discharge his office as minister, evangelist and pastor with honor to himself and profit to the people. He reminds him that the church is the house of God and in God's own house a man ought to be upon his best behavior, for it is no light thing to draw near unto the Lord. A poor man who is called to visit a prince or king will anxiously enquire how he ought to act. We, poor creatures that we are, when we are admitted into the church which is the house of God, should enquire what conduct will be decorous and comely in those who are admitted into the presence of the great King and permitted to dwell within His palace gates.
 
@@ -113,5 +113,5 @@ Now, brothers and sisters, you see how each one of you ought to behave in the Ch
 
 I cannot finish my sermon better than by commending to you the verse which was sung just now by your 5,000 voices:
 
-> Should all the forms that men devise Assault my faith with treacherous art,
-> I'll call them vanity and lies, And bind the Gospel to my heart.
+> Should all the forms that men devise Assault my faith with treacherous art,  
+> I'll call them vanity and lies, And bind the Gospel to my heart.  
