@@ -1,26 +1,26 @@
 # Sermon 1410 | Believers Free from the Dominion of Sin
 
-> For sin shall not have dominion over you: for you are not under the Law, but under Grace.
-> Romans 6:14
+> For sin shall not have dominion over you: for you are not under the Law, but under Grace.  
+> Romans 6:14  
 
 Our constant hearers will remember that a Sabbath or so ago we spoke upon, "Submit yourselves unto God." It is both the way to peace and the way of peace to submit one's whole self unto God. Nor is it an irksome task to a true believer, but the desire of his heart, the pleasure of his life. He shudders at the idea of yielding his members as instruments of unrighteousness unto sin, but according to the language of the verse which precedes our text, he yields himself unto God as one who has been made alive from the dead and his members as instruments of righteousness unto God. Complete consecration of every faculty of mind and body unto the Lord is our soul's deepest wish. We can sing most sincerely that sweet consecration hymn:
 
-> Take my hands and let them move,
-> At the impulse of Your love.
-> Take my feet and let them be,
-> Swift and beautiful for Thee.
-> Take my voice and let me sing,
-> Always, only for my King!
-> Take my lips and let them be,
-> Filled with messages from Thee.
-> Take my will and make it Thine,
-> It shall be no longer mine.
-> Take my intellect, and use
-> Every power as You shall choose.
-> So that all my powers combine,
-> To adore Your Grace Divine,
-> Heart and soul a living flame,
-> Glorifying Your great name.
+> Take my hands and let them move,  
+> At the impulse of Your love.  
+> Take my feet and let them be,  
+> Swift and beautiful for Thee.  
+> Take my voice and let me sing,  
+> Always, only for my King!  
+> Take my lips and let them be,  
+> Filled with messages from Thee.  
+> Take my will and make it Thine,  
+> It shall be no longer mine.  
+> Take my intellect, and use  
+> Every power as You shall choose.  
+> So that all my powers combine,  
+> To adore Your Grace Divine,  
+> Heart and soul a living flame,  
+> Glorifying Your great name.  
 
 But, Beloved, we find another law in our members warring against the law of our mind. To the full yielding up of all our members we find a hindrance in the sin which dwells in us, that sin which finds its haunt and hiding place in our mortal body, in the desires, passions and appetites of our animal nature. These within proper limits are right enough: it is right that we eat and drink, and so forth, but our natural instincts are apt to demand indulgence and so to become lusts. Our mortal body, in its natural desires, affords dens for the foxes of sin. The carnal mind, also, readily leans to the indulgence of the body and thus there is presented a powerful opposition to the work of divine grace. Every true child of God must be conscious of the presence of the rebellious power and principle of sin within him.
 
