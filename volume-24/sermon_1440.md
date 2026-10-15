@@ -1,7 +1,7 @@
 # Sermon 1440 | The Great Emancipator
 
-> And you shall say unto Pharaoh, thus says the Lord, Israel is My son, even My firstborn: and I say unto you, Let My son go, that he may serve Me.
-> Exodus 4:22,23
+> And you shall say unto Pharaoh, thus says the Lord, Israel is My son, even My firstborn: and I say unto you, Let My son go, that he may serve Me.  
+> Exodus 4:22,23  
 
 "Then the Lord said unto Moses, Now shall you see what I will do to Pharaoh."
 
@@ -31,10 +31,10 @@ Oh, the freeness and spontaneity of the grace of God that He should know His peo
 
 We do not sufficiently reflect upon the covenant as the great deep that lies under the fountain of many waters out of which all the wells of salvation continue to be filled with the living waters of grace:
 
-> Never had you felt the guilt of sin,
-> Or sweets of pardoning love,
-> Unless your worthless name had been
-> Enrolled to life above.
+> Never had you felt the guilt of sin,  
+> Or sweets of pardoning love,  
+> Unless your worthless name had been  
+> Enrolled to life above.  
 
 If you had not an interest in that covenant which He made in the eternal council chamber long before the earth was most assuredly in hapless, hopeless obscurity, you would have lived and died! This was the reason why He called Israel His son! An ancient covenant had made Israel to be so regarded. How sweet it is that He does not merely speak about the people as being His people, but He says, "Israel is My son." There is a love between father and son which cannot be found elsewhere. Blood is thicker than water. Relationship has ties that cannot be relaxed.
 
