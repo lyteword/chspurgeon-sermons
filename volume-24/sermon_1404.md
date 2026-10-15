@@ -1,7 +1,7 @@
 # Sermon 1404 | Over Against the Sepulcher
 
-> Sitting over against the sepulcher.
-> Matthew 27:61
+> Sitting over against the sepulcher.  
+> Matthew 27:61  
 
 Mary Magdalene and the other Mary were last at the Savior's grave. They had associated themselves with Joseph and Nicodemus in the sad but loving task of placing the body of their Lord in the silent tomb. After the holy men had gone home they lingered near the grave. Sitting down, perhaps upon some seat in the garden, or on some projection of the rock, they waited in mournful solitude. They had seen where and how the body was laid and so had done their utmost, but yet they still sat watching. Love has never done enough, it is hungry to render service. They could scarcely take their eyes away from the spot which held their most precious Treasure, nor leave, till they were compelled to do so, the sacred relics of their Best Beloved.
 
@@ -11,19 +11,19 @@ All having thus departed, the two Marys were the sole watchers at the tomb of Ch
 
 "He was crucified, dead, and buried," says the creed and, therefore those who wrote that summary must have thought His burial an important truth of God and so, indeed, it is. It was the natural sequence and seal of His death and so was related to that which went before. It was the fit and suitable preparation for His rising again and so stood in connection with that which followed after. Come, then, let us take our seat with the holy women "over against the sepulcher" and sing:
 
-> Rest, glorious Son of God:
-> Your work is done,
-> And all your burdens borne.
-> Rest on that stone
-> Till the third sun has brought
-> Your everlasting morn.
-> How calmly in that tomb You lie now,
-> Your rest how still and deep!
-> O'er You in love the Father rests:
-> He gives to His Beloved sleep.
-> On Bethel pillow now Your head is laid,
-> In Joseph's rock-hewn cell;
-> Your watchers are the angels of Your God They guard Your slumbers well.
+> Rest, glorious Son of God:  
+> Your work is done,  
+> And all your burdens borne.  
+> Rest on that stone  
+> Till the third sun has brought  
+> Your everlasting morn.  
+> How calmly in that tomb You lie now,  
+> Your rest how still and deep!  
+> O'er You in love the Father rests:  
+> He gives to His Beloved sleep.  
+> On Bethel pillow now Your head is laid,  
+> In Joseph's rock-hewn cell;  
+> Your watchers are the angels of Your God They guard Your slumbers well.  
 
 Supposing ourselves to be sitting in the garden with our eyes fixed upon the great stone which formed the door of the tomb, we first of all admire that He had a grave at all. We wonder how that stone could hide Him who is the brightness of His Father's glory, how the life of all could lie among the dead, how He who holds creation in His strong right hand could even, for an hour, be entombed! Admiring this, we would calmly reflect, first, upon the testimony of His grave that He was really dead. Those tender women could not have been mistaken, their eyes were too quick to suffer Him to be buried alive, even if anyone had wished to do so.
 
