@@ -1,7 +1,7 @@
 # Sermon 1337 | Love's Medicines and Miracles
 
-> Behold, for peace I had great bitterness: but You have, in love to my soul, delivered it from the pit of corruption: for You have cast all my sins behind Your back
-> Isaiah 38:17
+> Behold, for peace I had great bitterness: but You have, in love to my soul, delivered it from the pit of corruption: for You have cast all my sins behind Your back  
+> Isaiah 38:17  
 
 Hezekiah's recovery is a notable encouragement to prayer. If ever there was a case in the world where it seemed impossible that prayer could be of any use, it was that of Hezekiah. It was perceivable by everybody around him that he was sick unto death. Why, then, think of prayer? The case was fatal. Would it not expose prayer to derision if such a matter were taken before the Mercy Seat? Moreover, God's own Word, spoken by His servant the Prophet, had been given: "Set your house in order, for you shall die, and not live." What could be the use of prayer after that? Might it not be regarded as an impertinent interference with the known will of the Lord?
 
@@ -75,17 +75,17 @@ Equally has the Lord delivered us, at this time, from the awful consciousness of
 
 It is not always that awakened souls suffer so much, but any man who has felt his own sinfulness has seen that which might make every individual hair upon His head stand upright with horror, since to be a sinner is the most dreadful thing conceivable. To have God's wrath revealed in the spirit is to have a seething Hell within one's conscience! But, blessed be His name, He has loved us out of that pit of despair! No longer are we burdened with a sense of sin, for we are pardoned! Our conscience is purged from dead works. The precious blood has made us happy in God. We are reconciled to Him by the death of His Son and all our trespasses are forgiven forever! Therefore our heart is glad in the Lord and to Him will we sing our songs upon our stringed instruments all the days of our life in the house of the Lord:
 
-> In a dungeon deep He found me,
-> Without water, without light,
-> Bound in chains of horrid darkness,
-> Gloomy, thick, Egyptian night!
-> He recovered there my soul with price immense.
-> And for this let men and angels,
-> All the heavenly hosts above,
-> Choirs of seraphim elected,
-> With their golden harps of love,
-> Praise and worship,
-> My Redeemer without end.
+> In a dungeon deep He found me,  
+> Without water, without light,  
+> Bound in chains of horrid darkness,  
+> Gloomy, thick, Egyptian night!  
+> He recovered there my soul with price immense.  
+> And for this let men and angels,  
+> All the heavenly hosts above,  
+> Choirs of seraphim elected,  
+> With their golden harps of love,  
+> Praise and worship,  
+> My Redeemer without end.  
 
 Since that first dark hour of conviction, I dare say you have passed through other fearful depressions of spirit, very similar to this which is recorded of Hezekiah. You have not descended quite so deep into the pit as you did at first, but yet you have known bitter sorrows and have been delivered from them. Are you, this morning happy in the Lord? Are you again rejoicing? Then say with the king: "You have in love to my soul delivered it from the pit of corruption. The Lord was ready to save me, therefore we will sing my songs on the stringed instruments in the house of the Lord." There comes speedily a time when we shall sing this song more sweetly in a better land than this, where there shall be none of these mists to hang about us, but changeless, everlasting noonday without a cloud!
 
@@ -105,31 +105,31 @@ A moment's memory of the days of our espousals makes the heart sick with longing
 
 When the love of God is shed abroad in the soul you feel no longer sleepy and indifferent, but your spirit girds herself with zeal as with a cloak and your heart glows with vehement flames of affection. How truly does our poet sing:
 
-> O Jesus, King most wonderful,
-> You Conqueror renowned,
-> You sweetness most ineffable,
-> In whom all joys are found!
-> When once You visit the heart,
-> Then truth begins to shine,
-> Then earthly vanities depart,
-> Then kindles love Divine.
+> O Jesus, King most wonderful,  
+> You Conqueror renowned,  
+> You sweetness most ineffable,  
+> In whom all joys are found!  
+> When once You visit the heart,  
+> Then truth begins to shine,  
+> Then earthly vanities depart,  
+> Then kindles love Divine.  
 
 The ever-gracious Lord means to perfect that which concerns you by the action of this same love. His gentleness has made you great and His love will make you glorious! Divine love is the most sanctifying agency in the world. It is that which checked us before we knew the Lord when we ran so greedily after sin. And it is that which constrains us now that we live unto His name, for, "the love of Christ constrains us." Behold, then, the love of the Spirit! Is not this most blessed medicine?
 
 We spoke of bitter draughts under our first head, and truly these have their virtue, but here the Lord's love uses medicine like itself! Yes, it becomes, itself, the medicine and the Lord seems to say, "Here is My dear child, sick, and I will restore him by giving him more love." Divine love is a catholicon, a universal medicine. No spiritual disease can resist its healing power. The love and blood of Jesus, applied by the Holy Spirit, will raise up the saints from pining sickness and restore them from the gates of the grave. No heart, however like granite it becomes, can long resist almighty love. The rebel may stand up in bold defiance and stand out in daring obstinacy, but when he begins to feel God loves him he cries:
 
-> Lord, You have won. At last I yield!
-> My heart, by mighty Grace compelled
-> Surrenders all to You!
-> Against Your terrors long I strove,
-> But who can stand against Your love?
-> Love conquers even me!
-> If You had bid Your thunders roll,
-> And lightnings flash, to blast my soul,
-> I still had stubborn been.
-> But mercy has my heart subdued,
-> A bleeding Savior I have viewed,
-> And now I hate my sin.
+> Lord, You have won. At last I yield!  
+> My heart, by mighty Grace compelled  
+> Surrenders all to You!  
+> Against Your terrors long I strove,  
+> But who can stand against Your love?  
+> Love conquers even me!  
+> If You had bid Your thunders roll,  
+> And lightnings flash, to blast my soul,  
+> I still had stubborn been.  
+> But mercy has my heart subdued,  
+> A bleeding Savior I have viewed,  
+> And now I hate my sin.  
 
 We must briefly notice the modus operandi of this love. "You have embraced my soul out of the pit of corruption." Yonder is the child in the pit and the father, wishing to save it, goes down into the pit and embraces his beloved one and so brings him up to life and safety. After this manner did Jesus save us! He embraced us by taking our nature and so becoming one with us. It is by embraces that He regenerates converts and sanctifies us, for He comes into union with us by the indwelling of the Holy Spirit! All our lives He communes with us and embraces us with arms of mighty love and so lifts us up from the pit of corruption.
 
