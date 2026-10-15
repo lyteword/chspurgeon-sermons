@@ -1,7 +1,7 @@
 # Sermon 1359 | Happiness, the Privilege and Duty of Christians
 
-> Happy are you, O Israel; who is like unto you? Opeople saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places.
-> Deuteronomy 33:29
+> Happy are you, O Israel; who is like unto you? Opeople saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places.  
+> Deuteronomy 33:29  
 
 These are the last recorded words of Moses and they are significant, for they show us that he found comfort, in his dying moments, in considering the happiness of the people for whom he had labored all his life. From the day when, by God's power, he led them up out of Egypt and brought them into the wilderness, they had never ceased to lie near his heart. They had been a very heavy burden to him at times, but with marvelous meekness and patience he had borne with their many rebellious provocations and only once spoken bitterly of them. Oftentimes had he stood in the gap and made intercession for them, when otherwise they would have been destroyed. He had, for their sakes, given up the most glorious prospect that was ever proposed to the mind of man, for the Lord had said to him in secret, "Let Me alone, that I may destroy them; and I will make of you a greater nation."
 
@@ -23,22 +23,22 @@ I think, also, that he had in his mind's eye the fact that they were now about t
 
 "Happy are you, O Israel; you are about to throw yourself into the midst of ferocious tribes who will all conspire to cut you off; but you are a people saved of the Lord; your enemies shall be found liars unto you, and you shall tread upon their high places."
 
-> My never-ceasing songs shall show
-> The mercies of the Lord,
-> And make succeeding ages know
-> How faithful is His Word.
-> The sacred Truths His lips pronounce
-> Shall firm as Heaven endure;
-> And if He speak a promise once,
-> The eternal Grace is sure.
-> How long the grace of David held
-> The promised Jewish Throne!
-> But there's a nobler Covenant sealed
-> To David's greater Son.
-> His seed forever shall possess
-> A Throne above the skies;
-> The meanest subject of His Grace
-> Shall to that glory rise.
+> My never-ceasing songs shall show  
+> The mercies of the Lord,  
+> And make succeeding ages know  
+> How faithful is His Word.  
+> The sacred Truths His lips pronounce  
+> Shall firm as Heaven endure;  
+> And if He speak a promise once,  
+> The eternal Grace is sure.  
+> How long the grace of David held  
+> The promised Jewish Throne!  
+> But there's a nobler Covenant sealed  
+> To David's greater Son.  
+> His seed forever shall possess  
+> A Throne above the skies;  
+> The meanest subject of His Grace  
+> Shall to that glory rise.  
 
 So, then, I gather from the example of Moses that to commend a man's condition, if you have a wise motive for it, and can either console him under trouble or inspire him for future service, is a right thing to do.
 
@@ -86,14 +86,14 @@ Another source of joy for the Israelite is found in the grand Truth of God that 
 
 Many evils would injure you and even destroy you, if they could, but Jehovah Jesus interposes between you and them:
 
-> Many times since days of youth,
-> May Israel truly say,
-> Foes devoid of love and truth
-> Afflict me day by day.
-> Yet they never can prevail,
-> God defends His people still!
-> Jesus 'power can never fail
-> To save from all that's ill.
+> Many times since days of youth,  
+> May Israel truly say,  
+> Foes devoid of love and truth  
+> Afflict me day by day.  
+> Yet they never can prevail,  
+> God defends His people still!  
+> Jesus 'power can never fail  
+> To save from all that's ill.  
 
 See how the Lord our God has interposed, already, on innumerable occasions. We have been laid low by sickness, but it has worked our spiritual health. We have experienced losses, but we have been enriched by them in the highest sense. We have even endured calumny, but our character is still as bright as ever through the gracious protection of our God. We have been assailed by temptation, but the evil influence did not enter our spirit, so as to pollute it, for just then Divine Grace came in to prevent our yielding to the vile suggestion. We have been the subjects of much doubt and skepticism, but always, when these have flown at us like vultures, God, Himself, in infinite love, has turned aside their fierce attacks.
 
