@@ -1,7 +1,7 @@
 # Sermon 1348 | The Great House and the Vessels In It
 
-> But in a great house there are not only vessels of gold and of silver, but, also, of wood and of earth; and some to honor and some to dishonor. If a man, therefore, purges himself from these, he shall be a vessel unto honor, sanctified, and meet for the Master's use, and prepared unto every good work.
-> 2 Timothy 2:20,21
+> But in a great house there are not only vessels of gold and of silver, but, also, of wood and of earth; and some to honor and some to dishonor. If a man, therefore, purges himself from these, he shall be a vessel unto honor, sanctified, and meet for the Master's use, and prepared unto every good work.  
+> 2 Timothy 2:20,21  
 
 One of the most serious calamities which can befall a Church is to have her own ministers teaching heresy. Yet this is no new thing. It has happened from the beginning. Paul and Peter and James and John, in their Epistles, had to speak of seducers in the Churches, even in those primitive days, and ever since then there have arisen in the very midst of the House of God those who have subverted the faith of many and led them away from the fundamental Truths of God into errors of their own inventing.
 
@@ -89,15 +89,15 @@ We are now going into the treasury, or plate room, and will think of the nobler 
 
 Now, we shall, none of us, ever be vessels of silver and gold unless the Lord makes us so by Divine Grace. Vessels of earth are things of nature. Any potter can make them. Vessels of wood are common enough. Copper soon produces a pail. But a vessel of silver or of gold is a rarer thing! It costs mining and searching, furnace work and fashioning, toil and skill. On each vessel unto honor, Jesus Himself has put His hand to mold and fashion it, and to cause it to be "prepared unto glory." Did you ever hear how vessels come to be golden? Listen to this, and you shall know. One very dear to me has put the story into rhyme:
 
-> 'Oh that I were a cup, a golden cup
-> Meet for the Master's use!
-> Brimming and trembling with that draught of joy
-> (The love of His beloved and purchased ones)
-> Which fills His heart with gladness.'
-> So spoke a poor, vile, broken, earthy thing,
-> A worthless castaway.
-> The Master heard and when He passed that way He stooped and touched it with His wounded hand, when lo! Its baseness vanished, and instead
-> There stood a golden chalice wondrous fair, And overflowing with deep love for him! He raised it to His gracious lips, and quaffed 'The wine that makes glad the heart of God,' Then took the cup to Heaven.
+> 'Oh that I were a cup, a golden cup  
+> Meet for the Master's use!  
+> Brimming and trembling with that draught of joy  
+> (The love of His beloved and purchased ones)  
+> Which fills His heart with gladness.'  
+> So spoke a poor, vile, broken, earthy thing,  
+> A worthless castaway.  
+> The Master heard and when He passed that way He stooped and touched it with His wounded hand, when lo! Its baseness vanished, and instead  
+> There stood a golden chalice wondrous fair, And overflowing with deep love for him! He raised it to His gracious lips, and quaffed 'The wine that makes glad the heart of God,' Then took the cup to Heaven.  
 
 On the vessels of honor you can see the hallmark. What is the hallmark which denotes the purity of the Lord's golden vessels? Well, He has only one stamp for everything. When He laid the foundation what was the seal He put upon it? "The Lord knows them that are His, and let everyone that names the name of Christ depart from all iniquity." That was God's seal! That was the impress of the great King upon the foundation stone. Do we find it here? Yes, we do. "If a man, therefore, purges himself from these, he shall be a vessel unto honor." You see, then, that the man who is the golden or silver vessel, departs from all iniquity, and that is the token of his genuine character.
 
