@@ -1,7 +1,7 @@
 # Sermon 1384 | A Round of Delights
 
-> Now the God of Hope fill you with all joy and peace in believing, that you may abound in hope, through the power of the Holy Spirit.
-> Romans 15:13
+> Now the God of Hope fill you with all joy and peace in believing, that you may abound in hope, through the power of the Holy Spirit.  
+> Romans 15:13  
 
 This is one of the richest passages in the Word of God. It is so full of instruction that I cannot hope to bring out even so much as a tenth of its teaching. The Apostle desired that the Roman Christians might be in the most delightful state of mind, that they should be filled with joy and peace and that this should lead on to yet further expectations and create an abundance of hope in their souls. See, dear Friends, the value of prayer, for if Paul longs to see his friends attain the highest possible condition, he prays for them! What will prayer not do? Whatever you desire for yourself or for another, let your desire be prepared like sweet spices and compounded into a supplication, then present it to God and the benediction will come.
 
@@ -65,11 +65,11 @@ But, Beloved, this blessed state is, also, a compound, for we are bid at one and
 
 We rest and praise, as trees hold to the earth by their roots and perfume the air with their blooms, as morning comes without the sound of a trumpet and yet awakens the music of birds by its arising. Ours is no froth of joy. There is solid peace beneath our effervescence of delight. Happy are we to have learned how to combine two such choice things:
 
-> Joy is a fruit that will not grow
-> In nature's barren soil.
-> All we can boast, till Christ we know,
-> Is vanity and toil.
-> But where the Lord has planted Grace, And made His glories known, These fruits of heavenlyjoy and peace Are found, and there alone.
+> Joy is a fruit that will not grow  
+> In nature's barren soil.  
+> All we can boast, till Christ we know,  
+> Is vanity and toil.  
+> But where the Lord has planted Grace, And made His glories known, These fruits of heavenlyjoy and peace Are found, and there alone.  
 
 Now, I need you to lay stress on the next observation I am about to make because I began with it and wish to leave it upon your minds as the chief thought. The joy and peace here spoken of are through believing. You come to know the God of Hope through the Scriptures which reveal Him. By this you are led to believe in Him and it is through that believing that you become filled with joy and peace!
 
@@ -95,14 +95,14 @@ Now, therefore, in the chamber where Fear formerly dwelt, Hope takes up its resi
 
 The Believer has great joy because God's love is shed abroad in his soul and he argues that if the Lord loves him so intensely now, He will not undergo a change and remove His love. He who in love redeemed me by the blood of His Son will love me eternally, for He changes not! Is not this a sound argument? Grace enjoyed is a pledge of Glory! Redeeming love is the guarantee of preserving love! Acceptance with God today creates a blessed hope of acceptance forever! Faith and joy within the soul sing to one another somewhat after this fashion:
 
-> His smiles have freed my heart from pain,
-> My drooping spirits cheered
-> And will He not appear again
-> Where He has once appeared?
-> Has He not formed my soul anew,
-> And caused my light to shine
-> And will He now His work undo,
-> Or break His Word Divine?
+> His smiles have freed my heart from pain,  
+> My drooping spirits cheered  
+> And will He not appear again  
+> Where He has once appeared?  
+> Has He not formed my soul anew,  
+> And caused my light to shine  
+> And will He now His work undo,  
+> Or break His Word Divine?  
 
 Perfectly assured of the Lord's goodness, the man confronts the future without fear and, in due time, approaches death without dismay. Since the Lord has begun to make us like His Son, we conclude that He will perfect His work and raise us from our graves in the full image of our Redeemer.
 
