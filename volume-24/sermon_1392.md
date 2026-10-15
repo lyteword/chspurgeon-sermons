@@ -1,7 +1,7 @@
 # Sermon 1392 | A Catechism for the Proud
 
-> For who makes you to differ from another? And what have you that you did not receive? Now if you did receive it, why do you glory, as if you had not received it?
-> 1 Corinthians 4:7
+> For who makes you to differ from another? And what have you that you did not receive? Now if you did receive it, why do you glory, as if you had not received it?  
+> 1 Corinthians 4:7  
 
 The Corinthian church was exceedingly gifted. Perhaps no other church of the period had in it so many persons of education and talent. The apostle says of them, "In everything you are enriched, in all utterance and in all knowledge, so that you come behind in no gift." Alas, its divine grace was not in proportion to its gifts and, consequently, a proud spirit was developed in the church which manifested itself in divisions and contentions. Parties were formed. One said, "I am of Paul," and probably prided himself on the depth of his thought. "I am of Apollos," said another, and probably gloried in the brilliant eloquence of his language. "I am of Cephas," cried a third, and boasted in the plain, unvarnished practicality of Peter's teaching.
 
