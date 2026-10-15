@@ -1,7 +1,7 @@
 # Sermon 1396 | Reasons for Turning to the Lord
 
-> Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight.
-> Hosea 6:1,2
+> Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight.  
+> Hosea 6:1,2  
 
 If man had never sinned, what delightful communion there would have been between him and God! A fairy vision rises before us of loving obedience and condescending fellowship, holy delight and boundless favor, lowly adoration and fatherly smile, perfect bliss and infinite complacency. Alas! Alas! It is no more than a vision! God would have treated man with familiarity and indulgence, lavishing favor and honor upon him. The Garden of Eden, fair as were its glades and lovely as were its flowers, was but a faint image of the things prepared for man had he continued in loyalty to God. Inconceivable delights would have filled up the days of our life on earth had not the serpent's trail come across our nature and slimed it over with sin.
 
@@ -63,18 +63,18 @@ Here let me wait a minute to recover my voice and gather a little strength, for 
 
 "Farrant"?
 
-> Come let us to the Lord our God
-> With contrite hearts return.
-> Our God is gracious, nor will leave
-> The desolate to mourn.
-> His voice commands the tempest forth
-> And stills the stormy wave,
-> And though His arm is strong to smite,
-> 'Tis also strong to save.
-> Long has the night of sorrow reigned;
-> The dawn shall bring us light:
-> God shall appear, and we shall rise
-> With gladness in His sight.
+> Come let us to the Lord our God  
+> With contrite hearts return.  
+> Our God is gracious, nor will leave  
+> The desolate to mourn.  
+> His voice commands the tempest forth  
+> And stills the stormy wave,  
+> And though His arm is strong to smite,  
+> 'Tis also strong to save.  
+> Long has the night of sorrow reigned;  
+> The dawn shall bring us light:  
+> God shall appear, and we shall rise  
+> With gladness in His sight.  
 
 Tremblingly I will now endeavor to go on to the next point. May the Holy Spirit guide my mind, and heart and tongue.
 
