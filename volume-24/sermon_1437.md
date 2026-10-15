@@ -1,7 +1,7 @@
 # Sermon 1437 | Others To Be Gathered In
 
-> The Lord God which gathers the outcasts of Israel says, Yet will I gather others to him, beside those that are gathered unto him.
-> Isaiah 56:8
+> The Lord God which gathers the outcasts of Israel says, Yet will I gather others to him, beside those that are gathered unto him.  
+> Isaiah 56:8  
 
 God's work flow is that of gathering. There was a time when it was scattering. Man built the tower of Babel which was intended to be the center of unity, the armory of power and the seat of dominion from where some mighty Nimrod might sway his scepter over all the human race. But the Lord would not have it so. Infinite wisdom baffled finite ambition! Man's center is not God's center and, therefore, He confounded their language and scattered them into nations by which the whole earth has been inhabited.
 
@@ -75,11 +75,11 @@ Suppose when the King came in to see the guests, every seat at the banquet was f
 
 The next fact which helps our faith is this, I will give it to you in verse and you will recognize it, none the less, distinctly,
 
-> Dear dying Lamb,
-> Your precious blood
-> Shall never lose its power,
-> 'Till all the ransomed Church of God
-> Is saved to sin no more.
+> Dear dying Lamb,  
+> Your precious blood  
+> Shall never lose its power,  
+> 'Till all the ransomed Church of God  
+> Is saved to sin no more.  
 
 The blood of atonement has not lost its power and therefore all the ransomed Church of God is not yet saved. There are more to be washed, for the Fountain is still open. There are more to be healed, for the Balm of Gilead is still set before us. There are more to be liberated, for the redemption price has not exhausted its value. Our Lord Jesus has redeemed so great a multitude from among men and His precious blood is of such an infinite value that we know beyond all doubt that there must remain myriads more to be gathered into His church! Do you think that He bought a miserable handful of men? Is your little Bethel a fold large enough to hold all the ransomed? No! A number that no man can number shall be the fruit of His travail and He has not as yet seen such a number following at His feet.
 
