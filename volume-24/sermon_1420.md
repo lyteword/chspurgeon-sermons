@@ -1,7 +1,7 @@
 # Sermon 1420 | The Headstone of the Corner
 
-> The stone which the builders refused is become the headstone of the corner. This is the Lord's doing; itis marvelous in our eyes. This is the day which the Lordhas made; we willrejoice and be glad in it, Save now, I beseech You, O Lord: O Lord, I beseech You, send now prosperity.
-> Psalm 118:22-25
+> The stone which the builders refused is become the headstone of the corner. This is the Lord's doing; itis marvelous in our eyes. This is the day which the Lordhas made; we willrejoice and be glad in it, Save now, I beseech You, O Lord: O Lord, I beseech You, send now prosperity.  
+> Psalm 118:22-25  
 
 It would be difficult, if not impossible, to fix with certainty the occasion which first suggested this Psalm. It has even been thought to be purely prophetic and rather foretelling history than narrating it. I rather incline to the opinion that some Israelite hero, chosen of God to high office in the midst of his people, had been rejected by the rulers, had passed through many struggles, some of them of the most violent kind, and at last, notwithstanding the rejection of his people and their leaders, had attained to a prominent position, no, to a chief place in the midst of the nation!
 
@@ -41,8 +41,8 @@ Ah, my brothers and sisters, you know what came of it. They threw that chosen St
 
 Even while that Stone was here, they fell upon Him and were broken! But when He comes a second time, He will fall upon them and woe unto them in that day! Let us not be among the company of the rejecters! Let us not consort with those who cast doubts upon the gospel of Jesus! Rather let our hearts joyfully bless God for appointing Him to be the headstone of the corner! Let us accept Him in that Character and at once build upon Him:
 
-> Chosen of God, to sinners dear, And saints adore the name!
-> We trust our whole salvation here, Nor shall we suffer shame.
+> Chosen of God, to sinners dear, And saints adore the name!  
+> We trust our whole salvation here, Nor shall we suffer shame.  
 
 God forbid that we should reject the testimony of God concerning His Son and so make God a liar and bring down eternal wrath upon our own heads! Our safety lies in reception, not in rejection, for to "as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name."
 
@@ -94,14 +94,14 @@ Let us rejoice and be glad in Him. How can we rejoice and be glad in Him except 
 
 What day is this which the Lord has made? Why, in the next place, it is a Sabbath day, the beginning of a long line of Sabbaths! The day in which our Lord Jesus rose from the dead is now sacred to rest and holy joy. Let us keep it with reverent love and bless God for making it:
 
-> This is the day the Lord has made,
-> He calls the hours His own.
-> Let Hea ven rejoice, let the earth be glad,
-> And praise surround the Throne!
-> Today He rose and left the dead
-> And Satan's empire fell!
-> Today the saints His triumphs spread,
-> And all His wonders tell.
+> This is the day the Lord has made,  
+> He calls the hours His own.  
+> Let Hea ven rejoice, let the earth be glad,  
+> And praise surround the Throne!  
+> Today He rose and left the dead  
+> And Satan's empire fell!  
+> Today the saints His triumphs spread,  
+> And all His wonders tell.  
 
 The world calls the Sabbath, Sunday, do not let us turn it into Cloud-day! Certain good Christian people look upon the Lord's Day as a season so solemn that it can only be properly kept by being as dreary as possible! Draw down the blinds, darken the room, chide the children, cherish every smile. Now we are getting Sabbatic! Let us go up to the house of prayer like convicts exercising in the prison yard and there let us be as decorously miserable as possible! Let the preacher be as dull and as monotonous as though he had no subject to preach about but death and destruction and must preserve an air of melancholy, or none would think him gracious!
 
