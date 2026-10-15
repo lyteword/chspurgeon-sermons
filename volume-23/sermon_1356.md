@@ -1,7 +1,7 @@
 # Sermon 1356 | The Heavenly Wind
 
-> The wind blows where it wishes, and you hear the sound of it, but cannot tell from where it comes, and where it goes: so is everyone that is born of the Spirit.
-> John 3:8
+> The wind blows where it wishes, and you hear the sound of it, but cannot tell from where it comes, and where it goes: so is everyone that is born of the Spirit.  
+> John 3:8  
 
 The Holy Spirit is to be admired, not only for the great Truths of God which He teaches us in Holy Scripture, but also for the wonderful manner in which those Truths are balanced. The Word of God never gives us too much of one thing or too little of another. It never carries a doctrine to an extreme, but tempers it with its corresponding doctrine. Truth seems to run at least in two parallel lines, if not in three, and when the Holy Spirit sets before us one line He wisely points out to us the other. The truth of Divine Sovereignty is qualified by human responsibility and the teaching of abounding Grace is seasoned by a remembrance of unflinching Justice. Scripture gives us, as it were, the acid and the alkali. The rock and the oil which flows from it. The sword which cuts and the balm which heals.
 
@@ -87,10 +87,10 @@ But how these various modes and forms and workings of the Spirit come, who among
 
 Such is the Truth of God, even from the mouths of babes and sucklings. Whole continents have been covered with strange flowers simply by the wind blowing foreign seeds there! Mariners have discovered sunny islets out there in the Southern Sea where foot of man has never trod, yet covered with abundance of vegetation which the wind has, by degrees, blown there! Scatter the Truth of God on all sides, for you cannot tell where the Spirit will carry it! Fling it to the winds and you shall find it after many days. Scatter the living Seed with both hands. Send it north, south, east, and west, and God will give it wings!
 
-> Float, float you winds the Story,
-> And you, you waters roll,
-> Till like a sea of Glory
-> It spreads from pole to pole.
+> Float, float you winds the Story,  
+> And you, you waters roll,  
+> Till like a sea of Glory  
+> It spreads from pole to pole.  
 
 I had a letter but the other day when I was sorely sick. It was written by a Sister in Christ in the very heart of the empire of Brazil. She said that she had met with a copy of my, "Morning Readings," and had found, thereby, the way of peace and, therefore, she wrote me such a loving, touching letter that, as I read it, it brought tears to my eyes. There was something more affecting yet, for at the end was written in another hand, some words to the effect that his dear wife who had written the above letter had died soon after finishing it, and with a bleeding heart the lone husband sent it on to me, rejoicing that the Word of God came to his wife's soul in the far-off land.
 
