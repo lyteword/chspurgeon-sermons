@@ -1,7 +1,7 @@
 # Sermon 1339 | Idols Abolished
 
-> Ephraim shall say, What have I to do any more with idols?
-> Hosea 14:8
+> Ephraim shall say, What have I to do any more with idols?  
+> Hosea 14:8  
 
 Idolatry was the great sin of the 10 tribes represented by Ephraim. Indeed, it is the sin of the entire human race! When we speak of idolatry we need not think of blocks of wood and stone and men bowing down before them, for our native land swarms with idolaters. Neither need you go into the streets to find them. Stay where you are and look into your own hearts. You will find idols there. This is the one easily besetting sin of our nature, to turn aside from the living God and to make unto ourselves idols in some fashion or another. The essence of idolatry is this, to love anything better than God, to trust anything more than God, to wish to have a god other than we have, or to have some signs and wonders by which we may see Him, some outward symbol or manifestation that can be seen with the eyes or heard with the ears rather than to rest in an invisible God and believe the faithful promise of Him whom eye has not seen nor ear heard.
 
@@ -65,13 +65,13 @@ Many worship the golden calf. They indulge no vice and pursue no pleasure except
 
 Widows might weep and orphans might lament. The groans of those whom they oppressed might go up to Heaven and the iniquities which they have perpetrated might go before them unto judgment, but it was nothing to them. They were adding field to field and house to house and getting richer and richer. They lived for that and for that they seemed content to die. O God, convert the man who worships gold! Milton, you know, describes the demon of greed as:
 
-> Mammon the least erected spirit that fell
-> From Heaven, for even in Heaven
-> His looks and thoughts
-> Were always downward bent, admiring more
-> The riches of Heaven's pavement, trodden gold,
-> Than anything Divine or holy else enjoyed
-> In vision Beatific.
+> Mammon the least erected spirit that fell  
+> From Heaven, for even in Heaven  
+> His looks and thoughts  
+> Were always downward bent, admiring more  
+> The riches of Heaven's pavement, trodden gold,  
+> Than anything Divine or holy else enjoyed  
+> In vision Beatific.  
 
 This vice is very degrading and well does Milton place Mammon in Hell and say: "Let none admire That riches grow in Hell. That soil may best Deserve the precious bane."
 
@@ -103,10 +103,10 @@ And the answer is: Our idols nailed Him there! Our sins pierced His heart! Ah, t
 
 Nothing separates a man from sin like a sense of the love and the sufferings of Jesus! Redeeming Grace and dying love. These ring the death-knells of our lusts and idols:
 
-> Soon as faith the Lord can see,
-> Bleeding on a Cross for me,
-> Quick my idols all depart,
-> Jesus gets and fills my heart!
+> Soon as faith the Lord can see,  
+> Bleeding on a Cross for me,  
+> Quick my idols all depart,  
+> Jesus gets and fills my heart!  
 
 Now, you may remember, again, that we must have no more to do with idols, for the same sins which put our Lord to death will put us to death if they can. O child of God, you never sin without injuring yourself! The smallest sin that ever creeps into your heart is a robber seeking to kill and to destroy! You never profited by sin and never can. No, it is poison, deadly poison to your spirit. Do not, therefore, tolerate it for an instant. What have you to do with it? You know it is to be evil, only evil, and that continually. You know that it injures your faith, destroys your enjoyment, withers up your peace, weakens you in prayer, prevents your example being beneficial to others, and for all these reasons what have you to do any more with idols?
 
