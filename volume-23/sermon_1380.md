@@ -1,7 +1,7 @@
 # Sermon 1380 | Vanities and Verities
 
-> We look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.
-> 2 Corinthians 4:18
+> We look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.  
+> 2 Corinthians 4:18  
 
 The Apostle Paul was by no means a stoic. He had not conquered all human feeling and rendered himself a stone man. On the contrary, he was exceedingly sensitive. You can see abundant evidence, not only in the Acts of the Apostles, but also in the tone of all his Epistles, that he has a very tender spirit. He feels acutely any unkindness. If a friend forsakes him, he mourns it. Or if friends help him, there is genuine emotion in his gratitude. He is sensitive, too, to poverty, sensitive to shame. Sensitive to all those griefs which he has to bear for Christ's sake. He feels them. You can see that he does. He is not an invulnerable man in armor. He is a man of flesh and blood whom the arrows pierce and pain.
 
@@ -89,18 +89,18 @@ There is no reprieve nor respite in the world to come. Pardon, therefore, should
 
 Light is fading from the earth. Dear Friend, look towards Heaven. Look towards eternal things! Make it a point to look unto your future home. Should there be any young man here who is not 21 and he knows that when he comes of age he is to be squire of a village, own a park and enjoy a rich heritage. I will be bound to say he has often forestalled the time because he is sure of his title. If any one of you had a legacy left him of a large estate, he would be off this week to have a look at it. One likes to look at one's own. Christian, be sure to survey your own possession in the skies! Read much the Book of God which tells you of your future inheritance. Say to yourself, "This is all mine. Why should I not begin to enjoy it? Did not the Israelites fetch bunches of the grapes of Eshcol before they entered Canaan? And why should not I?" I hope you will full often enjoy foretastes of bliss till you can sing with John Berridge:
 
-> Too long, alas, I vainly sought
-> For happiness below!
-> But earthly comforts, dearly bought,
-> No solid good bestow.
-> At length, through Jesus' Grace, I found
-> The good and promised land
-> Where milk and honey much abound
-> And grapes in clusters stand.
-> My soul has tasted of the grapes,
-> And now it longs to go
-> Where my dear Lord His vineyard keeps,
-> And all the clusters grow. Upon the true and living Vine My famished soul would feast, And banquet on the fruit Divine, An everlasting guest.
+> Too long, alas, I vainly sought  
+> For happiness below!  
+> But earthly comforts, dearly bought,  
+> No solid good bestow.  
+> At length, through Jesus' Grace, I found  
+> The good and promised land  
+> Where milk and honey much abound  
+> And grapes in clusters stand.  
+> My soul has tasted of the grapes,  
+> And now it longs to go  
+> Where my dear Lord His vineyard keeps,  
+> And all the clusters grow. Upon the true and living Vine My famished soul would feast, And banquet on the fruit Divine, An everlasting guest.  
 
 What a sanctifying influence such anticipations would have upon you! "Everyone that has this hope in him purifies himself." Pursue eternal things with concentrated mind. You must look right on to the end of the race for the prize. The runner does not cast a glance to the right or to the left, or to the flowers which adorn the pathway, but he keeps his eyes on the prize and that helps him run. He stretches every nerve to reach the end and win the prize! Brothers and Sisters, make eternal things the scope of your life at all times! This I have told you is the literal sense of the original Greek. Make them that for which you plot and plan. That for which you think and consider. That for which you live and act! Throw your whole being into eternal things!
 
