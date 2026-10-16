@@ -1,7 +1,7 @@
 # Sermon 1222 | The Overflowing Cup
 
-> My cup runs over.
-> Psalm 23:5
+> My cup runs over.  
+> Psalm 23:5  
 
 The Psalm culminates in this expression. The poet can mount no higher. He has endeavored to express the blessedness of his condition, in having the Lord for his Shepherd, but after all his efforts, he is conscious of failure. His sonnet has not reached the height of the great argument, nor has his soul, though enlarged with gratitude, been able to compass the immeasurable gifts of grace. And therefore, in holy wonder at the lavish superfluities of mercy, he cries, "My cup runs over." In one short but most expressive sentence he does as good as say, "Not only have I enough, but more than enough! I possess not only all that I am capable of containing, but I inherit an excess ofjoy, a redundancy of blessing, an extravagance of favor, a prodigality of love. My cup runs over."
 
@@ -75,10 +75,10 @@ Now and then I hear of an interruption of a sermon by a person who has found the
 
 Why, if anyone had come to you at such a time and said, "There is a legacy of 10,000 pounds left you," you would have snuffed at it, and felt, "What is that? I have infinitely more than that, for I am a joint heir with Christ. My beloved is mine and I am His. 'My cup runs over.' I have too much joy. 'I am so glad that Jesus loves me.'" At such times our gratitude ought to run over, too. Our gratitude ran over when he wrote that remarkable stanza:
 
-> Through all eternity, to You
-> My grateful song I'll raise;
-> But, oh, too short
-> To utter half Your praise!
+> Through all eternity, to You  
+> My grateful song I'll raise;  
+> But, oh, too short  
+> To utter half Your praise!  
 
 I have heard cold critics condemn that verse and therein prove their incompetence to enjoy poetry! Would they cramp the language of love by the rules of grammar? May not enthusiasm be allowed a language of its own? It is true it is incorrect to speak of eternity as, "too short," but the inaccuracy is strictly accurate when love interprets it! When a cup runs over it does not drip, drip, at so many drops per minute. It leaps down in its own disorderly fashion, and so does the grateful heart!
 
