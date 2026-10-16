@@ -1,7 +1,7 @@
 # Sermon 1269 | The New Fashion
 
-> And immediately he arose, took up the bed, and went forth before them all; so that they were all amazed, and glorified God, saying, We never saw it on this fashion.
-> Mark 2:12
+> And immediately he arose, took up the bed, and went forth before them all; so that they were all amazed, and glorified God, saying, We never saw it on this fashion.  
+> Mark 2:12  
 
 It is very natural that there should be many surprising things in the gospel, for it is remarkable beyond measure that there should be a gospel at all. As soon as I begin thinking of it I exclaim with Bunyan, "O world of wonders, I can say no less." And I invite you all to join with the multitude in saying with the text, "We never saw it on this fashion." When man had sinned, God might instantly have destroyed our rebel race, or He might have permitted it to exist as the fallen angels do. In a state of enmity to all goodness and in consequent misery. But He who passed the angels by took up the seed of Abraham and looked upon man, that insignificant item in the ranks of creatureship and determined that man should experience salvation and show forth His divine grace.
 
