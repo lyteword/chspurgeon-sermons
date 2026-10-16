@@ -1,7 +1,7 @@
 # Sermon 1226 | The Secret Of Health
 
-> I shall yet praise Him who is the health of my countenance and my God.
-> Psalm 42:11
+> I shall yet praise Him who is the health of my countenance and my God.  
+> Psalm 42:11  
 
 Another verse in this Psalm so attracts me that, though it is not my text, I cannot pass it by without a notice. In the fifth verse the Psalmist says, "I shall yet praise Him for the help of His Countenance," and then follows the expression of the text, "who is the health of my countenance and my God." Countenance is our help and He, Himself is the health of our countenance! The best help a man can have in time of trouble is the Countenance of God! If he feels that he enjoys the divine Love and that he is acceptable with the Lord, he becomes, at once, strong to bear, or dare, or do. Ask the presence of God to be with you, child of God, and you may then descend into a den, traverse a fiery furnace, or pass through the iron gates of death! A look from the Lord is life and strength to His people!
 
@@ -67,17 +67,17 @@ When the Lord Jesus begins to heal us, He removes from our countenance the blank
 
 Once pardoned that pallor is gone and the ruddiness of confidence comes back to the cheeks! The gloom of sorrow also goes from the man whom Christ makes whole:
 
-> Why should I sorrow more?
-> I trust a Savior slain,
-> And safe beneath His sheltering Cross,
-> Unmoved I shall remain.
+> Why should I sorrow more?  
+> I trust a Savior slain,  
+> And safe beneath His sheltering Cross,  
+> Unmoved I shall remain.  
 
 And when the Lord goes on working the cures of grace, it is wonderful how He removes from the countenance the lines and furrows of need. The lantern jaws of hunger are seen in many who are pining after Christ and grace, and cannot find either. But when Christ comes, He satiates the soul and makes fat the bones, and the countenance of the heart is glad.
 
 Let me tell you, though, I am afraid some Christians do not prove it, that the Lord Jesus smoothes out the wrinkles of care from the foreheads of His patients. When Christians are under the influence of divine grace, they know no care. They cast their care on Him who cares for them! They do the little they can do and leave the rest with their Lord, and all goes well, and their life is peace. O happy man who has been thus healed. "Well," says one, "I trust I am healed of sin, but I am not so healed as that." Brother, the Good Physician is proceeding with His operations, and if you have not yet all the cure, it is your fault and not His, for it is in His power, if you trust Him, to take away sorrow, fear, despair, doubt and even care, so that you shall say as our hymn puts it:
 
-> All that remains for me Is but to love and sing, And wait until the angels come
-> To bear me to their King.
+> All that remains for me Is but to love and sing, And wait until the angels come  
+> To bear me to their King.  
 
 It will not be long before they will come if you are in that condition! Only bad farmers leave their wheat out in the field too long, but my Lord never did so yet. Whenever His sheaves are ready for the garner, He is sure to reap them. A perfect man is on the threshold of heaven. When you are spiritually healthy and have undergone your spiritual quarantine, and there is no more sickness in you, do you think your Lord will keep you out of heaven? Not He, He is too desirous to have you with Him where He is!
 
@@ -85,10 +85,10 @@ The health which our Lord Jesus works in us is seen in the spiritual countenance
 
 Spiritual health imparts a beauty to the entire visage. Think how the spouse describes her beauty. She says, "I am black". She could not help saying that, for she was sunburned with exposure to the world, but she adds, "I am comely." Her Lord looked at her in such a way that she felt He could see her comeliness though she could not:
 
-> Though in ourselves denied we are,
-> And black as tents appear,
-> Yet, when we put Your beauty on,
-> Fair as the courts of Solomon.
+> Though in ourselves denied we are,  
+> And black as tents appear,  
+> Yet, when we put Your beauty on,  
+> Fair as the courts of Solomon.  
 
 There is no more beautiful object in the world to Christ than His own church! What a passage that is in the song, where the king exclaims, "You are all fair, My Love, there is no spot in you." He sees with eyes of love, indeed, who sees such beauty. Yet fair beyond conception will grace make the Christian! Altogether lovely will glory make the Christian! We shall bear neither spot nor wrinkle, nor any such thing, but be without fault before the throne of God.
 
