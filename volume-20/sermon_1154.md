@@ -1,7 +1,7 @@
 # Sermon 1154 | Daniel Facing the Lions' Den
 
-> Thou, O king, shalt be driven from among men, and eat grass as oxen, and thy body shall be wet with the dew of heaven, till thy hairs are grown like eagles' feathers, and thy nails like birds' claws.
-> Yet what he told him came true, for all this, came upon the king Nebuchadnezzar. Daniel discharged his duty to his conscience, so there was nothing to disquiet him. Well might he have said
+> Thou, O king, shalt be driven from among men, and eat grass as oxen, and thy body shall be wet with the dew of heaven, till thy hairs are grown like eagles' feathers, and thy nails like birds' claws.  
+> Yet what he told him came true, for all this, came upon the king Nebuchadnezzar. Daniel discharged his duty to his conscience, so there was nothing to disquiet him. Well might he have said  
 
 "I feel within me a peace above all earthly dignities, a still and quiet conscience."
 

@@ -1,7 +1,7 @@
 # Sermon 1172 | The Savior You Need
 
-> And being made perfect, He became the Author of eternal salvation unto all them that obey Him.
-> Hebrews 5:9
+> And being made perfect, He became the Author of eternal salvation unto all them that obey Him.  
+> Hebrews 5:9  
 
 The great folly of awakened sinners lies in looking to themselves when they are convinced that they are lost. When the Law condemns them, when they have the sentence of death ringing with its dolorous knell through their consciences, they nevertheless turn to themselves for help. As well might they search for life within the ribs of death, or dig for light in the dreary vaults of outer darkness! First, they try what outward reformation can do and they are amazed when they discover their own impotence. Then they turn their eyes towards their feelings and either they labor after tears and mental tortures till they grow conceitedly miserable, or else they yield to hopelessness, because they find their heart to be as an adamant stone. They frequently fly to ceremonies and go far in formalism but find no peace.
 
@@ -41,8 +41,8 @@ Nor was this all towards God. The High Priest who should save us must be able to
 
 Pitiful, indeed, is the man's case who has no interest in the atoning sacrifice! His sin lies heavy upon him and wrath hangs over him. Wretched is the sinner who, being conscious of his guilt and being bid to believe in Jesus, yet continues to look to himself, and so does dishonor to this Sacrifice, so precious in the sight of the Lord. The blood of Jesus speaks better things than that of Abel, and woe to the man who despises its gracious cry:
 
-> How they deserve the deepest Hell, That slight the joys above!
-> What chains of vengeance must they feel, Who break such cords of love.
+> How they deserve the deepest Hell, That slight the joys above!  
+> What chains of vengeance must they feel, Who break such cords of love.  
 
 Godward, then, Christ became perfect as our Savior. And when He had finished His work, the Lord certified the completion and acceptance of it by raising Him from the dead and giving Him a place at His right hand. He who, as Judge, was offended by our sin, is now well-pleased in His Son, and has established a Covenant of Peace with us for His sake.
 
@@ -84,14 +84,14 @@ It is eternal salvation in this sense, that it rescues us from eternal condemnat
 
 "Oh, but," I hear some say, "you may have eternal life today, and lose it tomorrow." What do words mean? How can that life be eternal which you can lose? Why, then, the life could not have been eternal. Your doctrine is a mistake in language, a contradiction in terms. "He that believes in Him has everlasting life." "I give unto My sheep eternal life, and they shall never perish, neither shall any pluck them out of My hand." "Because I live you shall live also." Sinner, if you believe in Jesus, He will not save you today and let you perish tomorrow! He will give you eternal salvation, which neither death nor Hell, nor time, nor eternity shall ever destroy, for, "who shall separate us from the love of God which is in Christ Jesus our Lord?" The man who believes in Jesus is not as happy, but he is as safe from final condemnation as if he were already in Heaven:
 
-> His honor is engaged to save
-> The meanest of His sheep.
-> All that His heavenly Father gave,
-> His hands securely keep.
-> Nor death nor Hell shall ever remove
-> His favorites from His breast.
-> In the dear bosom of His love
-> They must forever rest.
+> His honor is engaged to save  
+> The meanest of His sheep.  
+> All that His heavenly Father gave,  
+> His hands securely keep.  
+> Nor death nor Hell shall ever remove  
+> His favorites from His breast.  
+> In the dear bosom of His love  
+> They must forever rest.  
 
 If this doctrine is not taught in Scripture, nothing is taught there at all and words have no meaning! On the very forefront of Scripture is written, "He that believes shall be saved." God grant us Grace to realize that promise. When the text says, "eternal salvation," it means that it will ripen into eternal bliss! You are saved from eternal misery. You are preserved by eternal life from falling back upon your old life, and you shall be brought to eternal bliss. Whoever Christ saves shall see the face of God with joy forever, as surely as he is born! Christ was made perfect on purpose that He might be the Author of eternal salvation.
 

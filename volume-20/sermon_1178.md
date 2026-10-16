@@ -1,7 +1,7 @@
 # Sermon 1178 | Glorying in the Lord
 
-> He that glories, let him glory in the Lord.
-> 1 Corinthians 1:31
+> He that glories, let him glory in the Lord.  
+> 1 Corinthians 1:31  
 
 There is an irresistible tendency in us to glory in something or other. All classes of men glory, the highest and the lowest, the richest and the poorest, the best educated and the most illiterate. Solomon glories and so does the fool. Goliath glories and so does David. Pharaoh glories and so does his slave. Even in the most modest, the tendency to boast is present, only its nakedness is daintily concealed. Good men glory, yes, and in hours of weakness they have gloried in objects very unworthy of their boasts. You remember how, when the ambassadors came out of Babylon, Hezekiah showed them all his riches and his stores, and no doubt he gloried while he took them from treasure house to treasure house, and opened his caskets and showed all his precious things.
 
@@ -51,10 +51,10 @@ I believe Christ bore our sins in His own body on the tree, that, "the chastisem
 
 And this I glory in because it shows the Justice and the Mercy of God walking hand in hand; Righteousness and Peace kissing each other and entering into a solemn compact for the salvation of the sons of men. Surely in the Lord Jehovah we have righteousness and strength, and therefore will we glory in Him forever:
 
-> Holy, Holy, Holy!
-> All Heaven's triumphant choir shall sing
-> When the ransomed nations fall At the footstool of their King!
-> Then shall saints and seraphim, Harps and voices, swell one hymn Round the Throne with full accord, Holy, Holy, Holy Lord.
+> Holy, Holy, Holy!  
+> All Heaven's triumphant choir shall sing  
+> When the ransomed nations fall At the footstool of their King!  
+> Then shall saints and seraphim, Harps and voices, swell one hymn Round the Throne with full accord, Holy, Holy, Holy Lord.  
 
 And if you feel you would like to alter the subject, then glory in the all-sufficiency of your God, and in the liberality with which He distributes His mercies among His chosen. Notice the verse that precedes the text: "But of Him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption." In Christ Jesus is not one good thing given to us, but every good thing!
 

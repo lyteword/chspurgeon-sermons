@@ -1,7 +1,7 @@
 # Sermon 1168 | The Crown of Thorns
 
-> And when they had platted a crown of thorns, they put it upon His head.
-> Matthew 27:29
+> And when they had platted a crown of thorns, they put it upon His head.  
+> Matthew 27:29  
 
 Before we enter the common hall of the soldiers and gaze upon "the sacred head once wounded," it will be well to consider who and what He was who was thus cruelly put to shame. Forget not the intrinsic excellence of His Person, for He is the brightness of the Father's Glory and the express image of His Person. He is in Himself God over all, blessed forever, the eternal Word by whom all things were made and by whom all things consist. Though Heir of all things, the Prince of the kings of the earth, He was despised and rejected of men, "a Man of sorrows and acquainted with grief." His head was scornfully surrounded with thorns for a crown. His body was bedecked with a faded purple robe. A poor reed was put into His hand for a scepter, and then the ribald soldiers dared to spit upon His face, and worry Him with their filthy jests: "The soldiers also spit upon that face Which angels did desire to have the grace, And Prophets once to see, but found no place. Was ever grief like Mine?"
 
@@ -35,12 +35,12 @@ Is it not sad that the Son of God, the blessed and only Potentate, should have b
 
 Alas, our whole head was sick and our whole heart faint, and so He must be made, in His chastisement, like unto us in our transgression. There was no part of our humanity without sin, and there must be no part of His humanity without suffering. If we had escaped, in some measure, from iniquity, so might He have escaped from pain. But as we had worn the foul garment of transgression and it covered us from head to foot, even so must He wear the garments of shame and derision from the crown of His head, even to the sole of His feet:
 
-> olove, too boundless to be shown
-> By any but the Lord alone!
-> O Love offended, which sustains
-> The bold offender's curse and pains!
-> O Love, which could no motive have,
-> But mere benignity to save.
+> olove, too boundless to be shown  
+> By any but the Lord alone!  
+> O Love offended, which sustains  
+> The bold offender's curse and pains!  
+> O Love, which could no motive have,  
+> But mere benignity to save.  
 
 Beloved, I always feel as if my tongue were tied when I come to talk of the sufferings of my Master. I can think of them. I can picture them to myself. I can sit down and weep over them, but I know not how to paint them to others! Did you ever know pen or pencil that could? A Michelangelo or a Raphael might well shrink back from attempting to paint this picture! And the tongue of an archangel might be consumed in the effort to sing the griefs of Him who was loaded with shame because of our shameful transgressions.
 

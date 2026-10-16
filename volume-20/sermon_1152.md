@@ -1,7 +1,7 @@
 # Sermon 1152 | A Lesson from the Life of King Asa
 
-> Herein you have done foolishly: therefore from henceforth you shall have wars.
-> 2 Chronicles 16:9
+> Herein you have done foolishly: therefore from henceforth you shall have wars.  
+> 2 Chronicles 16:9  
 
 Our text leads us to speak upon historical matters, and for this I shall by no means apologize, although I have sometimes heard very foolish professors speak slightingly of the historical part of Scripture. Remember that the historical books were almost the only Scripture possessed by the early saints and from those they learned the mind of God. David sang the blessedness of the man who delighted in the Law of the Lord, yet he only had the first five books and, perhaps, Joshua, Judges and Ruth, all books of history in which to meditate day and night. The Psalmist, himself, spoke most lovingly of these books, which were the only statutes and testimonies of the Lord to him, with, perhaps, the addition of the Book of Job.
 
@@ -89,10 +89,10 @@ Dear Sister, if you have brought up your children and have seen your family abou
 
 Stand fast in your faith in Him! Do not question your God and do questionable things in consequence, for, if you do, it will be said by those who come after you, and perhaps even while you live by those who love you. "He was a good man, but there was a sad period of weakness and inconsistency. And though he was deeply penitent, yet from that unhappy day he went limping to his tomb." What a precious Christ we have, who saves such sinners as we are! What a dear and blessed Lord we have, who does not cast us away, notwithstanding all our slips and falls and shameful wanderings! Beloved, let us not be so base as wantonly to grieve Him:
 
-> We have no fear that You should lose
-> One whom eternal love could choose.
-> But we would never this Grace abuse.
-> Let us not fall. Let us not fall.
+> We have no fear that You should lose  
+> One whom eternal love could choose.  
+> But we would never this Grace abuse.  
+> Let us not fall. Let us not fall.  
 
 With such a warning as this of Asa before us, now, do not let us relax our watchfulness and insensibly turn aside. "The path of the just is as the shining light which shines more and more unto the perfect day."
 

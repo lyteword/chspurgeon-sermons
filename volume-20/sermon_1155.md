@@ -1,7 +1,7 @@
 # Sermon 1155 | The Chariots Of Amminadib
 
-> Before I was even aware, my soul made me like the chariots of Amminadib.
-> Song of Solomon 6:12
+> Before I was even aware, my soul made me like the chariots of Amminadib.  
+> Song of Solomon 6:12  
 
 We cannot be quite sure at this date what these chariots of Amminadib were to which the Inspired poet here refers. Some suppose that he may have alluded to a person of that name who was renowned, like Jehu of old, for his furious driving. Therefore it might have been familiar at the time and afterwards have become proverbial to speak in metaphor of the chariots of Amminadib. The conjecture seems harmless, still it is only a conjecture, and cannot be verified. It is quite possible, however, that our translators may have retained as a proper name a conjunction of two words, which, taken separately, are capable of being interpreted.
 
@@ -71,8 +71,8 @@ This leads cheerfully up to our third observation, there are seasons when our he
 
 Have you not proved welcome opportunities when all your thoughts have been quickened, enlivened and stimulated to activity in the highest degree about your highest interests? We have ceased to moan:
 
-> Our souls, how heavily they go
-> To reach eternal joys,
+> Our souls, how heavily they go  
+> To reach eternal joys,  
 
 And we have been all wings, and could soar and mount aloft Like David! We could have danced before the ark of God for very joy! And if any had said to us that we might, ourselves, fall by our enthusiasm while we seemed vile by our hilarity, we should have replied that we purposed to be viler still!
 
@@ -94,10 +94,10 @@ And love, and praise, and pray." Oh, yes, in God's House you have known the days
 
 There are the windows of agate and the gates of carbuncle through which Christ comes to His people in the ordinances He has ordained. By His Grace we will never slight them! We cannot! The Master puts such reality and fullness of joy into them, apart from Him they are idols. But with Him, when He is there, when we have the real Presence, not the superstitious presence some speak about, but the real Presence which His own Spirit imparts and our waiting souls participate, ah, then we have said:
 
-> No beams of cedar or of fir
-> Can with His courts on earth compare,
-> As myrrh new bleeding from the tree,
-> Such is a dying Christ to me.
+> No beams of cedar or of fir  
+> Can with His courts on earth compare,  
+> As myrrh new bleeding from the tree,  
+> Such is a dying Christ to me.  
 
 Not infrequently, too, have I known that the Lord has appeared to His people and warmed their hearts when they have been working for Him. Some idle, indolent, sluggish professors who have used the ordinances have not found benefit in the ordinances because the Lord has intended to rebuke their sloth.
 
@@ -109,10 +109,10 @@ Beloved, there is no need that I should enlarge. I merely say this to bring up y
 
 Do not say, "I had those sweet times when I was young, I shall never have them again." You shall have precious times again! Get back to your first love, dear Brother, dear Sister, go forward to a higher love than ever you had, for God will help you say, "I look back and think:
 
-> What peaceful hours I once enjoyed!
-> How sweet their memory still!
-> But they have left an aching void
-> The world can never fill.
+> What peaceful hours I once enjoyed!  
+> How sweet their memory still!  
+> But they have left an aching void  
+> The world can never fill.  
 
 Thank God for that ache! Bless God for the aching void. If your soul aches for God, He will be to your relief before long. Whenever a soul puts up a flag of distress at the masthead, he may be sure that Christ is on the lookout for just such a soul. He has thrown up the windows of Heaven and wherever He sees a soul that does what is right and longs to find joy and reconciliation with God, He will come to it, and before long it shall be better for you than even the chariots of Amminadab, and more desirable.
 
@@ -130,7 +130,7 @@ You are beginning to warm already, I see you are! Before you are aware, your sou
 
 Engaged in such sweet soliloquies, before you are aware, your soul will make you like the chariots of Amminadab! The Lord make it so! God grant that surprising Grace may come likewise even to sinners, and lead them to Jesus, and constrain them to look to Jesus. Then, while looking, faith will breathe in their spirit so that they will sing:
 
-> Your mercy is more than a match for my heart,
-> Which wonders to feel its own hardness depart.
-> Dissolved by Your goodness, I fall to the ground
-> And weep to the praise of the Glory I've found.
+> Your mercy is more than a match for my heart,  
+> Which wonders to feel its own hardness depart.  
+> Dissolved by Your goodness, I fall to the ground  
+> And weep to the praise of the Glory I've found.  

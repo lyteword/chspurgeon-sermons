@@ -1,7 +1,7 @@
 # Sermon 1160 | The Entreaty of the Holy Spirit
 
-> Therefore, as the Holy Spirit says, Today if you will hear His voice, harden not your hearts.
-> Hebrews 3:7
+> Therefore, as the Holy Spirit says, Today if you will hear His voice, harden not your hearts.  
+> Hebrews 3:7  
 
 The peculiar circumstances in which we are now placed as a congregation demand of me that my discourses should be principally directed to the unconverted, that the awakened may be decided, that those may be awakened who as yet remain unmoved, and that a desire to seek the Lord may spread all around us. We may leave the 99 in the wilderness for a little while, just now, and go after that which has gone astray. It is our duty, usually, to feed the children, but for a while we may leave that to other agencies, and hand out food to those who are perishing of hunger. These seasons of revival do not last forever, they come and they go and, therefore, they must be taken advantage of while they are with us.
 
@@ -43,10 +43,10 @@ The Holy Spirit is urgent because He is grieved with sin and would not see it co
 
 Comfort for unbelievers would be their destruction. As He delights to be the Comforter and has been sent forth from the Father to act specially in that capacity, that He may comfort the people of God, He watches with longing eyes for broken hearts and contrite spirits, that He may apply the balm of Gilead and heal their wounds. Therefore "the Holy Spirit says, Today." I leave this fact with you. The special voice of the text is not of man, but of the Holy Spirit Himself. He that has ears to hear let him hear:
 
-> Then while 'tis called today,
-> Oh, hear the Gospel sound!
-> Come, Sinner, hurry, oh, hurry today,
-> While pardon may be found.
+> Then while 'tis called today,  
+> Oh, hear the Gospel sound!  
+> Come, Sinner, hurry, oh, hurry today,  
+> While pardon may be found.  
 
 The text inculcates a special duty. The duty is that we should hear the voice of God. If you so read it, the text bids us hear the voice of the Father saying, "Return unto Me, you backsliding children. Come now, and let us reason together: though your sins are as scarlet they shall be as wool." Or it may be the voice of Jesus Christ, for it is of Him that the Apostle is here speaking. It is Jesus who calls, "Come unto Me, all you that labor and are heavy laden, and I will give you rest." In fact, the voice to be heard is that of the Sacred Trinity, for with the Father, the Son and the Spirit also say, "Come." We are bid to hear and that, surely, is no hard duty. The grand evangelical precept is, "Incline your ear and come unto Me, hear and your soul shall live," for, "faith comes by hearing and hearing by the Word of God." Hear, then, the Lord's voice!
 
@@ -110,10 +110,10 @@ There was a man, once, who had a talent, and he buried it in a napkin and said, 
 
 This morning the last appeal may have been made to you! God commands and I charge you, if your heart intends rebellion, say, if you dare, "I will not obey." Then you will know where you are and you will understand your own position. If God is not God, fight it out with Him. If you do not believe in Him, if He really is not the Lord who made you and who can destroy you, or if you mean to be His enemy, take up your position and be as honest, even, if you are as proud as Pharaoh, and say "I will not obey Him." But, oh, I pray you, do not thus rebel! God is gracious! Will you be rebellious? God is love! Will you, therefore, be hard-hearted? Jesus, by His wounds, invites you to come to Himself! And the Holy Spirit, Himself, is here and is saying in the text, "Today harden not your hearts." Yield yourselves now to His love:
 
-> Who round you now
-> The bands of a man would cast,
-> The cords of His love who was given to you
-> To His altar binding you fast.
+> Who round you now  
+> The bands of a man would cast,  
+> The cords of His love who was given to you  
+> To His altar binding you fast.  
 
 At His altar may you be found safe in the day of His appearing! God bless you. I beg those of you who know how to pray to implore a blessing on this word, for Jesus' sake. Amen.
 

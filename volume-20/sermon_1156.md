@@ -1,7 +1,7 @@
 # Sermon 1156 | Rubbish
 
-> There is much rubbish; so that we are not able to build the wall
-> Nehemiah 4:10
+> There is much rubbish; so that we are not able to build the wall  
+> Nehemiah 4:10  
 
 Remember that Jerusalem had been totally destroyed by Nebuchadnezzar and what is meant by the destruction by the Babylonians may be inferred from the vast heaps of the dust of powdered bricks and charred wood which have been discovered upon the sites of cities which were utterly razed to the ground by the fierce soldiers of that terrible king. The ruins are frequently so complete that even tradition has forgotten the name of the mound or heap which is the sole memorial to mark the sepulcher of a queenly city. The Babylonians made sure work when they did it, their plowers made deep furrows and their destroyers cried one, to another, "Overturn, overturn, overturn, till not a stone shall abide in its place."
 
@@ -93,10 +93,10 @@ He gives us power to overcome sin through His precious blood, but, depend upon i
 
 "In me, that is in my flesh, there dwells no good thing." Low down at the foot of the Cross, in the dust, is still our place, for we are, in ourselves, less than nothing, emptiness, vanity, death! That is our place. Christ is made of God unto you, "wisdom, righteousness, sanctification and redemption." In Him is all your glorying, and in Him, alone, for if not so, the rubbish will cover up the foundation. Now, I will suppose that some of you are mourning tonight, some of God's people, because of all this rubbish. I want to say this to you. First, dear Brothers and Sisters, thank God that you have the Foundation surely laid. Are you sure of that? I pray you rest not till you are certain of it:
 
-> I know that safe with Him remains,
-> Protected by His power,
-> What I've committed to His hands
-> Till the decisive hour.
+> I know that safe with Him remains,  
+> Protected by His power,  
+> What I've committed to His hands  
+> Till the decisive hour.  
 
 "I know whom I have believed." None but Jesus, none but Jesus! There rests our souls' only hope, upon His precious blood and righteousness, every other hope we heartily abhor. Well, the Foundation is laid. Blessed be God for that! When a man is brought to rest alone in Jesus, then there is laid for him in Zion a sure foundation stone, and to that he is cemented by Sovereign Grace.
 

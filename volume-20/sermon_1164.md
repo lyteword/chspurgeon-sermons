@@ -1,7 +1,7 @@
 # Sermon 1164 | Now, a Sermon for Young Men and Young Women
 
-> Son of man, behold, they of the house of Israel say, The vision that he sees is for many days to come, and he prophesies of the times that are far off
-> Ezekiel 12:27
+> Son of man, behold, they of the house of Israel say, The vision that he sees is for many days to come, and he prophesies of the times that are far off  
+> Ezekiel 12:27  
 
 One would have thought that if the glorious Lord condescended to send His servants to speak to men of the way of salvation, all mankind would delight to hear the message. We should naturally conclude that the people would immediately run together in eager crowds to catch every word, and would at once be obedient to the heavenly command. But, alas, it has not been so! Man's opposition to God is too deep, too stubborn for that. The Prophets of old were compelled to cry, "Who has believed our report?" and the servants of God in later times found themselves face to face with a stiff-necked generation who resisted the Holy Spirit as their fathers did.
 
@@ -31,10 +31,10 @@ Yes, and this very night, when you close your eyes and rest your head upon your 
 
 Traveling has many dangers and even to cross the street is perilous. Men die at home and many, when engaged about their lawful callings, are met by death. How true is this of those who go down to the sea in ships, or descend into the heart of the earth in mines! But, indeed, no occupations are secure from death, a needle can kill as well as a sword, a scald, a burn, a fall may end our lives quite as readily as a pestilence or a battle. Does your business lead you to climb a ladder? It is not a very perilous matter, but have you never heard of one who missed his footing and fell, never to rise again? You work amidst the materials of a rising building, have you never heard of stones that have fallen and have crushed the workers?
 
-> Dangers stand thick through all the ground
-> To push us to the tomb,
-> And fierce diseases wait around
-> To hurry mortals home.
+> Dangers stand thick through all the ground  
+> To push us to the tomb,  
+> And fierce diseases wait around  
+> To hurry mortals home.  
 
 Notwithstanding all that can be done by sanitary laws, fevers are not unknown and deadly strokes which fell men to the ground in an instant, as a butcher slays an ox, are not uncommon. Death has already removed many of your former companions. You have ridden into the battle of life like the soldiers in the charge at Balaclava. And, young as you are in this warfare, you have seen saddles emptied right and left around you. You survive, but death has grazed you. The arrow of destruction has gone whizzing by your ear to find another mark! Have you never wondered why it spared you? Among this congregation there are persons of delicate constitution. It grieves me to see so many fair daughters of our land with the mark of consumption upon their cheeks.
 

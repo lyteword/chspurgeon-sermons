@@ -1,7 +1,7 @@
 # Sermon 1196 | The Stern Teacher
 
-> Therefore the Law was our schoolmaster to bring us unto Christ, that we might bejustified by faith. But after faith has come, we are no longer under a schoolmaster.
-> Galatians 3:24-26
+> Therefore the Law was our schoolmaster to bring us unto Christ, that we might bejustified by faith. But after faith has come, we are no longer under a schoolmaster.  
+> Galatians 3:24-26  
 
 Neither the Jewish Law of Ten Commandments, nor its Law of ceremonies were ever intended to save anybody. It was not the intent of the ceremonial Law, in itself to effect the redemption of the soul, by a set of pictures it set forth the way of salvation, but it was not, itself, the way. It was a map, not a country. It was a model of the road, not the road itself. The blood of bulls and goats, nor the ashes of a heifer could take away sin! These sacrifices and offerings were but types of the great Sacrifice which, in due time, was presented by the true Priest. There was no inherent virtue in the victims that were slain, or in the services that were observed by the worshippers! Those sacred rites were intended to portray to the minds of the people the real Sacrifice, which was, in the fullness of time, to be offered by our Lord Jesus Christ, but they could do nothing more.
 
@@ -77,11 +77,11 @@ So now, Brothers and Sisters, we who have believed in Jesus have the Law written
 
 A warfare goes on, but we are no longer children. When faith has come, we are no longer under a schoolmaster. This is not Antinomianism, for we are not against the Law, but the Law that once was on the stone tablets and there was broken, is now written on the fleshy tablet of a renewed heart, and the Lord sweetly inclines us to keep His Testimonies and observe His Statutes. Moreover, we get free from the Law when we take up our heirship in Christ. I am afraid some Christians have never fully done this. Can you say, Beloved, "I have believed in Jesus and therefore I am one with Him, whatever Christ is before God, that I am, for I am a member of His body, of His flesh and of His bones"?
 
-> So near, so very near to God, I cannot nearer be,
-> For in the Person of His Son I am as near as He.
-> So dear, so very dear to God, I cannot dearer be
-> The love wherewith He loves His Son,
-> Such is His love to me.
+> So near, so very near to God, I cannot nearer be,  
+> For in the Person of His Son I am as near as He.  
+> So dear, so very dear to God, I cannot dearer be  
+> The love wherewith He loves His Son,  
+> Such is His love to me.  
 
 Can you say, "He has made with me an Everlasting Covenant, ordered in all things and sure? As long as Jesus lives I cannot die, for it is written, 'Because he lives, I shall live, also"? "My name from the palms of His hands Eternity cannot erase, Impressed on His heart it remains In marks of indelible Grace."
 
@@ -99,22 +99,22 @@ We testify that Christ is able to change a man's nature, and then good fruits wi
 
 But why should I multiply words? I do not know how to put the whole matter in a simpler form, or to commend it more plainly to your understanding. It is not the mere exposition of a few verses of Scripture, or the clearing up of some small critical difficulty. Rather would I have you consider it a direction of vital importance to every seeking soul, a counsel of thrilling interest to every tried and exercised heart! Oh, how anxious I am to make straight paths for your feet, lest that which is lame be turned out of the way! I wish that all of you, especially our young friends, would learn and often repeat that hymn of Dr. Watts till it becomes indelibly fixed on their memory:
 
-> The Law commands and makes us know
-> What duties to our God we owe.
-> But 'tis the Gospel must reveal
-> Where lies our strength to do His will.
-> The Law discovers guilt and sin,
-> And shows how vile our hearts have been.
-> Only the Gospel can express
-> Forgiving love and cleansing Grace.
-> What curses does the Law denounce
-> Against the man that sins but once!
-> But in the Gospel, Christ appears
-> Pardoning the guilt of numerous years.
-> My Soul, no more attempt to draw
-> Your life and comfort from the Law.
-> Fly to the hope the Gospel gives,
-> The man that trusts the promise lives.
+> The Law commands and makes us know  
+> What duties to our God we owe.  
+> But 'tis the Gospel must reveal  
+> Where lies our strength to do His will.  
+> The Law discovers guilt and sin,  
+> And shows how vile our hearts have been.  
+> Only the Gospel can express  
+> Forgiving love and cleansing Grace.  
+> What curses does the Law denounce  
+> Against the man that sins but once!  
+> But in the Gospel, Christ appears  
+> Pardoning the guilt of numerous years.  
+> My Soul, no more attempt to draw  
+> Your life and comfort from the Law.  
+> Fly to the hope the Gospel gives,  
+> The man that trusts the promise lives.  
 
 And remember, last of all, that the Law which is so sharp and terrible to men when it only deals with them for their good, will, if you and I die without being brought to Christ, be much more terrible to us in eternity, when it deals with us in justice for our punishment! Then it will not be enshrined in the body of Moses, but, terrible to tell, it will be incarnate in the Person of the Son of God sitting upon the Throne! He will be at once the Lawgiver, the Judge and the Savior, and you that have despised Him as the Savior will have to appear before Him as your Judge! And His justice will be clear and undiluted now that His mercy has been scorned.
 

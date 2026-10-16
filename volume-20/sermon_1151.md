@@ -1,7 +1,7 @@
 # Sermon 1151 | A Revival Promise
 
-> For I will pour water upon him that is thirsty, and floods upon the dry ground: I will pour My Spirit upon your seed, and My blessing upon your offspring: and they shall spring up as among the grass, as willows by the watercourses. One shall say, I am the Lord's; and another shall call himself by the name of Jacob; and another shall subscribe with his hand unto the Lord, and surname himself by the name of Israel
-> Isaiah 44:3-6
+> For I will pour water upon him that is thirsty, and floods upon the dry ground: I will pour My Spirit upon your seed, and My blessing upon your offspring: and they shall spring up as among the grass, as willows by the watercourses. One shall say, I am the Lord's; and another shall call himself by the name of Jacob; and another shall subscribe with his hand unto the Lord, and surname himself by the name of Israel  
+> Isaiah 44:3-6  
 
 In the Christian Church at this moment there is a very general desire for a revival of religion. You may go where you may among Christian people and you will find that they are mourning over the present state of things and saying, one to the other, "When will a greater blessing come? How can we obtain it? When shall we make some impression upon the masses of the ungodly? When shall our houses of prayer be filled with attentive hearers? When will the Lord's kingdom come and His right arm be made bare in the eyes of all the people?"
 
@@ -19,9 +19,9 @@ In our text we have the great Covenant blessing of the Church. It is the gift of
 
 God forbid that we should think lightly of Pentecost, the Holy Spirit then descended and we have no record that the Spirit has since ascended and departed from the Church. He is the Church's perpetual heritage and abides with us always. I like to sing:
 
-> The Holy Spirit is here,
-> Where saints in prayer agree, As Jesus 'parting gift He's near Each pleading company. Not far away is He,
-> To be by prayer brought near, But here in present majesty, As in His courts on high.
+> The Holy Spirit is here,  
+> Where saints in prayer agree, As Jesus 'parting gift He's near Each pleading company. Not far away is He,  
+> To be by prayer brought near, But here in present majesty, As in His courts on high.  
 
 He is permanently resident in the midst of the Church. But when are have received that Truth of God, we may still go on to use the language which is very frequent among us and pray for the outpouring of the Spirit. If the language is not exactly accurate, the meaning is most excellent. So far as any one assembly or person is concerned, we may request the Holy Spirit to be poured forth upon us in His gracious operations. We desire to see the Spirit of God working more mightily in the Church, we long, each one of us, to be more completely subject to His influences and more filled with His power, so that we may be full of faith and of the Holy Spirit.
 

@@ -1,7 +1,7 @@
 # Sermon 1174 | The Ear Bored With An Awl
 
-> And if the servant shall plainly say, I love my master, my wife, and my children; I will not go out free: Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the doorpost; and his master shall bore his ear through with an awl; and he shall serve him forever.
-> Exodus 21:5, 6
+> And if the servant shall plainly say, I love my master, my wife, and my children; I will not go out free: Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the doorpost; and his master shall bore his ear through with an awl; and he shall serve him forever.  
+> Exodus 21:5, 6  
 
 The slavery which existed among the ancient Jews was a very different thing from that which has disgraced humanity in modern times. And it ought also to be remembered that Moses did not institute slavery in any shape or fashion. The laws concerning it were made on purpose to repress it, to confine it within very narrow bounds and, ultimately, to put an end to it. It was like the law of divorce; Moses authored that law but he knew that the people were so deeply rooted in it that it could not be forbidden. And therefore, as Jesus tells us, Moses, because of the hardness of their hearts, suffered them to put away their wives. And so, I may say, because of the hardness of their hearts he suffered them, still, to retain persons in servitude. But he made the laws very stringent, so as almost to prevent it.
 
@@ -43,10 +43,10 @@ There are plenty of places you can go, there is the world, the flesh and the dev
 
 Well, then, since we might go free if we would, but wish not to do so, we are willing to declare before the judges, that is, before the public here assembled tonight, who shall be our judges, that though quite able to go free, (we say it plainly and without stammering), we have not the remotest wish to do so. If the service of Christ has been a fetter, Lord, put on double fetters! If Your service has been a bond, Lord, tie us up, hand and foot, for, to us, bondage to You is the only perfect liberty. Yes, if it must be so, we will say it here:
 
-> 'Tis done! The great transaction's done.
-> Iam my Lord's, and He is mine!
-> He drew me, and I followed on,
-> Charmed to obey the voice Divine.
+> 'Tis done! The great transaction's done.  
+> Iam my Lord's, and He is mine!  
+> He drew me, and I followed on,  
+> Charmed to obey the voice Divine.  
 
 And we will add the words: "High Heaven that heard the solemn vow,
 

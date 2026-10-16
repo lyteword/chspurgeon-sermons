@@ -1,7 +1,7 @@
 # Sermon 1195 | Abundant Pardon
 
-> He will abundantly pardon.
-> Isaiah 55:7
+> He will abundantly pardon.  
+> Isaiah 55:7  
 
 In our childhood we learned from Dr. Watts' Catechism that Isaiah was that Prophet who spoke more of Jesus Christ than all the rest. In the chapter before us Isaiah had been declaring in the name of the Lord the coming and the character of the Redeemer, speaking of Him thus, "Behold I have given Him for a witness to the people, a leader and a commander to the people." No sooner had he thus proclaimed the appearance of the Christ, than he beheld whole nations of the heathen rushing to Him and, inspired by that sight, he began at once to address himself to the sinners around him bidding them fly to Him, too. As there is a natural connection between the physician and the sick, so is there between the Savior and the sinner.
 
@@ -101,8 +101,8 @@ Another inference is this. /f there is anybody in this house the text specially 
 
 While my text invites each sinner, it has a special finger with which to beckon, this morning, to those who have abundant sin: "Come here, come here, come here! For the Lord will abundantly pardon." Now, for such a forgiving God as this we ought, in return, to have great love. If He "abundantly pardons," we ought to be abundantly grateful:
 
-> Love I must, I've more forgiven;
-> I'm a miracle of Grace.
+> Love I must, I've more forgiven;  
+> I'm a miracle of Grace.  
 
 You believe God has done much for you, never think you can do too much for Him! Evil sinners, when they get saved, make the fairest saints! In proportion as they earnestly rebelled, they often throw the same vigor into the service of God and become desperately in earnest for that dear Lord who loved them and gave Himself for them!
 

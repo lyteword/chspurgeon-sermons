@@ -1,7 +1,7 @@
 # Sermon 1177 | Fearful Of Coming Short
 
-> Let us therefore fear, lest, a promise being left us of entering into His rest, any of you should seem to come short of it. For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it.
-> Hebrews 4:1,2
+> Let us therefore fear, lest, a promise being left us of entering into His rest, any of you should seem to come short of it. For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it.  
+> Hebrews 4:1,2  
 
 The general strain of the Apostle Paul is confident and even jubilant. Where in the whole compass of Revelation do you meet with bolder writing than that which comes from his pen? "There is therefore now no condemnation to them that are in Christ Jesus." "For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord." "Who shall lay anything to the charge of God's elect?" "I know whom I have believed, and am persuaded that He is able to keep that which I have committed to Him." Paul is the great doctor of faith and teacher of full assurance. You meet with nothing in his writings which would encourage doubts and fears, or lead the saints into bondage to anxiety and suspicion.
 
@@ -45,25 +45,25 @@ But we must also take care that we do not come short as to the inner working of 
 
 Now, Beloved, are you really, radically and totally changed? If not, it is not for me to flinch from stating the Truth of God to you, however reformed and however devout you may seem to be, you come short of the Divine rest, for, "you must be born again." There must be the new birth in your spirit, or else you are not numbered among the chosen of God and among the saved ones you can never sit in Heaven. Search yourselves, lest you are deceived:
 
-> Vain are your fancies, airy flights,
-> If faith is cold and dead.
-> None but a living power unites
-> To Christ the living Head.
-> Grace, like an uncorrupted seed,
-> Abides and reigns within.
-> Immortal principles forbid
-> The sons of God to sin.
+> Vain are your fancies, airy flights,  
+> If faith is cold and dead.  
+> None but a living power unites  
+> To Christ the living Head.  
+> Grace, like an uncorrupted seed,  
+> Abides and reigns within.  
+> Immortal principles forbid  
+> The sons of God to sin.  
 
 Faith must also be judged of by its power upon the character. The man who really believes in Jesus becomes a man of prayer. Never had a man faith and yet despised the Mercy Seat. "Behold, he prays," is a declaration akin to, "Behold, he believes." How about your private prayers, then, my dear Friends? Are they neglected? Are they performed in a slovenly manner? I will not inquire so much as to your formal prayers, as to the spirit of prayer, does your heart, all the day long, go up to God in silent cries and secret groans? Do you speak to God out of your inmost soul by snatches while at your work? Do you say, "My God, my Father, help me," when none could tell that your lips are moving? If you have not the spirit of prayer, you are destitute of one of the surest signs of spiritual life, and you may conclude that your faith is dead and that you come short of God's rest.
 
 True faith works upon us by leading us to obedience. When we believe in Jesus, we desire to do all that Jesus tells us. Many Christians fall short here. They want to do as little as they can and yet keep a quiet conscience. They do not read some parts of the Bible for fear they should discover duties which would be inconvenient to attend to. Shutting the eyes to heavenly light is dangerous work! Do not knowingly neglect the smallest command of our Lord Jesus Christ, for an act of willful disobedience upon a point which may seem to be non-essential may sufficiently prove that your profession is rotten at the core because you do not delight in the Law of the Lord:
 
-> Faith must obey her Father's will,
-> As well as trust His Grace.
-> A pardoning God is jealous, still,
-> For His own holiness.
-> When from the curse He sets us free,
-> He makes our natures clean. Nor would He send His Son to be The minister of sin.
+> Faith must obey her Father's will,  
+> As well as trust His Grace.  
+> A pardoning God is jealous, still,  
+> For His own holiness.  
+> When from the curse He sets us free,  
+> He makes our natures clean. Nor would He send His Son to be The minister of sin.  
 
 Faith works in us separation from sinners. Those who believe in Jesus cannot enter into the pleasures of the ungodly. They have higher joys. Like the eagle, they disdain the carrion upon which the world's vultures feed. Shall an angel be seen rioting with the unclean and the profane, enjoying their fooleries and laughing at their excesses? Yet the heir of Heaven is akin to angels, and it were a shame for him to stoop to that which charms only the baser part of mankind. "Holy, harmless, undefiled, separate from sinners," is the great Apostle and High Priest of our profession, and His true disciples imitate Him.
 
@@ -117,10 +117,10 @@ Then, come boldly to the Throne of Grace. So the chapter concludes. There you wi
 
 Is it worth it? O you that are bought with blood, is Jesus worthy of your entire selves? You profess to be Christians! So I charge you by that profession to answer my question! Is the faith of God and the kingdom of God worth your whole selves? I know what your answer is if you are sincere. You will say:
 
-> Had I ten thousand thousand tongues,
-> Not one should silent be.
-> Had I ten thousand thousand hearts,
-> I'd give them all to Thee!
+> Had I ten thousand thousand tongues,  
+> Not one should silent be.  
+> Had I ten thousand thousand hearts,  
+> I'd give them all to Thee!  
 
 O Brethren, we have not done enough for God because we have not loved God enough! We are not powerful because we are not intense. If we were on fire with love, we should be very different. But we are cold, carnal, worldly, half-hearted, and we shall come short if we do not alter.
 

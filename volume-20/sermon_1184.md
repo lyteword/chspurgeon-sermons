@@ -1,7 +1,7 @@
 # Sermon 1184 | The Sad Plight and Sure Relief
 
-> For when we were yet without strength, in due time Christ died for the ungodly.
-> Romans 5:6
+> For when we were yet without strength, in due time Christ died for the ungodly.  
+> Romans 5:6  
 
 As I was sitting, the other day, with an aged Believer who is a local preacher among our Wesleyan friends, he said to me, "I cannot hope, in the course of nature, to stand up in the pulpit many more times. Therefore, every time I preach now, I preach of nothing but Jesus Christ. And I said to the people the other day, 'You will say when I am dead and gone, Poor old Mr. So-and-So will come and preach to us no more. But as he got older and older the more he preached about Jesus Christ, till for the last few months of his life the old man never spoke about anything but his Master.'" Then, as if confidentially addressing himself to me, he said, "I should like to leave just that impression upon the people's minds when I am taken from them."
 
@@ -15,10 +15,10 @@ We could not make apologies, for we sinned willfully, sinned against light and a
 
 Looked at legally, it is utterly without strength. No advocate who understood the case would have ventured to plead it, except that one glorious Advocate who did plead it, but at the cost of His own life. He knew that if He undertook it and stood up to plead with God for us, He must die for it, for it was a case in which, before the Law, we were without strength. We had no good works to be a setoff for our sin. We had no hope of ever performing any in the future which could ever stand in the place of the good works which ought to have been done in the past. The case, put however it might be, broke down utterly, and the prisoner himself, if, indeed, able to speak the truth, would be compelled to say:
 
-> Should sudden vengeance seize my breath,
-> I must confess You just in death.
-> And if my soul is sent to Hell,
-> Your righteous Law approves it well.
+> Should sudden vengeance seize my breath,  
+> I must confess You just in death.  
+> And if my soul is sent to Hell,  
+> Your righteous Law approves it well.  
 
 We were without strength. It was a bad case, altogether, and could not be defended. And man, by nature, is morally weak. We are so weak by nature that we are carried about like dust and driven to and fro by every wind that blows. We are swayed by every influence which assails us. Man is under the dominion of his own lusts, his pride, his sloth, his love of ease, his love of pleasure. Man is such a fool that he will buy pleasure at the most ruinous price. He will fling his soul away as if it were some paltry toy and barter his eternal interests as if they were but trash. For some petty pleasure of an hour he will risk the health of his body. For some paltry gain, he will jeopardize his soul. Alas! Alas! Poor Man, you are as light as the thistledown which goes this way or that, as the wind may turn. In your moral constitution you are as the weathercock which shifts with every breeze.
 

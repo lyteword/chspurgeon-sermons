@@ -1,7 +1,7 @@
 # Sermon 1153 | The Matchless Mystery
 
-> For we are members of His body, of His flesh, and of His bones
-> Ephesians 5:30
+> For we are members of His body, of His flesh, and of His bones  
+> Ephesians 5:30  
 
 I do not hesitate to say that this is one of the most wonderful texts in the whole compass of Revelation. It sets forth the mystery of mysteries, the very pith and marrow of the loftiest divinity. It is fitted rather to be the theme for a hundred elaborate discourses than for one brief homily. Most assuredly it is a deep that knows no sounding, an abyss where thought plunges into never-ending contemplations. He who handles it had need, first of all, to be filled with all the fullness of God. Therefore we feel incapable of dealing with it as it should be dealt with, it is all too great and vast for us, we can no more hope to compass it than a child can hold an ocean in his hand.
 
@@ -147,10 +147,10 @@ Then, remember, all the glory Christ has we shall share in. You cannot honor a w
 
 Poor things, poor things, that struggle hard each day with infirmities and trials, you shall be with Him where He is, and shall behold His Glory forever! So shall we ever be with the Lord. Comfort one another with these words."
 
-> Since Christ and we are one,
-> Why should we doubt or fear?
-> If He in Heaven has fixed His Throne,
-> He'll fix His members there.
+> Since Christ and we are one,  
+> Why should we doubt or fear?  
+> If He in Heaven has fixed His Throne,  
+> He'll fix His members there.  
 
 In this spirit come to the Communion Table and find your Master there! But oh, if you are not resting in Him. If the blood was never upon you, you are condemned already because you have not believed on the Son of God! I pray that your bed may be cold and hard as a stone to you tonight and your eyes may forget to sleep, and your heart may know no rest till you have said "I will arise, and go to my Father, and will say unto Him, Father, I have sinned." Then take with you Jesus as a Mediator and draw near to the Throne of Grace! Plead His blood and merits, and you shall live! And then you, too, shall be able to join with the saints who say, "We are members of His body, of His flesh, and of His bones." Amen. Amen.
 

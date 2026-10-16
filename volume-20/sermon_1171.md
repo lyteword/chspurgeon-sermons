@@ -1,7 +1,7 @@
 # Sermon 1171 | The Lord Chiding His People
 
-> He will not always chide: neither will He keep His anger forever.
-> Psalm 103:9
+> He will not always chide: neither will He keep His anger forever.  
+> Psalm 103:9  
 
 This verse has reference only to the children of God. The Psalm is for them, they alone can sing it and this statement concerns them only, for this reason, that the wrath of the great Judge of all the earth is removed from every true child of God. Our sins were laid upon Jesus Christ and He bore them for us. The penalty due to us on account of them, or its equivalent, has been endured by Jesus Christ, our Substitute. Therefore, as before the Throne of God there is no accusation against a Believer, the justice of God has no anger towards him. "Though You were angry with me, Your anger is turned away and You comfort me," is the proper language of every justified man.
 
@@ -73,10 +73,10 @@ Brethren, the sin which in me may be very grievous, might be comparatively overl
 
 We have been gazing at the black cloud, now let us look at the silver lining. Here is the text, itself, in its sweetness: "He will not always chide." What does that mean? It means that He will not chide for every fault. Of course, as I have already said, His Word chides even a sinful thought in His people, but the Lord does not fall to blows about it, does not grow angry so that we feel His anger for every fault, but only for some, else He would be chiding every minute! It means, too, that He does not chide long. Oh, how often does He just chide for a moment and then He has done, like a mother who speaks an angry word to her child and kisses it the next minute:
 
-> He will not always chide,
-> And when His strokes are felt,
-> His strokes are fewer than our crimes,
-> And lighter than our guilt.
+> He will not always chide,  
+> And when His strokes are felt,  
+> His strokes are fewer than our crimes,  
+> And lighter than our guilt.  
 
 It means, again, that He does not hold any grudges. That is the real meaning of the second clause. The words, "His anger," are in italics, they are not in the Hebrew, they are supplied by our translators to complete the sense. It means just this, "neither will He keep a grudge against us." Many will say, "I forgive you," but you know very well what sort of forgiveness it is. They pardon you because they cannot help themselves and they forgive until the first opportunity comes of showing their spite. Not so with God! He has no grudge against His children. He smites them and has done with it. Whenever God uses a rod on His children, He always burns it as soon as ever He has done with it. He does not put it up by the mirror as I have seen it in some families, but He destroys it, for He hates the sight of it.
 

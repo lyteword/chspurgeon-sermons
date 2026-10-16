@@ -1,7 +1,7 @@
 # Sermon 1182 | A Singular Title and a Special Favor
 
-> The God of my mercy shall prevent me.
-> Psalm 59:10
+> The God of my mercy shall prevent me.  
+> Psalm 59:10  
 
 A life without trouble would be very uninteresting. Our opportunities for greatness would be narrowed down if trials were gone. I watched a glorious sunset, marveling at the beauty of the evening skies all ablaze and adoring Him who gave them their matchless coloring. On the next evening I resorted to the same spot, hoping to be, again, enraptured with the gorgeous pomp of the ending day, but there were no clouds and, therefore, no glories. True, the canopy of sapphire was there, but no magnificent array of clouds to form golden masses with edges of burning crimson, or islands of loveliest hue set in a sea of emerald. There were no great conflagrations of splendor or flaming peaks of mountains of fire. The sun was as bright as before, but for lack of dark clouds on which to pour out his luster, his magnificence was unrevealed.
 
@@ -59,14 +59,14 @@ Bless, then, the Lord this moment, Beloved, and take Him to yourselves under tha
 
 As the rich father thinks, "This will I give to my eldest son, and that to the second, and that to the third," and so he puts by a portion for each of his children, so has God mapped out and allotted for each one of us some choice and special mercy fitted for our peculiar case, which no one can receive but ourselves, but which we must and shall obtain. Is not our hymn delightfully suggestive where it sings:
 
-> And a new song is in my mouth,
-> To long-loved music set
-> Glory to You for all the Grace
-> I have not tasted yet.
-> I have a heritage of joy
-> That yet I must not see;
-> The hand that bled to make it mine,
-> Is keeping it for me.
+> And a new song is in my mouth,  
+> To long-loved music set  
+> Glory to You for all the Grace  
+> I have not tasted yet.  
+> I have a heritage of joy  
+> That yet I must not see;  
+> The hand that bled to make it mine,  
+> Is keeping it for me.  
 
 Blessed be God for His reserves of mercy, for the blessing yet to be revealed, which is as sure as if we had it, is kept in a better hand than ours! It is preserved by Him who bought it, till the time appointed shall arrive. "The God of my mercy," that is, of the mercy I have had, and also of that which is treasured up for me in the Covenant purpose and decree, among the sure mercies of David.
 

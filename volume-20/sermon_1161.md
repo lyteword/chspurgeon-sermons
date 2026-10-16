@@ -1,7 +1,7 @@
 # Sermon 1161 | Without Money and Without Price
 
-> Without money and without price.
-> Isaiah 55:1
+> Without money and without price.  
+> Isaiah 55:1  
 
 The spiritual blessings promised and provided in the Gospel comprise all that man can need. They are described in the chapter before us as "water" refreshing and cleansing, the "Water of Life," of which if a man drinks he shall never thirst again. They are next described as "wine," the wine of joy, exhilarating, comforting, "making good the heart of man", a wine in which is no woe, but fullness of holy delight. These blessings are thirdly represented as "milk," for milk is almost the only article of diet which contains everything that is necessary for the support of man, and therefore it is a type of the satisfying qualities of the Gospel. He who receives the Gospel of Jesus Christ has all that his soul can possibly need for time and for eternity, so that water, wine and milk set forth a full supply of life, joy and satisfaction for our spirits.
 
@@ -99,10 +99,10 @@ So then, as to our God, the free gifts of Grace, working by the power and energy
 
 When we know that Jesus has saved us, we feel we could lay down our lives for Him. Self-denial springs of this. Yes, the death of self comes out of a rich experience of free and Sovereign Grace Did the Lord love me when there was nothing to love in me? Did He love me with spontaneous love before the world began? Did He give His son to die for me, a guilty sinner, lost and ruined in the Fall? Then I will give all that I have to God, and feel that:
 
-> If I might make some reserve,
-> And duty did not call
-> I love my God with zeal so great
-> That I would give Him all.
+> If I might make some reserve,  
+> And duty did not call  
+> I love my God with zeal so great  
+> That I would give Him all.  
 
 This is the natural outgrowth of the grand doctrine of "without money and without price."
 

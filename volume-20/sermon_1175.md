@@ -1,7 +1,7 @@
 # Sermon 1175 | Stephen's Death
 
-> And they stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep.
-> Acts 7:59, 60
+> And they stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep.  
+> Acts 7:59, 60  
 
 It is of the greatest service to us all to be reminded that our life is but a vapor which appears for a little while and then vanishes away. Through forgetfulness of this, worldlings live at ease and Christians walk carelessly. Unless we watch for the Lord's coming, worldliness soon eats into our spirit as does a canker. If you have this world's riches, Believer, remember that this is not your rest, set not too great a store by its comforts. If, on the other hand, you dwell in straitness and are burdened with poverty, be not too much depressed, for these light afflictions are but for a moment and are not worthy to be compared with the Glory which shall be revealed in us! Look upon the things that are as though they were not. Remember you are a part of a great procession which is always moving by, others come and go before your own eyes, you see them and they disappear. You, yourself, are moving onward to another and more real world.
 
@@ -97,7 +97,7 @@ If we have been useful, ourselves, up to the measure of a moderate ability, we m
 
 As for you who are not saved yourselves, I implore you think of what your condition will be when you come to die. Or, if a seared conscience should cause you to die in peace, think what you will do at the Judgment, when that conscience will become tender. What will you do when the lips of the dear Redeemer shall say, "Depart, you cursed, into everlasting fire in Hell"?
 
-> You Sinners, seek His Grace,
-> Whose wrath you cannot bear! Look to the dying Savior's face, And find salvation there.
+> You Sinners, seek His Grace,  
+> Whose wrath you cannot bear! Look to the dying Savior's face, And find salvation there.  
 
 Portion of Scripture Read Before Sermon: Acts 5:9-15; 7. Hymns from "Our Own Hymn Book": 855, 829, 853.
