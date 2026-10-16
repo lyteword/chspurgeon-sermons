@@ -1,7 +1,7 @@
 # Sermon 1233 | Healing Leaves
 
-> The leaves of the tree were for the healing of the nations.
-> Revelation 22:2
+> The leaves of the tree were for the healing of the nations.  
+> Revelation 22:2  
 
 We have in the twenty-first and twenty-second chapters of the Book of Revelation a very wonderful description of heaven upon earth. I shall not attempt to go into any prophetical explanations as to when this will be fulfilled, but we know this for certain, for we have it in so many words, that the holy city, New Jerusalem, will descend out of heaven from God, and that, in a word, there will be, for a time at least, a heaven on earth. But inasmuch as heaven, be it where it may, is still heaven, the description of heaven on earth sufficiently benefits us to reveal, in some measure, the present joys and blessings of the celestial state.
 
@@ -77,9 +77,9 @@ Why should a child of God complain who knows that there is love in every chasten
 
 I have shown that the leaves will heal all diseases. I will occupy a minute with the glad truth of God that these leaves heal whole nations. They are suited to the peculiarities of differing nations. The gospel has never been carried to a people who did not need it, or whom it did not suit. It has been found equally applicable to the ignorant Hottentot and the subtle Hindu. No man has been found too degraded for its operation, nor too civilized for its benefits. The gospel has such abundant power that it heals nations and, "nations," is a large word, comprehending millions! But the leaves of this tree can heal countless armies of men, and it will:
 
-> ...Never lose its power
-> Till all the ransomed church of God
-> Are sa ved to sin no more.
+> ...Never lose its power  
+> Till all the ransomed church of God  
+> Are sa ved to sin no more.  
 
 It is a happy circumstance that an agent of such potency is diffusible by the simplest means. A medicine consisting of leaves may be carried by the apothecary where he wills. It is no cumbrous matter. So may we carry the gospel to the utmost ends of the earth, and we will carry it and send it to every habitation! The winds shall waft it, the waves shall bear it wherever man is found. These leaves are not cumbrous like the stage properties of Popery, but are readily scattered, and wherever they go, no climate injures them. The cold of Greenland has not been too severe to prevent the Greenlander rejoicing in the blood! And the heat of the torrid zone has not been too intense to prevent believers from rejoicing in the Sun of righteousness. No, beloved, the gospel heals nations wherever the nations may be and readily heals them of the direst miseries and the blackest crimes.
 
