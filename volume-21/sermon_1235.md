@@ -1,7 +1,7 @@
 # Sermon 1235 | How a Man's Conduct Comes Home To Him
 
-> The backslider in heart shall be filled with his own ways: and a good man shall be satisfied from himself.
-> Proverbs 14:14
+> The backslider in heart shall be filled with his own ways: and a good man shall be satisfied from himself.  
+> Proverbs 14:14  
 
 A common principle is laid down here and declared to be equally true in reference to two characters, who in other respects are a contrast. Men are affected by the course which they pursue, for good or bad. Their own conduct comes home to them. The backslider and the good man are very different, but in each of them the same rule is exemplified. They are both filled by the result of their lives. The backslider becomes filled by that which is within him, as seen in his life, and the good man, also, is filled by that which divine grace implants within his soul. The evil leaven in the backslider leavens his entire being and sours his existence, while the gracious Fountain in the sanctified believer saturates his whole manhood and baptizes his entire life.
 
@@ -75,10 +75,10 @@ What dungeons, what grim and dark prisons have saints of God lain in who have go
 
 Beloved friends, let us all go straight away to the Cross at once for fear we should be backsliders:
 
-> Come, let us to the Lord our God
-> With contrite hearts return!
-> Our God is gracious, nor will leave
-> The penitent to mourn.
+> Come, let us to the Lord our God  
+> With contrite hearts return!  
+> Our God is gracious, nor will leave  
+> The penitent to mourn.  
 
 Let us confess every degree and form of backsliding, every wandering of heart, every decline of love, every wavering of faith, every flagging of zeal, every dullness of desire, every failure of confidence. Behold, the Lord says unto us, "Return!" Therefore let us return! Even if we are not backsliders, it will do us no harm to come to the Cross as penitents. Indeed, it is well to abide there forevermore! O Spirit of the living God, preserve us in believing penitence all our days!
 
@@ -94,8 +94,8 @@ And what is the man who loves that which is good? Is he evil? I think not! He wh
 
 Now, a good history is this, "He is satisfied from himself." That means, first, that he is independent of outward circumstances. He does not derive satisfaction from his birth, or honors, or properties. That which fills him with content is within himself. Our hymn puts it so truly:
 
-> I need not go abroad for joys, I have a feast at home,
-> My sighs are turned into songs, My heart has ceased to roam. Down from above the blessed Dove Is come into my breast, To witness Your eternal love And give my spirit rest.
+> I need not go abroad for joys, I have a feast at home,  
+> My sighs are turned into songs, My heart has ceased to roam. Down from above the blessed Dove Is come into my breast, To witness Your eternal love And give my spirit rest.  
 
 Other men must bring music from abroad if they have any, but in the gracious bosom there lives a little bird that sings sweetly to him. He has a flower in his own garden more sweet than any he could buy in the market or find in the palace. He may be poor, but he would not change his estate in the kingdom of heaven for all the grandeur of the rich! His joy and peace are not even dependent upon the health of his body. He is often well in soul when sick as to his flesh. He is frequently full of pain and yet perfectly satisfied.
 
