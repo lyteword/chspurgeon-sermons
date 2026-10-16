@@ -1,7 +1,7 @@
 # Sermon 1256 | The Old Man's Sermon
 
-> O God, You have taught me from my youth: and until this time have I declared Your wondrous works. Now, also, when I am old and gray-headed, O God, forsake me not, until I have showed Your strength unto this generation, and Your power to everyone that is to come.
-> Psalm 71:17,18
+> O God, You have taught me from my youth: and until this time have I declared Your wondrous works. Now, also, when I am old and gray-headed, O God, forsake me not, until I have showed Your strength unto this generation, and Your power to everyone that is to come.  
+> Psalm 71:17,18  
 
 I expect, during the present week, to have the pleasure of preaching at Kettering, to celebrate the centenary of the ministry in that place of Mr. Toller and his father. My esteemed friend, Mr. Toller, has for about 55 years proclaimed the gospel of the grace of God to the same people, and with the 45 years of his previous pastorate the century is completed! Having this very pleasant task before me, I have been led to consider the subject of old age and especially the old age of believers, and have concluded that "the reminiscences of an old man" would furnish us a suitable topic for this discourse. I was the more led to choose the subject because on Sabbath week the children and young people will have a claim upon the preacher, since that day has been selected by the Sunday School Union for special prayer.
 
@@ -39,8 +39,8 @@ Our eager desire is yet more fully "to know Him." I half wish that I could leave
 
 Though my venerable friend has earned unto himself a good degree, he still keeps to his old Bible, and his old Master. Though now able to teach others, also, he is none the less a disciple, sitting at the feet of Jesus! Yes, he is all the more teachable because of what he already knows. Thus, brethren, we have seen that the model of aged believers is an instructed saint who owes all he knows to divine teaching, who began to learn early and has persevered in his sacred studies even to this day:
 
-> 'Twas Yours, O Lord, to train and try My spirit from my youth; And to this hour I glorify
-> The wonders of Your truth.
+> 'Twas Yours, O Lord, to train and try My spirit from my youth; And to this hour I glorify  
+> The wonders of Your truth.  
 
 Secondly, pass on to consider his occupation. His scholarship was a good beginning, his occupation was a good continuance: "Until this time have I declared Your wondrous works." This was chief employment. It is true he had other work to do, for he was at first a shepherd. He then became a royal harper, afterwards grew into a warrior and at last climbed to a throne! Still, his main bent and objective was to magnify the Lord by declaring His wondrous works. You and I, brethren, have each one his calling, and if it is a lawful calling, let us abide in it and let us not dream that it would honor God for us to leave our daily occupations upon pretence of serving Him in a more spiritual way by living upon other people.
 
@@ -82,12 +82,12 @@ It is very remarkable that all the falls, as far as I remember, recorded in Scri
 
 And thus many men have borne temptation bravely for years, and just when the trial was over and they reckoned that they were safe. They turned aside to crooked ways and grieved the Lord. You are greatly surprised aren't you? You would have believed it of anybody sooner than of them, but so it is. Take this, then, as a caution, lest we spoil a lifelong reputation by one wretched act of sin. My very heart cries, "O God, forsake me not." The Psalmist saw that many enemies were watching him and, therefore, he pleaded, "Forsake me not." He had many temptations to grow weary in his service and he prayed, "Forsake me not." He felt, also, the natural decay of his physical force and he cried, "my strength fails," and therefore he pleaded, "Forsake me not.":
 
-> With years oppressed, with sorrows worn,
-> Dejected, harassed, sick, forlorn,
-> To you, O God, I pray;
-> To you my withered hands arise,
-> To you I lift these failing eyes;
-> Oh, cast me not away!
+> With years oppressed, with sorrows worn,  
+> Dejected, harassed, sick, forlorn,  
+> To you, O God, I pray;  
+> To you my withered hands arise,  
+> To you I lift these failing eyes;  
+> Oh, cast me not away!  
 
 The Psalmist, by this prayer, confessed his undeservingness. He felt that for his sins God might well leave him. Hence that prayer in the fifty-first Psalm, "Cast me not away from Your presence; take not Your Holy Spirit from me." But he humbly resolved not to be deserted. He could not bear it! He held his God with eagerness and cried in agony, "O God, forsake me not." His heart was desperately set upon holding to his one hope and consolation and, so, he pleaded as one who pleads for life, itself. You now have the prayer before you. What do you think, brethren, will the Lord answer it? You who are feeling your strength fail through old age have been praying, "O God, forsake me not." What do you think, will the Lord answer your prayer?
 
