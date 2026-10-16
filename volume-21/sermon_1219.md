@@ -1,7 +1,7 @@
 # Sermon 1219 | A Voice From Heaven
 
-> Here is the patience of the saints: here are they that keep the commandments of God, and the faith of Jesus. And I heard a voice from heaven saying unto me, Write, blessed are the dead which die in the Lord from now on: Yes, says the Spirit, that they may rest from their labors, and their works follow them.
-> Revelation 14:12,13
+> Here is the patience of the saints: here are they that keep the commandments of God, and the faith of Jesus. And I heard a voice from heaven saying unto me, Write, blessed are the dead which die in the Lord from now on: Yes, says the Spirit, that they may rest from their labors, and their works follow them.  
+> Revelation 14:12,13  
 
 The text speaks of a Voice from heaven which said, "blessed are the dead which die in the Lord." The witness of that voice is not needed upon every occasion, for even the most common observer is compelled to feel, concerning many of the righteous, that their deaths are blessed. Balaam, with all his moral shortsightedness, could say, "Let me die the death of the righteous, and let my last end be like his." That is the case when death comes in peaceful fashion. The man has lived a calm, godly, consistent life. He has lived as long as he could well have wished to live and, in dying, he sees his children and his children gathered around his bed.
 
