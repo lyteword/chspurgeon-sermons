@@ -1,7 +1,7 @@
 # Sermon 1225 | Jesus, The Delight of Heaven
 
-> And they sung a new song, saying, You are worthy to take the book, and to open the seals thereof: for You were slain, and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation; and have made us unto our God kings and priests: and we shall reign on the earth.
-> Revelation 5:9,10
+> And they sung a new song, saying, You are worthy to take the book, and to open the seals thereof: for You were slain, and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation; and have made us unto our God kings and priests: and we shall reign on the earth.  
+> Revelation 5:9,10  
 
 If you want to know a character, it is well to inquire at his home. What do his children and servants think of him? What is the estimate formed by those who are always with him? George Whitefield was once asked his opinion of a person and his answer was very wise, for he replied, "I never lived with him." Beloved brothers and sisters in Christ, see what an estimate is formed of your Lord at Home up yonder, where they know Him best and see Him most constantly, and in the clearest light! They have discovered no faults in Him. The angels who have beheld Him ever since they were created, the redeemed who have been with Him, some of them for thousands of years, have found no spot in Him. Their unanimous verdict expressed freely in joyful song is, "You are worthy; You are worthy; You are worthy."
 
@@ -63,13 +63,13 @@ I could not trust my soul with a mere man, or believe in an atonement made by a 
 
 We would not wish them to say more than they believe to be true, and they must not expect us to say less than we believe to be true. If Jesus is God, they must believe it, and must worship Him as such, or else they cannot participate in the salvation which He has provided. I love the Deity of Christ! I preach His Humanity with all my might, and I rejoice that He is the Son of Man, but oh, He must be the Son of God, too, or there is no peace for me:
 
-> Till God in human flesh I see, My thoughts no comfort find.
-> The holy, just, and sacred Three
-> Are terrors to my mind.
-> But if face appears,
-> My hope, my joy begins:
-> His name forbids my slavish fear;
-> His grace removes my sins.
+> Till God in human flesh I see, My thoughts no comfort find.  
+> The holy, just, and sacred Three  
+> Are terrors to my mind.  
+> But if face appears,  
+> My hope, my joy begins:  
+> His name forbids my slavish fear;  
+> His grace removes my sins.  
 
 Now I have almost done, only this is the outcome of the subject. You see the opinion they have of Jesus in heaven. My dear friends, are you of the same mind with them? You will never go there till you are! There are no sects in heaven, no two parties. They all hold the same views about Jesus. Let me ask you, then, are you of the same persuasion as the glorified saints?
 
