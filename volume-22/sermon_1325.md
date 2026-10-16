@@ -1,7 +1,7 @@
 # Sermon 1325 | Christ the End of the Law
 
-> "For Christ is the end of the law for righteousness to every one that believeth." 
-> Romans 10:4. 
+> "For Christ is the end of the law for righteousness to every one that believeth."  
+> Romans 10:4.  
 
 You remember we spoke last Sabbath morning of "the days of the Son of man." Oh that every Sabbath now might be a day of that kind in the most spiritual sense. I hope that we shall endeavour to make each Lord's Day as it comes round a day of the Lord, by thinking much of Jesus by rejoicing much in him, by labouring for him, and by our growingly importunate prayer, that to him may the gathering of the people be. We may not have very many Sabbaths together, death may soon part us; but while we are able to meet as a Christian assembly, let us never forget that Christ's presence is our main necessity, and let us pray for it and entreat the Lord to vouchsafe that presence always in displays of light, life and love! I become increasingly earnest that every preaching time should be a soul-saving time. I can deeply sympathize with Paul when he said, "My heart's desire and prayer to God for Israel is that they might be saved." We have had so much preaching, but, comparatively speaking, so little believing in Jesus; and if there be no believing in him, neither the law nor the gospel has answered its end, and our labour has been utterly in vain. Some of you have heard, and heard, and heard again, but you have not believed in Jesus. If the gospel had not come to your hearing you could not have been guilty of refusing it. "Have they not heard?" Says the apostle. "Yes, verily:" but still "they have not all obeyed the gospel." Up to this very moment there has been no hearing with the inner ear, and no work of faith in the heart, in the case of many whom we love. Dear friends, is it always to be so? How long is it to be so? Shall there not soon come an end of this reception of the outward means and rejection of the inward grace? Will not your soul soon close in with Christ for present salvation? Break! Break, O heavenly day, upon the benighted ones, for our hearts are breaking over them.
 
@@ -43,10 +43,10 @@ Another thought arises from the text, and that is, that there is nothing said by
 
 If this be so then, beloved friends, all of us who believe are righteous. Believing in the Lord Jesus Christ we have obtained the righteousness which those who follow the works of the law know nothing of. We are not completely sanctified, would God we were; we are not quit of sin in our members, though we hate it; but still for all that, in the sight of God, we are truly righteous and being qualified by faith we have peace with God. Come, look up, ye believers that are burdened with a sense of sin. While you chasten yourselves and mourn your sin, do not doubt your Saviour, nor question his righteousness. You are black, but do not stop there, go on to say as the spouse did, "I am black, but comely."
 
-> Though in ourselves deform'd we are, 
-> And black as Kedar's tents appear, 
-> Yet, when we put Thy beauties on, 
-> Fair as the courts of Solomon. 
+> Though in ourselves deform'd we are,  
+> And black as Kedar's tents appear,  
+> Yet, when we put Thy beauties on,  
+> Fair as the courts of Solomon.  
 
 Now, mark that the connection of our text assures us that being righteous we are saved; for what does it say here, "If thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved." He who is justified is saved, or what were the benefit of justification? Over thee, O believer, God hath pronounced the verdict "saved," and none shall reverse it. You are saved from sin and death and hell; you are saved even now, with a present salvation; "He hath saved us and called us with a holy calling." Feel the transports of it at this hour. "Beloved, now are we the sons of God."
 
