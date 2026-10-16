@@ -1,7 +1,7 @@
 # Sermon 1249 | Saints In Heaven And Earth One Family
 
-> The whole family in Hea ren and earth.
-> Ephesians 3:15
+> The whole family in Hea ren and earth.  
+> Ephesians 3:15  
 
 Bereavements are among the sorest griefs of this mortal life. We are permitted by God to love those whom He gives to us and our heart eagerly casts its tendrils around them and, therefore, when suddenly the beloved objects are withdrawn by death, our most tender feelings are wounded. It is not sinful for us to lament the departure of friends, for Jesus wept. It would be unnatural and inhuman if we did not mourn for the departed. We should be less feeling than the beasts of the field. The stoic is not a Christian, and his spirit is far removed from that of the tender-hearted Jesus.
 
@@ -59,11 +59,11 @@ Thus have I, according to my ability, set forth some of the points of this famil
 
 Let us now speak upon the inseparableness of this union. "The whole family in heaven and earth" Not the two families nor the divided family, but the whole family in heaven and earth. It appears at first sight as if we were very effectually divided by the hand of death. Can it be that we are one family when some of us labor on and others sleep beneath the greensward? There was a great truth in the sentence which Wordsworth put into the mouth of the little child when she said, "O master, we are seven.":
 
-> But they are dead: those two are dead!
-> Their spirits are in heaven!
-> 'Twas throwing words away, for still
-> The little maid would have her will,
-> And said 'No, we are seven.'
+> But they are dead: those two are dead!  
+> Their spirits are in heaven!  
+> 'Twas throwing words away, for still  
+> The little maid would have her will,  
+> And said 'No, we are seven.'  
 
 Should we not thus speak of the divine family, for death, assuredly, has no separating power in the household of God! Like the apostle, we are persuaded that death cannot separate us from the love of God. The breach caused by the grave is only apparent. It is not real, the family is still united, for if you think of it, when there is a loss in a family the father is bereaved, but you cannot conceive of our heavenly being bereaved. Our Father which art in heaven, You have lost none of Your children! We wept and went to the grave, but You did not, for Your child is not dead! Rather has Your child come closer unto Your bosom to receive a sweeter caress and to know more fully the infinity of Your love!
 
@@ -119,10 +119,10 @@ Whenever some of us enter an assembly of believers, they recognize and welcome u
 
 Remember there is coming another day in which the family union of the church will be seen, and that is when the trumpet shall sound and the dead shall be raised. It may be that we shall all be of the company of those who sleep and, if so, when the trumpet sounds, the dead in Christ shall rise first, and we shall have our share in the first Resurrection. Or, if our Lord should come before we die, we shall be, "alive and remain." But we shall undergo a change at the same moment as the dead are raised, so that this corruptible shall put on incorruption! What a family we shall be when we all rise together and all the changed ones stand with us, all of one race, all regenerate, all clothed in the white robe of Jesus' righteousness! What a family! What a meeting it will be!
 
-> How loud shall our glad voices sing,
-> When Christ, His risen saints shall bring
-> From beds of dust, and silent clay,
-> To realms of everlasting day.
+> How loud shall our glad voices sing,  
+> When Christ, His risen saints shall bring  
+> From beds of dust, and silent clay,  
+> To realms of everlasting day.  
 
 Beloved, I cannot dwell upon what glory will follow on earth, but if our Lord shall live and reign on earth a thousand years, and if there shall be set up a great empire which shall outshine all other monarchies as much as the sun outshines the stars, we shall all share in it, for He will make us all kings and priests unto God, and we shall reign with Him upon the earth. Then, when comes the end, and He shall deliver up the kingdom to God, even the Father, and God shall be All in All, we shall forever be with the Lord.
 
