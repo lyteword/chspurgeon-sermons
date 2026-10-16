@@ -1,7 +1,7 @@
 # Sermon 1326 | Christ the Conqueror of Satan
 
-> "And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel." 
-> Genesis 3:16 
+> "And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel."  
+> Genesis 3:16  
 
 This is the first gospel sermon that was ever delivered upon the surface of this earth. It was memorable discourse indeed, with Jehovah himself for the preacher, and the whole human race and the prince of darkness for the audience. It must be worthy of our heartiest attention.
 
@@ -19,10 +19,10 @@ The facts. The facts are four, and I call your earnest attention to them. The fi
 
 Then comes the second prophecy, which has also turned into a fact, namely the coming of the champion. The seed of the woman by promise is to champion the cause, and oppose the dragon. That seed is the Lord Jesus Christ. The prophet Micah saith, "But thou, Bethlehem Ephratah; though thou be little among the thousands of Judah, yet out of thee shall he come forth unto me that is to be ruler in Israel; whose goings forth have been from of old, from everlasting. Therefore will he give them up, until the time that she which travaileth hath brought forth." To none other than the babe which was born in Bethlehem of the blessed Virgin can the words of the prophecy refer. She it was who did conceive and bear a son, and it is concerning her son that we sing, "Unto us a child is born, unto us a son is given: and his name shall be called Wonderful, Counsellor, the Mighty God, the Everlasting Father, the Prince of Peace." On the memorable night at Bethlehem, when angels sang in heaven, the seed of the woman appeared, and as soon as ever he saw the light the old serpent, the devil, entered into the heart of Herod if possible to slay him, but the Father preserved him, and suffered none to lay hands on him. As soon as he publicly came forward upon the stage of action, thirty years after, Satan met him foot to foot. You know the story of the temptation in the wilderness, and how there the woman's seed fought with him who was a liar from the beginning. The devil assailed him thrice with all the artillery of flattery, malice, craft and falsehood, but the peerless champion stood unwounded, and chased his foeman from the field. Then our Lord set up his kingdom, and called one and another unto him, and carried the war into the enemy's country. In divers places he cast out devils. He spake to the wicked and unclean spirit and said, "I charge thee come out of him," and the demon was expelled. Legions of devils flew before him: they sought to hide themselves in swine to escape from the terror of his presence. "Art thou come to torment us before our time?" Was their cry when the wonder-working Christ dislodged them from the bodies which they tormented. Yea, and he made his own disciples mighty against the evil one, for in his name they cast out devils, till Jesus said, "I beheld Satan as lightning fall from heaven." Then there came a second personal conflict, for I take it that Gethsemane's sorrows were to a great degree caused by a personal assault of Satan, for our Master said, "This is your hour, and the power of darkness." He said also, "The Prince of this world cometh." What a struggle it was. Though Satan had nothing in Christ, yet did he seek if possible to lead him away from completing his great sacrifice, and there did our Master sweat as it were great drops of blood, falling to the ground, in the agony which it cost him to contend with the fiend. Then it was that our Champion began the last fight of all and won it to the bruising of the serpent's head. Nor did he end till he had spoiled principalities and powers and made a show of them openly.
 
-> Now is the hour of darkness past, 
-> Christ has assumed his reigning power; 
-> Behold the great accuser cast 
-> Down from his seat to reign no more. 
+> Now is the hour of darkness past,  
+> Christ has assumed his reigning power;  
+> Behold the great accuser cast  
+> Down from his seat to reign no more.  
 
 The conflict our glorious Lord continues in his seed. We preach Christ crucified, and every sermon shakes the gates of hell. We bring sinners to Jesus by the Spirit's power, and every convert is a stone torn down from the wall of Satan's mighty castle. Yea, and the day shall come when everywhere the evil one shall be overcome, and the words of John in the Revelation shall be fulfilled. "And the great dragon was cast out, that old serpent, called the Devil, and Satan, which deceiveth the whole world: he was cast out into the earth, and his angels were cast out with him. And I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ: for the accuser of our brethren is cast down, which accused them before our God day and night." Thus did the Lord God in the words of our text promise a champion who should be the seed of the woman, between whom and Satan there should be war for ever and ever: that champion has come, the man-child has been born, and thought the dragon is wroth with the woman, and made war with the remnant of her seed which keep the testimony of Jesus Christ, yet the battle is the Lord's, and the victory falleth unto him whose name is Faithful and True, who in righteousness doth judge and make war.
 
@@ -54,10 +54,10 @@ It is broken next in this way, that the guilt of sin is gone. The great power of
 
 Oftentimes the Lord also grants us to know what it is to overcome temptation, and so to break the dead of the fiend, Satan allures us with many baits; he has studied our points well he knows the weakness of the flesh: but many and many a time blessed be God, we have foiled him completely to his eternal shame! The devil must have felt himself mean that day when he tried to overthrow Job, dragged him down to a dunghill, robbed him of everything, covered him with sores, and yet could not make him yield. Job conquered when he cried, "Though he slay me yet will I trust in him." A feeble man had vanquished a devil who could raise the wind and blow down a house, and destroy the family who were feasting in it. Devil as he is, and crowned prince of the power of the air, yet the poor bereaved patriarch sitting on the dunghill covered with sores, being one of the woman's seed, through the strength of the inner life won the victory over him.
 
-> Ye sons of God oppose his rage. 
-> Resist, and he'll be gone: 
-> Thus did our dearest Lord engage 
-> And vanquish him alone. 
+> Ye sons of God oppose his rage.  
+> Resist, and he'll be gone:  
+> Thus did our dearest Lord engage  
+> And vanquish him alone.  
 
 Moreover, dear brethren, we have this hope that the very being of sin in us will be destroyed. The day will come when we shall be without spot or wrinkle or any such thing; and we shall stand before the throne of God, having suffered no injury whatever from the fall and from all the machinations of Satan, for are "they are without fault before the throne of God." What triumph that will be! "The Lord will tread Satan under your feet shortly." When he has made you perfect and free from all sin, as he will do, you will have bruised the serpent's head indeed.
 
@@ -83,10 +83,10 @@ Thine armies tread the tempter down;
 
 "tis by thy word and powerful name they gain the battle and renown.
 
-> Rejoice ye heavens; let every star 
-> Shine with new glories round the sky; 
-> Saints, while ye sing the heavenly war, 
-> Raise your Deliverer's name on high. 
+> Rejoice ye heavens; let every star  
+> Shine with new glories round the sky;  
+> Saints, while ye sing the heavenly war,  
+> Raise your Deliverer's name on high.  
 
 Portion of Scripture read before sermon: Genesis 3.
 
