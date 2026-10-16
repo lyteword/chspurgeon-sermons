@@ -1,7 +1,7 @@
 # Sermon 1228 | Salvation by Faith and the Work of the Spirit
 
-> For we, through the Spirit, wait for the hope of righteousness by faith
-> Galatians 5:5
+> For we, through the Spirit, wait for the hope of righteousness by faith  
+> Galatians 5:5  
 
 It may seem remarkable that Paul, who was once the strictest of Pharisees, should become the most ardent champion of the doctrines of salvation by grace and justification by faith. How large a portion of the New Testament is given up to his writings, and the most prominent subject in all that falls from his pen is righteousness by faith. Did not the Lord show great wisdom in selecting as the chief advocate of this truth of God a man who knew the other side. Who had worked diligently under the law, who had practiced every ceremony, who was a Hebrew of the Hebrews, and had profited above many under the Jews' religion, being more exceedingly zealous of the traditions of the fathers?
 
@@ -65,10 +65,10 @@ As far as justifying righteousness is concerned, we are as righteous as we shall
 
 Waiting implies continuance. The Galatians wanted to be more sure than faith could make them and so they ran off to get circumcised and observed days, weeks, months and all sorts of carnal ordinances. But the apostle says, "We, through the Spirit, wait." We ask no touch of priests, or charm of magic rites! We are thoroughly furnished in our blessed Lord and are content to abide in Him. Our faith is not for today and tomorrow only, but for time and eternity! We are rooted and grounded in faith in Christ:
 
-> All that remains for me
-> Is but to love and sing,
-> And wait until the angels come
-> To bear me to their King.
+> All that remains for me  
+> Is but to love and sing,  
+> And wait until the angels come  
+> To bear me to their King.  
 
 "I thought it was a race," says one, "a combat." Oh, yes, we will tell you about that another time, but that has nothing to do with our righteousness, nothing to do with the ground of our acceptance before God, and that is what we are speaking about just now. As far as that is concerned, "It is finished," sounded from the tree of Calvary and that, "It is finished," brings the righteous to perfect peace, and there they sit and wait for the hope of righteousness by faith. I have said enough upon the first point and must hasten to the second.
 
@@ -82,10 +82,10 @@ O beloved, the Holy Spirit is no rival to the Redeemer, but a glorious co-worker
 
 Carefully note that this righteousness by faith must be consistent with the work of the Spirit because the faith which brings this righteousness is never exercised by any but those who are born of the Spirit. The flesh relies upon works. It is a somewhat remarkable circumstance, perhaps, but so it is, that sinful flesh, which is barren of all real excellence, always clings to merit. The natural man persists in the belief that he has something to do and yet he can do nothing! He grasps with all his might the sword which cuts him. You cannot get him to see that:
 
-> Till to Jesus Christ you cling
-> By a simple faith,
-> 'Doing 'is a deadly thing
-> 'Doing' ends in death.
+> Till to Jesus Christ you cling  
+> By a simple faith,  
+> 'Doing 'is a deadly thing  
+> 'Doing' ends in death.  
 
 He finds fault with it. He cannot bear it. Of course he cannot. Ishmael is the son and has the nature of his mother in him. That which is born of the Spirit instinctively clutches the promise, even as Isaac did, for Isaac knew that he had no right to the inheritance except according to the promise, for, according to the flesh, Ishmael was the first born.
 
@@ -111,18 +111,18 @@ In Him I do unfeignedly trust, and in Him alone. What if I have preached the gos
 
 Jesus Christ stood in my place! I, a guilty sinner, have taken shelter by faith which He has given me! Beneath His wings I hide myself in Him. There is my hope and that is the hope of every true believer here:
 
-> Not what these hands have done
-> Can save this guilty soul.
-> Not what this toiling flesh has borne
-> Can make my spirit whole.
-> Not what I feel or do
-> Can give me peace with God.
-> Not all my prayers and sighs and tears,
-> Can bear my awful load.
-> Your work alone, O Christ,
-> Can ease this weight of sin.
-> Your blood alone, O Lamb of God,
-> Can give me peace within.
+> Not what these hands have done  
+> Can save this guilty soul.  
+> Not what this toiling flesh has borne  
+> Can make my spirit whole.  
+> Not what I feel or do  
+> Can give me peace with God.  
+> Not all my prayers and sighs and tears,  
+> Can bear my awful load.  
+> Your work alone, O Christ,  
+> Can ease this weight of sin.  
+> Your blood alone, O Lamb of God,  
+> Can give me peace within.  
 
 Now we preach the same hope to the ungodly! Hear what Word says to you! You have broken His laws and deserve His wrath! He might justly sweep you down to hell but behold, He addresses you in tones of divine grace! You have no claim upon Him. You have no right to expect mercy at His hands because of anything in you that could move Him to pity. But in the plenitude of His grace He has set forth Christ to be a propitiation for your sins. And the apostle adds, "And not for ours only, but for the sins of the whole world." We preach Jesus Christ unto you this morning and say in His own Words, "Believe on the Lord Jesus Christ, and you shall be saved." Come to Christ and trust in Him, and you shall be reconciled to God: "Your sins shall vanish quite away, Though black as hell before.
 
@@ -130,10 +130,10 @@ Shall be dissolved beneath the sea And shall be found no more." Whoever you may 
 
 Oh, yield, Man! What are your works but sin and death? What are your boasted performances, your virtues and your excellencies? All rottenness in the sight of the heart-searching God! Quit your refuges of lies, I pray you! Quit them now, lest the avalanche of divine Wrath overwhelms both you and your refuges:
 
-> Come, guilty souls, and flee away,
-> Like doves to Jesus' wounds!
-> This is the accepted gospel day,
-> Wherein free grace abounds.
+> Come, guilty souls, and flee away,  
+> Like doves to Jesus' wounds!  
+> This is the accepted gospel day,  
+> Wherein free grace abounds.  
 
 Trust His Son Jesus! It is His command to you! In other words, "Believe on the Lord Jesus Christ, and you shall be saved," for, "he that believes and is baptized shall be saved; but he that believes not shall be damned." God save us, for sake. Amen.
 
