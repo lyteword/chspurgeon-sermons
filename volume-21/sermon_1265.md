@@ -1,7 +1,7 @@
 # Sermon 1265 | The Eternal Truth of God
 
-> The truth endures to all generations.
-> Psalm 100:5
+> The truth endures to all generations.  
+> Psalm 100:5  
 
 It was very solemn work, this morning, to lay bare the sin of unbelief. It was the burden of the Lord to him who had to speak and it could have been but very small pleasure to those who had to listen. Nevertheless, I trust it was something better than pleasure to many and it drove their souls to pray to God for others. By His grace sinners were moved, as we already know, to yield up their hearts to the Lord Jesus Christ. After meditating upon the heinousness of this sin, the sin of making God a liar. After even thinking of it, horror took hold upon my soul and it seemed to me that we ought to have a supplementary sermon, tonight, in honor of the truth of God.
 
