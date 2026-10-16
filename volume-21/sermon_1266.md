@@ -1,7 +1,7 @@
 # Sermon 1266 | Paul's Doxology
 
-> Now unto Him that is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us, unto Him be glory in the church by Christ Jesus throughout all ages, world without end. Amen.
-> Ephesians 3:20,21
+> Now unto Him that is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us, unto Him be glory in the church by Christ Jesus throughout all ages, world without end. Amen.  
+> Ephesians 3:20,21  
 
 This chapter has a whole service of worship within itself. It certainly contains a sermon, for Paul gives a very earnest address upon the unveiling of the hidden mystery so that the Gentiles are made partakers of the promise in Christ by the gospel. It contains a prayer, for one of the verses begins, "For this cause I bow my knees." And in the verses before us it closes with a hymn, a hymn of incomparable praise. Thus, in the compass of a short chapter, we have all those devout exercises with which our assemblies for worship are familiar, namely. Instruction, supplication, and praise.
 
@@ -101,9 +101,9 @@ O Christ. We are Your body, and every member of the body praises God! But You ar
 
 At any rate, he desired that generation after generation might show forth the glory of God and when there were no more succeeding races of men, he desired that that age of ages, the golden age, age, the age of peace and joy and blessedness, whatever phases it might pass through, might never cease to resound with the glory of God! Oh, blessed words of the apostle! We cannot reach their meaning and if we did, still that meaning would be short of what God deserves:
 
-> M praise Him while He lends me breath; And when my voice is lost in death! Praise shall employ my nobler powers My days of praise shall be never past,
-> While thought and life and being last,
-> Or immortality endures.
+> M praise Him while He lends me breath; And when my voice is lost in death! Praise shall employ my nobler powers My days of praise shall be never past,  
+> While thought and life and being last,  
+> Or immortality endures.  
 
 Our children shall follow after us and they shall praise the Lord. And their children and they shall praise Him and their children and they shall praise Him. And when the time comes that the earth grows old and Christ, Himself, shall descend from heaven to renew all things, His saints shall magnify Him when He comes!
 
@@ -119,11 +119,11 @@ You sinners who have not yet tasted of His grace, I think I might almost urge yo
 
 Accept it, and then say, "Amen." Oh, with one heart and one soul let all of you that have been redeemed from death and hell, or even hope to be so, join in this ascription:
 
-> Now to the Lord, whose power can do
-> More than our thoughts or wishes know,
-> Be everlasting honor done,
-> By all the church, through
-> Christ His Son.
+> Now to the Lord, whose power can do  
+> More than our thoughts or wishes know,  
+> Be everlasting honor done,  
+> By all the church, through  
+> Christ His Son.  
 
 Amen and amen!
 
