@@ -1,29 +1,29 @@
 # Sermon 1246 | The Blessings Of Following On
 
-> Then shall we know, if we follow on to know the Lord. His going forth is prepared as the morning, and He shall come unto us as the rain, as the latter and former rain unto the earth.
-> Hosea 6:3
+> Then shall we know, if we follow on to know the Lord. His going forth is prepared as the morning, and He shall come unto us as the rain, as the latter and former rain unto the earth.  
+> Hosea 6:3  
 
 I must first remove the moldy piece from the text, and that is the word, "if," which has no sort of business here whatever. You notice that the translators put it in italics, to intimate to us that it was no Word of God, but one of their own words which they thought necessary to complete the sense. We might read, and we should, to be far nearer the sense: "Then shall we know when we follow on to know the Lord." Or, perhaps, better still, "We shall know: we shall follow on to know the Lord," for there is no trace of question in the matter, and no indication of an, "if." We will cut out, "if," and then take the text as it should have been: "Then shall we know when we follow on to know the Lord. His going forth is prepared as the morning."
 
 I continually hear it said concerning those who have been converted, or profess to have been converted of late, "We hope they will hold on." I wish people would speak what they mean and not veil their speech, for the plain English of that expression frequently is, "We do not believe that they will hold on." "We hope they will," means, "We do not expect it." One thing is quite certain, however. Those who are truly converted to God can be safely left in hands. If they have, indeed, believed in Jesus Christ. In Jesus only, with all their hearts. Their salvation is as sure as if they were already within the gates of Paradise! The Redeemer will not suffer any soul to perish trusting in Him:
 
-> His honor is engaged to save
-> The meanest of His sheep,
-> All that His heavenly Father ga ve,
-> His hands securely keep.
-> Nor death, nor hell, shall ever remove
-> His favorites from His breast,
-> In the dear bosom of His lo ve
-> They must forever rest.
+> His honor is engaged to save  
+> The meanest of His sheep,  
+> All that His heavenly Father ga ve,  
+> His hands securely keep.  
+> Nor death, nor hell, shall ever remove  
+> His favorites from His breast,  
+> In the dear bosom of His lo ve  
+> They must forever rest.  
 
 Question whether it is a work of grace if you will, though I would much rather the questioning spirit were laid aside. But if it is the work, it will stand, for neither time nor eternity, nor life nor death, shall ever cast down that which divine omnipotence builds up! Jehovah puts not His hands to a work which shall ultimately crumble into nothingness! My dear young friends, if you have believed in Jesus and are tormented by these quibblers, with their pretended hopes as to your holding on, I beseech you, be in earnest to disappoint the fears of your friends and the expectations of your foes, by living near to God, by asking for persevering grace, by watching carefully every step you take and by guarding jealously, by the aid of the blessed Spirit, your own hearts in private, lest by any means the enemy get an advantage over you.
 
 Let it be the great object of your ambition that you may hold on and hold out to the end, and so prove that the Lord has, indeed, looked upon you with an eye of love. There is a sweet verse in one of our hymns which I commend to you who are beginners in the divine Life:
 
-> We have no fear that You should lose
-> One whom eternal love could choose;
-> But we would never that grace abuse,
-> Let us not fall, let us not fall.
+> We have no fear that You should lose  
+> One whom eternal love could choose;  
+> But we would never that grace abuse,  
+> Let us not fall, let us not fall.  
 
 The first part of the text meets all doubts about perseverance in divine grace and the second comforts souls distressed for another reason. While some young Christians are troubled about whether they shall hold on, others are very much exercised because of the slenderness of their knowledge. They compare themselves with older Christians and they say, "How can I be a child of God when I know so little?" They even contrast themselves with their teachers and because they, as they might naturally expect, are somewhat behind them, they conclude that surely they cannot have been taught of God at all!
 
@@ -105,8 +105,8 @@ Now, follow on to know the Lord, beloved, and you shall find the Lord Jesus Chri
 
 Now, these come in their season. The former rain came in Palestine at the end of autumn, when they had sown the corn. The latter rain came at the beginning of our spring, when corn in the east is getting nearly ripe. It is not so with us, of course, but it is so in Palestine. The latter rain came to plump out the ears. Now, God will give you grace when you need it, grace to help in time of need. A shower when you begin and another shower when you go on, and perhaps the heaviest shower just as you are ripening. Do not be frightened when you see a cloud of trouble. If we were to expect rain without clouds we should be very great fools! I sometimes think that to expect a shower of blessing without trial is almost as great a folly:
 
-> You fearful saints, fresh courage take,
-> The clouds you so much dread Are big with mercy, and shall break In blessings on your head.
+> You fearful saints, fresh courage take,  
+> The clouds you so much dread Are big with mercy, and shall break In blessings on your head.  
 
 God knows how to send a shower of rain when it is needed and to send grace when it is needed. To give us the former rain and the latter rain in their season.
 
