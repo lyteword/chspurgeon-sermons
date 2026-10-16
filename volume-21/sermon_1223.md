@@ -1,7 +1,7 @@
 # Sermon 1223 | Jesus, The Substitute For His People
 
-> Who is he that condemns? It is Christ that died, yes rather, that is risen again, who is even at the right hand of God, who also makes intercession for us.
-> Romans 8:34
+> Who is he that condemns? It is Christ that died, yes rather, that is risen again, who is even at the right hand of God, who also makes intercession for us.  
+> Romans 8:34  
 
 The most dreadful alarm that can disturb a reasonable man is the fear of being condemned by the Judge of All. To be condemned of God, how dreadful! To be condemned of Him at the Last Great Day, how terrible! Well might loins be loosed when the handwriting on the wall condemned him as weighed in the balances and found wanting! And well may the conscience of the convicted one be comparable to a little hell when, at its lesser judgement seat, the law pronounces sentence upon him on account of his past life.
 
@@ -25,10 +25,10 @@ And first you, as a believer, cannot be condemned because Christ has died. The b
 
 If the punishment has been meted out to its Substitute, it is neither consistent with mercy nor Justice that the penalty should, a second time, be executed. The death of Christ is an all-sufficient ground of confidence for every man that believes in Jesus. He may know of a surety that his sin is put away and his iniquity is covered. Fix your eyes on the fact that you have a Substitute who has borne divine Wrath on your account, and you will know no fear of condemnation:
 
-> Jehovah lifted up His rod
-> O Christ, it fell on Thee!
-> You were sore stricken of Your God;
-> not one stroke for me.
+> Jehovah lifted up His rod  
+> O Christ, it fell on Thee!  
+> You were sore stricken of Your God;  
+> not one stroke for me.  
 
 Observe, dear brothers and sisters, who it was that died, for this will help you. Christ Jesus, the Son of God, died! The Just for the unjust. He who was your Savior was no mere Man. Those who deny the Godhead of Christ are consistent in rejecting the atonement. It is not possible to hold a proper substitutionary propitiation for sin unless you hold that Christ was God.
 
