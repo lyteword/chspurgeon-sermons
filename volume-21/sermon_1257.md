@@ -1,7 +1,7 @@
 # Sermon 1257 | Love to Jesus the Great Test
 
-> Jesus said unto them, If God were your Father, you would love Me: for I proceeded forth and came from God; neither came I of Myself, but He sent Me.
-> John 8:42
+> Jesus said unto them, If God were your Father, you would love Me: for I proceeded forth and came from God; neither came I of Myself, but He sent Me.  
+> John 8:42  
 
 The order of salvation is, first, we believe in the Lord Jesus Christ and we obtain a change of heart as His gift, and then that renewed heart loves the Lord Jesus in whom it has believed. Faith leads the train of divine graces, not love. It would not be preaching the gospel to say to men, "Love Christ." Love to Jesus is an after growth. To preach the gospel is to cry, "Believe in the Lord Jesus Christ and you shall be saved." The faith which saves is not, however, a mere credence of facts in which men feel no interest. It is a hearty trustfulness in Jesus for blessings of which we feel the need and it is, in every case, an operative faith, a faith which works, and works by love. If you have, indeed, believed in the Lord Jesus Christ to the saving of your soul, then you are a child of God, for, "to as many as received Him, to them gave He power to become the sons of God."
 
@@ -25,8 +25,8 @@ It was a strange madness which drove a king to graze with beasts, but not more s
 
 Let us pity, as well as blame, those who now are given over to the fast closing of their eyes that they cannot see my Lord, and the shutting of their ears that they cannot hear the music of His voice, and the deadening of their hearts that they cannot perceive the charms of His love. Alas for the degradation which is manifested in inability to love Jesus!
 
-> That Holy One,
-> Who came to earth for thee. O basest thing beneath the sun, That He, by any mortal one, Forgotten ever should be.
+> That Holy One,  
+> Who came to earth for thee. O basest thing beneath the sun, That He, by any mortal one, Forgotten ever should be.  
 
 To be without love to Christ is a clear proof that the whole of our manhood is out of order. It would be impossible for us to be indifferent to the excellencies of Jesus if we were as God created us. And inasmuch as we do not love Him till grace renews us, this proves how altogether diseased human nature has become. The understanding, were it well balanced, would judge that Christ is over all and before all and give to Him the pre-eminence in everything. But, being biased and thrown out of gear, the judgement puts Christ in the lowest place and pays its homage to the world, the flesh, or the devil, rather than to the King of kings!
 
@@ -46,10 +46,10 @@ If these things are so, it is evident that the man who does not love Christ is n
 
 Not to love Christ is a thing so dreadful that those who do love Him can hardly tell you how they tremble at the bare notion of being in such a condition! Death in the most horrible form would be preferable! Many a time have we sung, and I, for one, have felt it at my core:
 
-> A very wretch, Lord, I should prove,
-> Had I no love to Thee.
-> Rather than not my Savior love,
-> Oh, may I cease to be.
+> A very wretch, Lord, I should prove,  
+> Had I no love to Thee.  
+> Rather than not my Savior love,  
+> Oh, may I cease to be.  
 
 It were much better never to have been born than not to love the Savior! It were better to go to annihilation, if such could be the case, than exist a moment without love to the blessed One! Sometimes the saints of God have grown so warm concerning what is due to Jesus, their Lord, and have felt such a horror at the sin of not loving Him, that they have pronounced a curse, in name, upon those who love not Christ. Perhaps the most terrible words in sacred Scripture are these: "If any man love not the Lord Jesus Christ, let him be anathema maranatha". Cursed when the Lord shall come. It is the major excommunication of the church! It is the most solemn word of denunciation that could have fallen from Apostolic pen, and yet Paul felt that he must write it, even that Paul who could not speak of the enemies of Cross without tears.
 
@@ -111,15 +111,15 @@ I would have you see Him sitting on His throne in all His glory, adored by myria
 
 I entreat you to think of it now, that you may not have to realize it later. Believe in the Lord Jesus Christ, O you unloving heart, and you shall be saved from your unloving spirit and taught to esteem Him whom to love is the best evidence of eternal life!
 
-> O love beyond all mortal thought!
-> Unquenchable by flood or sea!
-> Love that through death to man has brought
-> The life of immortality!
-> You do enkindle own fire
-> In hearts all dead to high desire.
-> Let love for love our souls inflame,
-> The perfect love that fails never;
-> And sweet hosannas to your name
-> Through Hea vast dome go up forever.
+> O love beyond all mortal thought!  
+> Unquenchable by flood or sea!  
+> Love that through death to man has brought  
+> The life of immortality!  
+> You do enkindle own fire  
+> In hearts all dead to high desire.  
+> Let love for love our souls inflame,  
+> The perfect love that fails never;  
+> And sweet hosannas to your name  
+> Through Hea vast dome go up forever.  
 
 Portion of Scripture read before sermon: John 8:21-59. Hymns from "Our Own Hymn Book": 423, 807, 377.
