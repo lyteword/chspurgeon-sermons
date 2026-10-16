@@ -1,7 +1,7 @@
 # Sermon 1229 | Decision: Illustrated by the Case of Joshua
 
-> As for me and my house, we will serve the Lord.
-> Joshua 24:15
+> As for me and my house, we will serve the Lord.  
+> Joshua 24:15  
 
 Joshua knew that the people who surrounded him, while ostensibly serving Jehovah, were, many of them, secretly worshipping the ancient idols of their Mesopotamian fathers. Those seraphim which were once hidden in tent and were never quite purged from family. Some of them, also, harbored the Egyptian emblems. And some had even fallen into the worship of the gods of the people whom they had displaced and were setting up the images of Baalim in their homes. The people were nominally worshippers of Jehovah, but in reality, many of them had turned aside unto strange gods. Never in their best days had the children of Israel been quite divorced from idols, for, as Stephen said of them, even in the wilderness they took up the tabernacle of Moloch and the star of their god Remphan, figures which they made, to worship.
 
@@ -35,10 +35,10 @@ A man should not be like a house which is one of a row, which would come down wi
 
 You ask, "Is it fashionable? If it is fashionable, it must be done." Fashion is the law of multitudes, but it is nothing more than the common consent of fools! The world has its fashions in religion as well as in dress and many of you feel the influence of it. If you had fallen in among people some of you would have made a profession of religion before now, but having, on the contrary, been cast among the ungodly, even though you have some desires towards Christ, you are held back by the evil influence. What are you but babes, fit for the nursery and the sucking bottle? If you were men, you would stand on your own feet and not need to be carried in arms:
 
-> Dare to be a Daniel!
-> Dare to stand alone!
-> Dare to have a purpose true,
-> And dare to make it known!
+> Dare to be a Daniel!  
+> Dare to stand alone!  
+> Dare to have a purpose true,  
+> And dare to make it known!  
 
 Little will it decrease our eternal misery if all the rest of the world should be lost with us! Company in hell will be the reverse of consolation! If we lose heaven for sake, it will be no solace to us that others lost it, too. We are born alone and shall have to die alone and to be judged alone. It is time that we began to look into our souls' affairs with our best judgment and no longer be as the sere leaf in the wind, or the log in the rapids. God has given to each man a conscience, to each man a heart, and He will not allow men to quench their personal consciences and yield up their hearts to be molded by others. He will hold them personally responsible for the right use of judgment, reason and heart! Oh sirs, may every one of us know the Lord for ourselves and, forsaking the broad road with its many travelers may we be bold to walk in the narrow way which leads unto life.
 
