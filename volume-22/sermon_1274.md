@@ -1,7 +1,6 @@
 # Sermon 1274 | For the Sick and Afflicted
 
-> Meet to be said unto God.
-> May our lips ever be kept as by a watchful sentinel, lest they suffer anything to pass through them dishonorable to the Most High. In the divine presence, and we are always there, it is incumbent upon us to set a double watch over every word that comes from our mouth
+> Meet to be said unto God. May our lips ever be kept as by a watchful sentinel, lest they suffer anything to pass through them dishonorable to the Most High. In the divine presence, and we are always there, it is incumbent upon us to set a double watch over every word that comes from our mouth.  
 
 Remember that thought is speech before God. Thought is not speech to man, for men cannot read one another's thoughts until they are set forth by words or other outward signs, but God who reads the heart regards that as being speech which was never spoken, and he hears us say in our souls many things which were never uttered by our tongues. Beloved, there are thoughts which are not meet to be thought before the Lord; and it is well for us, especially those of us who are afflicted, to be very watchful over those thoughts, lest the Lord hear us say in our hearts things which will grieve his Spirit, and provoke him to jealousy. O saints of God, since you never think except in the immediate presence of your heavenly Father, make a conscience of your every thought, lest you sin in the secret chambers of your being, and charge God foolishly. Elihu tells us what it would be proper for us to think and say, "It is meet to be said unto God, I have borne chastisement, I will not offend more: that which I see not teach thou me: if I have done iniquity, I will do no more."
 
