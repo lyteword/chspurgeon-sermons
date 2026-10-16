@@ -1,7 +1,7 @@
 # Sermon 1212 | Faith and Its Attendant Privileges
 
-> He came unto His own, and His own received Him not. But as many as received Him, to them gave He power to become the sons of God, even to them which believe on His name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.
-> John 1:11-13
+> He came unto His own, and His own received Him not. But as many as received Him, to them gave He power to become the sons of God, even to them which believe on His name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.  
+> John 1:11-13  
 
 According to this text, the principal matter in our salvation is faith. Faith is described as "receiving" Jesus. It is the empty cup placed under the flowing stream. It is the penniless hand held out for heavenly alms. It is also described in the text as "believing on His name." And this reception, this believing, is the main thing in real godliness. Faith is the simplest thing conceivable! When we hear people sing, "Only believe and you shall be saved," they sing the truth of God, for we have the divine assurance that "whoever believes on Him is not condemned." The gospel message is, "Believe on the Lord Jesus Christ and you shall be saved."
 
@@ -65,15 +65,15 @@ Some of you do not know what this means. Children, you know, take many liberties
 
 He does answer us and like as a father pities his children, He pities us. He bows His omnipotence to help us in our little labors, and bows His mighty arms to help us in our little troubles. "He counts the number of the stars, and calls them all by their names. He heals the broken in heart, and binds up their wounds." Is not that a grand stoop from rolling the orbs and wheeling the worlds along, to stoop down to bind broken hearts and to strap their wounds with court plaster lest they should bleed too much? Blessed be his name!
 
-> The God that rules on high,
-> And thunders when He pleases.
-> That rides upon the stormy sky
-> And manages the seas
-> This awful God is ours,
-> Our Father and our love!
-> He shall send down
-> His heavenly powers
-> To carry us above.
+> The God that rules on high,  
+> And thunders when He pleases.  
+> That rides upon the stormy sky  
+> And manages the seas  
+> This awful God is ours,  
+> Our Father and our love!  
+> He shall send down  
+> His heavenly powers  
+> To carry us above.  
 
 But we must pass on. Faith makes the grandest of distinctions and obtains the grandest of endowments.
 
