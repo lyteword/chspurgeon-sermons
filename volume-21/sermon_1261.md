@@ -1,7 +1,7 @@
 # Sermon 1261 | Sow To Yourselves
 
-> Sow to yourselves in righteousness, reap in mercy.
-> Hosea 10:12
+> Sow to yourselves in righteousness, reap in mercy.  
+> Hosea 10:12  
 
 Farmers are now devoting their attention to putting seed into the ground. They know right well that without sowing in the present they cannot expect a reaping in the future. Seedtime has many lessons. That which we shall learn this morning is very personal and practical. Our hearts are like a field and if we let them alone the only crop we shall get will be the natural weeds of the soil together with those tares which the evil spirit is quite sure to scatter whether we sow good seed or not. We are to sow beside all waters, but we must not neglect to sow to ourselves. There is need that we sow good seed in our own gardens, or else it will be of little use to us to have planted and watered others.
 
@@ -99,10 +99,10 @@ We must not neglect the harvest. If a man with constant watchfulness, holy fear,
 
 Oh, be well sown, for then you will be stable and out of that stability will come solid comfort! Half the fears of Christian people rise like mists from the marshes of their ignorance. If we knew the promises better, knew the gospel better, knew God better and knew Christ better, we should not have a tenth as many fears. Remember that as the soul is penetrated with the spirit of the gospel, it will be filled with peace and consolation:
 
-> 'Tis religion that can give
-> Sweetest pleasures while we live,
-> 'Tis religion must supply
-> Solid comfort when we die.
+> 'Tis religion that can give  
+> Sweetest pleasures while we live,  
+> 'Tis religion must supply  
+> Solid comfort when we die.  
 
 Those sweet pleasures and solid comforts are the harvest which those reap who look well to the good sowing of their souls. Those whose hearts are sown by grace possess joys utterly unknown to other professors. What rapture and delight are frequently bestowed on those who have drawn near to God and had their souls full of Him! "Blessed are the people that know the joyful sound, they shall walk, O Lord, in the light of Your countenance." When others starve they shall feed, and when others faint they shall renew their strength because their souls have learned to stay themselves on God, alone.
 
