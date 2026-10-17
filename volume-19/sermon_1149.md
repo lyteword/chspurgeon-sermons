@@ -1,8 +1,8 @@
 # Sermon 1149 | My Restorer
 
-> He restores my soul.
+> He restores my soul.  
 
-> Psalm 23:3
+> Psalm 23:3  
 
 This sweetest of the Psalms sings of many mercies which the happy soul of the Believer receives, and it traces all those benefits to one Source, namely to the Good Shepherd, Himself. "I shall not want." Why? Because the Lord is my Shepherd. I lie down in delicious repose in green pastures. Why? Because "He makes me." I march onward making holy progress beside the still waters. Why? Because "He leads me." In the prospect of death I am calm and free from fear. Why? Because He is with me, His rod and staff they comfort me. The crown is composed of many costly things, gold, pearls and rare gems from the land beyond the river, they are all blended in one diadem, and that diadem is, without a question, joyfully placed upon the head of the Great Shepherd of Israel. The poet laureate of Scripture sings surpassingly in this Psalm, and every line is dedicated to the Beloved of his soul, in whom were all his fresh springs.
 
