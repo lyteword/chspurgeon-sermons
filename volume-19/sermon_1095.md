@@ -1,22 +1,22 @@
 # Sermon 1095 | The Monster Dragged to Light
 
-> Sin, that it might appear sin, working death in me by that which is good, that sin by the commandment might become exceedingly sinful.
+> Sin, that it might appear sin, working death in me by that which is good, that sin by the commandment might become exceedingly sinful.  
 
-> Romans 7:13
+> Romans 7:13  
 
-> Philosophers have measured mountains
+> Philosophers have measured mountains  
 
-> Fathom'd the depths of seas, of states, and kings,
+> Fathom'd the depths of seas, of states, and kings,  
 
-> Walked with a staff to Heaven and traced fountains:
+> Walked with a staff to Heaven and traced fountains:  
 
-> But there are two vast, spacious things,
+> But there are two vast, spacious things,  
 
-> The which to measure it does more behoove:
+> The which to measure it does more behoove:  
 
-> Yet few there are that sound them
+> Yet few there are that sound them  
 
-> Sin and Love.
+> Sin and Love.  
 
 So sang George Herbert, that sweet and saintly poet, and of one of those "two vast spacious things" we are about to speak on this morning, namely, sin. May the Holy Spirit direct us in thought and speech while into the very center of our subject we plunge at once, keeping to the words of our text.
 
