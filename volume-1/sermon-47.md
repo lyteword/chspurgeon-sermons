@@ -107,7 +107,7 @@ Come! wilt thou have him? Thou art "nothing at all." Wilt thou have Christ? Ther
 
 > A poor sinner, and nothing at all;    
 
-but, sooner or later, he gives
+But, sooner or later, he gives
 
 > Jesus Christ as your all in all.    
 

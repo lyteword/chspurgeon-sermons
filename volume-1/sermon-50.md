@@ -49,7 +49,7 @@ But perhaps the best way in which the Holy Ghost leads us into all truth is by i
 
 > A glory gilds the sacred page,    
 > Majestic like the sun    
-> Which gives a light to every age,&mdash;    
+> Which gives a light to every age,    
 > It gives, but burrows none.    
 
 There is nothing like reading an illuminated Bible, beloved. You may read to all eternity, and never learn anything by it, unless it is illuminated by the Spirit; and then the words shine forth like stars. The book seems made of gold leaf; every single letter glitters like a diamond. Oh, it is a blessed thing to read an illuminated Bible lit up by the radiance of the Holy Ghost. Hast thou read the Bible and studied it, my brother, and yet have thine eyes been unenlightened? Go and say, "O Lord gild the Bible for me. I want an expounded Bible. Illuminate it; shine upon it; for I cannot read it to profit, unless thou enlightenest me." Blind men may read the Bible with their fingers, but blind souls cannot. We want a light to read the Bible by, there is no reading it in the dark. Thus the Holy Spirit leads us into all truth, by suggesting ideas, by directing our thoughts, and by illuminating the Scriptures when we read them.

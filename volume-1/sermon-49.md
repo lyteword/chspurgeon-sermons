@@ -48,7 +48,7 @@ The next enemy to peace is anger. There are some individuals in the world that c
 
 > Nursing their wrath to keep it warm.    
 
-They go into a sulky fit, disagreeing with everybody, eternally grumbling; they are like dogs in the flock&mdash;only barking, and yielding no fleece. O that nasty anger! If it gets into the church it will split it to pieces. Somehow or other we cannot help getting angry sometimes. O that we could come into the church and leave ourselves behind us! There is nobody I should like to run away from half so much as from myself. Try, beloved, to curb your tempers; and when you do not exactly see with another brother, do not think it necessary to knock him on the eyes to make him see, that is the worst thing in all the world to do, he will not see any the better for it, for
+They go into a sulky fit, disagreeing with everybody, eternally grumbling; they are like dogs in the flock&mdash;only barking, and yielding no fleece. O that nasty anger! If it gets into the church it will split it to pieces. Somehow or other we cannot help getting angry sometimes. O that we could come into the church and leave ourselves behind us! There is nobody I should like to run away from half so much as from myself. Try, beloved, to curb your tempers; and when you do not exactly see with another brother, do not think it necessary to knock him on the eyes to make him see, that is the worst thing in all the world to do, he will not see any the better for it, for:
 
 > The man convinced against his will,    
 > Is of the same opinion still.    
