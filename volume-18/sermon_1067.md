@@ -1,7 +1,7 @@
 # Sermon 1067 | The Resurrection Credible
 
-> Why should it be thought a thing incredible with you, that God should raise the dead?
-> Acts 26:8
+> Why should it be thought a thing incredible with you, that God should raise the dead?  
+> Acts 26:8  
 
 Concerning the souls of our believing friends who have departed this life we suffer no distress, we feel sure that they are where Jesus is and behold His glory according to our Lord's own memorable prayer. We know but very little of the disembodied state, but we know quite enough to rest certain beyond all doubt:
 
