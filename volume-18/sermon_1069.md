@@ -1,7 +1,7 @@
 # Sermon 1069 | Laboring and Not Fainting
 
-> For My name's sake you have labored and have not fainted.
-> Revelation 2:3
+> For My name's sake you have labored and have not fainted.  
+> Revelation 2:3  
 
 The Lord Jesus Christ never removes His eyes from His Church. He notes everything that concerns her, observing not merely the life of her members but their soul's health, and not merely their health, but the way in which they spend their spiritual strength. He knows their works, He observes their charity, their patience, their zeal for His name's sake. Seven times in His words to the Churches, He says, "I know your works." This should make us live with great care, for albeit the whole world is under the eye of God, yet of His Church it is true, "upon one stone there shall be seven eyes." The full perfection of Omniscience exerts itself upon the Lord's chosen people. The farmer has an eye to all his estate but his chief care is his own family. And, even so, while the Great Husbandman of all creation observes all His works, He chiefly looks upon His own household. "The eye of the Lord is upon them that fear Him, upon them that hope in His mercy."
 
@@ -21,10 +21,10 @@ If I may use the figure, we ought to employ every particle of our steam power. W
 
 So would the Church. She would deny herself and take up the cross of high-pressure service. She would toil without cessation and give without stint. An energy far beyond anything usual in Christendom would be common in the Church if she were in a right state of heart. Alas, I fear the bulk of professors are not earnest enough to preserve their professions from ridicule. I noticed the other day a remark which struck me. Speaking of a certain congregation, the writer said he believed there were a hundred persons in it who were worth not less than five thousand pounds a year each, and then he mentioned the sum that was given for the maintenance of the work of God, and he added, "If any ordinary person who was not a Christian went in there and heard them sing;
 
-> And if I might make some reserve,
-> And duty did not call,
-> I love my God with zeal so great,
-> That I would give him all
+> And if I might make some reserve,  
+> And duty did not call,  
+> I love my God with zeal so great,  
+> That I would give him all  
 
 ; he would say to himself, 'I was at the theater on Saturday night and saw a farce, but if I need a screaming one I must come here on a Sunday.'"
 
