@@ -1,7 +1,7 @@
 # Sermon 1054 | "Waters to Swim In"
 
-> Waters to swim in.
-> Ezekiel 47:5
+> Waters to swim in.  
+> Ezekiel 47:5  
 
 The whole vision, though bearing other meanings, may be applied to the spread of the gospel of Jesus Christ. It began at Jerusalem as a tiny rivulet. By our Savior's preaching, a few disciples, some of whom became apostles, were converted. These were the means of the conversion of a still larger number. But at first the stream was very shallow, for the whole church could meet in one upper room. Even after the Pentecostal increase it was but as a small brook. Herod thought that he could leap across it, or could dam it up, but his persecutions swelled the stream. Very shortly after, the watercourse grew broader and deeper till it attracted the attention of the Roman emperors and excited their alarm.
 
@@ -48,8 +48,8 @@ I think, sometimes, when I see my own nature, that it were difficult for me ever
 
 Brethren, take another view of God's great goodness to us. What "waters to swim in" have we by way of consolations and strengthening! Are you ever cast down? I hope you are not, but if you are, as some of us are frequently bowed down into the very dust, what a relish you will have for the promises of God! I am sure that a number of promises in the Bible were written on purpose for me. You may dispute it and say, "No, they were meant for me." I have no wish to contest the point, but I still believe, as I have said, that they were meant for me, for they fit my case so exactly even in their very words that they appear as if my case were especially intended. No doubt other believers think the same, and will join with me in blessing God for such a grand Bible. Well does our hymn-writer put it:
 
-> "What more can He say than to you He has said,
-> You, who unto Jesus for refuge have fled?"
+> "What more can He say than to you He has said,  
+> You, who unto Jesus for refuge have fled?"  
 
 None can comfort a child like a mother. The mother knows exactly the child's state, and by her very love she throws a sweetness into what she says which another could not successfully imitate. There are no comforts like the comforts of God. The Comforter puts into the Inspired Word a singular sweetness which the most able ministers cannot arrive at, even though they should be, like Barnabas, sons of consolation. Brothers and sisters, let us think over our comforts now, for a minute, and our consolations. Have we not the promise that God has loved us with an everlasting love, even the Lord who cannot change? He has promised that all good things shall be ours as we need them, and it has been so.
 
@@ -65,8 +65,8 @@ Why, dear saints of God, however poor you may be, and however low in spirits, an
 
 Moses' sight from Nebo is nothing compared with the view which faith gets of the glory to be revealed! We shall see Him, and shall be like Him and shall be with Him eternally! His glory is boundless; it shall be our soul's transport in heaven! What will it be to see the shining ranks of the glorified, and hear their blessed song and join with them and with the angelic choirs forever and forever?
 
-> Far from a world of grief and sin,
-> With God eternally shut in.
+> Far from a world of grief and sin,  
+> With God eternally shut in.  
 
 Oh, beloved, here are "waters to swim in!" Let us bathe our weary souls in them by faith before we leave this place. The Lord grant it, in the power of His Holy Spirit, and He shall have the praise.
 
