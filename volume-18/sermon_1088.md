@@ -1,7 +1,7 @@
 # Sermon 1088 | The Essence of Simplicity
 
-> Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him?
-> John 9:35,36
+> Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him?  
+> John 9:35,36  
 
 This text is from the story of the blind man to whom Jesus had given sight. His narrative of the cure provoked the anger of the Jews and their rulers. And, as the man could not be convinced by them that one who had opened his eyes could also be a bad man, he signified to him that he would be, or already was, cast out of the Jewish Church; set aside from the Synagogue and made the victim of the greater excommunication. This was one of the most fearful calamities that could befall a Jew, and I do not doubt but what the man considered it to be so.
 
