@@ -1,14 +1,14 @@
 # Sermon 1067 | The Resurrection Credible
 
-> Why should it be thought a thing incredible with you, that God should raise the dead?
-> Acts 26:8
+> Why should it be thought a thing incredible with you, that God should raise the dead?  
+> Acts 26:8  
 
 Concerning the souls of our believing friends who have departed this life we suffer no distress, we feel sure that they are where Jesus is and behold His glory according to our Lord's own memorable prayer. We know but very little of the disembodied state, but we know quite enough to rest certain beyond all doubt:
 
-> They are supremely blest,
-> Have done with sin,
-> And care, and woe,
-> And with their Savior rest.
+> They are supremely blest,  
+> Have done with sin,  
+> And care, and woe,  
+> And with their Savior rest.  
 
 Our main trouble is about their bodies, which we have committed to the dark and lonesome grave. We cannot reconcile ourselves to the facts that their dear faces are being stripped of all their beauty by the fingers of decay and that all the insignia of their manhood should be fading into corruption. It seems hard that the hands and feet and all the goodly fabric of their noble forms should be dissolved into dust and broken into an utter ruin. Even the perfect Man could not restrain His weeping at Lazarus' tomb. It is a sorrowful thought that our friends are dead, nor can we ever regard the grave with love. We cannot say that we take pleasure in the catacomb and the vault. We still regret, and feel it natural to do so, that so dreadful a ban has fallen upon our race as that it should be "appointed unto all men once to die." God sent it as a penalty and we cannot rejoice in it. The glorious doctrine of the resurrection is intended to take away this cause of sorrow! We need have no trouble about the body any more than we have concerning the soul.
 
