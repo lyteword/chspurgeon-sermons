@@ -1,7 +1,7 @@
 # Sermon 1046 | Covenant Blessings
 
 > A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. And I will put My Spirit within you, and cause you to walk in My statutes and you shall keep My judgments, and do them.  
-> Ezekiel 36:26-27
+> Ezekiel 36:26-27  
 
 Luther has well said that the experience of the minister is the best book in his library. I am persuaded it is so and that God often leads His servants through peculiar states of mind, not so much for their own benefit as for the sake of those to whom they may afterwards minister. It is not long ago since I felt myself, when engaged in devotion, cold and dead. And in looking into my own heart I saw no ground of comfortable assurance as to my being a possessor of the grace of God; my feelings towards the great Father in heaven were not, as far as I could judge, those of a child; my love towards Jesus Christ for His redemption was almost extinct.
 
