@@ -1,8 +1,8 @@
 # Sermon 977 | The Master's Profession—The Disciples' Pursuit
 
-> I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart, I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth from the great congregation.
->
-> Psalm 40:9, 10
+> I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart, I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth from the great congregation.  
+>  
+> Psalm 40:9, 10  
 
 Who is the speaker that gives utterance to these marvelous words? In the first instance, they must be understood to proceed from our Lord Jesus Christ. By the Spirit of prophecy in the Old Testament, they were spoken of Him, and by the Spirit of interpretation in the New Testament, they have been applied to Him. Mark, then, how vehemently He here declares that He has fully discharged the work which He was sent to accomplish. When, in the days of His flesh, He was crying to His Father for preservation in a season of dire distress, He might well ask that He should then be helped, since all the previous strength He possessed had been laid out in His Father's service.
 
@@ -12,8 +12,8 @@ Undoubtedly our Lord Jesus Christ, as we read His history in the four evangelist
 
 There were no wasted moments of time, no neglected opportunities, no talents held in reserve. "I must work," was His motto. The zeal of God's house consumed Him. It was His meat and His drink to do the will of Him that sent Him. A marvelous study is this life of Christ on earth. And as one looks at it, thought begets thought, for:
 
-> Kindred objects kindred thoughts inspire,
-> As summer clouds flash forth electric fire.
+> Kindred objects kindred thoughts inspire,  
+> As summer clouds flash forth electric fire.  
 
 Mark you not how He concentrated every attribute of His nature, every faculty of His mind, and every power of His body in the one work He had undertaken, to do His Father's will? He seems all His life through to have challenged the enquiry, "Don't you know that I must be about My Father's business?"
 
@@ -81,10 +81,10 @@ Had they done nothing then, their career of usefulness might have been in full v
 
 I do wish that some of you would learn to imitate the character of the godly man:
 
-> Who holds no parley with unmanly fears;
-> Where duty bids, he confidently steers,
-> Faces a thousand dangers at her call
-> And, trusting in his God, surmounts them all.
+> Who holds no parley with unmanly fears;  
+> Where duty bids, he confidently steers,  
+> Faces a thousand dangers at her call  
+> And, trusting in his God, surmounts them all.  
 
 The cowards will not be able to say, "I have preached righteousness: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart. I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth."
 
@@ -160,8 +160,8 @@ You Sunday school teachers cannot teach any longer, but your Sunday recreations 
 
 I do not say that rewards are given as mere rewards of merit, but this I do assuredly know, there are rewards given in respect of service through the grace of our Lord Jesus Christ, and I pray you seek the prize. So run that you may obtain it. May you be able to say, "While I was down below where service could be done for my master:
 
-> 'In works which perfect saints above,
-> And holy angels cannot do,'
+> 'In works which perfect saints above,  
+> And holy angels cannot do,'  
 
 with all my might I labored to excel, and now I enter into the bliss of Him who helped and strengthened me, who revealed His grace in me, and counted me worthy to put me into some part of the ministry of His church."
 
