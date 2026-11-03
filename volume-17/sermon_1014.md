@@ -139,7 +139,3 @@ Now, take another text, of a positive character, from the Book of Revelation 21:
 And "murderers; he that hates his brother is a murderer." And "whoremongers and sorcerers; those who have or pretend to have dealings with devils and spirits, your spirit rappers, the whole batch of them; and idolaters, and all liars; and these swarm everywhere; they lie in print, and they lie with the voice; 'all liars shall have their part in the lake which burns with fire and brimstone, which is the second death.'"
 
 Now, these are not words of mine, but the words of God. And if they condemn you, you are condemned. But, if you are condemned, fly to Jesus. Repent and be converted, as says the Gospel, and forgiveness shall be yours, through Jesus Christ. Amen.
-
-Portions of scripture read before sermon: Luke 1:46-55; 1:67-75; 2:25-35.
-
-Our usual Penny Almanack is now ready, and we hope it will be as much approved of as its predecessors have been. We have also, with no small labor, written an Almanack for the walls, which is called John Ploughman's Sheet Almanack. Our friends tells us that it will have an unprecedented sale, and we only hope it may, but not to the detriment of the older one. They are quite distinct things, and very different in all respects, except that they are by the same author, cost the same price; one penny, and can be had of the same publishers, Messrs. Passmore and Alabaster; by C. H. S.
