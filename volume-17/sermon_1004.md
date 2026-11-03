@@ -1,7 +1,7 @@
 # Sermon 1004 | "Bought with a Price"
 
 > "You are not your own. For you are bought with a price: therefore glorify God in your body, and in your spirit, which are God's."  
-> 1 Corinthians 6:19, 20.
+> 1 Corinthians 6:19, 20.  
 
 Our beloved brother, Thomas Cook, who has for so long a time served this church as an honored deacon, has fallen asleep in Christ. We have laid his earthly remains in the tomb: his spirit rejoices before the throne of God. This day we thank God for his useful life, and ask for grace to imitate it. Before he closed his eyes in death he left a text of Scripture for the pastors: "Christ is all, and in all;" and he left another for his fellow church members, for all of you this day who are members of the body of Christ; and this is the legacy, which now, as a spiritual executor, I present to you: "You are not your own. For you are bought with a price: therefore glorify God in your body, and in your spirit, which are God's." I have no doubt the intention of our departed brother was to promote God's glory by speaking to us even after he was dead concerning our sanctification, that so we might be stirred up to a greater consecration to the Lord our Savior.
 
@@ -26,7 +26,7 @@ Recollect, again, that your being "bought with a price" will be the most importa
 > Then the end, beneath his rod   
 > Man's last enemy shall fall.   
 > Hallelujah, Christ in God,   
-> God in Christ is all in all.
+> God in Christ is all in all.  
 
 All these divinely glorious events will impress themselves upon you, but not one of them will make an impression so lasting, so clear, so deep as this, that you were "bought with a price." High over all the mountain tops, Calvary, that was but a little mount in human estimation, shall rise; stars shall the events of history be; but this event shall be the sun in whose presence all others hide their diminished heads. "Thou wast slain," the full chorus of heaven shall roll it forth in thundering accents of grateful zeal. "Thou wast slain, and hast redeemed us to God by thy blood;" the saints shall remember this first and foremost; and amidst the cycles of eternity this shall have the chief place in every glorified memory. What then, beloved? Shall it not have the chief place with you now? It has been the fact of your life hitherto, it will be the fact of your entire eternal existence: let it saturate your soul, let it penetrate your spirit, let it subdue your faculties, let it take the reins of all your powers and guide you whither it will. Let the Redeemer, he whose hands were pierced for you, sway the scepter of your spirit and rule over you this day, and world without end.
 
@@ -46,7 +46,7 @@ But time would fail me if I dwelt upon this, or, indeed, at any length upon the 
 
 Remember that our Lord has paid all the price for us; there is no mortgage or lien upon us; we have, therefore, no right to give a portion of ourselves to Satan. And he has bought us entirely from head to foot, every power, every passion, and every faculty—all our time, all our goods—all that we call our own, all that makes up ourselves in the largest sense of that term; we are altogether God's. Ah, it is very easy for people to say this, but how very difficult it is to feel it true and to act as such! I have no doubt there are many persons here who profess to be willing to give God all they have, who would not actually give him five shillings. We can sing:
 
-> "Here, Lord, I give myself away,"
+> "Here, Lord, I give myself away,"  
 
 and yet if it comes to yielding only a part of ourselves, if it requires self-denial, or self-sacrifice, straightway there is a drawing back. Now, was the cross a fiction? Was the death of Christ a fable? Were you only fancifully "bought with a price," and not in deed and in truth? If redemption is a fable, then return a fabled consecration. If your purchase is a fiction, then lead the fictitious lives that some of you lead with regard to consecration to Christ. If it is only an idea, a pretty something that we read of in books, then let our belonging unto God be a mere idea and a piece of sentiment. But a real redemption demands real holiness. A true price, most certainly paid, demands from us a practical surrendering of ourselves to the service of God. From this day forth, even forever, "you are not your own," you are the Lord's.
 
