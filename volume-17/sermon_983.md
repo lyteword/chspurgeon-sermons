@@ -167,5 +167,3 @@ Remember Lot's wife! "I will therefore put you in remembrance, though you once k
 In this way Moab becomes our wash pot, by showing us what sin grows to when it has developed itself. This consideration will surely cause us more heartily to love the Savior who can deliver us from it.
 
 Dear friends, if you are not in Christ, much of what I have said bears upon you. Think! And pray to escape from the wrath to come. I would not have you be made a mere wash pot to be used and broken as a potter's vessel. Neither should you wish to be a vessel without honor, a thing of no esteem. But may you have faith in Jesus, life in him, and then you shall be a royal diadem, a crown of glory in the hand of our God. May you have a heritage among those who fear the Lord and are reconciled to him by faith in the total sacrifice of our Lord Jesus Christ.
-
-> Portion of Scripture Read Before Sermon: Psalm 60.  
