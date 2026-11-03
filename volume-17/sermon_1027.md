@@ -1,7 +1,7 @@
 # Sermon 1027 | The Joy of the Lord, the Strength of His People
 
 > "The joy of the Lord is your strength."  
-> Nehemiah 8:10
+> Nehemiah 8:10  
 
 Last Sunday morning I spoke of the birth of our Savior as being full of joy to the people of God, and, indeed, to all nations. We then looked at the joy from a distance. We will now in contemplation draw nearer to it, and perhaps as we consider it and remark on the multiple reasons for its existence, some of those reasons may operate upon our own hearts. And we may go out of this house of prayer ourselves partakers of that exceedingly great joy. We shall count it to have been a successful morning if the people of God are made to rejoice in the Lord, and especially if those who have been bowed down and burdened in soul shall receive the oil of joy for mourning.
 
@@ -81,7 +81,7 @@ But when the time comes, his weakness only illustrates the divine might, while t
 
 But now I must hasten on to notice in the third place that this strength leads to practical results. I am sure I shall have your earnest attention to this, because in many of you I have seen the results follow of which I now speak. I would not flatter anyone, but my heart has been full of thanksgiving to the God of all Grace when I have seen many of you rejoicing in the Lord under painful circumstances and producing the fruits of a gracious strength. Turn then to our second text, and there you shall observe some of the fruits of holy joy and pious strength. First, it leads to great praise. "The singers sang aloud," their minstrelsy was hearty and enthusiastic. Sacred song is not a minor matter. Quaint George Herbert has said:
 
-> "Praying's the end of preaching."
+> "Praying's the end of preaching."  
 
 Might he not have gone further and have said, praising's the end of praying? After all, preaching and praying are not the chief end of man, but the glorifying of God, of which praising God vocally is one form. Preaching is sowing, prayer is watering, but praise is the harvest. God aims at His own glory, so should we.
 
