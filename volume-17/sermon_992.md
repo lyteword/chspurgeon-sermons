@@ -1,7 +1,7 @@
 # Sermon 992 | A New Order of Priests and Levites
 
 > "And I will also take of them for priests and for Levites, says the Lord."  
-> Isaiah 66:21.  
+> Isaiah 66:21  
 
 This chapter is surrounded with critical difficulties, and yet it is full of spiritual instruction. The verse before us is, by some, referred to Gentiles, and supposed to mean that the Lord promises that He will take out of the heathen nations a people whom He will make into priests and Levites. Others would say it points to the Jews, rejected for their unbelief and dispersed in judgment among all nations. When their own Messiah came, it was not with a devout faith, but with a profane imprecation they said, "His blood be on us, and on our children." The curse they invoked did come upon them. The retribution they challenged has been meted out to them in full measure. To the letter it was verified.
 
@@ -40,7 +40,7 @@ I have thus shown what the promise means. God will take out of the Jews and Gent
 
 Now that is parallel to the fact that God does take some of the most unlikely persons who seem to be the most unsuitable of all, and make these to be His faithful and honored servants among the sons of men. I shall first notice that fact. Then, the reason for it. And then, the lessons from it.
 
-First, I notice that God does, to the astonishment of men, TAKE SOME WHOM HE MAKES PRIESTS AND LEVITES TO HIMSELF. This is a fact. There were those in the days of Aaron who said, "You take too much upon you, you sons of Levi." And when they stood before the Lord with their censers, "the earth opened her mouth and swallowed them up." There were those in the days of Elijah. When he stood by the altar of the Lord, the priests of Baal, in great numbers, stood by their altar, offering prayer to Baal.
+First, I notice that God does, to the astonishment of men, take some whome He makes priests and Levites to Himself. This is a fact. There were those in the days of Aaron who said, "You take too much upon you, you sons of Levi." And when they stood before the Lord with their censers, "the earth opened her mouth and swallowed them up." There were those in the days of Elijah. When he stood by the altar of the Lord, the priests of Baal, in great numbers, stood by their altar, offering prayer to Baal.
 
 You know how God had no regard to their sacrifice. They were the church established by law; but, for all that, Elijah the Nonconformist put them to the rout, and maintained the worship of the invisible God of Israel firm and faithful to the end. So in our Savior's days there were priests and Levites, men taught and instructed in the Law of God, and these were the very men who conspired together against Him. They took counsel how they might put Him to death. They stirred up the people to say, "Not this man, but Barabbas."
 
@@ -141,5 +141,3 @@ So let me close by saying surely we ought to serve God with great confidence in 
 Suppose a man owed you ten thousand pounds, and a trifling sum besides for a small promissory note he had given you. If he paid you the ten thousand pounds, you might trust him to meet the little bill when it fell due. And when the Lord has given us so much, so infinitely much, the little that remains; for it is comparatively little, ought to cause us no anxieties or doubts, no fears or misgivings!
 
 "Because You have been my help, therefore in the shadow of Your wings will I rejoice." He who found me a sinner made me a pardoned sinner! He put me among His children and numbered me among His honored servants. He has not done all this to desert me at last and put me to shame. He has not been at this expense with His poor servant to fling him away after all. No, glory be to His name; He will continue His work till He has perfected it! He is the God that performs all things for me, and in Him will I rest, and not be ashamed, world without end. Amen.
-
-PORTION OF SCRIPTURE READ BEFORE SERMON: Isaiah 66.
