@@ -158,8 +158,7 @@ Some of you tonight are like Lot and his daughters in the burning city. You must
 > "There is life in a look at the crucified one!  
 > There is life at this moment for you!"  
 
-and for all who look. But it may be that if this night you look not to Jesus, His Cross may never appear before your eyes again, for they will be sealed in death. Before long, Jael's tent pin shall have passed through Sisera's skull; the sin shall have destroyed the sinner; the sin that is unto death shall have shut up the spirit in despair. Oh, may God, who is mighty to save, turn you to Himself at this moment!
+And for all who look. But it may be that if this night you look not to Jesus, His Cross may never appear before your eyes again, for they will be sealed in death. Before long, Jael's tent pin shall have passed through Sisera's skull; the sin shall have destroyed the sinner; the sin that is unto death shall have shut up the spirit in despair. Oh, may God, who is mighty to save, turn you to Himself at this moment!
 
 "Sound the trumpet in Zion: sound an alarm in my holy mountain," seems to ring in my ears. And I would gladly sound that alarm to God's saints, and to sinners, too. May He call many by His grace, and awaken us all. And His shall be the glory forever and ever! Amen.
 
-Portion of scripture read before sermon: 1 Thessalonians 5.
