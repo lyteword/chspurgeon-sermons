@@ -128,5 +128,3 @@ There is never any deliberation about, "May we build here?" They bring their sti
 No inspired word has ever said to the cony, "Whoever runs into this rock-cleft shall never be driven out of it." If it had been so, it would make assurance doubly sure. And yet here is Christ, provided for sinners; just the sort of a Savior sinners need, and the encouragement is added, "He that comes unto me I will in no wise cast out." "Whoever will, let him come, and take the water of life freely."
 
 O dear brethren and sisters, do not be standing out against the generosity of a sin-pardoning God who bids the sinner come and welcome. Come, believe in Jesus, and find salvation now. O that you would come; it is what God has provided for your wants. Come, take it, for he bids you come. "The Spirit and the bride say come; and whoever will, let him come and take the water of life freely." To believe is to trust Jesus, to trust his suffering, to trust his atonement, and rely upon him alone for salvation. May God enable you to do it for Christ's sake. Amen.
-
-Portion of scripture read before sermon: Psalm 104.
