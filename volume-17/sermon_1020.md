@@ -1,7 +1,7 @@
 # Sermon 1020 | "The Sun of Righteousness"
 
-> "In them has he set a tabernacle for the sun, which is as a bridegroom coming out of his chamber, and rejoices as a strong man to run a race. His going forth is from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof."
-> Psalm 19:4, 5, 6.
+> "In them has he set a tabernacle for the sun, which is as a bridegroom coming out of his chamber, and rejoices as a strong man to run a race. His going forth is from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof."  
+> Psalm 19:4, 5, 6.  
 
 We should feel quite justified in applying the language of the nineteenth Psalm to our Lord Jesus Christ from the simple fact that he is so frequently compared to the sun; and especially in the passage which we have given you as our second text, wherein he is called "the Sun of Righteousness." But we have a higher justification for such a reading of the passage, for it will be in your memories that, in the tenth chapter of the Epistle to the Romans, the Apostle Paul, slightly altering the words of this psalm, applies them to the gospel and the preachers thereof. "Have they not heard?" said he, "Yes, verily, their sound went into all the earth, and their words unto the ends of the world." So that what was here spoken of the sun by David, is referred by Paul to the gospel, which is the light streaming from Jesus Christ, "the Sun of Righteousness."
 
@@ -11,15 +11,15 @@ Do not your hearts often say, "What shall we do, or what shall we say to render 
 
 Since you have not all this wealth, have you not again and again asked of your soul:
 
-> Oh what shall I do,
-> My Savior to praise?
+> Oh what shall I do,  
+> My Savior to praise?  
 
 I would write the best of poems if so I could extol him, but the faculty is not in me; I would sing the sweetest of songs, and compose the most melting music, if I could, and count art, and wit, and music exalted by being handmaidens to him; but how shall I adore him, before whom the best music on earth must be but discord? And how shall I set him forth, the very skirts of whose garments are bright with insufferable light? At such times you have looked the whole world through to find metaphors to heap upon him; you have culled all the fair flowers of nature, and made them into garlands to cast at his feet; and you have gathered all earth's gems and precious things to crown his head, but you have been disappointed with the result, and have cried out with our poet:
 
-> The whole creation can afford
-> But some faint shadows of my Lord;
-> Nature, to make his beauties known,
-> Must mingle colors not her own.
+> The whole creation can afford  
+> But some faint shadows of my Lord;  
+> Nature, to make his beauties known,  
+> Must mingle colors not her own.  
 
 At such times, while ransacking land, and sea, and sky for metaphors, you have probably looked upon the sun, and have said: "This great orb, the lord of light and lamp of day, is like my Savior; it is the faint image of his excellent glory whose countenance shines as the sun in its strength." You have done well to seize on such a figure. What Milton calls the golden-tressed sun is the most glorious object in creation, and in Jesus the fullness of glory dwells. The sun is at the same time the most influential of existences, acting upon the whole world, and truly our Lord is, in the deepest sense, "of this great world both eye and soul"; he "with benignant ray sheds beauty, life, and joyance from above."
 
@@ -35,10 +35,10 @@ He is, from day to day, advancing in his glorious march through the universe, co
 
 Doubt it not, for up yonder, in the seventh heaven, the Lord has set a tabernacle for the Sun of Righteousness. There Jesus abides in splendor inconceivable, the joy and glory of all those blessed spirits who, having believed in him on the earth, have come to behold him in the heavens:
 
-> Bright, like a sun, the Savior sits,
-> And spreads eternal noon;
-> No evenings there, nor gloomy nights,
-> To want the feeble moon.
+> Bright, like a sun, the Savior sits,  
+> And spreads eternal noon;  
+> No evenings there, nor gloomy nights,  
+> To want the feeble moon.  
 
 That Jesus lives is a deep well of consolation to the saints, and did we always remember it our hearts would not be troubled. If we always remembered that Jesus both lives and reigns, our joys would never wither. We worship him, it is true, as one who was slain and has redeemed us unto God by his blood; but we also extol him as one who is "alive forever more, and has the keys of death and of hell."
 
@@ -54,10 +54,10 @@ The Prince of Peace on heaven's side condescends to be married to our nature, th
 
 To this end he actually descended by dark steps of anguish into the silent inner room of the grave, and there he slept in his chamber, perfectly wedded to his church. Come and look at him, you who admire the lover of your souls; he stooped to death and the sepulcher because manhood had fallen under their yoke. His church was subject to death, and he must die. She deserved to suffer the penalty due to God's insulted law, and, therefore, Jesus bowed his head to the stroke:
 
-> Yes, said the Son, with her I'll go
-> Through all the depths of sin and woe;
-> And on the cross will even dare
-> The bitter pains of death to bear.
+> Yes, said the Son, with her I'll go  
+> Through all the depths of sin and woe;  
+> And on the cross will even dare  
+> The bitter pains of death to bear.  
 
 And he did bear them, and in the darksome chamber of the tomb he proved how true a bridegroom he was to his church. Before his great race began, of which we are soon to speak, it behooved our mighty champion to descend into the lowest parts of the earth and sleep among the dead. Before every day there is a night where darkness seems to triumph. It behooved Christ to suffer, and then to rise again. His descent was necessary to his ascent; his sojourn in the chamber to his race and victory.
 
@@ -69,10 +69,10 @@ His words, though plain enough, had aforetime hidden him even from those who lov
 
 Blessed were the eyes that saw him in that day. Though during the forty days in which our Lord lingered among his followers upon earth we may truly say that he had come out of his chamber, we perceive that he more fully did so when, after the forty days had been accomplished, he took his disciples to the top of Olivet and there ascended into heaven, out of their sight. Then had the sun, indeed, ascended above the horizon to make his glories stream along the heavens! See you not the angelic bands poising themselves upon the wing in mid-air, waiting until he shall return all glowing with the victory after the long and deadly fight? Mark you well that matchless spectacle as he is "seen of angels":
 
-> The helmed cherubim
-> And sworded seraphim
-> Are seen in glittering ranks,
-> With wings displayed.
+> The helmed cherubim  
+> And sworded seraphim  
+> Are seen in glittering ranks,  
+> With wings displayed.  
 
 They have hastened to meet the Prince of Glory, and attend him to his ancient patrimony. Right glad are all the heavenly band to welcome back the captain of the Lord's host, and, therefore, they harp in loud and solemn choir to heaven's triumphant heir. As for the glorified of mortal race, redeemed of old by his blood which in the fullness of time was shed, they hail him with most glad hymn, and lift up their sweetest symphonies to extol him who finished transgression, made an end of sin, and brought in everlasting righteousness! Then the bridegroom came out of his chamber with fit marriage music; his beauties hidden awhile in the chamber, where he was regarded as without form or comeliness, he blazed forth with renewed splendor, such as confounded both sun and moon.
 
@@ -98,23 +98,23 @@ Old shoes and clothes are common enough among those Gibeonites who would deceive
 
 Though we believe not, he abides faithful, he cannot deny himself. He changes not in work or way. For Zion's sake he works up to now, and the pleasure of the Lord prospers in his hand. But now, observe next, the notable idea of strength which the text conveys to us. "Rejoicing as a strong man to run his race." It is no drudgery for the ascended Lord to carry on his cause:
 
-> The baffled prince of hell
-> In vain new efforts tries,
-> Truth's empire to repel
-> By cruelty and lies.
-> The infernal gates shall rage in vain
-> Conquest awaits the Lamb once slain.
+> The baffled prince of hell  
+> In vain new efforts tries,  
+> Truth's empire to repel  
+> By cruelty and lies.  
+> The infernal gates shall rage in vain  
+> Conquest awaits the Lamb once slain.  
 
 There is a race to be run but Jesus is strong enough for it. He does not come panting up to the starting place and from there go creeping on. But like a strong man he surveys the course. He knows that he is equal to it, and, therefore, he delights in it. When he began his race he was opposed, but the opposition only made him triumph the more readily, for "they that were scattered abroad went everywhere preaching the word."
 
 When our Lord arose like the sun, the clouds were thick and heavy, but he painted their fleecy skirts with gold. Persecution hung over the eastern horizon, but he turned it into the imperial purple of his sovereignty. As he pursued his course the ice of centuries melted, the dense gloom of ages disappeared. No chains could bind him, and no bonds stayed the sun as he has "whirled his car along the ethereal plain," so no difficulties impeded the onward course of the gospel in the days of its dawning. To the first days of the church, Thomson's lines to the sun are fully applicable:
 
-> Now, flaming up the heavens, the potent sun
-> Melts into limpid air the high-raised clouds,
-> And morning fogs, that hovered round the hills,
-> In party-colored bands, till wide, unveiled,
-> The face of nature shines, from where earth seems
-> Far stretched around, to meet the bending sphere.
+> Now, flaming up the heavens, the potent sun  
+> Melts into limpid air the high-raised clouds,  
+> And morning fogs, that hovered round the hills,  
+> In party-colored bands, till wide, unveiled,  
+> The face of nature shines, from where earth seems  
+> Far stretched around, to meet the bending sphere.  
 
 The gospel soon shed its light in every land, and all nations felt its benign power. Men ceased to persecute and bowed before the cross. Soon fresh clouds arose, and the church passed through them. Errors and heresies multiplied. Filthy dreamers led away a huge apostasy. Rome became the mother of harlots and abominations, but the true church, and the true Christ within her, went right on. The church was not less triumphant in her second trial than in her first.
 
