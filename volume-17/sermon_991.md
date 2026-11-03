@@ -1,7 +1,7 @@
 # Sermon 991 | The Fourfold Treasure
 
-> "But of him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption: that, according as it is written, he that glories, let him glory in the lord."
-> 1 Corinthians 1:30, 31.
+> "But of him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption: that, according as it is written, he that glories, let him glory in the lord."  
+> 1 Corinthians 1:30, 31.  
 
 We meet somewhere in the old testament with the expression "salt without prescribing how much." Beyond all question the name, person, and work of Jesus are the salt and savor of every true gospel ministry, and we cannot have too much of them. Alas, that in so many ministries there is such a lack of this first dainty of the feast, this essence of all soul-satisfying doctrine. We may preach Christ without prescribing how much, only the more we extol him the better. It would be impossible to sin by excess in preaching Christ crucified. It was an ancient precept, "With all your offerings you shall offer salt." Let it stand as an ordinance of the sanctuary now, "With all your sermonizing and discoursing you shall ever mingle the name of Jesus Christ, you shall ever seek to magnify the alpha and omega of the plan of redemption."
 
@@ -33,10 +33,10 @@ Are you now of God in Christ Jesus so as to be depending for everything upon him
 
 No Savior, then no peace in life or death. Oh remember, beloved hearer, that you will soon die. Where, where will you look for consolation in your last moments? Your soul will soon have to fly through tracks unknown, and face the burning throne of judgment. What will you do, then, without the hand of love to guide you and the righteousness of Christ to cover you? He who wraps himself about with Christ's matchless robe can say:
 
-> "Bold shall I stand in that great day,
-> For who anything to my charge shall lay?
-> While through your blood absolved I am
-> From sin's tremendous curse and shame."
+> "Bold shall I stand in that great day,  
+> For who anything to my charge shall lay?  
+> While through your blood absolved I am  
+> From sin's tremendous curse and shame."  
 
 But he that has no Savior, it were better for him that he had never been born. That day is cursed and has no blessing on which he first saw the light. Jesus Christ is willing to receive you if you desire to come to him. Noah's ark was shut, but not until the flood came. It was open till then; Christ is the ark of the covenant, and the door is not shut yet. Let not this, however, cause you to delay, for the flood will rise, and the rains will fall, and then to those who shall knock at the door, it will be said, "Too late! Too late! You cannot enter now."
 
@@ -122,10 +122,10 @@ And then, in body and soul made perfect, the year of the redeemed shall have ful
 
 Even you, O my weary body, even you shall be made glorious like unto the Lord himself; you shall rise and live in the brightness of his Presence! All, then, that you can possibly want, O Christian, is in Christ. You cannot conceive a need which Jesus does not supply. "Wisdom, righteousness, sanctification, redemption," you have all in him. Some gather a flower here. Some gather another there. Some will go farther, and pluck another there. And some will go yet beyond to grasp a fourth. But when we win Christ we have a bouquet! We have all sweet flowers in one:
 
-> "All human beauties, all Divine,
-> In my Beloved meet and shine.
-> You brightest, sweetest, fairest One,
-> That eyes have seen or angels known."
+> "All human beauties, all Divine,  
+> In my Beloved meet and shine.  
+> You brightest, sweetest, fairest One,  
+> That eyes have seen or angels known."  
 
 But we cannot stay on this tempting subject, though even amid my present pain I would gladly talk on by the hours together. And therefore I must finish with the last point, and on that only a word. You see then, brethren, our very existence as Christians, and all that we possess as Christians, we get from God by Jesus Christ. Let all our glory, then, be unto him. What insanity it is to boast in any but in our Lord Jesus! How foolish are they that are proud of the beauty of their flesh, worms' meat at the best! How foolish are they who are proud of their wisdom! The wisdom of which a man is proud is but folly in a thin disguise.
 
