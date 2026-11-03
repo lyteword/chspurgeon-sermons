@@ -1,6 +1,7 @@
 # Sermon 986 | Victor Emmanuel, Emancipator
 
-> "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house." - Isaiah 42:7.  
+> "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house."  
+> Isaiah 42:7    
 
 It is a great relief to turn to another subject akin to that, but full of cheerfulness and joy. We showed you the prisoner; we have now to speak of him who came to set the prisoners free. We described the captive's cords and bonds; we have now to tell you of him whose mighty touch liberates the bondslaves, and signs the Magna Charta of eternal emancipation. The case of manhood bound like Prometheus to the rock, and preyed upon by the vulture of hell, appeared utterly hopeless, and the more so because the prisoner was his own fetter, and disdained to be free.
 
@@ -143,11 +144,3 @@ I remember one who used to say that if God would but have mercy on him, he shoul
 Yes, we will each sing loudest, each owing most, each desiring, therefore, to bend the lowest and to praise the most heartily the grace which has set us free!
 
 Time flies with us! Days are rushing past, years are hastening away. How long shall it be before Christ shall gain your hearts? How long shall you hear of him, and continue to refuse his grace? How long, you unconverted ones, will you hug your chains and kiss your fetters? "Turn you, turn you from your evil ways! For why will you die, O house of Israel?" "Seek you the Lord while he may be found! Call upon him while he is near: let the wicked forsake his ways, and the unrighteous man his thoughts. And let him return unto the Lord, and he will have mercy upon him. And to our God, for he will abundantly pardon."
-
-Portion of Scripture Read Before Sermon: Isaiah 42.
-
-"The Treasury of David," by C. H. Spurgeon. Vols. I & II.
-
-This work is the substance of many libraries. It contains the essence of all the commentators upon the Psalms, both ancient and modern. Besides containing original observations by the author, it is crowded with the wisdom of hundreds of the most eminent writers. Reviewers pronounce the work to be of the highest value. The volumes are published at 8s. each, and contain far more matter than is generally sold for half a guinea. Vol. I is now in the fourth thousand.
-
-Published by Passmore & Alabaster, Paternoster Row, and may be had of all booksellers.
