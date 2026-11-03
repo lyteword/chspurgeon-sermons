@@ -1,6 +1,6 @@
 # Sermon 986 | Victor Emmanuel, Emancipator
 
-> "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house." - Isaiah 42:7.
+> "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house." - Isaiah 42:7.  
 
 It is a great relief to turn to another subject akin to that, but full of cheerfulness and joy. We showed you the prisoner; we have now to speak of him who came to set the prisoners free. We described the captive's cords and bonds; we have now to tell you of him whose mighty touch liberates the bondslaves, and signs the Magna Charta of eternal emancipation. The case of manhood bound like Prometheus to the rock, and preyed upon by the vulture of hell, appeared utterly hopeless, and the more so because the prisoner was his own fetter, and disdained to be free.
 
@@ -48,14 +48,14 @@ The tree of life of richer fruit shall grow in the midst of the garden, and then
 
 Be of good cheer, O children of God, and comfort yourselves with the belief, "that he shall see his seed, he shall prolong his days, and the pleasure of the Lord shall prosper in his hand." His church has no reason for fear, but every ground of confidence as to her future. Rejoice, O daughter of Zion! For great is the Holy One of Israel in the midst of you.
 
-> "Fear not, though many a mighty foe
-> Against your walls advance.
-> Jehovah's arm will lay them low
-> For your deliverance.
-> Oh, take him at his royal word
-> That word which cannot lie.
-> Your shield and sword is Israel's Lord,
-> Almighty sovereignty."
+> "Fear not, though many a mighty foe  
+> Against your walls advance.  
+> Jehovah's arm will lay them low  
+> For your deliverance.  
+> Oh, take him at his royal word  
+> That word which cannot lie.  
+> Your shield and sword is Israel's Lord,  
+> Almighty sovereignty."  
 
 I know you will tell me, "most men say that the world will end in a few years. Is it not written that the Bridegroom comes quickly?" Yes, but remember that eighteen hundred years ago it was written that he would come quickly. And there have been prophets in all ages who have concluded from this that the end was near, while many believers have been like the Thessalonians, to whom Paul wrote: "Now we beseech you, brethren, by the coming of our Lord Jesus Christ, and by our gathering together unto him, that you be not soon shaken in mind, or be troubled, neither by spirit, nor by word, nor by letter as from us, as that the day of Christ is at hand."
 
@@ -103,8 +103,8 @@ I have known men strive against the habit of blasphemy. Others against unchaste 
 
 O struggle after mental, moral, spiritual liberty if you would be free! And remember your only possible freedom is in Christ. If you would shake off evil habits or any other mental bondage, I shall prescribe no remedy to you but this, to commit yourself to Christ the Liberator.
 
-> "The gates of brass before him burst,
-> The iron fetters yield."
+> "The gates of brass before him burst,  
+> The iron fetters yield."  
 
 Love him, and you shall hate sin. Trust him, and you shall no more trust yourself. Submit yourself to the sway of the incarnate God, and he will break the dragon's head within you, and hurl Satan beneath your feet. Nothing else can do it. Christ must have the glory of your conquest of self. He can set you free from sin's iron yoke. He never failed yet, and he never shall. I earnestly entreat any man who desires to break off his sins (and we must break them off or perish by them), to try this divine remedy, and see if it does not give him holy liberty.
 
@@ -136,9 +136,9 @@ If the Lord saved men because of their merits, there would be no hope for great 
 
 I remember one who used to say that if God would but have mercy on him, he should never hear the last of it, and it may well be the resolve of all of us, that earth and heaven shall never hear the last of our praises if grace shall but save us! As one of our hymns puts it:
 
-> "Then loudest of the crowd I'll sing,
-> While heaven's resounding mansions ring
-> With shouts of sovereign grace."
+> "Then loudest of the crowd I'll sing,  
+> While heaven's resounding mansions ring  
+> With shouts of sovereign grace."  
 
 Yes, we will each sing loudest, each owing most, each desiring, therefore, to bend the lowest and to praise the most heartily the grace which has set us free!
 
