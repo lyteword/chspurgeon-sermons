@@ -1,7 +1,7 @@
 # Sermon 1025 | A Visit to the Harvest Field
 
-> "Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waited for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. Be ye also patient; stablish your hearts: for the coming of the Lord draweth nigh."
-> James 5:7-8.
+> "Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waited for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. Be ye also patient; stablish your hearts: for the coming of the Lord draweth nigh."  
+> James 5:7-8.  
 
 The earth that yields seed to the sower and bread to the eater has received its constitution from God; and it is governed through his wise providence by fixed laws that are infinitely reliable; and yet, at the same time, with such diversified conditions and minute peculiarities as may well convince us that the Almighty intended the operations of nature to supply us with spiritual instruction as well as with material good. He who ordained the seed time and the harvest meant to teach us by them. Nor has he left us in vague uncertainty as to the lessons we should learn! In metaphor and parable he has interpreted them to us.
 
@@ -31,11 +31,11 @@ Or, like the leaven in the measure, it does not work in the next moment. It must
 
 If you have gone to a sinner once on Christ's errand and he has rejected you, go again seven times. No, go again seventy times seven; for if you should at last succeed by your Master's gracious help, it will well repay you. The long, tedious winter of your waiting will appear as a short span to look back upon when you have reaped the field of your labor. The little patience that you had to exert for a while will seem as nothing, like the travail of the mother when the man-child is born into the world. Hush, then, your sad complaints, and still your petulant wailings;
 
-> O dreary life! we cry, O dreary life!
-> And still the generations of the birds
-> Sing through our sighing.
-> And the flocks and herds
-> Serenely live while we are keeping strife.
+> O dreary life! we cry, O dreary life!  
+> And still the generations of the birds  
+> Sing through our sighing.  
+> And the flocks and herds  
+> Serenely live while we are keeping strife.  
 
 Be patient, O worker, for impatience sours the temper, chills the blood, sickens the heart, prostrates the vigor of one's spirit and spoils the enterprise of life before it is ripe for history. Wait, clothed with patience, like a champion clad in steel. Wait with a sweet grace, as one who guards the faith and sets an example of humility. Wait in a right spirit; anxious, prayerful, earnest, submissive to the ways of God; not doubtful of his will. Disciple of Jesus, "learn to labor and to wait."
 
