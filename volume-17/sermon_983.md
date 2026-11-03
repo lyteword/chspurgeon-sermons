@@ -1,7 +1,7 @@
 # Sermon 983 | Moab Is My Wash Pot
 
-> "Moab is my wash pot."
-> Psalm 60:8
+> "Moab is my wash pot."  
+> Psalm 60:8  
 
 Moab, which had threatened Israel, was to be so completely subdued, and become so utterly contemptible as to be likened to a wash pot or basin in which men wash their feet. More than this, however, may have been intended; no, we feel sure was intended by the expression. Let us explain exactly what the language literally means. In the East the general mode of washing the hands and the feet is with a basin and ewer. Water is poured upon the hands or feet from the ewer, and it falls into the basin.
 
@@ -13,8 +13,8 @@ We are the children of Israel by faith in Christ, and in him we have obtained by
 
 The best possessions we have outside of the spiritual heritage we put under our feet, desiring to keep them in their proper inferior position. They are not the crown of our head, nor the comfort of our heart, nor the girdle of our loins, nor the staff of our support. They are put to far baser uses. They yield us some comfort, for which we are grateful to God, but it is only for our feet or lower nature. Our head and heart find nobler joys. The whole world put together, with all its wealth, is but a mess of potage for Esau and nothing more. God's Jacob has a better portion, for he has the birthright. Our worst is better than the world's best, for the reproach of Christ is greater riches than all the treasures of Egypt.
 
-> "We tread the world beneath our feet,
-> With all that earth calls good or great."
+> "We tread the world beneath our feet,  
+> With all that earth calls good or great."  
 
 "Moab is my wash pot," nothing more, a thing contemptible and despicable as compared with the eternal realities of covenant blessings. Yet, for all that, there was a use for Moab, a use to be rightly understood. A wash pot has its necessary function. And even this base world may be made, by faith, in the hands of God to be the means of aiding the purity of the saints.
 
@@ -30,10 +30,10 @@ While this is contrary to nature, it is also unusual in history. In the Book of 
 
 Thus it is clear that Moab of old was foremost in polluting and defiling Israel. It is a great feat of faith when the thing which naturally defiles is turned into a wash pot. Behold the transformations of grace! This ungodly world outside the church, the world of wicked men, would naturally pollute us, but faith turns them into a wash pot, and finds in them motives for watchfulness and holiness. We sigh, in the words of the old psalm:
 
-> "Woe is me that I in Mesech am
-> A sojourner so long.
-> That I in tabernacles dwell
-> To Kedar that belong."
+> "Woe is me that I in Mesech am  
+> A sojourner so long.  
+> That I in tabernacles dwell  
+> To Kedar that belong."  
 
 As we cannot sing the Lord's song in a strange land, so neither can we very readily keep our garments unspotted in a land deluged with uncleanness. With difficulty do we save ourselves from this untoward generation. And yet faith learns the secret of overcoming the ordinary tendency of things, and of making that which might injure us subsidiary to our advantage, fulfilling that ancient promise, "And strangers shall stand and feed your flocks, and the sons of the alien shall be your plowmen and your vinedressers." The defiling world may be made helpful to us in the following ways:
 
@@ -81,10 +81,10 @@ Ungodly men know nothing of heart-laughing. They are strangers to the deep, sere
 
 A man's face must be very ugly when he never cares to look at it. And a man's state must be very bad, indeed, when he is ashamed to know what it is. And yet in the case of tens of thousands of people who say they are very happy, there is a worm inside the apple. The very foundation stone has been removed from the edifice. And you may be sure it is so, for they dare not examine into matters. Ungodly men at bottom are unhappy men. "The way of transgressors is hard." "There is no peace, says my God, to the wicked." Their Marah is never dry, but flows with perennial waters of bitterness. What says their great poet Byron?
 
-> "Count over the joys your hours have seen,
-> Count over the days from anguish free.
-> And know whatever you have been,
-> 'Tis something better not to be."
+> "Count over the joys your hours have seen,  
+> Count over the days from anguish free.  
+> And know whatever you have been,  
+> 'Tis something better not to be."  
 
 Now then, if things are really so, if sin brings, after all, an unsatisfactory result to the mind, if a man is not rendered happy by an evil course, then let me choose another path, and, by God's grace, keep to wisdom's ways of pleasantness and paths of peace into which my Lord, by his love, has drawn me and by his grace has led me. I am happy in his bosom, I drink living waters out of his fountain. Why should I go to those broken cisterns, which I clearly see can hold no water? Why should I wish to wander over the dreary waste of waters?
 
@@ -98,14 +98,14 @@ Did you ever see a godless man when he had lost all his money in a speculation w
 
 Even when no very great calamity puts out the candle of the worldling, yet, as years revolve, a gathering cloud darkens his day. Hear again the world's master songster. The confession will suit many:
 
-> "My days are in the yellow leaf,
-> The flowers and fruits of love are gone.
-> The worm, the canker, and the grief,
-> Are mine alone.
-> The fire that in my bosom plays
-> Alone as some volcanic isle;
-> No torch is kindled at its blaze,
-> A funeral pile."
+> "My days are in the yellow leaf,  
+> The flowers and fruits of love are gone.  
+> The worm, the canker, and the grief,  
+> Are mine alone.  
+> The fire that in my bosom plays  
+> Alone as some volcanic isle;  
+> No torch is kindled at its blaze,  
+> A funeral pile."  
 
 This is the world's treatment of its old servants, it dishonors them in old age. But it is not so with aged believers: "they shall still bring forth fruit in old age. They shall be fat and flourishing, to show that the Lord is upright." When all our wealth on earth is gone, our treasure is still safe in heaven where moth corrupts not, and thieves break not through nor steal. When we think of the despair of men, of blasted hopes, Moab may become our wash pot, and may keep us from setting our affection upon their fleeting joys.
 
@@ -139,10 +139,10 @@ Do you not find that ungodly men, when you are obliged to be in their company in
 
 Besides, do not ungodly men drive us from loving the world? We might think of finding our rest here below, but when we hear their tongues cruelly and unkindly slandering us, then we are sick of their company:
 
-> "My soul distracted mourns and pines
-> To reach that peaceful shore,
-> Where all the weary are at rest,
-> And troubles vex no more."
+> "My soul distracted mourns and pines  
+> To reach that peaceful shore,  
+> Where all the weary are at rest,  
+> And troubles vex no more."  
 
 An extreme case of the way in which evil treatment may tend to our sanctification may be found in the life of one of the old ministers in the north of Scotland. "A cold, unfeeling, bold, unheeding, worldly woman was the wife of Mr. Fraser, one of the ministers of Ross Shire," writes my beloved friend, Mr. John Kennedy, in his interesting book entitled, The Days of the Fathers in Ross Shire. "Never did her godly husband sit down to a comfortable meal in his own home, and often would he have fainted but for the considerate kindness of some of his parishioners. She was too unfeeling to try to hide her treatment of him, and well was it for him, on one account, that she was.
 
@@ -167,5 +167,3 @@ Remember Lot's wife! "I will therefore put you in remembrance, though you once k
 In this way Moab becomes our wash pot, by showing us what sin grows to when it has developed itself. This consideration will surely cause us more heartily to love the Savior who can deliver us from it.
 
 Dear friends, if you are not in Christ, much of what I have said bears upon you. Think! And pray to escape from the wrath to come. I would not have you be made a mere wash pot to be used and broken as a potter's vessel. Neither should you wish to be a vessel without honor, a thing of no esteem. But may you have faith in Jesus, life in him, and then you shall be a royal diadem, a crown of glory in the hand of our God. May you have a heritage among those who fear the Lord and are reconciled to him by faith in the total sacrifice of our Lord Jesus Christ.
-
-> Portion of Scripture Read Before Sermon: Psalm 60.

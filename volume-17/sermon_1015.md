@@ -1,7 +1,7 @@
 # Sermon 1015 | The One Thing Needful
 
-> "But one thing is needful."
-> Luke 10:42.
+> "But one thing is needful."  
+> Luke 10:42.  
 
 We have no difficulty whatever in deciding what that one thing is. We are not allowed to say that it is the Savior, for he is not a thing. And we are not permitted to say that it is attention to our own salvation, for, although that would be true, it is not mentioned in the context. The one thing needful, evidently, is that which Mary chose--that good part which should not be taken away from her. Very clearly this was to sit at Jesus' feet, and hear his word. If anything is plain at all in Holy Scripture, it is most clear that this is the one thing needful--to sit at Jesus' feet and hear his word. This and nothing less, this and nothing more. The mere posture of sitting down and listening to the Savior's word was nothing in itself--it was that which it indicated. It indicated, in Mary's case, a readiness to believe what the Savior taught, to accept and to obey--no, to delight in the precepts which fell from his lips. And this is the one thing needful. He that has it has the spirit of grace and life.
 
@@ -130,5 +130,3 @@ It is the one thing needful for the backslider. If you have fallen ever so much,
 I desire not to be troubled about my preaching, nor to be cumbered about anything beneath the sun, but to leave all these, as he would have me leave them, in his hands. You who are working in the classes, in the school or anywhere else, I pray you look well to your fellowship with Jesus. You cannot slay the enemy by throwing away your sword, and nearness to Christ is your battle-ax and weapon of war. You have lost your power when you have left your Lord. One thing is needful--let the rest go.
 
 What if we have not learning? What if we have not eloquence? If we live near to Christ we have something better than these. If we abide in him, and he abides in us, we shall ask what we will, and it shall be done unto us. If his word abides in us, we shall go and bring forth fruit, and our fruit shall remain. If he abides in us, we shall enjoy heaven on earth, and be daily preparing for that eternal heaven which is to be our portion. "One thing is needful." God grant it to every one of us!--Amen.
-
-PORTION OF SCRIPTURE READ BEFORE SERMON--Luke 10.

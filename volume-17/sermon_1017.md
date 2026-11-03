@@ -1,7 +1,7 @@
 # Sermon 1017 | The Talking Book
 
-> "When you awake, it shall talk with you."
-> Proverbs 6:22
+> "When you awake, it shall talk with you."  
+> Proverbs 6:22  
 
 It is a very happy circumstance when the commandment of our father and the law of our mother are also the commandment of God and the law of the Lord. Happy are they who have a double force to draw them to the right; the bonds of nature, and the cords of grace. They sin with a vengeance who sin both against a father on earth and the great Father in heaven, and they exhibit a virulence and a violence of sin who do despite to the tender obligations of childhood, as well as to the demands of conscience and God. Solomon, in the passage before us, evidently speaks of those who find in the parents' law and in God's law the same thing, and he admonishes such to bind the law of God about their heart, and to tie it about their neck; by which he intends inward affection and open avowal.
 
@@ -123,10 +123,10 @@ And all your rhetorician's action and verbiage are so much rubbish. The most eff
 
 Brave saints we have read of, but we little know how often they would have been complete cowards, only the good Word came and strengthened them, and they went back to be stronger than lions and swifter than eagles. While the book thus soothes and cheers, it has a wonderfully elevating power. Have you ever felt it put fresh life-blood into you? You have thought, "How can I continue to live at such a dying rate as I have lived, I must gain something nobler?" Read that part of the Word which tells of the agonies of your Master, and you will feel;
 
-> "Now for the love I bear His name
-> What was my gain I count my loss.
-> My former pride I call my shame,
-> And nail my glory to His cross."
+> "Now for the love I bear His name  
+> What was my gain I count my loss.  
+> My former pride I call my shame,  
+> And nail my glory to His cross."  
 
 Read of the glories of heaven which this book reveals, and you will feel that you can run the race with quickened speed because a crown so bright is glittering in your view. Nothing can so lift a man above the gross considerations of carnal gain or human applause as to have his soul saturated with the spirit of the truth of God. It elevates as well as cheers.
 
@@ -143,5 +143,3 @@ They take their religion out of the monthly magazine, or accept it from the mini
 A ton weight of human literature is not worth an ounce of Scripture; one single drop of the essential tincture of the Word of God is better than a sea full of our comments and sermons, and the like. The Word, the simple, pure, infallible Word of God; we must live upon it if we are to become strong against error, and tenacious of truth. Brethren, may you be established in the faith; rooted, grounded, built up. But I know you cannot be except you search the Scriptures continually.
 
 The time is coming when we shall all fall asleep in death. Oh, how blessed it will be to find when we awake that the Word of God will talk with us then, and remember its ancient friendship! Then the promise which we loved before shall be fulfilled. The charming intimations of a blessed future shall be all realized; and the face of Christ; whom we saw as through a glass darkly, shall be all uncovered, and he shall shine upon us as the sun in its strength. God grant us to love the Word of God, and feed thereon, and the Lord shall have the glory forever and ever. Amen and amen.
-
-Portion of Scripture read before sermon; Psalm 119:161-179; Proverbs 6:1-23.

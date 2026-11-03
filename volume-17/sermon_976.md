@@ -1,7 +1,7 @@
 # Sermon 976 | The Wedding Garment
 
 > "And when the king came in to see the guests, he saw there a man which had not on a wedding garment: and he said unto him, Friend, how came you in here not having a wedding garment? And he was speechless. Then said the king to the servants, Bind him hand and foot, and take him away, and cast him into outer darkness. There shall be weeping and gnashing of teeth. For many are called, but few are chosen."  
-> Matthew 22:11-14.
+> Matthew 22:11-14.  
 
 Apparently the parable of the marriage feast would have been complete without this addition, but there was infinite wisdom in appending this sequel. This is seen practically in the experience of the Church of God. Those who are permitted to see large additions to the Church will find this parable of the wedding garment to be singularly appropriate and timely. Whenever there is a revival and many are brought to Christ, it seems inevitable that at the same time a proportion of unworthy persons should enter the Church. However diligent may be the oversight, there will be pretenders creeping in unaware who have no true part or lot in the matter, and hence, when the preacher is most earnest for the ingathering of souls to Christ, he needs to couple with it a jealousy, lest those who come forward to make a profession of faith should be moved by carnal motives, and should not really have given their hearts to God.
 
@@ -52,7 +52,7 @@ She is not that one, for she is not even a member of the Church, and therefore i
 We pass on to the next point; the king at the feast. "The king came in to see the guests." What an honor and privilege this was to the poor creatures whom his royal munificence had brought together! Was it not, indeed, the chief point of the entire festival? One of our greatest joys is to sing:
 
 > "The King Himself comes near  
-> And feasts His saints today!"
+> And feasts His saints today!"  
 
 What would Church fellowship be if it had not the fellowship of God with it? To sit with my dear brethren and rejoice in their love is exceedingly delightful. But the best wine is fellowship with the Father, and with His Son Jesus Christ. The king did not provide the banquet and leave his guests to eat by themselves, but he "came in."
 
@@ -71,7 +71,7 @@ If her Majesty the Queen were entertained by one of her nobles, he would be in w
 > But when Immanuel's face appears  
 > My hope, my joy, begins!  
 > His name forbids my slavish fear  
-> His grace removes my sins."
+> His grace removes my sins."  
 
 When I get to the banquet of mercy, then it is that I can dare to look at the King of kings, but not till then. What a joyous sight, a vision of the God and Father of our Lord Jesus Christ; the Father of Glory as He appears in the Gospel, feasting us upon His fatlings! An incarnate God makes God visible to us and makes us happy in the sight. "How can you see My face and live?" was the old question, but, behold, it is answered this day. At the marriage union of Christ with His people we see the face of the King in His beauty, and our souls not only live, but we have life more abundantly.
 
@@ -122,12 +122,12 @@ He saw now that his time to insult was over, and the day of retribution had come
 Why did he not burst into tears? Why did he not confess the wrong? Why did he not say, "My King, I have insulted you, have pity upon me"? His proud heart would not let him. Sin made him incapable of repentance. There is a verse in one of Hart's hymns which runs thus:
 
 > "Fixed is their everlasting state.  
-> Could they repent, it is now too late."
+> Could they repent, it is now too late."  
 
 That is true enough, but it supposes an impossibility, and I think it would have been far better to have said:
 
 > "Fixed is their everlasting state.  
-> They can't repent, it is now too late."
+> They can't repent, it is now too late."  
 
 Because the sinner goes on to sin, he continues still to suffer. He will not turn, he cannot turn. As the Ethiopian cannot change his skin, nor the leopard his spots, so when sin has reached its height the man cannot bend, or bow, or retrace his steps.
 
@@ -156,7 +156,3 @@ You see, then, how the Lord sifts us. First, we are sifted by the preaching of t
 Come here, friend, I must not let you go. There is a vagabond brought before the magistrate accused of theft. He says he is perfectly innocent, but he is convicted, and has to suffer for it. After him comes a bragging fellow, who says, "I do not make any profession of being honest, I rob anybody I can, and I mean to do so, I do not pretend to keep the Law." Why, I think the magistrate would say, "I condemned the man who did at least pretend to something decent, but to you I give double punishment! You are evidently incorrigible, and your case needs no consideration."
 
 You who do not say you are Christians, who confess you are not; you declare yourselves the enemies of Christ! Get no comfort, therefore, out of this parable I pray you, but yield yourselves to the Savior, and believe in Him, for he that believes and is baptized shall be saved.
-
-Portion of Scripture read before sermon: Epistle of Jude.
-
-The attention of all our friends is earnestly directed to the series of special services at the Tabernacle. In order that London friends may unite with us, we publish the meetings week by week, and at the same time our country friends can join with us in spirit: Sermon to the Sunday School and young people generally. By C. H. S., at 3 p.m. Prayer meeting for females only, at six. Young people's prayer meeting at the same time. At seven, elders and deacons will deliver addresses to the unconverted at the usual prayer meeting. Great meeting of butchers' men invited by Mr. Henry Varley. Addresses in the Tabernacle at 7 (tickets). C. H. S. to preside. Prayer meetings at the houses of our friends according to list, which will be issued. May the prayers of all the households be heard in heaven. Thursday, March 2: mothers' prayer meeting at six. Meeting for persons under concern of soul at half-past eight after the lecture. Fathers' prayer meeting at 8:30. Meeting of our young friends above fifteen, and yet unsaved. Tea at six (tickets to be had of the elders).

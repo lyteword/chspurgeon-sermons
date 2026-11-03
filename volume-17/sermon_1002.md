@@ -1,7 +1,7 @@
 # Sermon 1002 | Now, and Then
 
-> "For now we see through a glass, darkly. But then face to face."
-> 1 Corinthians 13:12
+> "For now we see through a glass, darkly. But then face to face."  
+> 1 Corinthians 13:12  
 
 In this chapter the apostle Paul has spoken in the highest terms of charity or love. He accounts it to be a grace far more excellent than any of the spiritual gifts of which he had just before been speaking. It is easy to see that there were good reasons for the preference he gave to it. Those gifts, you will observe, were distributed among godly men, to every man his several portion, so that what one had another might have lacked. But this grace belongs to all who have passed from death unto life. The proof that they are disciples of Christ is found in their love to him and to the brethren. Those gifts, again, were meant to fit them for service, that each member of the body should be profitable to the other members of the body.
 
@@ -65,10 +65,10 @@ Probably things that puzzle us here will be as plain as possible there. We shall
 
 This knot cannot be untied, that gnarl cannot be unraveled, but:
 
-> Then shall I see, and hear and know
-> All I desired or wished below.
-> And every power find sweet employ
-> In that eternal world of joy.
+> Then shall I see, and hear and know  
+> All I desired or wished below.  
+> And every power find sweet employ  
+> In that eternal world of joy.  
 
 But, my dear brothers and sisters, having kept you thus far in the outer courts, I would gladly lead you into the temple! Or, to change the figure, if in the beginning I have set forth good wine, certainly I am not going to bring out that which is worse. Rather would I have you say, as the ruler of the feast did to the bridegroom, "you have kept the good wine until now."
 
@@ -111,7 +111,3 @@ It is natural for us to want to know, but we shall not know as we are known till
 The pain is in living. When they leave off living here, they have done with pain. Do not blame death for what it does not deserve. It is life that lingers on in pain; death is the end of it. The man that is afraid of dying ought to be afraid of living. Be content to die whenever the master's will shall bid you. Commit your spirit to his keeping. Who that has seen but the glimpses of his beaming countenance does not long to see his face that is as the sun shining in his strength? O Lord! Your will be done! Let us speedily behold you, if so it may be; only this one word, if so it may be.
 
 Do we now see, and do we expect to see better? Let us bless the name of the Lord, who has chosen us of his mercy and of his infinite loving kindness. On the other hand, let it cause us great anxiety if we have not believed in Jesus, for he that has not believed in him, dying as he is, will never see the face of God with joy. Oh, unbeliever, be concerned about your soul, and seek after him! Oh, that God would open your eyes now in this very house of prayer! Blessed for you to know in part. Thrice blessed, I say. For as surely as you know in part now, you shall fully know hereafter! Be it your happy lot to know him, whom to know is life eternal. God grant it, for Jesus' sake. Amen.
-
-Portion of scripture read before sermon: 2 Corinthians 5.
-
-Some of the sermon readers may not be aware that we issue a monthly magazine entitled The Sword and the Trowel, price 3d. In it will be found interesting descriptions of holy works in all denominations, theological articles, and periodical information as to the various institutions connected with the Tabernacle. It is believed that The Sword and the Trowel has the largest circulation of any magazine of its class, with the exception of those which attract readers by religious novels. Such a mode of gaining popularity the editor will never employ. The volume entitled Feathers for Arrows was compiled by us with the view of furnishing fresh illustrations to religious teachers. The first edition of ten thousand was sold at once, and we went to press with a second ten thousand. It is a beautifully bound volume, and a very cheap half-crown's worth. Passmore and Alabaster are the publishers.

@@ -1,7 +1,7 @@
 # Sermon 996 | The Alarum
 
-> "I myself will awake early."
-> Psalm 57:8.
+> "I myself will awake early."  
+> Psalm 57:8.  
 
 The proper subject to treat upon with such a text as this would be the propriety and excellence of early rising, especially when we are desirous of praising or serving God. The dew of dawn should be consecrated to devotion. The text is a very remarkable expression, and might fitly be made the early riser's motto. It is, in the original, a highly poetical phrase, and Milton and others have borrowed or imitated it. "I will awaken the morning." So early would the Psalmist arise for the praise of God, that he would call up the day, bid the sun arise from the chambers of the east, and proceed upon his journey. "I will awaken the morning."
 
@@ -138,5 +138,3 @@ Some persons on their dying beds just wake up in time to see their danger, but n
 There is a man before me now asleep in his sins whom God means to make a minister of Christ; he knows not the divine purpose; but there are lines of love in it for him. Arise, O slumberer, for Jesus calls you! Awake, you Saul of Tarsus! You are a chosen vessel unto the Lord! Turn from your sins; seek your savior! There is one here who has been a great sinner. But the Lord intends to wash him in the cleansing fountain, and clothe him in the righteousness of Christ. Come, you guilty one, awake! For mercy waits for you.
 
 There is a poor weeping woman here who has gone far into sin. But Jesus says, "Neither do I condemn you: go, and sin no more." Sister, awake! Come and receive the mercy which Jesus Christ is ready to bestow upon you! God give you waking grace, and saving grace. May you and I, beloved brethren in Christ, awake to the most earnest and intense form of life in Christ and life for Christ. At once let us bestir ourselves; we may think it early, but it will be none too early! May we awake now, for Jesus' sake. Amen.
-
-Portions of scripture read before sermon: Psalm 108; 1 Thessalonians 5:1-11.

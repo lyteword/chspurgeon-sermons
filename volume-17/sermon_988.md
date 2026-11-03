@@ -1,9 +1,9 @@
 # Sermon 988 | The Pastor's Parting Blessing
 
-> The grace of our Lord Jesus Christ be with you all. Amen.
-> &mdash;Romans 16:24
+> The grace of our Lord Jesus Christ be with you all. Amen.  
+> Romans 16:24  
 
-The CHRISTIAN is a man of generous actions, but his wishes go far beyond his deeds. Where he cannot be beneficent he is benevolent. If he cannot actually accomplish good for all, yet he anxiously desires it. If it be not in his power to confer grace upon any, yet he prays that God would give his grace to all the brotherhood. His heart entertains thousands, though his house might be overfull with ten; his liberal desires feed nations, even though his purse be so scant that he cannot afford more than a penny for a poor child. God, whose providence limits our ability, has set no measure to our willingness. Our wishes may be boundless though our powers are contracted, and this will be good for ourselves and not useless to others.
+The Christian is a man of generous actions, but his wishes go far beyond his deeds. Where he cannot be beneficent he is benevolent. If he cannot actually accomplish good for all, yet he anxiously desires it. If it be not in his power to confer grace upon any, yet he prays that God would give his grace to all the brotherhood. His heart entertains thousands, though his house might be overfull with ten; his liberal desires feed nations, even though his purse be so scant that he cannot afford more than a penny for a poor child. God, whose providence limits our ability, has set no measure to our willingness. Our wishes may be boundless though our powers are contracted, and this will be good for ourselves and not useless to others.
 
 Christ never came into the world to make individual professors of it isolated, like the icebergs which float away on the wide sea in solitary terribleness; neither is it intended that we should be so anxious for our own salvation as to be indifferent to the welfare of others. True religion is not a separating and repelling force, but rather, like attraction, it draws individual atoms into one body and holds them together. It does not shiver to fragments, but welds into one. It is a loadstone, not a whirlwind. God in his grace gathers together in one body in Christ Jesus all his scattered ones, and the same Spirit who constrains us to love God leads us to love our brother also.
 
@@ -21,8 +21,8 @@ Let us first enquire: WHAT IS THE GRACE OF OUR LORD JESUS CHRIST WHICH THE APOST
 
 Does the apostle mean the grace which comes to us through Christ as well as that which is shown to us in Christ? Our Lord, as it were, took out of the river-bed of grace the great rock which blocked up the water courses, and now along the wide and open channel&mdash;
 
-> Immortal joys come streaming down,
-> Joys like his griefs, immense, unknown.
+> Immortal joys come streaming down,  
+> Joys like his griefs, immense, unknown.  
 
 Christ did not create the Father's love to us, the elect were loved of God before all worlds, and Christ is the gift of that love, not the cause of it. Calvary did not procure the Father's love to us, but the love of God towards us could not, by reason of our sins, and the penalty due thereto, come to us so as to be enjoyed by us. It could not bring to us the blessings which we now possess until Jesus had finished transgression, and made an end of sin. Both the grace implied in the sending of the Messiah, and the grace which flows to us through him, are here intended.
 

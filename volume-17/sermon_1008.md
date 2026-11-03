@@ -1,7 +1,7 @@
 # Sermon 1008 | Love's Logic
 
-> "We love him because he first loved us."
-> 1 John 4:19.
+> "We love him because he first loved us."  
+> 1 John 4:19.  
 
 This is a great doctrinal truth, and I might with much propriety preach a doctrinal sermon from it, of which the sum and substance would be the sovereign grace of God. God's love is evidently prior to ours: "He first loved us." It is also clear enough from the text that God's love is the cause of ours, for "We love him because he first loved us." Therefore, going back to old times, or rather before all time, when we find God loving us with an everlasting love, we gather that the reason of his choice is not because we loved him, but because he willed to love us. His reasons, and he had reasons (for we read of the counsel of his will), are known to himself. But they are not to be found in any inherent goodness in us, or which was foreseen to be in us. We were chosen simply because he will have mercy on whom he will have mercy. He loved us because he would love us.
 
@@ -15,9 +15,7 @@ All good things are of you, Great God. Your goodness creates our good. Your infi
 
 We shall view the text as a fact which we have tested and proved in our own consciousness. Under this aspect the statement of the text is this: a sense of the love of God to us is the main cause of our love to him. When we believe, know, and feel that God loves us, we, as a natural result, love him in return. And in proportion as our knowledge increases, our faith strengthens and our conviction deepens that we are really beloved of God, we, from the very constitution of our being, are constrained to yield our hearts to God in return. The discourse of this morning, therefore, will run in that channel. God grant it may be blessed to each of us by his Holy Spirit.
 
-The Indispensable Necessity of Love to God in the Heart
-
-There are some graces which in their vigor are not absolutely essential to the bare existence of spiritual life, though very important for its healthy growth. But love to God must be in the heart, or else there is no grace there whatever. If any man loves not God, he is not a renewed man. Love of God is a mark which is always set upon Christ's sheep, and never set upon any others.
+The indispensable necessity of love to God in the heart. There are some graces which in their vigor are not absolutely essential to the bare existence of spiritual life, though very important for its healthy growth. But love to God must be in the heart, or else there is no grace there whatever. If any man loves not God, he is not a renewed man. Love of God is a mark which is always set upon Christ's sheep, and never set upon any others.
 
 In enlarging upon this most important truth, I would call your attention to the connection of the text. You will find in the seventh verse of this chapter, that love to God is set down as being a necessary mark of the new birth. "Everyone that loves is born of God, and knows God." I have no right, therefore, to believe that I am a regenerated person unless my heart truly and sincerely loves God. It is vain for me, if I love not God, to quote the register which records an ecclesiastical ceremony, and say that this regenerated me. It certainly did no such thing, or the sure result would have followed.
 
@@ -39,14 +37,12 @@ But this I cannot be unless I love God. A mere external obedience, a decent form
 
 As certainly as you have the life and nature of God in you, you will seek after the Lord. As the spark, because it has in it the nature of fire, ascends aloft to seek the sun, so will your new-born spirit seek her God from whom she has derived her life. Search yourselves, then, and see whether you love God or not. Put your hands on your hearts, and as in the sight of him whose eyes are as a flame of fire, answer him. Make him your confessor at this hour: answer this one question, "Do you love me?" I trust very many of you will be able to say:
 
-> Yes, we love you and adore!
-> Oh, for grace to love you more.
+> Yes, we love you and adore!  
+> Oh, for grace to love you more.  
 
 This much was necessary to bring us to the second step of our discourse. May the Holy Spirit lead us onward.
 
-The Source and Spring of True Love to God
-
-"You see the indispensable importance of love to God: let us now learn the source and spring of true love to God." "We love him because he first loved us." Love to God, wherever it really exists, has been created in the bosom by a belief of God's love to us. No man loves God till he knows that God loves him. And every believer loves God for this reason first and chiefly, that God loves him. He has seen himself to be unworthy of divine favor, yet he has believed God's love in the gift of his dear Son, and he has accepted the atonement that Christ has made as a proof of God's love. And being satisfied of the divine affection towards him, he of necessity loves his God.
+The source and spring of true love to God. "You see the indispensable importance of love to God: let us now learn the source and spring of true love to God." "We love him because he first loved us." Love to God, wherever it really exists, has been created in the bosom by a belief of God's love to us. No man loves God till he knows that God loves him. And every believer loves God for this reason first and chiefly, that God loves him. He has seen himself to be unworthy of divine favor, yet he has believed God's love in the gift of his dear Son, and he has accepted the atonement that Christ has made as a proof of God's love. And being satisfied of the divine affection towards him, he of necessity loves his God.
 
 Observe, then, that love to God does not begin in the heart from any disinterested admiration of the nature of God. I believe that, after we have loved God because he first loved us, we may so grow in grace as to love God for what he is. I suppose it is possible for us to be the subjects of a state of heart in which our love spends itself upon the loveliness of God in his own person: we may come to love him because he is so wise, so powerful, so good, so patient, so everything that is lovable. This may be produced within us as the ripe fruit of maturity in the divine life, but it is never the first spring and fountain of the grace of love in any man's heart.
 
@@ -82,10 +78,10 @@ Ah, even when we are sick, it is love that chastens us. When we are impoverished
 
 You who are tossed about with doubts and fears as to whether you are now accepted or shall persevere to the end, you can scarcely guess the ardors of heart which inflame those saints who have learned to cast themselves wholly upon Jesus, and know beyond a doubt his immutable love. Whether I sink or swim, I have no hope but in Christ, my life, my all:
 
-> I know that safe with him remains,
-> Protected by his power,
-> What I've committed to his hands
-> Till the decisive hour.
+> I know that safe with him remains,  
+> Protected by his power,  
+> What I've committed to his hands  
+> Till the decisive hour.  
 
 And in proportion as I am thus scripturally confident, and rest in my Lord, will my love to him engross all my heart, and consecrate my life to the Redeemer's glory. Beloved, I desire to make this very clear. That to feel love to God we must tread along the road of faith. Truly, this is not a hard or perilous way, but one prepared by infinite wisdom. It is a road suitable for sinners, and, indeed, saints must come that way, too. If you would love God, do not look within you to see whether this grace or that is as it ought to be, but look to your God, and read his eternal love, his boundless love, his costly love, which gave Christ for you. Then shall your love drink in fresh life and vigor.
 
@@ -93,9 +89,7 @@ Remember wherever there is love to God in the soul it is an argument that God lo
 
 O loveless sinner, with heart unquickened and chill, the voice of God calls even you to Christ! Even to the dead in sin, his voice says, "Live." While you are yet polluted in your blood, cast out in the open field to the loathing of your person, the Lord of mercy passes by and says, "live." His mighty sovereignty comes forth dressed in robes of love, and he touches you, the unlovable, the loveless, the depraved, degraded sinner, at enmity with God; he touches you in all your alienation and he lifts you out of it and makes you to love him, not for your own sake but for his name's sake and for his mercy's sake. You had no love at all to him, but all the love lay in him alone. And therefore he began to bless you, and will continue to bless you world without end, if you are a believer in Jesus. In the bosom of the Eternal are the deep springs of all love.
 
-The Revival of Our Love
-
-This leads us, in the third place, to consider for a moment the revival of our love. It is sadly probable [that there are in this house some who once loved God very earnestly, but now they have declined and become grievously indifferent]. God's love to us never changes, but ours too often sinks to a low ebb. Perhaps some of you have become so cold in your affections that it is difficult to be sure that you ever did love God at all. It may be that your life has become lax, so as to deserve the censure of the church.
+The revival of our love. This leads us, in the third place, to consider for a moment the revival of our love. It is sadly probable [that there are in this house some who once loved God very earnestly, but now they have declined and become grievously indifferent]. God's love to us never changes, but ours too often sinks to a low ebb. Perhaps some of you have become so cold in your affections that it is difficult to be sure that you ever did love God at all. It may be that your life has become lax, so as to deserve the censure of the church.
 
 You are a backslider and you are in a dangerous condition. Yet, if there is, indeed, spiritual life in you, you will wish to return. You have gone astray like a lost sheep, but your prayer is, "seek your servant, for I do not forget your commandments." Now, note well, that the cause which originated your love is the same which must restore it. You went to Christ as a sinner at first, and your first act was to believe the love of God to you when there was nothing in you that evidenced it. Go the same way again. Do not stop, my dear brothers and sisters, to pump up love out of the dry well within yourself.
 
@@ -107,8 +101,8 @@ Hear yet more of these gracious words which you will find in the third chapter o
 
 But I hear you enquiring, Will he still receive me? Shall I be once more:
 
-> To the Father's bosom pressed,
-> Once again a child confessed.
+> To the Father's bosom pressed,  
+> Once again a child confessed.  
 
 It shall be so. Does he not declare that he is God and changes not, and therefore you are not consumed? Rekindled are the flames of love in the backslider's bosom when he feels all this to be true. He cries, "Behold, we come to you, for you are the Lord our God." I pray you, then, any of you who are conscious of gross derelictions of duty, and wanderings of heart: do not ask Moses to lead you back to Christ, he knows the way to Sinai's flames, but not to Calvary's pardoning blood. Go to Christ himself at once.
 
@@ -124,9 +118,7 @@ Suppose he sees your tears and hears your prayers for him: will not this draw hi
 
 Surely, if anything will draw you back, this will. "Ah," says the wandering son, "my dear father loves me, still. I will arise and go to him. I will not vex so tender a heart. I will be his loving son again." God does not say to you prodigals, who once professed his name, "I have disowned you, I have cast you away," but he says, "I love you still. And for my name's sake will I restrain my wrath that I cut you not off." Come to your offended Father, and you shall find that he has not repented of his love, but will embrace you still.
 
-The Perfecting of Our Love to God
-
-Time fails, but I must speak for a little, time or no time, upon the fourth point: the perfecting of our love to God. Beloved, there are few of us who know much of the deeps of the love of God. Our love is shallow: ah, how shallow. Love to God is like a great mountain. The majority of travelers view it from afar, or traverse the valley at its base: a few climb to a halting place on one of its elevated spurs from where they see a portion of its sublimities. Here and there an adventurous traveler climbs a minor peak, and views glaciers and alps at closer range. Fewest of all are those who scale the topmost pinnacle and tread the virgin snow.
+The perfecting of our love to God. Time fails, but I must speak for a little, time or no time, upon the fourth point: the perfecting of our love to God. Beloved, there are few of us who know much of the deeps of the love of God. Our love is shallow: ah, how shallow. Love to God is like a great mountain. The majority of travelers view it from afar, or traverse the valley at its base: a few climb to a halting place on one of its elevated spurs from where they see a portion of its sublimities. Here and there an adventurous traveler climbs a minor peak, and views glaciers and alps at closer range. Fewest of all are those who scale the topmost pinnacle and tread the virgin snow.
 
 So in the church of God. Every Christian abides under the shadow of divine love: a few enjoy and return that love to a remarkable degree: but there are few, in this age, sadly few, who reach to seraphic love, who ascend into the hill of the Lord to stand where the eagle's eye has not seen and walk the path which the lion's whelp has never trod: the high places of complete consecration and ardent self-consuming love. Now, mark you, it may be difficult to ascend so high, but there is one sure route, and only one, which the man must follow who would gain the sacred elevation.
 
@@ -147,5 +139,3 @@ Beloved believer, does not this melt you? Does not this fire your soul? I know i
 When I have sinned he has loved me. When I have forgotten him he has loved me. And when in the days of my sin I cursed him, yet still he loved me. And he will love me when my knees tremble, and my hair is gray with age: "even to hoar hairs" he will bear and carry his servant. And he will love me when the world is on a blaze, and love me forever, and forever. Oh, chew the cud of this blessed thought. Roll it under your tongue as a dainty morsel. Sit down this afternoon, if you have leisure, and think of nothing but this: his great love wherewith he loves you.
 
 And if you do not feel your heart bubbling up with a good matter, if you do not feel your soul yearning towards God, and heaving big with strong emotions of love to God, then I am much mistaken. This is so powerful a truth, and you are so constituted as a Christian as to be wrought upon by this truth, that if it is believed and felt, the consequence must be that you will love him because he first loved you. God bless you, brethren and sisters, for Christ's sake. Amen.
-
-Portion of Scripture Read Before Sermon: John 4:1-5.

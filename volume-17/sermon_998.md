@@ -30,7 +30,7 @@ The innocent mirth of the fireside, the chaste happiness of household love: even
 Now, brethren, if God's praise has been no wilderness to you, return to it with zest and ardor, and say, "I will yet praise You more and more." If any suppose that you grow weary with the service of the Lord, tell them that his praise is such freedom, such recreation, such felicity that you desire never to cease from it. As for me, if men call God's service slavery, I desire to be such a bondslave forever and would gladly be branded with my Master's name indelibly! I would have my ear bored to the doorpost of my Lord's house, and go no more out. My soul joyfully sings:
 
 > "Let Your grace, Lord, like a fetter,  
-> Bind my wandering heart to You."
+> Bind my wandering heart to You."  
 
 This to me shall be ambition: to be more and more subservient to the divine honor. This shall be gain: to be nothing for Christ's sake. This my all in all: to praise You, my Lord, as long as I have any being.
 
@@ -54,16 +54,14 @@ Our highest conception of God falls infinitely short of his glory, but an advanc
 
 I heard of You by the hearing of the ear, but now my eyes see You: therefore while I abhor myself in dust and ashes, my praise shall rise yet more loftily! Up to your throne shall my song ascend! I did but see as it were the skirts of your garment, but you have hidden me in the cleft of the rock Christ Jesus, and made your glory pass before me! And now will I praise You even as the seraphs do, and vie with those before the throne in magnifying your name! We learn but little in Christ's school if the practical result of it all is not to make us cry, "I will yet praise You more and more."
 
-Still culling here and there a thought out of thousands, I would remind you that it is a good reason for praising God more as we are getting nearer to the place where we hope to praise him, world without end, after a perfect sort. Never have we made these walls ring more joyously than when we have united in singing of our Father's house on high, and the tents pitched:
-
-"A day's march nearer home."
+Still culling here and there a thought out of thousands, I would remind you that it is a good reason for praising God more as we are getting nearer to the place where we hope to praise him, world without end, after a perfect sort. Never have we made these walls ring more joyously than when we have united in singing of our Father's house on high, and the tents pitched: "A day's march nearer home."
 
 Heaven is indeed the only home of our souls, and we shall never feel that we have come to our rest till we have reached its mansions. One reason why we shall be able to rest in heaven is because we shall there be able perpetually to achieve the object of our creation.
 
 Am I nearer heaven? Then I will be doing more of the work which I shall do in heaven. I shall soon use the harp: let me be carefully tuning it: let me rehearse the hymns which I shall sing before the throne. For if the words in heaven shall be sweeter and more rich than any that poets can put together here, yet the essential song of heaven shall be the same as that which we present to Jehovah here below:
 
 > "They praise the Lamb in hymns above,  
-> And we in hymns below."
+> And we in hymns below."  
 
 The essence of their praise is gratitude that he should bleed: it is the essence of our praise, too. They bless Immanuel's name for undeserved favors bestowed upon unworthy ones, and we do the same.
 
@@ -144,5 +142,3 @@ But Christians, the last word shall be to you. Are you praising God more and mor
 Evidently he is one of those that draw back unto perdition, and there are no persons upon whom a more dreadful sentence is pronounced, often spoken of by Paul, and most terribly by Peter and Jude. Those "Trees twice dead, plucked up by the roots." The "wandering stars for whom is reserved the blackness of darkness forever." It would have been infinitely better for them not to have known the way of righteousness, than having known it, after a fashion, to have turned aside!
 
 Better never to have put their hand to the plow, than having done so, after a sort, to turn back from it. But, beloved, I am persuaded better things for you, and things that accompany salvation, though I thus speak. I pray that God will lead you on from strength to strength: for that is the path of the just. May you grow in grace, for life is proven by growth. May you march like pilgrims towards heaven, singing all the way. The lark may serve us as a final picture, and an example of what we all should be. We should be mounting: our prayer should be, "Nearer, my God, to you." We should be mounting: our motto might well be, "Higher! Higher! Higher!" As we mount, we should sing, and our song should grow louder, clearer, more full of heaven. Upward, brothers and sisters! Sing as you soar! Upward! Sing till you are dissolved in glory! Amen.
-
-PORTION OF SCRIPTURE READ BEFORE SERMON: Psalm 71.

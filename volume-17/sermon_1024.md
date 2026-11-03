@@ -1,7 +1,7 @@
 # Sermon 1024 | The Throne of Grace
 
-> "The throne of grace."
-> Hebrews 4:16
+> "The throne of grace."  
+> Hebrews 4:16  
 
 These words are found embedded in that gracious verse, "Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need." They are a gem in a golden setting. True prayer is an approach of the soul by the Spirit of God to the throne of God. It is not the utterance of words. It is not, alone, the feeling of desires. It is the advance of the desires to God, the spiritual approach of our nature towards the Lord our God. True prayer is not a mere mental exercise, nor a vocal performance, but it is far deeper than that. It is spiritual commerce with the Creator of heaven and earth.
 
@@ -25,8 +25,8 @@ The pride that will not acknowledge the king, the treason which rebels against t
 
 The lord alone has divine right, and to him only does the kingdom belong. He is the blessed and only potentate. They are but nominal kings, to be set up and put down at the will of men, or the decree of providence, but he is lord alone, the Prince of the kings of the earth.
 
-> "He sits on no precarious throne,
-> Nor borrows leave to be."
+> "He sits on no precarious throne,  
+> Nor borrows leave to be."  
 
 My heart, be sure that you prostrate yourself in such a presence. If he is so great, place your mouth in the dust before him, for he is the most powerful of all kings. His throne has sway in all worlds. Heaven obeys him cheerfully, hell trembles at his frown, and earth is constrained to yield him homage willingly or unwillingly.
 
@@ -46,8 +46,8 @@ If we constantly remembered this, I think we should be less inclined to push cer
 
 But, brethren, in the fourth place, if it is a throne it ought to be approached with enlarged expectations. Well does our hymn put it:
 
-> "You are coming to a king,
-> Large petitions with you bring."
+> "You are coming to a king,  
+> Large petitions with you bring."  
 
 We do not come, as it were, in prayer only to God's almonry where he dispenses his favours to the poor. Nor do we come to the back door of the house of mercy to receive the broken scraps, though that were more than we deserve. To eat the crumbs that fall from the master's table is more than we could claim. But when we pray, we are standing in the palace, on the glittering floor of the great king's own reception room, and thus we are placed upon a vantage ground. In prayer we stand where angels bow with veiled faces. There, even there, the cherubim and seraphim adore before that same throne to which our prayers ascend.
 
@@ -73,10 +73,10 @@ Lest the glow and brilliance of the word "throne" should be too much for mortal 
 
 O you self-righteous ones who hope that you can obey the law, and think that you can be saved by it, look to the flames that Moses saw, and shrink, and tremble, and despair. To that throne we do not come now, for through Jesus the case is changed. To a conscience purged by the precious blood there is no anger upon the divine throne, though to our troubled minds:
 
-> "Once it was a seat of burning wrath,
-> And shot devouring flames.
-> Our God appeared a consuming fire,
-> And jealous was his name."
+> "Once it was a seat of burning wrath,  
+> And shot devouring flames.  
+> Our God appeared a consuming fire,  
+> And jealous was his name."  
 
 And, blessed be God, we are not this morning to speak of the throne of ultimate justice. Before that we shall all come, and as many of us as have believed will find it to be a throne of grace as well as of justice, for he who sits upon that throne shall pronounce no sentence of condemnation against the man who is justified by faith.
 
@@ -140,27 +140,9 @@ And once more, and sweetest thought of all, every covenant promise has been endo
 
 The covenant is ratified with blood, the blood of his own dear son. It is not possible that we can plead in vain with God when we plead the blood-sealed covenant, ordered in all things and sure. Heaven and earth shall pass away, but the power of the blood of Jesus with God can never fail. It speaks when we are silent, and it prevails when we are defeated. Better things than that of Abel does it ask for, and its cry is heard. Let us come boldly, for we bear the promise in our hearts. When we feel alarmed because of the sovereignty of God, let us cheerfully sing:
 
-> "The gospel bears my spirit up,
-> A faithful and unchanging God
-> Lays the foundation for my hope
-> In oaths, and promises, and blood."
+> "The gospel bears my spirit up,  
+> A faithful and unchanging God  
+> Lays the foundation for my hope  
+> In oaths, and promises, and blood."  
 
 May God the Holy Spirit help us to use aright from this time forward "the throne of grace." Amen.
-
-Rome, Dec. 7, 1871
-
-TO MY BELOVED CHURCH AND FRIENDS IN GENERAL
-
-Beloved in the Lord, having felt it to be my duty to leave England for a short time to prevent a return of my former complaint, I am bound gratefully to acknowledge the good hand of the Lord upon me during my short sojourn abroad. I hope to return in a brief season, so strengthened as to continue to labour on for a considerable period without another pause. I take this opportunity of thanking my affectionate church and kind friends for their innumerable acts of generous sympathy, in aiding our College and Orphanage, and especially for those many prayers which were turned to my comfort and healing in my late illness, and are the means of my upholding in my ever-growing service for the Lord.
-
-The Lord return into their bosoms a thousand-fold the good which faithful friends have implored for me, and make me far more than ever the means of blessing to them by my ministry. Just now I implore a renewal of those prayers with increased earnestness, for a revival of religion is greatly needed. And it would be a sure evidence of its speedy coming if believers united in prayer for it. Already the flame is kindled at the Tabernacle, but it needs to be fanned into a mighty conflagration.
-
-Our country requires a divine visitation, and the promise of it only needs to be pleaded to be fulfilled. Brethren, as one man, cry mightily to the God of our Lord Jesus Christ, the Father of glory, beseeching him to put his hand to the work, and magnify his son in the eyes of all the people. Standing where Satan's seat is, in the midst of ten thousand idols, I beseech those who worship God in the spirit to wrestle in prayer for times of refreshing, that all lands may know that Jesus Christ is Lord.
-
-How long shall the name of Jesus be blasphemed by the idolatries of Antichrist. It may be that the times of darkness will last till the children of light cry out bitterly, day and night, by reason of soul anguish. Then will God avenge his own elect, and that speedily. As I have trodden the Appian way I have rejoiced that Jesus, whom Paul preached, is yet alive, and is certain in due season to put down his enemies. Already he has desolated the Colosseum where his faithful martyrs poured forth their blood. The pagan power has fallen, and so also shall the papal, and all others which opposes his kingdom.
-
-Let us proclaim a spiritual crusade, and set up our banners by redoubled prayer. It is certain that supplication produces marvelous results in heaven and earth. Its power is proven in our own personal experience, and throughout the history of the church. Brethren, LET US PRAY.
-
-Yours, for Jesus' sake,
-
-H. Spurgeon

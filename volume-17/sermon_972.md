@@ -1,7 +1,7 @@
 # Sermon 972 | New Uses for Old Trophies
 
-> "King David's spears and shields, that were in the temple of the Lord."
-> 2 Kings 11:10
+> "King David's spears and shields, that were in the temple of the Lord."  
+> 2 Kings 11:10  
 
 When David had fought with an adversary, and overcome him, he took away his armor and his weapons, and as other victorious heroes were likely to do, he bore them home as mementoes of his prowess, the trophies of the battle. These were placed in the house of the Lord. Perhaps David, at the same time, dedicated in like manner the shield and the sword which he had himself used in battle. After Solomon had built the temple, these trophies, which seem to have been very numerous, were hung up there. So they adorned the walls. So they illustrated the valor of noble sires. So they served to kindle emulation, I doubt not, in the breasts of true-hearted sons.
 
@@ -13,11 +13,11 @@ When Athaliah came in and saw the young king surrounded by his bodyguard, and st
 
 The matter I shall speak to you about tonight will lie under four heads. We will give them to you as they occur to us. And the first is this: it is well for us to hang all our trophies in the house of the Lord. We, too, are warriors. Every genuine Christian has to fight. Every inch of the way between here and heaven we shall have to fight, as up to now every single step of our pilgrimage has been one prolonged conflict. Sometimes we have victories, a presage of that final victory, that perfect triumph we shall enjoy with our Great Captain forever.
 
-> Oh, I have seen the day
-> When with a single word,
-> God helping me to say 'My trust is in the Lord,'
-> My soul has quelled a thousand foes,
-> Fearless of all that could oppose.
+> Oh, I have seen the day  
+> When with a single word,  
+> God helping me to say 'My trust is in the Lord,'  
+> My soul has quelled a thousand foes,  
+> Fearless of all that could oppose.  
 
 When we have these victories it behooves us to be especially careful that in all good conscience we hang up the trophies in the house of the Lord. The reason for this lies here: it is to the Lord that we owe any success we have ever achieved. We have been defeated when we have gone in our own strength. But when we have been victorious it has always been because the strength of the Lord was put forth for our deliverance. You never fought with a sin, with a temptation, or with a doubt and overthrew it, except by the Spirit's aid. You never won a soul for Jesus, you never spoke a valiant word that repelled an error, you never did an enterprising deed which really told well for the success of the kingdom, but God was in it all; virtually, no, actually enabling you.
 
@@ -135,16 +135,12 @@ I came just now, before I entered here, from a sight which did my very soul good
 
 I said to her, "How long is it since the cloud has broken away from you?" She said, "I have had a good deal of peace of mind, but never such joy as I have now. Now that I am going where I shall soon see his face without a veil between." The victories of dying spirits substantiate the gospel. When Christian people have no motive to overrate their assurance, and certainly no inducement to play the hypocrite. When they have nothing in their present sensations to inspire courage, raise enthusiasm, or buoy them up with suspicious comfort; for heart and flesh fail; there is much to admire in their constancy, much to animate us in their faith:
 
-> Our dying friends are pioneers to smooth
-> Our rugged path to death, to break those bars
-> Of terror and abhorrence Nature throws
-> Across our obstructed way, and thus to make
-> Welcome, as safe, our port from every storm.
+> Our dying friends are pioneers to smooth  
+> Our rugged path to death, to break those bars  
+> Of terror and abhorrence Nature throws  
+> Across our obstructed way, and thus to make  
+> Welcome, as safe, our port from every storm.  
 
 When you can see the eye, soon to be closed, sparkling with ecstasy, and hear the voice feeble because the throat is choking, as brave, and braver still than ever it has been before. And when you mark the look of deep composure, no, of heavenly expectancy, upon the pale, pale face; oh, this makes our soul, my brethren, to feel that we have a faith that is worth prizing; a Christ that is worth trusting! These are trophies!
 
 And these deathbed trophies are hung up in that part of the temple where we can see them. Let us take care that we have good confidence, always walking by faith; whether the path of our pilgrimage is rough or smooth. And let us be ever maintaining the fight of faith, however fierce our temptations or fiery our trials. So when we come to die we may hang up our trophies, too, saying to death and hell that we bid them defiance, for Christ is with us to the last, making our dark moments to be bright with the light of his presence. God grant that all of us may be trophies of Christ, and hung up thus as memorials forever. Amen.
-
-Portion of Scripture Read Before Sermon; Psalm 72
-
-New work by C. H. Spurgeon; second edition, price 2s. "Feathers for Arrows;" or, "Illustrations for Preachers and Teachers, from My Note Book." Designed to hit, and marvelously calculated to accomplish the purpose. We forbear to make a single quotation, but urge our readers to procure the book; "The Watchman. "A new supply of illustrations remarkable for freshness and force, and robustness. To men who lack imagination the book will prove a stimulus of no common kind, partly by supplying material, but chiefly by suggesting the manifold ways in which the events of daily life may illustrate, and enforce the teaching of the Bible; "General Baptist Magazine.

@@ -1,7 +1,7 @@
 # Sermon 1022 | Sleep Not
 
 > "Let us not sleep, as do others."  
-> 1 Thessalonians 5:6.
+> 1 Thessalonians 5:6.  
 
 We do not usually sleep towards the things of this world. We rise up early, and sit up late, and eat the bread of carefulness for Mammon's sake. In this age of competition, most men are wide enough awake for their temporal interests. But so is it, partly through our being in this body, and partly through our dwelling in a sinful world, that we are all of us very apt to sleep concerning the interests of our souls. We drive like Jehu for this present world, but loiter for the world to come. Nothing so much concerns us as eternity, and yet nothing so little affects us. We work for the present world, and we play with the world to come.
 
@@ -22,7 +22,7 @@ Quaint old Quarles long ago likened us to roebucks as to the earth, and snails a
 > When our dull souls direct our thoughts to you,  
 > As slow as snails are we.  
 > But at the earth we dart our winged desire,  
-> We burn, we burn like fire!"
+> We burn, we burn like fire!"  
 
 A piece of news about a fire in another continent makes a sensation in all our homes, but the fire that never shall be quenched is heard of almost without emotion. The discovery of a gold-field will affect half the markets in the world, and send a thrill through the public pulse. But when we speak of that blessed city where the streets are of gold, how coolly men take it all, regarding it as though it were a pretty fiction, and as if only the things which are seen were worthy of their notice. We sleep when heavenly things and eternal things are before us. Alas, that it should be so.
 
@@ -53,7 +53,7 @@ Brethren, "let us not sleep, as do others." If it is true that the Christian chu
 > Bend over us now, as over them  
 > And set our sleep-bound spirits free.  
 > Nor leave us slumbering in the watch  
-> Our souls should keep with you!"
+> Our souls should keep with you!"  
 
 A second picture we select from that portion of the inspired pages which tell us of Samson. Let us not sleep as that ancient Hebrew hero did, who, while he slept, lost his locks, lost his strength and by-and-by lost his liberty, lost his eyes, and ultimately lost his life. I have spoken under the first head of our slumbering in respect to others, but here I come to ourselves. In our slumbering with respect to ourselves, Samson is the sad picture of many professors. We are about to sketch a portrait of one whom we knew in years gone by. He was "strong in the Lord, and in the power of his might." Years ago, the man we picture, and it is no fancy portrait for we have seen many such, when the Spirit of the Lord came upon him, did mighty things. And we looked on and wondered, yes, we envied him, and we said, "Would God we had an hour of such strength as has fallen upon him." He was the leader among the weak, and often infused courage into faint hearts. But where is he now? All our Israel knew him, for his name was a tower of strength. And our enemies knew him, too, for he was a valiant man in battle.
 
@@ -62,7 +62,7 @@ Where is this hero now? We hear little of him now in the fields of service where
 It is our loss and his peril that he has allowed himself to fall into such a drowsy condition. O that we could bestir him:
 
 > Break his bonds of sleep asunder  
-> Rouse him with a peal of thunder.
+> Rouse him with a peal of thunder.  
 
 Alas, carnal security is always a Delilah. It gives us many a dainty kiss, and lulls us into tranquil slumbers which we imagine to be God's own peace, whereas the peace of fascination and of satanic enchantment is upon us. Yes, we have seen the good man, we could not doubt that he had been both good and great, yet we have seen him lying asleep. And, perhaps, some of us who have never been so distinguished or done so much, though, nevertheless, in our own small way we have done something for God, and yet we, too, lie in Delilah's lap.
 
@@ -145,7 +145,7 @@ Or, as Christ puts it in the parable, there has come one into the vineyard who h
 > But grace so dearly bought  
 > If yet you will despise,  
 > Your fearful doom with vengeance fraught,  
-> Will fill you with surprise."
+> Will fill you with surprise."  
 
 The last picture is this (may it never be seen in you): there went once into a tent, which he thought to be friendly, a mighty man who had fought a battle and lost the day. Hot of foot and full of fear, Sisera came into the tent of Jael to ask for water, and she gave him milk. She brought forth butter in a lordly dish. He drank, and then, all weary, he threw himself along in the tent. He is a photograph of many ungodly men who have gone where they thought they had friends. For sinners think sinners their friends, and think sin their friend, and they have asked for pleasure, and they have had it. And, now, after having had their fill, and eaten butter in a lordly dish, they are tonight in contentment, sleeping in supposed security. They have gone into the house of the evil one to find pleasure, and they are going there again tonight, and they will continue there, and try to find rest in the house of their enemies. Sometimes it is the house of the strange woman. Often it is the settle of the drunkard, or the chair of the scorner, where men think to rest in peace. Oh, hark you, man, and beware! Fly from the ways of the destroyer; fly from the haunt of the strange woman, as for your very life!
 
@@ -156,10 +156,9 @@ And I think I am warning someone tonight of whom, if he turns not, it will soon 
 Some of you tonight are like Lot and his daughters in the burning city. You must flee. You must flee at once out of Sodom or you will perish in it. Behold, we would put our hand upon you tonight, and press you to flee, the Lord being merciful unto you. His servants and his Spirit constrain you to make haste. Linger not! Look not back! Hesitate not! To your knees! To your knees! "Seek the Lord while he may be found! Call upon him while he is near." To the cross! To the cross! There is your shelter, the mountain where the only refuge can be found from the vengeance of God. Behold the wounds of Jesus, God's Beloved Son given for the guilty, slaughtered for the sinful:
 
 > "There is life in a look at the crucified one!  
-> There is life at this moment for you!"
+> There is life at this moment for you!"  
 
-and for all who look. But it may be that if this night you look not to Jesus, His Cross may never appear before your eyes again, for they will be sealed in death. Before long, Jael's tent pin shall have passed through Sisera's skull; the sin shall have destroyed the sinner; the sin that is unto death shall have shut up the spirit in despair. Oh, may God, who is mighty to save, turn you to Himself at this moment!
+And for all who look. But it may be that if this night you look not to Jesus, His Cross may never appear before your eyes again, for they will be sealed in death. Before long, Jael's tent pin shall have passed through Sisera's skull; the sin shall have destroyed the sinner; the sin that is unto death shall have shut up the spirit in despair. Oh, may God, who is mighty to save, turn you to Himself at this moment!
 
 "Sound the trumpet in Zion: sound an alarm in my holy mountain," seems to ring in my ears. And I would gladly sound that alarm to God's saints, and to sinners, too. May He call many by His grace, and awaken us all. And His shall be the glory forever and ever! Amen.
 
-Portion of scripture read before sermon: 1 Thessalonians 5.

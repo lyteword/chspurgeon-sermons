@@ -36,7 +36,7 @@ It is to be feared that most men imagine that in Christ there is only seriousnes
 > Down from above the Blessed Dove  
 > Has come into my breast,  
 > To witness His eternal love,  
-> And give my spirit rest."
+> And give my spirit rest."  
 
 Let our joy be living water from those sacred wells which the Lord Himself has dug. May His joy abide in us, that our joy may be full. Of Christ's joy we cannot have too much. No fear of running to excess when His love is the wine we drink. Oh to be plunged in this pure stream of spiritual delights! But why is it that the coming of Christ into the world is the occasion of joy? The answer is as follows: First, because it is evermore a joyous fact that God should be in alliance with man, especially when the alliance is so near that God should in very deed take our manhood into union with His Godhead, so that God and man should constitute one Divine, mysterious Person.
 
@@ -53,7 +53,7 @@ If Sinai smokes when the Law is proclaimed, the earth itself shall melt when the
 > "'Twas mercy filled the Throne,  
 > And wrath stood silent by,  
 > When Christ on the kind errand came  
-> To sinners doomed to die."
+> To sinners doomed to die."  
 
 Rejoice, you who feel that you are lost. Your Savior comes to seek and save you! Be of good cheer you who are in prison, for He comes to set you free. You who are famished and ready to die, rejoice that He has consecrated for you a Bethlehem, a house of bread, and He has come to be the Bread of Life to your souls. Rejoice, O sinners everywhere, for the Restorer of the castaways, the Savior of the fallen is born! Join in the joy, you saints, for He is the Preserver of the saved ones, delivering them from innumerable perils, and He is the sure Perfecter of such as He preserves. Jesus is no partial Savior, beginning a work and not concluding it, no, restoring and upholding, He also prefects and presents the saved ones without spot or wrinkle, or any such thing before His Father's Throne. Rejoice aloud all you people, let your hills and valleys ring with joy, for a Savior who is mighty to save is born among you!
 
@@ -112,7 +112,7 @@ The joy of a nation is a golden sand over which no stream of blood has ever ripp
 > Pass Babel quick, and seek the holy land.  
 > From robes of Tyrian dye,  
 > Turn with undazzled eye  
-> To Bethlehem's glade, and by the manger stand."
+> To Bethlehem's glade, and by the manger stand."  
 
 Alas, the nations are dazzled with a vain show. The pomp of empires, the pageants of kings are their delight. How can they admire those gaudy courts in which too often glorious apparel, decorations, and rank stand in the place of virtue, chastity, and the Truth of God? When will the people cease to be children? Must they forever crave for martial music which stimulates violence, and delight in a lavish expenditure which burdens them with taxation? These make not a nation great or joyous. Bah! How has the bubble burst across yonder narrow sea. A bubble empire has collapsed. Ten thousand bayonets and millions of gold proved but a sandy foundation for a Babel throne. Vain are the men who look for joy in pomp. It lies in truth and righteousness, in peace and salvation, of which yonder new-born Prince in the garments of a peasant child is the true symbol.
 

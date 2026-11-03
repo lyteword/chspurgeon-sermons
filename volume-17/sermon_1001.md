@@ -1,7 +1,7 @@
 # Sermon 1001 | Altogether Lovely
 
 > "Yes, he is altogether lovely."  
-> Song of Solomon 5:16.
+> Song of Solomon 5:16.  
 
 When the old Puritan minister had delivered his discourse, and dwelt upon firstly, and secondly, and thirdly, and perhaps upon twenty-fifthly, before he sat down, he usually gave a comprehensive summary of all that he had spoken. Everyone who carefully noted the summary would carry away the essence of the sermon. The summary was always looked upon by the Puritan hearer as one of the most valuable helps to memory, and consequently a most important part of the discourse.
 
@@ -20,7 +20,7 @@ Better to have a glimpse of Jesus, than to see all the glory of the earth all th
 This verse has been translated in another way: "He is all desires." And so, indeed, Jesus is. He was the desire of the ancients. He is the desire of all nations still. To his own people he is their all in all. They are complete in him. They are filled out of his fullness:
 
 > "All our capacious powers can wish,  
-> In him does richly meet."
+> In him does richly meet."  
 
 He is the delight of his servants, and fills their expectations to the full. But we will not dispute about translations, for, after all, with such a text, so full of unutterable spiritual sweetness, every man must be his own translator, and into his own soul must the power of the message come, by the enforcement of the Holy Spirit.
 
@@ -71,7 +71,7 @@ Now, if the soul has come to look at the mere trifles of this world as all-impor
 He has acquired the wisdom of years and the stability of experience. O soul, if you are great, Christ will be little! You can never see him on the throne until you have been on the dunghill yourself. If you are anything, so much the less is Christ. For if he is all in all, then there is no room for anything else; and if you are something, you have stolen just so much from the glory of your Lord Jesus! Lie low in the dust, it is the place for you:
 
 > "The more your glories strike my eyes,  
-> The humbler I shall lie."
+> The humbler I shall lie."  
 
 The humbler I am in myself, the more shall I be capable of seeing the enchanting beauties of Christ. Let me just say these two or three words. I believe those are the happiest saints who are most overwhelmed with a sense of the greatness, goodness, and preciousness of Christ.
 
@@ -144,7 +144,3 @@ At any rate, let this sweet thought reach you. You need not be afraid to come to
 Think of what he is doing. He is pleading before the throne of God for sinners! Think of what he is giving at this moment; he is exalted on high to give repentance and remission of sins. Is not this lovely? Under every aspect Christ Jesus is attractive to sinners who need him. Come, then! Come and welcome! There is nothing to keep you away; there is everything to bid you come!
 
 May this very Sunday in which I have preached Christ, and lifted him up, be the day in which you shall be drawn to him, never again to leave him, but to be his forever and forever. Amen.
-
-Portion of Scripture Read Before Sermon: Song of Solomon 5.
-
-Mr. Spurgeon begs earnestly to thank a friend, who desires to be anonymous, for £500 towards buildings for the Pastors' College, to commemorate the thousandth sermon, as also Mr. Thomas Ness for £10, and a sermon-reader for a guinea. This last donor believes that at least a thousand readers might send a guinea each at once, to celebrate the occasion, and to aid in erecting rooms in which preachers would be trained, whose theme would be the gospel of Jesus. Mr. Spurgeon is thankful for the timely aid. Some £3,000 more will probably be required for the buildings.

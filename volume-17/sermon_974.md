@@ -1,7 +1,7 @@
 # Sermon 974 | Compassion for Souls
 
-> "She went, and sat her down over against him a good way off, as it were a bowshot. For she said, Let me not see the death of the child. And she sat over against him, and lift up her voice, and wept."
-> Genesis 21:16.
+> "She went, and sat her down over against him a good way off, as it were a bowshot. For she said, Let me not see the death of the child. And she sat over against him, and lift up her voice, and wept."  
+> Genesis 21:16.  
 
 Briefly let us rehearse the circumstances. The child Isaac was, according to God's Word, to be the heir of Abraham. Ishmael, the elder son of Abraham, by the bondwoman Hagar, resided at home with his father till he was about eighteen years of age. But when he began to mock and scoff at the younger child whom God had ordained to be the heir, it became necessary that he and his mother should be sent away from Abraham's encampment. It might have seemed unkind and heartless to have sent them forth, but God, having arranged to provide for them, sent a divine command which at once rendered their expulsion necessary, and certified its success.
 
@@ -49,10 +49,10 @@ Oh, I would to God there should come upon us a Divine hunger which cannot stay i
 
 Deep feeling on your part for others shall make others feel for themselves, and God shall bless you, and that right early. But I stand not here any longer to justify what I would far rather commend and personally feel:
 
-> "Did Christ over sinners weep,
-> And shall our cheeks be dry?
-> Let floods of consecrated grief
-> Stream forth from every eye."
+> "Did Christ over sinners weep,  
+> And shall our cheeks be dry?  
+> Let floods of consecrated grief  
+> Stream forth from every eye."  
 
 Is God all love, and shall God's children be hard and cold? Shall Heaven be compassionate and shall not earth that has received His mercy send back the echo of compassion? O God, make us imitators of You in Your pity towards erring men!
 
@@ -145,5 +145,3 @@ The lad was preserved, after all. The well of waters was revealed, and the bottl
 I do not know how to preach this morning. The tongue cannot readily speak when the heart feels too much. I pray that we may have a great revival of religion in our midst as a Church. My spirit longs and pants for it. I see a great engine of enormous strength, and a well-fashioned machine, the machine cannot work by itself, it has no power in it. But if I could get the belt to unite the machine with the engine, what might be done!?
 
 Behold, I see the Omnipotence of God, and the organization of this Church. O that I could get the belt to bind the two together! The belt is living faith. Do you possess it? Brethren, help me to pass it round the fly wheel, and oh, how God will work, and we will work through His power, and what glorious things shall be done for Christ! We must receive power from on High, and faith is the belt that shall convey that power to us. The Divine strength shall be manifest through our weakness. Cease not to pray! More than you ever have done, intercede for a blessing, and the Lord will bless us, He will bless us, and all the ends of the earth shall fear Him. Amen.
-
-Portions of Scripture read before sermon, Romans 10. And Genesis 21:1-21.

@@ -46,7 +46,7 @@ The convincing work of the Spirit, wherever it comes, is unexpected, and even to
 > Instead of this, he made me feel   
 > The hidden evils of my heart.   
 > And let the angry powers of hell   
-> Assault my soul in every part."
+> Assault my soul in every part."  
 
 Ah, marvel not, for thus the Lord is likely to answer his people. The voice which says, "Comfort you, comfort you my people," achieves its purpose by first making them hear the cry, "All flesh is grass, and all the goodliness thereof is as the flower of the field."
 
@@ -137,5 +137,3 @@ May God, the ever-blessed Spirit, visit you. If he is now striving with you, O q
 Above all, remember what the quickening seed is, and reverence it when you hear it preached, "for this is the Word which by the gospel is preached unto you." Respect it, and receive it. Remember that the quickening seed is all wrapped up in this sentence: "Believe in the Lord Jesus Christ, and you shall be saved." "He that believes and is baptized shall be saved. But he that believes not shall be damned."
 
 The Lord bless you, for Jesus' sake. Amen.
-
-Portions of scripture read before sermon: Isaiah 40:1-11; Luke 3:1-17; 1 Peter 1:17-25.

@@ -1,7 +1,7 @@
 # Sermon 1005 | Lessons From Nature
 
-> "Where the birds make their nests: as for the stork, the fir trees are her house. The high hills are a refuge for the wild goats, and the rooks for the conies."
-> Psalm 104:17, 18.
+> "Where the birds make their nests: as for the stork, the fir trees are her house. The high hills are a refuge for the wild goats, and the rooks for the conies."  
+> Psalm 104:17, 18.  
 
 This Psalm is all through a song of nature, the adoration of God in the great outward temple of the universe. Some in these modern times have thought it to be a mark of high spirituality never to observe nature. And I remember sorrowfully reading the expressions of a godly person, who, in sailing down one of the most famous rivers in the world, closed his eyes, lest the picturesque beauties of the scene should divert his mind from scriptural topics. This may be regarded by some as profound spirituality; to me it seems to savor of absurdity!
 
@@ -128,5 +128,3 @@ There is never any deliberation about, "May we build here?" They bring their sti
 No inspired word has ever said to the cony, "Whoever runs into this rock-cleft shall never be driven out of it." If it had been so, it would make assurance doubly sure. And yet here is Christ, provided for sinners; just the sort of a Savior sinners need, and the encouragement is added, "He that comes unto me I will in no wise cast out." "Whoever will, let him come, and take the water of life freely."
 
 O dear brethren and sisters, do not be standing out against the generosity of a sin-pardoning God who bids the sinner come and welcome. Come, believe in Jesus, and find salvation now. O that you would come; it is what God has provided for your wants. Come, take it, for he bids you come. "The Spirit and the bride say come; and whoever will, let him come and take the water of life freely." To believe is to trust Jesus, to trust his suffering, to trust his atonement, and rely upon him alone for salvation. May God enable you to do it for Christ's sake. Amen.
-
-Portion of scripture read before sermon: Psalm 104.

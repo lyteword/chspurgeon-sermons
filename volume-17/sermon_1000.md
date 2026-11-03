@@ -1,7 +1,7 @@
 # Sermon 1000 | Number One Thousand; Or, "Bread Enough and To Spare"
 
-> "And when he came to himself, he said, How many hired servants of my father's have bread enough and to spare, and I perish with hunger!"
-> Luke 15:17
+> "And when he came to himself, he said, How many hired servants of my father's have bread enough and to spare, and I perish with hunger!"  
+> Luke 15:17  
 
 "He came to himself." The word may be applied to one waking out of a deep swoon. He had been unconscious of his true condition, and he had lost all power to deliver himself from it. But now he was coming round again, returning to consciousness and action. The voice which shall awaken the dead aroused him. The visions of his sinful trance all disappeared, his foul but fascinating dreams were gone. He came to himself. Or the word may be applied to one recovering from insanity. The prodigal son had played the madman, for sin is madness of the worst kind. He had been demented, he had put bitter for sweet and sweet for bitter, darkness for light, and light for darkness. He had injured himself, and had done for his soul what those possessed of devils in our Savior's time did for their bodies, when they wounded themselves with stones, and cut themselves with knives. The insane man does not know himself to be insane. But as soon as he comes to himself he painfully perceives the state from which he is escaping. Returning then to true reason and sound judgment, the prodigal came to himself.
 
@@ -37,14 +37,14 @@ But now let me lead you to another point of solemnly joyful consideration, and t
 
 A few rapid sentences upon other things, which will go to show still further the greatness of the provision of Divine Mercy. Observe well that throughout all the ages God has been sending one prophet after another, and these prophets have been succeeded by apostles, and these by martyrs and confessors, and pastors and evangelists, and teachers. All these have been commissioned by the Lord in regular succession. And what has been the message they have had to deliver? They have all pointed to Christ, the great Deliverer. Moses and the prophets all spoke of Him, and so have all truly God-sent ambassadors. Do you think, sinner, that God has made all this fuss about a trifle? Has He sent all these servants to call you to a table insufficiently furnished? Has He multiplied His invitations through so long a time to bid you and others come to a provision which is not, after all, sufficient for them? Oh, it cannot be! God is not mocked. Neither does He mock poor needy souls. The stores of His mercy are sufficient for the utmost emergencies.
 
-> Rivers of love and mercy here
-> In a rich ocean join.
-> Salvation in abundance flows,
-> Like floods of milk and wine.
-> Great God, the treasures of Thy love
-> Are everlasting mines,
-> Deep as our helpless miseries are,
-> And boundless as our sins.
+> Rivers of love and mercy here  
+> In a rich ocean join.  
+> Salvation in abundance flows,  
+> Like floods of milk and wine.  
+> Great God, the treasures of Thy love  
+> Are everlasting mines,  
+> Deep as our helpless miseries are,  
+> And boundless as our sins.  
 
 Recollect, again, that God has been pleased to stake His honor upon the gospel. Men desire a name, and God also is jealous of His Glory. Now, what has God been pleased to select for His name? Is it not the conversion and salvation of men? When instead of the brier shall come up the myrtle-tree, and instead of the thorn shall come up the fir-tree, it shall be to the Lord for a name, for an everlasting sign that shall not be cut off. And do you think God will get a name by saving little sinners by a little Savior? Ah, His great name comes from washing out stains as black as hell, and pardoning sinners who were foulest of the foul. Is there one monstrous rebel here who is qualified to glorify God greatly, because his salvation will be the wonder of angels and the amazement of devils? I hope there is. O you most degraded, black, loathsome sinner, nearest to being a damned sinner, if this voice can reach you, I challenge you to come and prove whether God's mercy is not a match for your sin!
 
@@ -76,8 +76,8 @@ You say, "I am afraid to come to Christ." Is that wise? I have heard of a poor n
 
 Besides, you have His Word for it, for He says, "Him that cometh to Me I will in no wise cast out," for no reason, and in no way, and on no occasion, and under no presence, and for no motive. "I will not cast him out," says the original. "Him that cometh to Me I will in no wise cast out." You say it is too good to be true that there can be pardon for you. This is a foolish measuring of God's corn with your bushel. Because it seems too good a thing for you to receive, do you fancy it is too good for God to bestow? Let the greatness of the Good News be one reason for believing that the news is true, for it is so like God.
 
-> Who is a pardoning God like Thee?
-> Or who hath Grace so rich and free?
+> Who is a pardoning God like Thee?  
+> Or who hath Grace so rich and free?  
 
 Because the gospel assures us that He forgives great sins through a great Savior, it looks as if it were true, since He is so great a God.
 
@@ -94,5 +94,3 @@ I shall close with this remark, because it will act as a sort of caveat, and be 
 "Your damnation is just." It is the Word of Inspiration, and the only one I know that is applicable to such as you are. But every needy, guilty soul that desires a Savior is told today to believe in Jesus, that is, trust in the Substitution and Sacrifice of Christ. Trust Him to take your sin and blot it out. Trust Him to take your soul and save it. Trust Christ entirely, and you are forgiven this very moment. You are saved this very instant, and you may rejoice now in the fact that being justified by faith, you have peace with God through Jesus Christ our Lord. O come. Come. Come. Come and welcome. Come now to the Redeemer's blood. Holy Spirit, compel them to come in, that the House of Mercy may be filled. Amen and Amen.
 
 The reader, if a believer in Christ, is requested to unite with the preacher in praising the Lord for Grace abundantly given in connection with these sermons. This is the thousandth of the series of sermons which we have published consecutively week by week, and of which the circulation has continued to increase. These discourses have, many of them, been reprinted in the United States and have also been translated into German, French, Swedish, Dutch, Italian, and Welsh. Some of them have also been issued in the Hungarian, Russian, Danish, Spanish, Telugu, Malagasay, Maori, and Gaelic tongues. Of their effect by the blessing of God's Spirit, thousands in heaven, and in all parts of the earth, are joyful witnesses. If we did not praise God for such mercy the stones would cry out.
-
-[And almost to the day, 130 years later, this request from the editor: if you or someone you know has come, by His Grace, to a saving knowledge of our Master, Jesus Christ, from reading this or any of Brother Spurgeon's sermons in this "modern English" format, please let the person or ministry where you got this sermon know, so they may rejoice with you and praise our God for His amazing Grace.]

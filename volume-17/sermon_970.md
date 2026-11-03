@@ -1,7 +1,7 @@
 # Sermon 970 | The Lost Silver Piece
 
-> "Either what woman having ten pieces of silver, if she lose one piece, does not light a candle, and sweep the house, and seek diligently till she finds it? And when she has found it, she calls her friends and her neighbors together, saying, Rejoice with me, for I have found the piece which I had lost. Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repents."
-> Luke 15:8-10
+> "Either what woman having ten pieces of silver, if she lose one piece, does not light a candle, and sweep the house, and seek diligently till she finds it? And when she has found it, she calls her friends and her neighbors together, saying, Rejoice with me, for I have found the piece which I had lost. Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repents."  
+> Luke 15:8-10  
 
 This chapter is full of grace and truth. Its three consecutive parables have been thought to be merely a repetition of the same doctrine under different metaphors, and if that were so, the truth which it teaches is so important that it could not be rehearsed too often in our hearing. Moreover, it is one which we are apt to forget, and it is well to have it again and again impressed upon our minds. The truth here taught is just this: that mercy stretches forth her hand to misery, that grace receives men as sinners, that it deals with demerit, unworthiness, and worthlessness; that those who think themselves righteous are not the objects of divine compassion, but the unrighteous, the guilty, and the undeserving, are the proper subjects for the infinite mercy of God; in a word, that salvation is not of merit but of grace. This truth I say is most important, for it encourages penitents to return to their Father; but it is very apt to be forgotten, for even those who are saved by grace too often fall into the spirit of the elder brother, and speak as if, after all, their salvation depended on the works of the law.
 
@@ -156,5 +156,3 @@ The practical lesson to the unconverted is just this. Dear friend, see what valu
 See, again, how false that suspicion of yours is that you will not be welcome if you come to Christ. Welcome! Welcome! Why, the church is searching for you! The Spirit of God is searching for you. Do not talk of welcome; you will be a great deal more than welcome! Oh, how glad will Christ be, and the Spirit be, and the church be, to receive you! Ah, but you complain that you have done nothing to make you fit for mercy. Talk not so; what had the lost piece of money done? What could it do?
 
 It was lost and helpless. They who sought it did all. He who seeks you will do all for you. O poor soul, since Christ now bids you come, come! If his Spirit draws you, yield! Since the promise now speaks, "Come now, and let us reason together: though your sins are as scarlet, they shall be as white as snow. Though they are red like crimson, they shall be as wool," accept the promise! Believe in Jesus. God bless you and save you, for Jesus' sake. Amen.
-
-Portions of Scripture read before sermon: Psalm 126 and Luke 15
