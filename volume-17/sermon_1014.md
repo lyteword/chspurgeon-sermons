@@ -1,7 +1,7 @@
 # Sermon 1014 | "Nunc Dimittis"
 
-> "Lord, now let You Your servant depart in peace, according to Your Word: for my eyes have seen Your salvation." 
-> Luke 2:29-30. 
+> "Lord, now let You Your servant depart in peace, according to Your Word: for my eyes have seen Your salvation."   
+> Luke 2:29-30.   
 
 Blessed were you, O simeon, for flesh and blood had not revealed this to you; neither had it enabled you so cheerfully to bid the world farewell. The flesh clings to the earth; it is dust, and owes allegiance to the ground out of which it was taken. It loathes to part from mother earth. Even old age, with its infirmities, does not make men really willing to depart out of this world. By nature we hold to life with a terrible tenacity, and even when we sigh over the evils of life, and repine concerning its ills, and fancy that we wish ourselves away, it is probable that our readiness to depart lies only upon the surface. Down deep in our hearts we have no will to go.
 
@@ -21,10 +21,10 @@ Moreover, believers already enjoy peace as much as ever simeon did. No man can d
 
 We are now led in the paths of peace. We walk the King's highway, of which it is written, "no lion shall be there." We are led beside the still waters, and made to lie down in green pastures. We feel no slavish fear of God, though He is "a consuming fire" even to us. We tremble no longer to approach into His Presence, who deigns to be our Father. The precious blood upon the Mercy Seat has made it a safe place for us to resort at all times. Boldness has taken the place of trembling. The Throne of God is our rejoicing, though once it was our terror:
 
-> "Once 'twas a seat of dreadful wrath,
-> And shot devouring flames.
-> Our God appeared 'a consuming fire,'
-> And vengeance was His name."
+> "Once 'twas a seat of dreadful wrath,  
+> And shot devouring flames.  
+> Our God appeared 'a consuming fire,'  
+> And vengeance was His name."  
 
 Therefore, brethren, having peace with God, we may be sure that we shall "depart in peace." We need not fear that the God of all consolation, who has already enriched us in communion with Himself, and peace in Christ Jesus, will desert us at the last. He will help us to sing a sweet swan song, and our tabernacle shall be gently taken down, to be rebuilt more enduringly in the fair country beyond Jordan.
 
@@ -68,10 +68,10 @@ The same is true of the grace of hope, for hope peers into the things invisible.
 
 Heaven realized and anticipated by hope renders the thought of departure most precious to the heart. And the like, also, is the effect of the grace of love upon us. Love puts the heart, like a sacrifice, on the altar, and then she fetches heavenly fire, and kindles it. And, as soon as ever the heart begins to burn and glow like a sacrifice, what is the consequence? Why, it ascends like pillars of smoke up to the Throne of God. It is the very instinct of love to draw us nearer to the person whom we love. And, when love towards God pervades the soul, then the spirit cries, "Make haste, my beloved, be You like a roe or a young hart upon the mountains of separation." Perfect love, casting out all fear, cries, "Up, and away."
 
-> "Let me be with You where You are,
-> My Savior my eternal rest.
-> Then only will this longing heart
-> Be fully and forever blessed."
+> "Let me be with You where You are,  
+> My Savior my eternal rest.  
+> Then only will this longing heart  
+> Be fully and forever blessed."  
 
 I might thus mention all the graces, but suffer one of them to suffice. One which is often overlooked, but is priceless as the gold of Ophir; it is the grace of humility. Is it strange that the lower a man sinks in his own esteem the higher does he rise before his God. Simeon had no conceit of his own importance in the world, else he would have said, "Lord, let me stay, and be an apostle. Surely I shall be needed at this juncture to lend my aid in the auspicious era which has just commenced?" But no, he felt himself so little, so inconsiderable, that now that he had attained his heart's wish and seen God's salvation, he was willing to depart in peace. Humility, by making us lie low helps us to think highly of God, and, consequently, to desire much to be with God. O to have our graces always flourishing, for then shall we always be ready to depart, and willing to be offered up. Lack of grace entangles us, but to abound in divine grace is to live in the suburbs of the New Jerusalem.
 
@@ -83,10 +83,10 @@ Let a man know that he is resting upon the precious blood of Christ. Let him by 
 
 But with those who read their titles clear to mansions in the skies it will be otherwise. They will not ask to linger in this place of banishment, but will sing in their hearts, as we did just now:
 
-> "Jerusalem my happy home,
-> Name ever dear to me.
-> When shall my labors have an end,
-> In joy and peace and you?"
+> "Jerusalem my happy home,  
+> Name ever dear to me.  
+> When shall my labors have an end,  
+> In joy and peace and you?"  
 
 Beloved, saints feel most their readiness to go when their communion with Christ is near and sweet. When Christ hides Himself we are afraid to talk of dying, or of heaven. But when He only shows Himself through the lattices, and we can see those eyes which are "as the eyes of doves by the rivers of water, washed with milk and fitly set." When our own soul melts even at that hazy sight of Him, as through a glass darkly. Oh, then we gladly would be at home, and our soul cries out for the day when her eyes shall see the King in His beauty, in the land that is very far off.
 
