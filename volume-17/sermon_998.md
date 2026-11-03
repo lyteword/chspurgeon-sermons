@@ -30,7 +30,7 @@ The innocent mirth of the fireside, the chaste happiness of household love: even
 Now, brethren, if God's praise has been no wilderness to you, return to it with zest and ardor, and say, "I will yet praise You more and more." If any suppose that you grow weary with the service of the Lord, tell them that his praise is such freedom, such recreation, such felicity that you desire never to cease from it. As for me, if men call God's service slavery, I desire to be such a bondslave forever and would gladly be branded with my Master's name indelibly! I would have my ear bored to the doorpost of my Lord's house, and go no more out. My soul joyfully sings:
 
 > "Let Your grace, Lord, like a fetter,  
-> Bind my wandering heart to You."
+> Bind my wandering heart to You."  
 
 This to me shall be ambition: to be more and more subservient to the divine honor. This shall be gain: to be nothing for Christ's sake. This my all in all: to praise You, my Lord, as long as I have any being.
 
@@ -63,7 +63,7 @@ Heaven is indeed the only home of our souls, and we shall never feel that we hav
 Am I nearer heaven? Then I will be doing more of the work which I shall do in heaven. I shall soon use the harp: let me be carefully tuning it: let me rehearse the hymns which I shall sing before the throne. For if the words in heaven shall be sweeter and more rich than any that poets can put together here, yet the essential song of heaven shall be the same as that which we present to Jehovah here below:
 
 > "They praise the Lamb in hymns above,  
-> And we in hymns below."
+> And we in hymns below."  
 
 The essence of their praise is gratitude that he should bleed: it is the essence of our praise, too. They bless Immanuel's name for undeserved favors bestowed upon unworthy ones, and we do the same.
 
