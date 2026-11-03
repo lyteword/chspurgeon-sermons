@@ -54,9 +54,7 @@ Our highest conception of God falls infinitely short of his glory, but an advanc
 
 I heard of You by the hearing of the ear, but now my eyes see You: therefore while I abhor myself in dust and ashes, my praise shall rise yet more loftily! Up to your throne shall my song ascend! I did but see as it were the skirts of your garment, but you have hidden me in the cleft of the rock Christ Jesus, and made your glory pass before me! And now will I praise You even as the seraphs do, and vie with those before the throne in magnifying your name! We learn but little in Christ's school if the practical result of it all is not to make us cry, "I will yet praise You more and more."
 
-Still culling here and there a thought out of thousands, I would remind you that it is a good reason for praising God more as we are getting nearer to the place where we hope to praise him, world without end, after a perfect sort. Never have we made these walls ring more joyously than when we have united in singing of our Father's house on high, and the tents pitched:
-
-"A day's march nearer home."
+Still culling here and there a thought out of thousands, I would remind you that it is a good reason for praising God more as we are getting nearer to the place where we hope to praise him, world without end, after a perfect sort. Never have we made these walls ring more joyously than when we have united in singing of our Father's house on high, and the tents pitched: "A day's march nearer home."
 
 Heaven is indeed the only home of our souls, and we shall never feel that we have come to our rest till we have reached its mansions. One reason why we shall be able to rest in heaven is because we shall there be able perpetually to achieve the object of our creation.
 
@@ -144,5 +142,3 @@ But Christians, the last word shall be to you. Are you praising God more and mor
 Evidently he is one of those that draw back unto perdition, and there are no persons upon whom a more dreadful sentence is pronounced, often spoken of by Paul, and most terribly by Peter and Jude. Those "Trees twice dead, plucked up by the roots." The "wandering stars for whom is reserved the blackness of darkness forever." It would have been infinitely better for them not to have known the way of righteousness, than having known it, after a fashion, to have turned aside!
 
 Better never to have put their hand to the plow, than having done so, after a sort, to turn back from it. But, beloved, I am persuaded better things for you, and things that accompany salvation, though I thus speak. I pray that God will lead you on from strength to strength: for that is the path of the just. May you grow in grace, for life is proven by growth. May you march like pilgrims towards heaven, singing all the way. The lark may serve us as a final picture, and an example of what we all should be. We should be mounting: our prayer should be, "Nearer, my God, to you." We should be mounting: our motto might well be, "Higher! Higher! Higher!" As we mount, we should sing, and our song should grow louder, clearer, more full of heaven. Upward, brothers and sisters! Sing as you soar! Upward! Sing till you are dissolved in glory! Amen.
-
-PORTION OF SCRIPTURE READ BEFORE SERMON: Psalm 71.
