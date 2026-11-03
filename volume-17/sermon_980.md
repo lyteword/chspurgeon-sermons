@@ -1,7 +1,7 @@
 # Sermon 980 | Hidden Manna
 
-> "Your words were found, and I did eat them, and your word was unto me the joy and rejoicing of my heart: for I am called by your name, O Lord God of hosts."
-> Jeremiah 15:16
+> "Your words were found, and I did eat them, and your word was unto me the joy and rejoicing of my heart: for I am called by your name, O Lord God of hosts."  
+> Jeremiah 15:16  
 
 Jeremiah was a man of exceedingly sensitive temperament, the very reverse of Elijah. Yet he was sent of God to execute a duty which apparently required a person of great sternness and slender sensibility. It was his unhappy duty to denounce the judgments of God upon a people whom he dearly loved, but whom it was impossible to save; for even his deep anguish of heart and melting pathos were powerless with them, and rather excited their ridicule than their attention. Either they did not believe that he was sent of God at all, or else they neither cared for Jehovah nor for his prophet. Naturally mild and retiring, his strong sense of allegiance to God and love to Israel made him bear a fearless testimony for the truth; but the reproaches, insults, and threats which were heaped upon him sorely wounded his soul; and even deeper was his anguish, because he well knew that his rejected warnings were terribly true. He carried before his mind's eye at all times the picture of Jerusalem captured by her foes, and her wretched sons and daughters given up to the sword. There is no line in the whole of his prophecy more characteristic of him than that exclamation: "O that my head were waters, and my eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people."
 
