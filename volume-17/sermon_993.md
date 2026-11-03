@@ -1,7 +1,7 @@
 # Sermon 993 | The Northern Iron and the Steel
 
-> "Shall iron break the northern iron and the steel?"
-> Jeremiah 15:12
+> "Shall iron break the northern iron and the steel?"  
+> Jeremiah 15:12  
 
 The prophet Jeremiah was, as we saw upon a former occasion, a man of exquisitely sensitive character. Not a prophet of iron, like Elijah, but nearer akin to him who was a man of sorrows and acquainted with grief. He lived in times which were peculiarly trying to him, and in addition was called to exercise an office which involved him in perpetual sorrow. He loved the people among whom he dwelt, yet he was commissioned by God to pronounce judgments upon them. This in itself was a hard task to such a nature as his. As a loving father, fearful of Eli's doom, uses the rod upon his child, but feels each stroke in his own heart far more acutely than the child does upon his back, so every threat which the prophet uttered lashed his own soul and cost his heart the direst pains.
 
@@ -41,9 +41,9 @@ Under persecutions and difficulties, let God's people resolve on victory, and by
 
 Probably, however, there is more grace exhibited by the Christian, who, without present success, realizes the things not seen as yet and continues, still, to work on. To labor is not easy, but to labor and to wait is harder by far. It is a grand thing to continue patiently in doing well, confident that in the end the reward is sure. He is a man, indeed, who under long-continued disappointment will not:
 
-> "Bate a jot
-> Of heart or hope, but still bear up and steer
-> Right onward."
+> "Bate a jot  
+> Of heart or hope, but still bear up and steer  
+> Right onward."  
 
 Such a man "plucks success even from the spear-proof crest of rugged danger." The well-annealed steel within him before long breaks in shivers the common iron which strikes him so severely. To him, to overcome by grace is glory, indeed.
 
