@@ -1,7 +1,7 @@
 # Sermon 1015 | The One Thing Needful
 
-> "But one thing is needful."
-> Luke 10:42.
+> "But one thing is needful."  
+> Luke 10:42.  
 
 We have no difficulty whatever in deciding what that one thing is. We are not allowed to say that it is the Savior, for he is not a thing. And we are not permitted to say that it is attention to our own salvation, for, although that would be true, it is not mentioned in the context. The one thing needful, evidently, is that which Mary chose--that good part which should not be taken away from her. Very clearly this was to sit at Jesus' feet, and hear his word. If anything is plain at all in Holy Scripture, it is most clear that this is the one thing needful--to sit at Jesus' feet and hear his word. This and nothing less, this and nothing more. The mere posture of sitting down and listening to the Savior's word was nothing in itself--it was that which it indicated. It indicated, in Mary's case, a readiness to believe what the Savior taught, to accept and to obey--no, to delight in the precepts which fell from his lips. And this is the one thing needful. He that has it has the spirit of grace and life.
 
