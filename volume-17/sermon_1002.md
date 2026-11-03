@@ -1,7 +1,7 @@
 # Sermon 1002 | Now, and Then
 
-> "For now we see through a glass, darkly. But then face to face."
-> 1 Corinthians 13:12
+> "For now we see through a glass, darkly. But then face to face."  
+> 1 Corinthians 13:12  
 
 In this chapter the apostle Paul has spoken in the highest terms of charity or love. He accounts it to be a grace far more excellent than any of the spiritual gifts of which he had just before been speaking. It is easy to see that there were good reasons for the preference he gave to it. Those gifts, you will observe, were distributed among godly men, to every man his several portion, so that what one had another might have lacked. But this grace belongs to all who have passed from death unto life. The proof that they are disciples of Christ is found in their love to him and to the brethren. Those gifts, again, were meant to fit them for service, that each member of the body should be profitable to the other members of the body.
 
@@ -65,10 +65,10 @@ Probably things that puzzle us here will be as plain as possible there. We shall
 
 This knot cannot be untied, that gnarl cannot be unraveled, but:
 
-> Then shall I see, and hear and know
-> All I desired or wished below.
-> And every power find sweet employ
-> In that eternal world of joy.
+> Then shall I see, and hear and know  
+> All I desired or wished below.  
+> And every power find sweet employ  
+> In that eternal world of joy.  
 
 But, my dear brothers and sisters, having kept you thus far in the outer courts, I would gladly lead you into the temple! Or, to change the figure, if in the beginning I have set forth good wine, certainly I am not going to bring out that which is worse. Rather would I have you say, as the ruler of the feast did to the bridegroom, "you have kept the good wine until now."
 
