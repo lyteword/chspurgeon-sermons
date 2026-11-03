@@ -1,9 +1,9 @@
 # Sermon 988 | The Pastor's Parting Blessing
 
 > The grace of our Lord Jesus Christ be with you all. Amen.  
-> &mdash;Romans 16:24  
+> Romans 16:24  
 
-The CHRISTIAN is a man of generous actions, but his wishes go far beyond his deeds. Where he cannot be beneficent he is benevolent. If he cannot actually accomplish good for all, yet he anxiously desires it. If it be not in his power to confer grace upon any, yet he prays that God would give his grace to all the brotherhood. His heart entertains thousands, though his house might be overfull with ten; his liberal desires feed nations, even though his purse be so scant that he cannot afford more than a penny for a poor child. God, whose providence limits our ability, has set no measure to our willingness. Our wishes may be boundless though our powers are contracted, and this will be good for ourselves and not useless to others.
+The Christian is a man of generous actions, but his wishes go far beyond his deeds. Where he cannot be beneficent he is benevolent. If he cannot actually accomplish good for all, yet he anxiously desires it. If it be not in his power to confer grace upon any, yet he prays that God would give his grace to all the brotherhood. His heart entertains thousands, though his house might be overfull with ten; his liberal desires feed nations, even though his purse be so scant that he cannot afford more than a penny for a poor child. God, whose providence limits our ability, has set no measure to our willingness. Our wishes may be boundless though our powers are contracted, and this will be good for ourselves and not useless to others.
 
 Christ never came into the world to make individual professors of it isolated, like the icebergs which float away on the wide sea in solitary terribleness; neither is it intended that we should be so anxious for our own salvation as to be indifferent to the welfare of others. True religion is not a separating and repelling force, but rather, like attraction, it draws individual atoms into one body and holds them together. It does not shiver to fragments, but welds into one. It is a loadstone, not a whirlwind. God in his grace gathers together in one body in Christ Jesus all his scattered ones, and the same Spirit who constrains us to love God leads us to love our brother also.
 
