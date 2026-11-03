@@ -20,7 +20,7 @@ The affliction for which his friends pitied him was in his body, but he himself 
 
 He gave him at the outset a blessing for which the patient's friends had not asked, but which the man, though speechless, was seeking for in the silence of his soul. He was a "son," though an afflicted one, he was ready to obey the Lord's bidding when power was given, though as yet he could neither lift hand nor foot. He was longing for the pardon of sin, yet could not stretch out his hand to lay hold upon the Savior. I intend to use this narrative for practical purposes. May the Holy Spirit make it really useful. Our first remark will be this:
 
-**There are cases which will need the aid of a little band of workers before they will be fully saved.**
+There are cases which will need the aid of a little band of workers before they will be fully saved.
 
 This man needed to be borne by four, so the Evangelist, Mark, tells us. There must be a bearer at each corner of the couch where he lay. The great mass of persons who are brought into the kingdom of Christ are converted through the general prayers of the Church by the means of her ministry. Probably three out of four of the members of any Church will owe their conversion to the Church's regular teaching in some form or other.
 
@@ -48,7 +48,7 @@ But I am afraid that there are not many, even in a large Church, who will become
 
 They need be strong, for the burden is heavy. They need be resolute, for the work will try their faith. They need be prayerful, for otherwise they labor in vain. They must be believing, or they will be utterly useless, Jesus saw their faith, and therefore accepted their service. But without faith it is impossible to please Him. Where shall we find quartets such as these? May the Lord find them, and may He send them to some of you poor dying sinners who lie paralyzed here today!
 
-**We now pass on to the second observation that some cases, thus taken up, will need much thought before the design is accomplished.**
+We now pass on to the second observation that some cases, thus taken up, will need much thought before the design is accomplished.
 
 The essential means by which a soul is saved is clear enough. The four bearers had no question with each other as to what was the way to effect this man's cure, they were unanimous in this, that they must bring him to Jesus. By some means or other, by hook or by crook, they must place him in the Savior's way. That was undoubted fact. The question was, how to do this?
 
@@ -92,7 +92,7 @@ His sad condition was more eloquent than words. O hearts that love sinners, lay 
 
 God help us to make use of such means as are within our power, and not to sit down idly to regret the powers we do not possess. Perhaps it would be dangerous for us to possess the abilities we covet. It is always safe to consecrate those we have.
 
-**Now we must pass on to an important truth. We may safely gather from the narrative that the root of spiritual paralysis generally lies in unpardoned sin.**
+Now we must pass on to an important truth. We may safely gather from the narrative that the root of spiritual paralysis generally lies in unpardoned sin.
 
 Jesus intended to heal the paralyzed man, but He did so by first of all saying, "Your sins are forgiven you." There are some in this House of Prayer this morning who are spiritually paralyzed. They have eyes and they see the Gospel. They have ears and they have heard it, and heard it attentively, too. But they are so paralyzed that they will tell you, and honestly tell you, that they cannot lay hold upon the promise of God.
 
@@ -122,7 +122,7 @@ Our poor, awakened paralytics sometimes hope that they may be forgiven, but they
 
 The Holy Spirit determines to use other agencies in their salvation. They have heard the public Word of God. They now need private consolation and aid, and that from three or four. Lend us your help, you earnest brethren! Form your parties of four! Grasp the couches of those who wish to be saved but who feel they cannot believe. The Lord, the Holy Spirit, make you the means of leading them into forgiveness and eternal salvation. They have been lying a long time waiting, their sin, however, still keeps them where they are. Their guilt prevents their laying hold on Christ. That is the point, and it is for such cases that I earnestly invoke my brethren's aid.
 
-**Let us proceed to notice, fourthly, that Jesus can remove both the sin and the paralysis in a single moment.**
+Let us proceed to notice, fourthly, that Jesus can remove both the sin and the paralysis in a single moment.
 
 It was the business of the four bearers to bring the man to Christ. But there their power ended. It is our part to bring the guilty sinner to the Savior, there our power ends. Thank God! When we end, Christ begins! And works right gloriously, too. Observe that He began by saying, "Your sins are forgiven you."
 
@@ -138,7 +138,7 @@ What we cannot do with our reasonings, persuading, and entreaties, nor even with
 
 He can still do it! I say again to loving spirits who are seeking the good of others, let this encourage you. You may not have to wait long for the conversions you aim at. It may be, before another Sunday ends, the person you pray for may be brought to Jesus. Or if you have to wait a little, the waiting shall well repay you, and meanwhile, remember He has never spoken in secret in the dark places of the earth. He has not said to the seed of Jacob, "Seek you My face in vain."
 
-**Passing on, and drawing to a conclusion: wherever our Lord works the double miracle, it will be apparent.**
+Passing on, and drawing to a conclusion: wherever our Lord works the double miracle, it will be apparent.
 
 He forgave the man's sins and took away his disease at the same time. How was this apparent? I have no doubt the pardon of the man's sins was best known to himself. But possibly those who saw that gleaming countenance which had been so sad before, might have noticed that the word of absolution sunk into his soul as the rain into the thirsty earth. "Your sins are forgiven you," fell on him as a dew from Heaven!
 
@@ -150,7 +150,7 @@ And I do not find that he stayed to make one grateful obeisance, but elbowing th
 
 You tell me Christ has forgiven you, and yet you live in rebellion to His commands! How can I believe you? You say you are a saved man, and yet you willfully set up your own will against Christ's will. What evidence have I of what you say? Have I not, rather, clear evidence that you speak not the truth? Open, careful, prompt, cheerful obedience to Christ becomes the test of the wonderful work which Jesus works in the soul.
 
-**Lastly, all this tends to glorify God.**
+Lastly, all this tends to glorify God.
 
 Those four men had been the indirect means of bringing much honor to God and much glory to Jesus, and they, I doubt not, glorified God in their very hearts on the housetop. Happy men to have been of so much service to their bedridden friend! Who else united in glorifying God? Why, first the man who was restored. Did not every part of his body glorify God? I think I see him! He sets one foot down to God's glory! He plants the other to the same note. He walks to God's glory, he carries his bed to God's glory! He moves his whole body to the Glory of God!
 
@@ -167,13 +167,3 @@ The whole Christian Church is full of sacred praise when a sinner is saved! Even
 Now, shall I need to stand here, and entreat for the four to carry poor souls to Jesus? Shall I need to appeal to my brethren who love their Lord, and say, band yourselves together to win souls? Your humanity to the paralytic soul claims it, but your desire to bring Glory to God compels it. If you are, indeed, what you profess to be, to glorify God must be the fondest wish and the loftiest ambition of your souls!
 
 Unless you are traitors to my Lord, as well as inhuman to your fellow men, you will catch the practical thought which I have strived to bring before you, and you will seek out some fellow Christians, and say, "Come, let us pray together, for such an one." And if you know a desperate case you will make up a sacred quaternion to resolve upon its salvation. May the power of the Highest abide upon you, and who knows what Glory the Lord may gain through you? Never forget this strange story of the bed which carried the man, and the man who carried his bed.
-
-Portion of Scripture Read Before Sermon: Luke 5:1-26.
-
-Just Published. A Memorial of the Marriage of the Princess Louise, entitled,
-
-THE ROYAL WEDDING: the Banquet and the Guests. By C. H. Spurgeon. Price One Shilling, beautifully bound. Or Sixpence, in paper wrapper.
-
-So rapid has been the sale of this little work that nearly ten thousand have been issued in a fortnight. It is well adapted for general distribution.
-
-London: Passmore & Alabaster, 18 Paternoster Row.
