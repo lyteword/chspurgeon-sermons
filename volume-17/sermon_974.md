@@ -1,7 +1,7 @@
 # Sermon 974 | Compassion for Souls
 
-> "She went, and sat her down over against him a good way off, as it were a bowshot. For she said, Let me not see the death of the child. And she sat over against him, and lift up her voice, and wept."
-> Genesis 21:16.
+> "She went, and sat her down over against him a good way off, as it were a bowshot. For she said, Let me not see the death of the child. And she sat over against him, and lift up her voice, and wept."  
+> Genesis 21:16.  
 
 Briefly let us rehearse the circumstances. The child Isaac was, according to God's Word, to be the heir of Abraham. Ishmael, the elder son of Abraham, by the bondwoman Hagar, resided at home with his father till he was about eighteen years of age. But when he began to mock and scoff at the younger child whom God had ordained to be the heir, it became necessary that he and his mother should be sent away from Abraham's encampment. It might have seemed unkind and heartless to have sent them forth, but God, having arranged to provide for them, sent a divine command which at once rendered their expulsion necessary, and certified its success.
 
@@ -49,10 +49,10 @@ Oh, I would to God there should come upon us a Divine hunger which cannot stay i
 
 Deep feeling on your part for others shall make others feel for themselves, and God shall bless you, and that right early. But I stand not here any longer to justify what I would far rather commend and personally feel:
 
-> "Did Christ over sinners weep,
-> And shall our cheeks be dry?
-> Let floods of consecrated grief
-> Stream forth from every eye."
+> "Did Christ over sinners weep,  
+> And shall our cheeks be dry?  
+> Let floods of consecrated grief  
+> Stream forth from every eye."  
 
 Is God all love, and shall God's children be hard and cold? Shall Heaven be compassionate and shall not earth that has received His mercy send back the echo of compassion? O God, make us imitators of You in Your pity towards erring men!
 
