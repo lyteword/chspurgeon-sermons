@@ -1,7 +1,7 @@
 # Sermon 978 | All Fullness in Christ
 
-> "For it pleased the Father that in Him should all fullness dwell."
-> Colossians 1:19
+> "For it pleased the Father that in Him should all fullness dwell."  
+> Colossians 1:19  
 
 The preacher is under no difficulties this morning as to the practical object to be aimed at in his discourse. Every subject should be considered with an object. Every discourse should have a definite spiritual aim, otherwise we do not so much preach as play at preaching. The connection plainly indicates what our drift should be. Read the words immediately preceding the text, and you find it declared that our Lord Jesus is in all things to have the pre-eminence. We would seem, by this text, to yield honor and glory to the ever-blessed Redeemer, and enthrone Him in the highest seat in our hearts.
 
@@ -21,8 +21,8 @@ Sinner, saint, to you both alike these words, "all fullness," sound like a holy 
 
 This is good news for us, for nothing but realities will meet our case. Types may instruct, but they cannot actually save. The patterns of the things in the heavens are too weak to serve our turn. We need the heavenly things themselves. No bleeding bird nor slaughtered bullock, nor running stream, nor scarlet wool and hyssop, can take away our sins:
 
-> "No outward forms can make me clean,
-> The leprosy lies deep within."
+> "No outward forms can make me clean,  
+> The leprosy lies deep within."  
 
 Ceremonies under the old dispensation were precious because they set forth the realities yet to be revealed. But in Christ Jesus we deal with the realities themselves, and this is a happy circumstance for us. For both our sins and our sorrows are real, and only substantial mercies can counteract them. In Jesus we have the substance of all that the symbols set forth. He is our Sacrifice, our Altar, our Priest, our Incense, our Tabernacle, our All in All. The law had "the shadow of good things to come," but in Christ we have "the very image of the things" (Heb. 10:1). What transport is this to those who so much feel their emptiness that they could not be comforted by the mere representation of a truth, or the pattern of a truth, or the symbol of a truth, but must have the very substance itself!
 
@@ -32,10 +32,10 @@ A low degree of divine grace will never be enough to bring us to heaven, defiled
 
 In these words, "all fullness," we hear the echo of His death-cry, "It is finished." We are to bring nothing, but to find all in Him. Yes, the fullness of all in Him: we are simply to receive out of His fullness grace for grace. We are not asked to contribute, nor required to make up deficiencies, for there are none to make up: all, ALL is laid up in Christ! All that we shall want between this place and heaven, all we could need between the gates of hell, where we lay in our blood, to the gates of heaven, where we shall find welcome admission, is treasured up for us in the Lord Christ Jesus:
 
-> "Great God, the treasures of Your love
-> Are everlasting mines,
-> Deep as our helpless miseries are,
-> And boundless as our sins."
+> "Great God, the treasures of Your love  
+> Are everlasting mines,  
+> Deep as our helpless miseries are,  
+> And boundless as our sins."  
 
 Did I not say well that the two words before us are a noble hymn? Let them, I pray you, lodge in your souls for many days. They will be blessed guests. Let these two wafers, made with honey, lie under your tongue. Let them satisfy your souls, for they are heavenly bread. The more you bemoan your emptiness the sweeter these words will be. The more you feel that you must draw largely upon the bank of heaven, the more will you rejoice that your drafts will never diminish the boundless store: for still will it retain the name and the quality of "all fullness."
 
@@ -61,8 +61,8 @@ What do you want, sinner? You want all things, and Christ is All. You want power
 
 You want preservation: you shall be preserved in Him. You want life, and He has said, "Awake, you that sleep, and arise from the dead, and Christ shall give you life." He is come that we might have life. You want: but indeed, the catalog is much too long for us to read it through at this present time. But be assured though you pile up your necessities till they rise like Alps before you, yet the All-Sufficient Savior can remove all your needs. You may confidently sing:
 
-> "You, O Christ, are all I want,
-> More than all in You I find."
+> "You, O Christ, are all I want,  
+> More than all in You I find."  
 
 This is true, also, of the saint as well as the sinner. O child of God, you are now saved, but your wants are not, therefore, removed. Are they not as continuous as your heartbeats? When are we not in want, my brethren? The more alive we are to God, the more are we aware of our spiritual necessities. He who is, "blind and naked," thinks himself to be "rich and increased in goods": but let the mind be truly enlightened, by God's grace, and we feel that we are completely dependent upon the charity of God. Let us be glad, then, as we learn that there is no necessity in our spirit but what is abundantly provided for in the all-fullness of Jesus Christ.
 
@@ -74,13 +74,13 @@ Let me remark that this is not only true of saints on earth, but it is true, als
 
 Not all the harps above could make a heavenly place if Christ were gone: for He is the heaven of heaven, and fills all in all. It pleased the Father that for all saints and sinners all fullness should be treasured up in Christ Jesus. I feel that my text overwhelms me. Men may sail round the world, but who can circumnavigate so vast a subject as this? As far as the east is from the west so wide is its reach of blessings:
 
-> "Philosophers have measured mountains,
-> Fathomed the depths of seas, of states, and kings,
-> Walked with a staff to heaven, and traced fountains:
-> But there are two vast spacious things,
-> The which to measure it does more behoove:
-> Yet few there are that sound them:
-> Grace and love."
+> "Philosophers have measured mountains,  
+> Fathomed the depths of seas, of states, and kings,  
+> Walked with a staff to heaven, and traced fountains:  
+> But there are two vast spacious things,  
+> The which to measure it does more behoove:  
+> Yet few there are that sound them:  
+> Grace and love."  
 
 Who is he that shall be able to express all that is meant by our text? For here we have "all" and "fullness": and in fullness and a fullness in all. The words are both exclusive and inclusive. They deny that there is any fullness elsewhere, for they claim all for Christ. They shut out all others. "It pleased the Father that in Him should all fullness dwell." Not in you, you pretended successors of the apostles, can anything dwell that I need. I can do well enough without you! No, I would not insult my Savior by trading with you, for since "all fullness" is in Him, what can there be in you that I can require?
 
@@ -96,10 +96,10 @@ All the rivers flow into this sea, for from this sea they came. As the atmospher
 
 Let doubts and fears vanish at the sight of the mediatorial fullness. Jesus must be able to save to the uttermost, since all fullness dwells in Him. Come, sinner: come and receive Him! Believe in Him and you shall find yourself made perfect in Christ Jesus.
 
-> "The moment a sinner believes,
-> And trusts in His crucified God,
-> His pardon at once he receives,
-> Redemption in full through His blood."
+> "The moment a sinner believes,  
+> And trusts in His crucified God,  
+> His pardon at once he receives,  
+> Redemption in full through His blood."  
 
 Having thus spoken of what, we now turn to consider where. "It pleased the Father that in Him should all fullness dwell." Where else could all fullness have been placed? There was wanted a vast capacity to contain "all fullness." Where dwells there a being with nature capacious enough to compass within himself all fullness? As well might we ask, "Who has measured the waters in the hollow of His hand, and meted out heaven with the span, and comprehended the dust of the earth in a measure, and weighed the mountains in scales, and the hills in a balance?" To Him only could it belong to contain "all fullness," for He must be equal with God, the Infinite.
 
@@ -111,14 +111,14 @@ They who know Him delight in nearness to Him. Is it not sweet that all fullness 
 
 That blessed Man, into the print of whose nails His disciple, Thomas, put his finger, and into whose side he thrust his hand. It is He, the incarnate God, in whom all fullness dwells! Come, then, and receive of Him, you who are the weakest, the most mean, and most sinful of men. Come at once, O sinner, and fear not:
 
-> "Why are you afraid to come,
-> And tell Him all your case?
-> He will not pronounce your doom,
-> Nor frown you from His face.
-> Will you fear Immanuel?
-> Or dread the Lamb of God,
-> Who, to save your soul from hell,
-> Has shed His precious blood?"
+> "Why are you afraid to come,  
+> And tell Him all your case?  
+> He will not pronounce your doom,  
+> Nor frown you from His face.  
+> Will you fear Immanuel?  
+> Or dread the Lamb of God,  
+> Who, to save your soul from hell,  
+> Has shed His precious blood?"  
 
 Let it be noted here, however, very carefully, that while fullness is treasured up in Christ, it is not said to be treasured up in the doctrines of Christ: though they are full and complete, and we need no other teachings when the Spirit reveals the Son in us. Nor is it said to be treasured up in the commands of Christ, although they are amply sufficient for our guidance. But it is said, "It pleased the Father that in Him," in His Person, "should all fullness dwell." In Him, as God Incarnate dwells in all the fullness of the Godhead bodily. Not as a myth, a dream, a thought, a fiction, but as a living, real Personality. We must lay hold of this.
 
