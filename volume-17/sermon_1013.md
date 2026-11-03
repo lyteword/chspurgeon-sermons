@@ -1,7 +1,7 @@
 # Sermon 1013 | Our Watchword
 
-> "Let such as love thy salvation say continually, Let God be magnified."
-> Psalm 70:4.
+> "Let such as love thy salvation say continually, Let God be magnified."  
+> Psalm 70:4.  
 
 These words occur at least three times in the book of Psalms, and therefore we may regard them as especially important. When God speaks once, twice, thrice, he doth as it were awaken us to peculiar attention, and call for prompt obedience to what he saith. Let us not be deaf to the divine voice, but let each one say, "Speak Lord, for thy servant heareth."
 
@@ -21,8 +21,8 @@ Now, let me show you, beloved, what it is in salvation that the thoughtful belie
 
 But you love not only the Savior's person, but I am sure you delight in the plan of salvation. What is that plan? It is summed up in a single word, substitution.
 
-> He bore, that we might never bear,
-> His Father's righteous ire.
+> He bore, that we might never bear,  
+> His Father's righteous ire.  
 
 Sin was not pardoned absolutely, else justice had been dishonored; but sin was transferred from the guilty to the innocent One. "The Lord hath laid on him the iniquity of us all." When our iniquity was found upon the innocent Lamb of God, he was "smitten of God and afflicted," as if he had been a sinner; he was made to suffer for transgressions not his own, as if they had been his own; and thus mercy and justice met together, righteousness and grace kissed each other. Alas! there are many who fight against this plan, but I rejoice that I am surrounded by warm hearts who love it, and would die for it. As for me, I know no other gospel, and let this tongue be dumb rather than it should ever preach any other. Substitution is the very marrow of the whole Bible, the soul of salvation, the essence of the gospel; we ought to saturate all our sermons with it, for it is the life-blood of a gospel ministry. We must daily show how God the Judge can be "just, and yet the justifier of him that believeth." We must declare that God has made the Redeemer's soul a sacrifice for sin, making him to be sin for us, who knew no sin, that we might be made the righteousness of God in him. Our plain testimony must be, that "he was made a curse for us;" that "he his own self bare our sins in his own body on the tree;" that "he was once offered to bear the sins of many;" and that "he was numbered with the transgressors, and he bare the sin of many." About this we must never speak with bated breath, lest we be found unfaithful to our charge.
 
@@ -34,8 +34,8 @@ We love his salvation because of one or two characteristics in it which especial
 
 We love his salvation, again, because, in addition to the display of wondrous love, it is so safe a salvation, so real, so true; we have not given heed to cunningly devised fables; we have not chanced our souls upon a fiction. We run no risk when we trust the Savior. Though one of our hymns puts it:
 
-> Venture on Him, venture wholly,
-> Let no other trust intrude.
+> Venture on Him, venture wholly,  
+> Let no other trust intrude.  
 
 This is only a condescension to the feelings of trembling unbelievers, for there is no venture in it; it is sure and certain. Did God lay on Christ my sin? Was it really punished in him? Then there cannot exist a reason why I should be condemned, but there are ten thousand arguments why I should for ever be "accepted in the beloved." "Who shall lay anything to the charge of God's elect? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us." Substitution is a basis for intelligent confidence; it satisfies both the demand of the law and the fears of conscience; and gives to believers a deep, settled, substantial peace, which cannot be broken. We love this salvation because we feel that it places a foundation of granite beneath our feet instead of the quicksand of human merit. Justice being satisfied is as much our friend as even mercy herself; in fact, all the attributes unite to guarantee our safety.
 
@@ -49,19 +49,19 @@ Observe that this is a saying which is founded upon truth and justice. "Let God 
 
 This saying is naturally suggested by love. It is because we love his salvation that we say, "The Lord be magnified." You cannot love God without desiring to magnify him, and I am sure that you cannot know that you are saved without loving him. For here is a wonder, a central wonder of wonders to many of us, that ever we in particular were saved. I do not think I could be so wonder-struck and amazed at the salvation of you all as at my own. I should know it to be infinite mercy that saved any one of you, or all of you; I say I should know it, but in my own case I feel it is an unspeakable and inconceivably great mercy which has saved me; and I suppose each brother here, each sister here will feel a special love to Christ from the fact of being himself or herself an object of his love. We never sing, I am sure, with warmer hearts any hymn in our hymn-book than that one:
 
-> What was there in us that could merit esteem,
-> Or give the Creator delight?
-> 'Twas even so Father, we ever must sing,
-> For so it seemed good in thy sight.
+> What was there in us that could merit esteem,  
+> Or give the Creator delight?  
+> 'Twas even so Father, we ever must sing,  
+> For so it seemed good in thy sight.  
 
 The Lord might have left as he has left others to carry out their own wills, and wilfully to reject the Savior, but since he has made us willing in the day of his power, we are for ever beyond measure under obligations to him. Let us say continually, "The Lord be magnified, which hath pleasure in the prosperity of his servants."
 
 Moreover, this saying of our text is deeply sincere and practical. I am sure David did not wish to see hypocrites multiplied; but such would be the case if men merely said, "Let God be magnified," and did not mean it. No doubt there is a great deal among professors of mere expression without meaning; it is sadly evident that much godly talk is only talk, but it ought not so to be. You know how often charity is assumed, and men say to the naked and hungry, "Be ye warmed, and be ye filled;" but they give nothing to the poor, except vain words, which cannot profit them. So, too, often professors will sing:
 
-> Fly abroad, thou mighty gospel,
-> Win and conquer, never cease;
-> May thy lasting wide dominion
-> Multiply and still increase.
+> Fly abroad, thou mighty gospel,  
+> Win and conquer, never cease;  
+> May thy lasting wide dominion  
+> Multiply and still increase.  
 
 And so on; but there it ends; they have said it, but they have done nothing for it. Now, as he is condemned as a hypocrite who merely utters words of charity without deeds, so is he who shall say, "Let God be magnified," but who does not put forth his hand and throw in all his energies to promote that which he professes to desire. The wish must be, and oh! if we are saved by grace, it will be sincere, intense, and fervent in every believing heart.
 
