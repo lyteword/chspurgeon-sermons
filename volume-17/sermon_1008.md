@@ -1,7 +1,7 @@
 # Sermon 1008 | Love's Logic
 
-> "We love him because he first loved us."
-> 1 John 4:19.
+> "We love him because he first loved us."  
+> 1 John 4:19.  
 
 This is a great doctrinal truth, and I might with much propriety preach a doctrinal sermon from it, of which the sum and substance would be the sovereign grace of God. God's love is evidently prior to ours: "He first loved us." It is also clear enough from the text that God's love is the cause of ours, for "We love him because he first loved us." Therefore, going back to old times, or rather before all time, when we find God loving us with an everlasting love, we gather that the reason of his choice is not because we loved him, but because he willed to love us. His reasons, and he had reasons (for we read of the counsel of his will), are known to himself. But they are not to be found in any inherent goodness in us, or which was foreseen to be in us. We were chosen simply because he will have mercy on whom he will have mercy. He loved us because he would love us.
 
@@ -39,8 +39,8 @@ But this I cannot be unless I love God. A mere external obedience, a decent form
 
 As certainly as you have the life and nature of God in you, you will seek after the Lord. As the spark, because it has in it the nature of fire, ascends aloft to seek the sun, so will your new-born spirit seek her God from whom she has derived her life. Search yourselves, then, and see whether you love God or not. Put your hands on your hearts, and as in the sight of him whose eyes are as a flame of fire, answer him. Make him your confessor at this hour: answer this one question, "Do you love me?" I trust very many of you will be able to say:
 
-> Yes, we love you and adore!
-> Oh, for grace to love you more.
+> Yes, we love you and adore!  
+> Oh, for grace to love you more.  
 
 This much was necessary to bring us to the second step of our discourse. May the Holy Spirit lead us onward.
 
@@ -82,10 +82,10 @@ Ah, even when we are sick, it is love that chastens us. When we are impoverished
 
 You who are tossed about with doubts and fears as to whether you are now accepted or shall persevere to the end, you can scarcely guess the ardors of heart which inflame those saints who have learned to cast themselves wholly upon Jesus, and know beyond a doubt his immutable love. Whether I sink or swim, I have no hope but in Christ, my life, my all:
 
-> I know that safe with him remains,
-> Protected by his power,
-> What I've committed to his hands
-> Till the decisive hour.
+> I know that safe with him remains,  
+> Protected by his power,  
+> What I've committed to his hands  
+> Till the decisive hour.  
 
 And in proportion as I am thus scripturally confident, and rest in my Lord, will my love to him engross all my heart, and consecrate my life to the Redeemer's glory. Beloved, I desire to make this very clear. That to feel love to God we must tread along the road of faith. Truly, this is not a hard or perilous way, but one prepared by infinite wisdom. It is a road suitable for sinners, and, indeed, saints must come that way, too. If you would love God, do not look within you to see whether this grace or that is as it ought to be, but look to your God, and read his eternal love, his boundless love, his costly love, which gave Christ for you. Then shall your love drink in fresh life and vigor.
 
@@ -107,8 +107,8 @@ Hear yet more of these gracious words which you will find in the third chapter o
 
 But I hear you enquiring, Will he still receive me? Shall I be once more:
 
-> To the Father's bosom pressed,
-> Once again a child confessed.
+> To the Father's bosom pressed,  
+> Once again a child confessed.  
 
 It shall be so. Does he not declare that he is God and changes not, and therefore you are not consumed? Rekindled are the flames of love in the backslider's bosom when he feels all this to be true. He cries, "Behold, we come to you, for you are the Lord our God." I pray you, then, any of you who are conscious of gross derelictions of duty, and wanderings of heart: do not ask Moses to lead you back to Christ, he knows the way to Sinai's flames, but not to Calvary's pardoning blood. Go to Christ himself at once.
 
