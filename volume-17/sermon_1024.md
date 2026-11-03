@@ -1,7 +1,7 @@
 # Sermon 1024 | The Throne of Grace
 
-> "The throne of grace."
-> Hebrews 4:16
+> "The throne of grace."  
+> Hebrews 4:16  
 
 These words are found embedded in that gracious verse, "Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need." They are a gem in a golden setting. True prayer is an approach of the soul by the Spirit of God to the throne of God. It is not the utterance of words. It is not, alone, the feeling of desires. It is the advance of the desires to God, the spiritual approach of our nature towards the Lord our God. True prayer is not a mere mental exercise, nor a vocal performance, but it is far deeper than that. It is spiritual commerce with the Creator of heaven and earth.
 
@@ -25,8 +25,8 @@ The pride that will not acknowledge the king, the treason which rebels against t
 
 The lord alone has divine right, and to him only does the kingdom belong. He is the blessed and only potentate. They are but nominal kings, to be set up and put down at the will of men, or the decree of providence, but he is lord alone, the Prince of the kings of the earth.
 
-> "He sits on no precarious throne,
-> Nor borrows leave to be."
+> "He sits on no precarious throne,  
+> Nor borrows leave to be."  
 
 My heart, be sure that you prostrate yourself in such a presence. If he is so great, place your mouth in the dust before him, for he is the most powerful of all kings. His throne has sway in all worlds. Heaven obeys him cheerfully, hell trembles at his frown, and earth is constrained to yield him homage willingly or unwillingly.
 
@@ -46,8 +46,8 @@ If we constantly remembered this, I think we should be less inclined to push cer
 
 But, brethren, in the fourth place, if it is a throne it ought to be approached with enlarged expectations. Well does our hymn put it:
 
-> "You are coming to a king,
-> Large petitions with you bring."
+> "You are coming to a king,  
+> Large petitions with you bring."  
 
 We do not come, as it were, in prayer only to God's almonry where he dispenses his favours to the poor. Nor do we come to the back door of the house of mercy to receive the broken scraps, though that were more than we deserve. To eat the crumbs that fall from the master's table is more than we could claim. But when we pray, we are standing in the palace, on the glittering floor of the great king's own reception room, and thus we are placed upon a vantage ground. In prayer we stand where angels bow with veiled faces. There, even there, the cherubim and seraphim adore before that same throne to which our prayers ascend.
 
@@ -73,10 +73,10 @@ Lest the glow and brilliance of the word "throne" should be too much for mortal 
 
 O you self-righteous ones who hope that you can obey the law, and think that you can be saved by it, look to the flames that Moses saw, and shrink, and tremble, and despair. To that throne we do not come now, for through Jesus the case is changed. To a conscience purged by the precious blood there is no anger upon the divine throne, though to our troubled minds:
 
-> "Once it was a seat of burning wrath,
-> And shot devouring flames.
-> Our God appeared a consuming fire,
-> And jealous was his name."
+> "Once it was a seat of burning wrath,  
+> And shot devouring flames.  
+> Our God appeared a consuming fire,  
+> And jealous was his name."  
 
 And, blessed be God, we are not this morning to speak of the throne of ultimate justice. Before that we shall all come, and as many of us as have believed will find it to be a throne of grace as well as of justice, for he who sits upon that throne shall pronounce no sentence of condemnation against the man who is justified by faith.
 
@@ -140,10 +140,10 @@ And once more, and sweetest thought of all, every covenant promise has been endo
 
 The covenant is ratified with blood, the blood of his own dear son. It is not possible that we can plead in vain with God when we plead the blood-sealed covenant, ordered in all things and sure. Heaven and earth shall pass away, but the power of the blood of Jesus with God can never fail. It speaks when we are silent, and it prevails when we are defeated. Better things than that of Abel does it ask for, and its cry is heard. Let us come boldly, for we bear the promise in our hearts. When we feel alarmed because of the sovereignty of God, let us cheerfully sing:
 
-> "The gospel bears my spirit up,
-> A faithful and unchanging God
-> Lays the foundation for my hope
-> In oaths, and promises, and blood."
+> "The gospel bears my spirit up,  
+> A faithful and unchanging God  
+> Lays the foundation for my hope  
+> In oaths, and promises, and blood."  
 
 May God the Holy Spirit help us to use aright from this time forward "the throne of grace." Amen.
 
