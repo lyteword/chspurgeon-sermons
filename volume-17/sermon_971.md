@@ -28,9 +28,7 @@ Having said this much, however, we shall now take our text as belonging to ourse
 
 In order to explain the text, we shall dwell upon three notes. If these three are clearly sounded, we shall understand the passage: a fountain, opened, still open.
 
-A FOUNTAIN
-
-What is this fountain which is said to be opened, and when and how was it opened? It is a fountain opened to the house of David, and its inhabitants, for sin and for uncleanness. We observe, therefore, that the blessing here spoken of deals with the greatest evils to which mankind is subject, sin and uncleanness. We have all fallen. We have all proved our fall by our sinful practice.
+A fountain. What is this fountain which is said to be opened, and when and how was it opened? It is a fountain opened to the house of David, and its inhabitants, for sin and for uncleanness. We observe, therefore, that the blessing here spoken of deals with the greatest evils to which mankind is subject, sin and uncleanness. We have all fallen. We have all proved our fall by our sinful practice.
 
 Sin has separated us from God and brought upon us the divine wrath. Uncleanness, which is a tendency still to sin, a defilement of our nature, prevents our returning to our heavenly Father and entering into renewed fellowship with him. This great evil in its double form is, according to the text, distinctly recognized by God. It is not winked at, it is not treated as a trifle that may remain. And yet man may be beloved of God and be happy. But the evil being there, preparation is made for its removal.
 
@@ -158,5 +156,3 @@ I pray God backsliders may come here, that those who have gone farther astray th
 The Master, after the last Supper, took a towel and girded himself, and went round with a basin and washed all his disciples' feet. And when he had done it, said, "And you are clean every whit." That is what I want him to do to all the members of this, my beloved Church, now. You cannot serve God while you are defiled. You need fresh cleansing for successful service. O may he take the towel now in his infinite condescension, and visit each one and wash you one by one! Pastors, deacons, elders, members, may we all avail ourselves of the open fountain at this hour!
 
 O that the Holy Spirit might give to each one of us that cleansing which shall make us fit for service! O that we shall be useful during the coming months in the ingathering of his poor lost ones, to his praise and glory. May God grant it, for his name's sake. Amen.
-
-Portions of Scripture Read Before Sermon, Zechariah 12, and 13:1.
