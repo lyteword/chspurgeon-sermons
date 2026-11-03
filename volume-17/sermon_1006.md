@@ -1,7 +1,7 @@
 # Sermon 1006 | Christ Is All
 
-> "Christ is all in all."
-> Colossians 3:11.
+> "Christ is all in all."  
+> Colossians 3:11.  
 
 The apostle was arguing for holiness. He was earnestly contending against sin and for the maintenance of Christian graces, but he did not, as some do, who would like to be thought preachers of the gospel, resort to reasons inconsistent with the gospel of free grace. He did not bring forward a single legal argument; he did not say, "This do, and ye shall merit reward;" or, "This do not, and ye shall cease to be the beloved of the Lord." He knew that he was writing to believers, who are not under the law but under grace, and he therefore used arguments fetched from grace, and suitable to the character and condition of "the elect of God, holy and beloved." He fed the flame of their love with suitable fuel, and fanned their zeal with appropriate appliances.
 
@@ -69,10 +69,10 @@ See, in the next place, the safety and the blessedness of the believer. Christ i
 
 See, too, in the truth before us a rebuke for the doubts of many seekers. They will say, "I have not this, I have not that." Suppose thou hast it not, Christ has it, if it be good for anything. "I would fain cast myself upon the mercy of God in Christ this day, but," Ah, away with thy "buts." What dost thou want? "I want true belief," saith one. Come to Christ for it then. "I want a broken heart," says another. If you cannot come with a broken heart to Christ, come for a broken heart.
 
-> True belief, and true repentance
-> Every grace that brings us nigh,
-> Without money
-> Come to Jesus Christ and buy.
+> True belief, and true repentance  
+> Every grace that brings us nigh,  
+> Without money  
+> Come to Jesus Christ and buy.  
 
 We have an old proverb about the folly of taking coals to Newcastle; but what folly must that be which makes a man think that he can take something to Christ, when Christ is all. Come, come, come, come to him, poor sinner, and let him be all in all to thee. Simply rely upon him and be at peace.
 
