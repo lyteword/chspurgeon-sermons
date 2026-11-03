@@ -130,7 +130,3 @@ My dear brother, to confess Christ is so easy a burden, it involves so temporary
 Blessed are they who go to their Lord without the camp, leaving the world's religion, as well as its sin, in obedience to that sacred call: "Come out from among them, and be you separate, and touch not the unclean thing; and I will receive you, and will be a father unto you, and you shall be my sons and daughters."
 
 The Lord deal graciously with you, beloved, and lead you in a plain path, because of your enemies, for Jesus' sake. Amen.
-
-Portion of Scripture Read Before Sermon: Jeremiah 15.
-
-Just Published. A Memorial of the Marriage of the Princess Louise, entitled, The Royal Wedding, the Banquet and the Guests. By C. H. Spurgeon. Price one shilling, beautifully bound; or six pence, in paper wrapper. London: Passmore & Alabaster, 18 Paternoster Row.
