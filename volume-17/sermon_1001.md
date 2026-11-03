@@ -144,7 +144,3 @@ At any rate, let this sweet thought reach you. You need not be afraid to come to
 Think of what he is doing. He is pleading before the throne of God for sinners! Think of what he is giving at this moment; he is exalted on high to give repentance and remission of sins. Is not this lovely? Under every aspect Christ Jesus is attractive to sinners who need him. Come, then! Come and welcome! There is nothing to keep you away; there is everything to bid you come!
 
 May this very Sunday in which I have preached Christ, and lifted him up, be the day in which you shall be drawn to him, never again to leave him, but to be his forever and forever. Amen.
-
-Portion of Scripture Read Before Sermon: Song of Solomon 5.
-
-Mr. Spurgeon begs earnestly to thank a friend, who desires to be anonymous, for £500 towards buildings for the Pastors' College, to commemorate the thousandth sermon, as also Mr. Thomas Ness for £10, and a sermon-reader for a guinea. This last donor believes that at least a thousand readers might send a guinea each at once, to celebrate the occasion, and to aid in erecting rooms in which preachers would be trained, whose theme would be the gospel of Jesus. Mr. Spurgeon is thankful for the timely aid. Some £3,000 more will probably be required for the buildings.
