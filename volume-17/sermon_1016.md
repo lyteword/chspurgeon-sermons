@@ -1,7 +1,7 @@
 # Sermon 1016 | Beauty for Ashes
 
-> "To appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord, that He might be glorified."
-> Isaiah 61:3
+> "To appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord, that He might be glorified."  
+> Isaiah 61:3  
 
 When soldiers are on the march, or advancing to the battle, military men think it wise to let the trumpet sound, that the warriors may be stimulated by the thrilling music. Many a weary soldier has tramped on with new vigor when the band has struck up a lively march or a soul-moving tune. In the midst of our present Christian service, my brethren, when, I trust, all of you have resolved to come to the help of the Lord, to the help of the Lord against the mighty, we would bid the silver trumpets of gospel promises sound aloud, that the hosts of God, as they march on in battle array, may feel their pulses quickened and their souls cheered.
 
@@ -43,21 +43,21 @@ I have broken God's just commandments. I have done evil against my God. I have d
 
 Those who mourn for the guilt of past sin, before long, reach a higher point. Mourners are not suffered long to tarry; grace takes their load of guilt away. Their transgressions are covered. Do they leave off mourning then? Oh, no, they mourn in another way. There is a sweet mourning concerning my past sin which I would never wish to lose. It is forgiven, every sin of mine is blotted out, and my soul, therefore, with a sweet bitterness, would mourn over it more and more,
 
-> "My sins, my sins, my savior!
-> How sad on you they fall,
-> Seen through your gentle patience
-> I tenfold feel them all.
-> I know they are forgiven
-> But still their pain to me
-> Is all the grief and anguish
-> They laid, my Lord, on you."
+> "My sins, my sins, my savior!  
+> How sad on you they fall,  
+> Seen through your gentle patience  
+> I tenfold feel them all.  
+> I know they are forgiven  
+> But still their pain to me  
+> Is all the grief and anguish  
+> They laid, my Lord, on you."  
 
 This is a kind of mourning which may accompany us even to heaven's gates, and we might almost regret to have to part with such a friend even there,
 
-> "Lord, let me weep for nothing but sin,
-> And after none but you.
-> And then I would, oh that I might,
-> A constant weeper be."
+> "Lord, let me weep for nothing but sin,  
+> And after none but you.  
+> And then I would, oh that I might,  
+> A constant weeper be."  
 
 True hearts, however, mourn not only for their past transgressions, but they also sorrow over their present imperfections. If you are what you should be, dear friend, I am quite certain you see a great deal in yourself to grieve over. You cannot live as you would live. Whenever I meet with a person who feels that he is perfect, I conceive at once that he has not yet attained even a remote conception of what true perfection must be.
 
@@ -83,14 +83,14 @@ The Holy One of Israel in the midst of Zion gives as well as appoints. The rich 
 
 Did you ever feel, while cast down, on a sudden lifted up, when some precious promise has come home to your soul? This is the happy experience of all the saints,
 
-> "Sometimes a light surprises
-> The Christian while he sings,
-> It is the Lord who rises
-> With healing in his wings.
-> When comforts are declining,
-> He grants the soul again
-> A season of clear shining
-> To cheer it, after rain."
+> "Sometimes a light surprises  
+> The Christian while he sings,  
+> It is the Lord who rises  
+> With healing in his wings.  
+> When comforts are declining,  
+> He grants the soul again  
+> A season of clear shining  
+> To cheer it, after rain."  
 
 Our ever gracious and almighty Lord knows how to comfort his children, and be assured he will not leave them comfortless. He who bids his ministers again and again attend to this duty, and says, "Comfort you, comfort you my people," will not, himself, neglect to give them consolation. If you are very heavy, there is the more room for the display of his grace in you, by making you very joyful in his ways.
 
@@ -130,10 +130,10 @@ And, when we told them where we lost our burden, they said, "Ah, there is someth
 
 Do you remember John Bunyan's description of how he got rid of the burden? He stood at the foot of the cross and there was a sepulcher hard by. And as he stood and looked, and saw One hanging on the tree, suddenly the bands that bound his burden cracked, and the load rolled right away into the sepulcher! And when he looked for it, it could not be found. And what did he do? Why, he gave three great leaps for joy, and sang,
 
-> "Blessed Cross!
-> Blessed sepulcher!
-> Blessed rather be the Man
-> That there was put to shame for me."
+> "Blessed Cross!  
+> Blessed sepulcher!  
+> Blessed rather be the Man  
+> That there was put to shame for me."  
 
 If those who knew the Pilgrim in his wretchedness had met him on the other side of that never-to-be-forgotten sepulcher, they would have said, "Are you the same man?"
 
@@ -157,13 +157,13 @@ Perhaps I speak to some for whom the promises of God have no charm. Let me, then
 
 Beware, then, you that forget God, lest he overthrow you in his hot displeasure. Seek the savior now, lest the acceptable year of the Lord be closed with a long winter of utter despair,
 
-> "You who spurn his righteous sway,
-> Yet, oh yet, he spares your breath.
-> Yet his hand, averse to slay,
-> Balances the bolt of death.
-> Before that dreadful bolt descends,
-> Hasten before his feet to fall,
-> Kiss the scepter he extends,
-> And adore him, 'Lord of all.'"
+> "You who spurn his righteous sway,  
+> Yet, oh yet, he spares your breath.  
+> Yet his hand, averse to slay,  
+> Balances the bolt of death.  
+> Before that dreadful bolt descends,  
+> Hasten before his feet to fall,  
+> Kiss the scepter he extends,  
+> And adore him, 'Lord of all.'"  
 
 PORTION OF SCRIPTURE READ BEFORE SERMON: Isaiah 61.
