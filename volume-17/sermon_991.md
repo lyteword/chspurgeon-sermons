@@ -1,7 +1,7 @@
 # Sermon 991 | The Fourfold Treasure
 
 > "But of him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption: that, according as it is written, he that glories, let him glory in the lord."  
-> 1 Corinthians 1:30, 31.  
+> 1 Corinthians 1:30, 31  
 
 We meet somewhere in the old testament with the expression "salt without prescribing how much." Beyond all question the name, person, and work of Jesus are the salt and savor of every true gospel ministry, and we cannot have too much of them. Alas, that in so many ministries there is such a lack of this first dainty of the feast, this essence of all soul-satisfying doctrine. We may preach Christ without prescribing how much, only the more we extol him the better. It would be impossible to sin by excess in preaching Christ crucified. It was an ancient precept, "With all your offerings you shall offer salt." Let it stand as an ordinance of the sanctuary now, "With all your sermonizing and discoursing you shall ever mingle the name of Jesus Christ, you shall ever seek to magnify the alpha and omega of the plan of redemption."
 
@@ -136,13 +136,3 @@ O men, O angels, O cherubim, O seraphim, boast in Jesus Christ! Wisdom, Righteou
 Let time and space become great mouths for song! Let the infinite roll up its waves. Let all creatures lift up their voices in praise of him that lives and was dead! But chiefly, O my soul, since to him you owe in a double sense your existence, give your praise to him from whom all blessing comes. Give the homage of your intellect to him who is your wisdom. Let your conscience and love of rectitude adore him who has made you righteous. Give the tribute of your soul to him who sanctifies you. Let your sanctified nature consecrate itself continually. And to him that has redeemed you give never-ceasing praise.
 
 I wish it were possible for me to rise to the height of my text, but my wings flag. I cannot ascend as the eagle, and face the full blaze of the sun. I can but mount a little as the lark, and sing my song, and then return to my nest. God grant you to know the Lord Jesus in his fullness in your personal experience. O you to whom Christ is not wisdom, how foolish are you! O you to whom he is not righteousness, you are condemned sinners! O you to whom he is not sanctification, the fire of God's wrath will consume you! O you to whom he is no redemption, you are slaves in hopeless bondage! God deliver you! May you be led to put your trust in Jesus even now. Amen.
-
-Portion of scripture read before sermon: 1 Corinthians 1.
-
-Mr. Spurgeon earnestly requests the prayers of the Lord's people for his restoration to health. He has now been laid aside for eight most painful weeks, and at present there are very feeble signs of recovery.
-
-Twentieth Thousand. Price, two shillings and sixpence.
-
-"Feathers for Arrows," or, "Illustrations for Preachers and Teachers from My Note Book," by C. H. Spurgeon.
-
-"A treasury of figures and metaphors, and plenty of them, from Mr. Spurgeon's Note Book which he has done well to reduce to 280 pages of type, for the benefit of Christian workers, to whom the book is now presented as a sincere offering of hearty brother-help." -- The Latter Rain.
