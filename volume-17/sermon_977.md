@@ -59,7 +59,7 @@ May we learn to believe in the God and Father whom His only begotten Son, Jesus 
 
 Thus much concerning our Lord. I have only opened the door for you to enter. I wonder whether it will ever be given to us to be able to say, as Christians, in our humbler measure, what He said, as the very Christ in such exalted strains?
 
-II. Let us now use the text in reference to ourselves.
+Let us now use the text in reference to ourselves.
 
 It ought to be the ambition of every believer here, in a sense more or less extensive, to be able to say, "I have preached righteousness. I have not refrained my lips. I have not hid Your righteousness within my heart. I have declared Your faithfulness and Your salvation. I have not concealed Your loving kindness and Your truth."
 
@@ -102,7 +102,7 @@ Fervently do I hope that those of you with the largest opportunities may yet be 
 
 Yet let us hope that we, too, may be able to say, "I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart, I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth from the great congregation."
 
-III. It is with an overwhelming sense of the importance, as well as the moral grandeur of this profession, that I repeat it to you again and again. For when we are able to feel this, and to say it humbly and confidently, with good faith and without guile, it casts much comfortable light on many solemn subjects.
+It is with an overwhelming sense of the importance, as well as the moral grandeur of this profession, that I repeat it to you again and again. For when we are able to feel this, and to say it humbly and confidently, with good faith and without guile, it casts much comfortable light on many solemn subjects.
 
 How awful to remember that every hour there are hundreds of men and women who are dying without Christ. Turn to the obituaries of this one city. Be our sentiments ever so charitable, let us judge with the utmost liberality, before their Maker's bar without a hope! I think our hearts would break with the dread recollection of this if we could not say, "I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart, I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth from the great congregation."
 
@@ -166,5 +166,3 @@ I do not say that rewards are given as mere rewards of merit, but this I do assu
 with all my might I labored to excel, and now I enter into the bliss of Him who helped and strengthened me, who revealed His grace in me, and counted me worthy to put me into some part of the ministry of His church."
 
 God bless you, dear friends, and make you earnest to tell others those things He has made known unto you, for our Lord Jesus Christ's sake. Amen.
-
-Portion of scripture read before sermon, Psalm 40.
