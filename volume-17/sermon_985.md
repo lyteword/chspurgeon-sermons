@@ -1,7 +1,7 @@
 # Sermon 985 | The Touchstone of Godly Sincerity
 
-> "Will he always call upon God?"
-> Job 27:10
+> "Will he always call upon God?"  
+> Job 27:10  
 
 When Job resumes his address in this chapter, he appeals to God in a very solemn matter as to the truth of all that he had spoken. No less vehemently does he assert his innocence of any signal crime, or his consciousness of any secret guile which could account for his being visited with extraordinary suffering. I do not know that his language necessarily implies any culpable self-righteousness. It appears to me, rather, that he had good cause to defend himself against the bitter insinuations of his unfriendly friends.
 
@@ -13,10 +13,10 @@ In terrible language he describes and denounces the hypocrite's flattering hope 
 
 We ask not the question idly, but in order that we take heed against the uprising of such an evil in ourselves:
 
-> Beneath the saintly veil the votary of sin
-> May lurk unseen.
-> And to that eye alone
-> Which penetrates the heart, may stand revealed.
+> Beneath the saintly veil the votary of sin  
+> May lurk unseen.  
+> And to that eye alone  
+> Which penetrates the heart, may stand revealed.  
 
 The hypocrite is very often an exceedingly neat imitation of the Christian. To the common observer he is so good a counterfeit that he entirely escapes suspicion. Like base coins which are cunningly made, you can scarcely detect them by their ring. It is only by more searching tests that you are able to discover that they are not pure gold, the current coin of the realm.
 
@@ -104,8 +104,8 @@ Something more must be done. Had Jacob been a hypocrite he would have let the an
 
 But no. He meant to prevail, and though he felt the pain, Yet he said:
 
-> With You all night I mean to stay,
-> And wrestle till the break of day.
+> With You all night I mean to stay,  
+> And wrestle till the break of day.  
 
 He did so and became a prince from that night. Will you take a denial from God? You shall have it! O importunate Christian, you are he whom God loves! Alas for those who only give, as it were, runaway knocks at the door of Heaven, like boys in the street that knock and run away; they shall never find the blessing. Oh, to continue in prayer! It is the very test of sincerity. That is why of the hypocrite it is said, "Will he always call upon God?" A hypocrite leaves off praying in either case. He leaves off if he does not get what he asks for, as I have shown you. And he leaves off if he does get what he asks for. Has he asked to be recovered from sickness when ill? If he gets well, what cares he for praying again?
 
