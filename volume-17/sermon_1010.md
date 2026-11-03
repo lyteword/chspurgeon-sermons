@@ -1,7 +1,7 @@
 # Sermon 1010 | Light for Those Who Sit in Darkness
 
-> "The land of Zabulon, and the land of Nephthalim, by the way of the sea, beyond Jordan, Galilee of the Gentiles. The people which sat in darkness saw great Light, and to them which sat in the region and shadow of death Light is sprung up."
-> Matthew 4:15, 16.
+> "The land of Zabulon, and the land of Nephthalim, by the way of the sea, beyond Jordan, Galilee of the Gentiles. The people which sat in darkness saw great Light, and to them which sat in the region and shadow of death Light is sprung up."  
+> Matthew 4:15, 16.  
 
 Full of love to the place where he had been brought up, our Lord had gone to Nazareth, and in the Synagogue he had preached the most glad tidings. But, alas, the greatest of prophets and the Lord of prophets received no honor in his own country. "He came unto his own and his own received him not." Expelled from the city by violence, the patient one turned his footsteps another way. And yet, even when justly angry, love guided his footsteps. He must go, for the Nazarenes had proved themselves unworthy, but where shall he go? He will go to the outcasts, to that part of his country which was most neglected, to that region where the population was mixed and degenerate so as to be called not Galilee of the Jews, but Galilee of the Gentiles.
 
@@ -53,14 +53,14 @@ If Jesus will come and save that evil, ignorant sinner, whom everybody knows bec
 
 Moreover, when they happily behold the light, such persons frequently become eminently useful to others. Their experience aids them in counseling others, and their gratitude makes them eager to do so. O sweet light, how precious are you to blind eyes, when they are newly opened. You do not know what it is to be blind; thank God that you do not. There are some here, however, who painfully know what constant darkness is. It is a grievous privation; but when their eyes are opened, as they will be in another state, and they see that best of sights, the king in his beauty, how sweet will light be to them!
 
-> "Nights and days of total blindness
-> Are their portion here below.
-> Beams of love from eyes of kindness,
-> Never here on earth they know.
-> But on high they shall behold
-> Angels tuning harps of gold.
-> Rapture to the new-born sight!
-> Jesus in celestial light!"
+> "Nights and days of total blindness  
+> Are their portion here below.  
+> Beams of love from eyes of kindness,  
+> Never here on earth they know.  
+> But on high they shall behold  
+> Angels tuning harps of gold.  
+> Rapture to the new-born sight!  
+> Jesus in celestial light!"  
 
 So, when the spiritual eye has long been dim and we have mourned and wept for sin, but could not behold a Savior, light is sweet beyond expression. And because it is so sweet there is a necessity within the enlightened soul to tell others the joyful news! When a man has deeply felt the evil of sin and has at length obtained mercy, he cries with David, "Then will I teach transgressors your ways, and sinners shall be converted unto you." John Bunyan's impulse, when he found the Savior, was to tell the crows on the plowed ground about it, and he lived to do better than talk to crows, for day by day, from generation to generation, his works proclaim the friend of sinners, who leads them from the City of Destruction to the Celestial glory.
 
@@ -94,23 +94,23 @@ Friend of sinners was his name, and is still. Think of that self-denying life sp
 
 It must be true that God can save me, if Christ has died in the place of the guilty. This argument has killed my unbelief. I cannot disbelieve when I see incarnate God suffering for the guilty, the just for the unjust, to bring them to God:
 
-> "Sinners! Come, the Savior see,
-> Hands, feet, side, and temples view.
-> See him bleeding on the tree,
-> See his heart on fire for you!
-> View awhile, then hasten away,
-> Find a thousand more, and say:
-> Come, you sinners! Come with me,
-> View him bleeding on the tree."
+> "Sinners! Come, the Savior see,  
+> Hands, feet, side, and temples view.  
+> See him bleeding on the tree,  
+> See his heart on fire for you!  
+> View awhile, then hasten away,  
+> Find a thousand more, and say:  
+> Come, you sinners! Come with me,  
+> View him bleeding on the tree."  
 
 I wish it were in my power to convey the light which I see in the cross into the mental eyeballs of all my hearers, but I cannot. God the Holy Spirit must do it. Yet, beloved, if ever you get light, it will be in this way; Christ must be a great light to you. Nobody ever found light by raking in his own inward darkness. That is, indeed, seeking the living among the dead. You may rake as long as ever you will among the embers of your depravity before you will find a spark of good there. Away from self! Away from your own resolutions! Away from your own prayers, repentances, and faith! Away to Christ on the cross must you look!
 
 All your hope and help are laid on Immanuel's shoulders. You are nothing. Not a rag nor a thread of your own righteousness will do. Christ's robe of righteousness must cover you from head to foot. Blow out your paltry candles! Put out the sparks which you have vainly kindled, for behold the Sun is risen! "Arise, shine. For your light is come, and the glory of the Lord is risen upon you." You want no other light than that of Jesus; dream of no other. Give up self, give up self-hope; be in utter despair of anything that you can do. And now, whether you sink or swim, throw yourself into the sea of Christ's love; rest in him and you shall never perish, neither shall any pluck you from his hands:
 
-> "Cast your deadly 'doing' down,
-> Down at Jesus' feet,
-> Stand in him, in him alone,
-> Gloriously complete."
+> "Cast your deadly 'doing' down,  
+> Down at Jesus' feet,  
+> Stand in him, in him alone,  
+> Gloriously complete."  
 
 But, lastly, we would say to every poor soul in darkness, you need be in darkness no longer. For light is all around you; it has already "sprung up." What a mercy, my dear despairing hearer, that you are not in hell! You might have been there; many no worse than you are there. And yet, here you are in the land of hope. This day God does not deal with you according to the law, but after the gospel fashion. You are not come to Sinai this morning; no burning mountain is before you, and no tones of thunder peal from it. You are come unto Mount Zion, where the mediator of the new covenant speaks peace and pardon.
 
@@ -132,14 +132,14 @@ I mean you that sit in darkness, you that are ignorant, you that are depressed, 
 
 Oh, come, you guilty ones! For he is ready to forgive you. Come, you filthy! The fountain is ready for your cleansing. Come, you sorrowful ones, since joy is prepared; his oxen and fatlings are killed, for all things are ready; come to the feast of love. But I hear you say, "I must surely do something." Have done with your doings! Take Christ's doings. "Oh, but I do not feel as I should." Have done with your feelings; Christ's feelings on the cross must save you, not your own feelings. "Oh, but I am so vile." He came to save the vile:
 
-> "Come, in all your filthy garments,
-> Tarry not to cleanse or mend.
-> Come, in all your destitution,
-> As you are, and he'll befriend.
-> By the Tempter's vain allurements,
-> Be no longer you beguiled:
-> God the Father waits to own you
-> As his dear adopted child."
+> "Come, in all your filthy garments,  
+> Tarry not to cleanse or mend.  
+> Come, in all your destitution,  
+> As you are, and he'll befriend.  
+> By the Tempter's vain allurements,  
+> Be no longer you beguiled:  
+> God the Father waits to own you  
+> As his dear adopted child."  
 
 "But I have been an adulterer, I have been a thief, I have been a whoremonger, and everything that is bad." Be it so, yet it is a faithful saying, and worthy of all acceptation that Christ Jesus came into the world to save sinners. All manner of sin and of blasphemy shall be forgiven unto men. It is true that you are very much worse than you think you are; you may tell me you are horribly bad, but you have no idea how bad you are; you deserve the hottest place in hell. But it is to you the mercy is sent! To you, man! To you, woman! To you who have defiled yourself with all manner of unmentionable enormities; even to you!
 
