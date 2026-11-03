@@ -130,5 +130,3 @@ It is the one thing needful for the backslider. If you have fallen ever so much,
 I desire not to be troubled about my preaching, nor to be cumbered about anything beneath the sun, but to leave all these, as he would have me leave them, in his hands. You who are working in the classes, in the school or anywhere else, I pray you look well to your fellowship with Jesus. You cannot slay the enemy by throwing away your sword, and nearness to Christ is your battle-ax and weapon of war. You have lost your power when you have left your Lord. One thing is needful--let the rest go.
 
 What if we have not learning? What if we have not eloquence? If we live near to Christ we have something better than these. If we abide in him, and he abides in us, we shall ask what we will, and it shall be done unto us. If his word abides in us, we shall go and bring forth fruit, and our fruit shall remain. If he abides in us, we shall enjoy heaven on earth, and be daily preparing for that eternal heaven which is to be our portion. "One thing is needful." God grant it to every one of us!--Amen.
-
-PORTION OF SCRIPTURE READ BEFORE SERMON--Luke 10.
