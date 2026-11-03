@@ -1,7 +1,7 @@
 # Sermon 992 | A New Order of Priests and Levites
 
 > "And I will also take of them for priests and for Levites, says the Lord."  
-> Isaiah 66:21.
+> Isaiah 66:21.  
 
 This chapter is surrounded with critical difficulties, and yet it is full of spiritual instruction. The verse before us is, by some, referred to Gentiles, and supposed to mean that the Lord promises that He will take out of the heathen nations a people whom He will make into priests and Levites. Others would say it points to the Jews, rejected for their unbelief and dispersed in judgment among all nations. When their own Messiah came, it was not with a devout faith, but with a profane imprecation they said, "His blood be on us, and on our children." The curse they invoked did come upon them. The retribution they challenged has been meted out to them in full measure. To the letter it was verified.
 
@@ -24,7 +24,7 @@ In like manner there is a people to be found on earth at this day whom God has c
 > "Here, Lord, I find settled rest  
 > While others go and come.  
 > No more a stranger or a guest,  
-> But like a child at home."
+> But like a child at home."  
 
 Lord, You have been our dwelling place in all generations; we are a people near unto You, made near by affinity with the Son of God. We are brought near by the blood, led near by the Spirit of God, kept near, and rejoicing to be near, for here is our honor and comfort, to be near unto God. We are made priests and Levites because we are claimed as God's portion, prepared for God's service, and admitted to a near familiarity with Him. There are some such to be found in this place today, whom God has taken from among the Gentiles to be priests and Levites unto Him.
 
@@ -124,7 +124,7 @@ Be humble, Brother; it will help you to watch. Watching is done best in a lowly 
 
 > "Love I most;  
 > I've more forgiven;  
-> I'm a miracle of Grace."
+> I'm a miracle of Grace."  
 
 Those that had some good principles instilled into them by early training, or some sort of preparation to receive the Gospel may not feel their deep indebtedness to the wonderful working of the Spirit. But those of us who were steeped in sin, and hardened in heart, when we are saved we must magnify the power of God, and moved by that feeling we must serve Him heartily with our whole spirit, soul, and body. A man that feels what Grace has done for him cannot help throwing his whole soul into it.
 
