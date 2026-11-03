@@ -1,7 +1,7 @@
 # Sermon 1003 | Your Own Salvation
 
 > "Your own salvation."  
-> Philippians 2:12.
+> Philippians 2:12.  
 
 We select the words, "your own salvation," as our text this morning, not out of any singularity, or from the slightest wish that the brevity of the text should surprise you; but because our subject will be the more clearly before you if only these three words are announced. If I had nominally taken the whole verse I could not have attempted to expound it without distracting your attention from the topic which now weighs upon my heart. O that the divine Spirit may bring home to each one of your minds the unspeakable importance of "your own salvation"!
 
@@ -64,7 +64,7 @@ Having answered these objections, I shall for a minute attempt to render some as
 Has the Holy Spirit been pleased to make any one here earnest about his own salvation? Friend, I will help you to answer two questions. Ask yourself, first, "Am I saved?" I would help thee to reply to that very quickly. If you are saved this morning, you are the subject of a work within you, as saith the text, "Work out your own salvation; for it is God which worketh in you." You cannot work it in, but when God works it in you work it out. Have you a work of the Holy Spirit in your soul? Do you feel something more than unaided human nature can attain unto? Have you a change wrought in you from above? If so, you are saved. Again, does your salvation rest wholly upon Christ? He who hangs anywhere but upon the cross, hangs upon that which will deceive him. If you stand upon Christ, you are on a rock; but if you trust in the merits of Christ in part, and your own merits in part, then you have one foot on a rock but another on the quicksand; and you might as well have both feet on the quicksand, for the result will be the same.
 
 > None but Jesus, none but Jesus   
-> Can do helpless sinners good.
+> Can do helpless sinners good.  
 
 You are not saved unless Christ be all in all in your soul, Alpha and Omega, beginning and ending, first and last. Judge by this, again: if you are saved, you have turned your back on sin. You have not left off sinning, would to God we could do so, but you have left off loving sin; you sin not wilfully, but from infirmity; and you are earnestly seeking after God and holiness. You have respect to God, you desire to be like him, you are longing to be with him. Your face is towards heaven. You are as a man who journeys to the Equator. You are feeling more and more the warm influence of the heavenly heat and light. Now, if such is your course of life, that you walk not after the flesh, but after the Spirit, and bring forth the fruits of holiness, then you are saved. May your answer to that question be given in great honesty and candor to your own soul. Be not too partial a judge. Conclude not that all is right because outward appearances are fair. Deliberate before you return a favorable verdict. Judge yourselves that ye be not judged. It were better to condemn yourself and be accepted of God, than to acquit yourself and find your mistake at the last.
 
