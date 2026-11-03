@@ -51,10 +51,10 @@ And so when a man saith, and every one of you unbelievers do practically say so,
 
 But yet further, the unbeliever touches God in a very tender place by his unbelief. No doubt, it was to the great maker a joyous thing to fashion this world, but there are no expressions of joy concerning it at all equal to the joy of God in the matter of human redemption. We would be guarded when we speak of him, but as far as we can tell, the gift of his dear Son to men, and the whole scheme of redemption, is the master work even of God himself. He is infinite in power, and wisdom, and love. His ways are as high above our ways as the heavens are above the earth. But Scripture, I think, will warrant me in saying:
 
-> That in the grace which rescued man
-> His brightest form of glory shines.
-> Here on the cross it is fairest writ,
-> In precious blood and crimson lines.
+> That in the grace which rescued man  
+> His brightest form of glory shines.  
+> Here on the cross it is fairest writ,  
+> In precious blood and crimson lines.  
 
 Now, the man who saith, "There is no God" is a fool. But he who denies God the glory of redemption, in addition to his folly, has robbed the Lord of the choicest jewel of his regalia, and aimed a deadly blow at the divine honor. I may say of him who despises the great salvation, that, in despising Christ, he touches the apple of God's eye. "This is my beloved Son," says God, "hear him." Out of heaven he says it, and yet men stop their ears and say, "We will not have him." No, they wax wrath against the cross and turn away from God's salvation. Do you think that God will always bear this? The times of your ignorance he has winked at, but "now commands all men everywhere to repent."
 
@@ -98,8 +98,8 @@ In certain cases, the root of this unbelief lies in another direction. It is fed
 
 Such conduct reminds me of the words of Cowper:
 
-> Perish the virtue, as it ought, abhorred,
-> And the fool with it that insults his Lord.
+> Perish the virtue, as it ought, abhorred,  
+> And the fool with it that insults his Lord.  
 
 God believed it necessary, in order to save man, that the Redeemer should die. Yet you self-righteous ones evidently think that death a superfluity: for if a man could save himself, why did the Lord descend and die to save him? If there is a way to heaven by respectability and morality without Christ, what is the good of Christ? It is utterly useless to have an expiator and a mediator, if men are so good that they do not require them. You tell God to his face that he lies to you, that you are not so sinful as he would persuade you, that you do not need a substitute and sacrifice as he says you do. Oh, sirs, this pride of yours is an arrogant rebellion against God! Look at your fine actions, you that are so good: your motives are base, your pride over what you have done has defiled, with black fingers, all your acts. In as much as you prefer your way to God's way, and prefer your righteousness to God's righteousness, the wrath of God abideth on you.
 
