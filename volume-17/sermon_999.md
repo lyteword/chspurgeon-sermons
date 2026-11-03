@@ -137,5 +137,3 @@ May God, the ever-blessed Spirit, visit you. If he is now striving with you, O q
 Above all, remember what the quickening seed is, and reverence it when you hear it preached, "for this is the Word which by the gospel is preached unto you." Respect it, and receive it. Remember that the quickening seed is all wrapped up in this sentence: "Believe in the Lord Jesus Christ, and you shall be saved." "He that believes and is baptized shall be saved. But he that believes not shall be damned."
 
 The Lord bless you, for Jesus' sake. Amen.
-
-Portions of scripture read before sermon: Isaiah 40:1-11; Luke 3:1-17; 1 Peter 1:17-25.
