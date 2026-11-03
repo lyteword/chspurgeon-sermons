@@ -22,7 +22,7 @@ Our history is wrapped up with theirs. "Through their fall, salvation is come un
 > For Israel yet shall own her King,  
 > For her salvation waits,  
 > And hill and dale shall sweetly sing  
-> With praise in all her gates."
+> With praise in all her gates."  
 
 Having said this much, however, we shall now take our text as belonging to ourselves in common with Israel, for in the gospel no promise is now set about with a hedge, and reserved for any race peculiarly. There is now, "neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for you are all one in Christ Jesus." This promise is our joy at this hour. O that I might be able so to speak of it that many anxious hearts might now see its meaning and appropriate its blessedness!
 
@@ -84,7 +84,7 @@ Why do not men accept the Savior? Why do they not come and trust him? For when t
 
 At your own peril is it if you reject the gospel. But if you do so, at least bear us this witness, that we have set forth Christ visibly crucified among you, not hanging up veils of human speculation of our own spinning, or curtains embroidered with curious devices of logic and theology, or of ceremony and ritual. We have cried aloud in plain words:
 
-> "There is life in a look at the Crucified One."
+> "There is life in a look at the Crucified One."  
 
 We have bid you look to Jesus, and have told you, in God's name, that as you look to the Crucified you shall find eternal life. Blessed are the people that know the joyful sound! More blessed, still, if they yield obedience to it!
 
@@ -131,7 +131,7 @@ But on a sudden it is tempted, it is overtaken in a fault, and then the devil cr
 > "This fountain from guilt not only makes pure,  
 > And gives, soon as felt, infallible cure.  
 > But if guilt removed returns, and remains,  
-> Its power may be proved again and again."
+> Its power may be proved again and again."  
 
 It will happen as we grow older and make progress in the Christian life, that we shall discover, everyday, some fresh degree of defilement acquired by our pilgrimage through a sinful world. Do you ever go to rest a single night without feeling that you have been in many places during the day, and that there is fresh dust upon the garment, new soil upon the feet? Ah, do you think every night there is a fountain opened? Today's sins can be as easily put away as yesterday's sins. And today's sinfulness, which I feel unconquerable for the moment, can be conquered still. I can go to Christ again and say, "Let your blood kill this sin of mine, and soften my heart into tenderness and holiness once more." The fountain is still open, and no man can shut it.
 
