@@ -1,8 +1,8 @@
 # Sermon 981 | Carried by Four
 
-> "And He withdrew Himself into the wilderness, and prayed. And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the law sitting by, which were come out of every town of Galilee, and Judaea, and Jerusalem: and the power of the Lord was present to heal them. And, behold, men brought in a bed a man which was taken with a palsy: and they sought means to bring him in, and to lay him before Him. And when they could not find by what way they might bring Him in because of the multitude, they went upon the housetop, and let Him down through the tiling with his couch into the midst before Jesus. And when He saw their faith, He said unto him, Man, your sins are forgiven you. And the scribes and the Pharisees began to reason, saying, 'Who is this which speaks blasphemies? Who can forgive sins, but God alone?' But when Jesus perceived their thoughts, He answering said unto them, 'What reason you in your hearts? Which is easier to say, Your sins are forgiven you. Or to say, Rise up and walk? But that you may know that the Son of Man has power upon earth to forgive sins (He said unto the sick of the palsy), I say unto you, Arise, and take up your couch, and go into your house. And immediately he rose up before them, and took up that whereon he lay, and departed to his own house, glorifying God. And they were all amazed, and they glorified God, and were filled with fear, saying, We have seen strange things today.'"
->
-> Luke 5:16-26
+> "And He withdrew Himself into the wilderness, and prayed. And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the law sitting by, which were come out of every town of Galilee, and Judaea, and Jerusalem: and the power of the Lord was present to heal them. And, behold, men brought in a bed a man which was taken with a palsy: and they sought means to bring him in, and to lay him before Him. And when they could not find by what way they might bring Him in because of the multitude, they went upon the housetop, and let Him down through the tiling with his couch into the midst before Jesus. And when He saw their faith, He said unto him, Man, your sins are forgiven you. And the scribes and the Pharisees began to reason, saying, 'Who is this which speaks blasphemies? Who can forgive sins, but God alone?' But when Jesus perceived their thoughts, He answering said unto them, 'What reason you in your hearts? Which is easier to say, Your sins are forgiven you. Or to say, Rise up and walk? But that you may know that the Son of Man has power upon earth to forgive sins (He said unto the sick of the palsy), I say unto you, Arise, and take up your couch, and go into your house. And immediately he rose up before them, and took up that whereon he lay, and departed to his own house, glorifying God. And they were all amazed, and they glorified God, and were filled with fear, saying, We have seen strange things today.'"  
+>  
+> Luke 5:16-26  
 
 You have this same narrative in the ninth chapter of Matthew, and in the second chapter of Mark. What is three times recorded by Inspired pens must be regarded as trebly important and well worthy of our earnest consideration. Observe the instructive fact that our Savior retired and spent a special time in prayer when He saw an unusual crowd assembling. He withdrew into the wilderness to hold communion with His Father, and, as a consequence, to come forth clothed with an abundance of healing and saving power. Not but that in Himself, as God, He always had that power without measure. But for our sakes He did it, that we might learn that the power of God will only rest upon us in proportion as we draw near to God.
 
@@ -98,23 +98,23 @@ Jesus intended to heal the paralyzed man, but He did so by first of all saying, 
 
 They cannot believe in Jesus to the saving of their souls. If you urge them to pray, they say, "We try to pray, but it is not acceptable prayer." If you bid them have confidence, they will tell you, though not in so many words, perhaps, that they are given up to despair. Their mournful ditty is:
 
-> "I would, but cannot sing.
-> I would, but cannot pray
-> For Satan meets me when I try,
-> And frightens my soul away.
-> I would, but can't repent,
-> Though I endeavor often.
-> This stony heart can never relent
-> Till Jesus makes it soft.
-> I would, but cannot love,
-> Though wooed by love Divine.
-> No arguments have power to move
-> A soul so base as mine.
-> O could I but believe!
-> Then all would easy be.
-> I would, but cannot.
-> Lord, relieve,
-> My help must come from You."
+> "I would, but cannot sing.  
+> I would, but cannot pray  
+> For Satan meets me when I try,  
+> And frightens my soul away.  
+> I would, but can't repent,  
+> Though I endeavor often.  
+> This stony heart can never relent  
+> Till Jesus makes it soft.  
+> I would, but cannot love,  
+> Though wooed by love Divine.  
+> No arguments have power to move  
+> A soul so base as mine.  
+> O could I but believe!  
+> Then all would easy be.  
+> I would, but cannot.  
+> Lord, relieve,  
+> My help must come from You."  
 
 The bottom of this paralysis is sin upon the conscience working death in them. They are sensible of their guilt, but powerless to believe that the crimson fountain can remove it, they are alive only to sorrow, despondency, and agony. Sin paralyzes them with despair. I grant you that into this despair there enters largely the element of unbelief, which is sinful, but I hope there is also in it a measure of sincere repentance, which bears in it the hope of something better.
 
