@@ -1,7 +1,7 @@
 # Sermon 1018 | Pleading
 
-> "But I am poor and needy: make haste unto me, O God: You are my help and my deliverer; O Lord, make no tarrying."
-> Psalm 70:5
+> "But I am poor and needy: make haste unto me, O God: You are my help and my deliverer; O Lord, make no tarrying."  
+> Psalm 70:5  
 
 Young painters were anxious, in the olden times, to study under the great masters. They concluded that they should more easily attain to excellence if they entered the schools of eminent men. At this present time men will pay large premiums that their sons may be apprenticed or articled to those who best understand their trades or professions. Now, if any of us would learn the sacred art and mystery of prayer, it is well for us to study the productions of the greatest masters of that science. I am unable to point out one who understood it better than did the psalmist David. So well did he know how to praise, that his psalms have become the language of good men in all ages.
 
@@ -27,10 +27,10 @@ When you feel your sin most, you have not half felt it. When you confess it most
 
 And oh, soul, if you would get peace and approval with God in prayer, confess the ill desert of your sin. Submit yourself to whatever Divine Justice may sentence you to endure: confess that the deepest Hell is your desert, and confess this not with your lips only, but with your soul. Let this be the doleful ditty of your inmost heart:
 
-> "Should sudden vengeance seize my breath,
-> I must pronounce You just in death.
-> And, if my soul were sent to Hell,
-> Your righteous Law approves it well."
+> "Should sudden vengeance seize my breath,  
+> I must pronounce You just in death.  
+> And, if my soul were sent to Hell,  
+> Your righteous Law approves it well."  
 
 If you will condemn yourself, God will acquit you. If you will put the rope about your neck and sentence yourself, then He who otherwise would have sentenced you will say, "I forgive you, through the merit of My Son."
 
@@ -92,10 +92,10 @@ They do not put the paper down, speak about the excellent signature and discuss 
 
 The Holy Spirit is in earnest, and we must be in earnest, also. We must go for a blessing, and not be satisfied till we have it: like the hunter who is not satisfied because he has run so many miles: but is never content till he takes his prey. Faith, moreover, pleads the performances of God: she looks back on the past and says, "Lord, You did deliver me on such and such an occasion. Will You fail me now?" She, moreover, takes her life as a whole, and pleads thus:
 
-> "After so much mercy past,
-> Will You let me sink at last?"
+> "After so much mercy past,  
+> Will You let me sink at last?"  
 
-> "Have You brought me so far that I may be put to shame at the end?"
+> "Have You brought me so far that I may be put to shame at the end?"  
 
 She knows how to bring the ancient mercies of God, and make them arguments for present favors. But your time would all be gone if I tried to exhibit even a thousandth part of Faith's pleas. Sometimes, however, Faith's pleas are very singular. As in this text, it is by no means according to the proud rule of human nature to plead: "I am poor and needy, make haste unto me, O God." It is like another prayer of David: "Have mercy upon my iniquity, for it is great." It is not the manner of men to plead so: they say, "Lord, have mercy on me, for I am not so bad a sinner as some."
 
