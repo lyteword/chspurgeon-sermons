@@ -1,7 +1,7 @@
 # Sermon 973 | The Power of Christ Illustrated by the Resurrection
 
 > "For our conversation is in heaven; from whence we also we look for the Savior; the Lord Jesus Christ: who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself,"  
-> Philippians 3:20, 21.
+> Philippians 3:20, 21.  
 
 I should mislead you if I called these verses my text, for I intend only to lay stress upon the closing expression, and I read the two verses because they are needful for its explanation. It would require several discourses to expound the whole of so rich a passage as this.
 
