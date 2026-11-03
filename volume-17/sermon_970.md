@@ -156,5 +156,3 @@ The practical lesson to the unconverted is just this. Dear friend, see what valu
 See, again, how false that suspicion of yours is that you will not be welcome if you come to Christ. Welcome! Welcome! Why, the church is searching for you! The Spirit of God is searching for you. Do not talk of welcome; you will be a great deal more than welcome! Oh, how glad will Christ be, and the Spirit be, and the church be, to receive you! Ah, but you complain that you have done nothing to make you fit for mercy. Talk not so; what had the lost piece of money done? What could it do?
 
 It was lost and helpless. They who sought it did all. He who seeks you will do all for you. O poor soul, since Christ now bids you come, come! If his Spirit draws you, yield! Since the promise now speaks, "Come now, and let us reason together: though your sins are as scarlet, they shall be as white as snow. Though they are red like crimson, they shall be as wool," accept the promise! Believe in Jesus. God bless you and save you, for Jesus' sake. Amen.
-
-Portions of Scripture read before sermon: Psalm 126 and Luke 15
