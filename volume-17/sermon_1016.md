@@ -41,7 +41,7 @@ Secondly, to whom is this word spoken? It is spoken to those who mourn in Zion. 
 
 I have broken God's just commandments. I have done evil against my God. I have destroyed my soul; my heart feels this, and bitterly mourns. It is one thing to say formally, "I am a miserable sinner." It is a very different thing to be one. To say it may be gross hypocrisy; to feel it is a mark of grace. Oh that every one of us, if we have never felt mourning for sin may feel it at this hour! May we mourn to think that we have pierced the savior, that we have transgressed against a god so good, and a redeemer so generous!
 
-Those who mourn for the guilt of past sin, before long, reach a higher point. Mourners are not suffered long to tarry; grace takes their load of guilt away. Their transgressions are covered. Do they leave off mourning then? Oh, no, they mourn in another way. There is a sweet mourning concerning my past sin which I would never wish to lose. It is forgiven, every sin of mine is blotted out, and my soul, therefore, with a sweet bitterness, would mourn over it more and more,
+Those who mourn for the guilt of past sin, before long, reach a higher point. Mourners are not suffered long to tarry; grace takes their load of guilt away. Their transgressions are covered. Do they leave off mourning then? Oh, no, they mourn in another way. There is a sweet mourning concerning my past sin which I would never wish to lose. It is forgiven, every sin of mine is blotted out, and my soul, therefore, with a sweet bitterness, would mourn over it more and more:
 
 > "My sins, my sins, my savior!  
 > How sad on you they fall,  
@@ -52,7 +52,7 @@ Those who mourn for the guilt of past sin, before long, reach a higher point. Mo
 > Is all the grief and anguish  
 > They laid, my Lord, on you."  
 
-This is a kind of mourning which may accompany us even to heaven's gates, and we might almost regret to have to part with such a friend even there,
+This is a kind of mourning which may accompany us even to heaven's gates, and we might almost regret to have to part with such a friend even there:
 
 > "Lord, let me weep for nothing but sin,  
 > And after none but you.  
@@ -81,7 +81,7 @@ God has allotted a portion to every one of his mourners, even as Joseph allotted
 
 The Holy One of Israel in the midst of Zion gives as well as appoints. The rich comforts of the gospel are conferred by the holy spirit, at the command of Jesus Christ, upon every true mourner in the time when he needs them. They are given to each spiritual mourner in the time when he would faint for lack of them. He can effectually give the comfort appointed for each particular case. All I can do is to speak of the comfort for God's mourners. I can neither allot it, nor yet distribute it. But our Lord can do both. My prayer is that he may do so at this moment, that every holy mourner may have a time of sweet rejoicing while sitting at the master's feet in a waiting posture.
 
-Did you ever feel, while cast down, on a sudden lifted up, when some precious promise has come home to your soul? This is the happy experience of all the saints,
+Did you ever feel, while cast down, on a sudden lifted up, when some precious promise has come home to your soul? This is the happy experience of all the saints:
 
 > "Sometimes a light surprises  
 > The Christian while he sings,  
@@ -128,7 +128,7 @@ Note, still, the result of all this goes further, "They shall be called trees of
 
 And, when we told them where we lost our burden, they said, "Ah, there is something in religion after all." "Then said they among the heathen, the Lord has done great things for them." Remember poor Christian in Pilgrim's Progress? Mark what heavy sighs he heaved, what tears fell from his eyes, what a wretched man he was when he wrung his hands and said, "The city wherein I dwell is to be burned up with fire from heaven, and I shall be consumed in it, and, besides, I am myself undone by reason of a burden that lies hard upon me. Oh that I could get rid of it!"
 
-Do you remember John Bunyan's description of how he got rid of the burden? He stood at the foot of the cross and there was a sepulcher hard by. And as he stood and looked, and saw One hanging on the tree, suddenly the bands that bound his burden cracked, and the load rolled right away into the sepulcher! And when he looked for it, it could not be found. And what did he do? Why, he gave three great leaps for joy, and sang,
+Do you remember John Bunyan's description of how he got rid of the burden? He stood at the foot of the cross and there was a sepulcher hard by. And as he stood and looked, and saw One hanging on the tree, suddenly the bands that bound his burden cracked, and the load rolled right away into the sepulcher! And when he looked for it, it could not be found. And what did he do? Why, he gave three great leaps for joy, and sang:
 
 > "Blessed Cross!  
 > Blessed sepulcher!  
@@ -155,7 +155,7 @@ And, especially if there is a mourning sinner here, may he get a grip of that ch
 
 Perhaps I speak to some for whom the promises of God have no charm. Let me, then, remind them that his threats are as sure as his promises. He can bless, but he can also curse. He appoints mourning for those who laugh now with sinful merriment. He will give to his enemies vengeance for all their rebellions. He has himself said, "And it shall come to pass, that instead of sweet smell there shall be stink. And instead of a girdle a rent. And instead of well-set hair baldness. And instead of a stomacher a girding of sackcloth. And burning instead of beauty."
 
-Beware, then, you that forget God, lest he overthrow you in his hot displeasure. Seek the savior now, lest the acceptable year of the Lord be closed with a long winter of utter despair,
+Beware, then, you that forget God, lest he overthrow you in his hot displeasure. Seek the savior now, lest the acceptable year of the Lord be closed with a long winter of utter despair:
 
 > "You who spurn his righteous sway,  
 > Yet, oh yet, he spares your breath.  
@@ -166,4 +166,3 @@ Beware, then, you that forget God, lest he overthrow you in his hot displeasure.
 > Kiss the scepter he extends,  
 > And adore him, 'Lord of all.'"  
 
-PORTION OF SCRIPTURE READ BEFORE SERMON: Isaiah 61.
