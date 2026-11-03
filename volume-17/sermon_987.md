@@ -1,7 +1,7 @@
 # Sermon 987 | Marah; or, The Bitter Waters Sweetened
 
-> "And when they came to Marah, they could not drink of the waters of Marah for they were bitter: therefore the name of it was called Marah. And the people murmured against Moses, saying, What shall we drink? And he cried unto the Lord, and the Lord showed him a tree, which when he had cast into the waters, the waters were made sweet."
-> Exodus 15:23, 24, 25
+> "And when they came to Marah, they could not drink of the waters of Marah for they were bitter: therefore the name of it was called Marah. And the people murmured against Moses, saying, What shall we drink? And he cried unto the Lord, and the Lord showed him a tree, which when he had cast into the waters, the waters were made sweet."  
+> Exodus 15:23, 24, 25  
 
 What a sudden change from the sound of the timbrel to the voice of murmuring! You saw the maidens dancing three days ago, and you little dreamed that they would make part of yonder clamorous throng who surround the servant of God, and cry, "What shall we drink?" Such are the changes of our outward conditions and of our inward feelings, so fickle and so mutable is man. What is there that can be rested upon in this mortal life? We say today, "My mountain stands firm, I shall never be moved." Tomorrow terra firma, there is none, and we are tossed upon a stormy sea. Our life is like an April day, the sunshine alternates with the shower. Or like each day of all the year, the morning and the evening are necessary to complete it.
 
