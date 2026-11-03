@@ -46,7 +46,7 @@ The convincing work of the Spirit, wherever it comes, is unexpected, and even to
 > Instead of this, he made me feel   
 > The hidden evils of my heart.   
 > And let the angry powers of hell   
-> Assault my soul in every part."
+> Assault my soul in every part."  
 
 Ah, marvel not, for thus the Lord is likely to answer his people. The voice which says, "Comfort you, comfort you my people," achieves its purpose by first making them hear the cry, "All flesh is grass, and all the goodliness thereof is as the flower of the field."
 
