@@ -146,21 +146,3 @@ The covenant is ratified with blood, the blood of his own dear son. It is not po
 > In oaths, and promises, and blood."  
 
 May God the Holy Spirit help us to use aright from this time forward "the throne of grace." Amen.
-
-Rome, Dec. 7, 1871
-
-TO MY BELOVED CHURCH AND FRIENDS IN GENERAL
-
-Beloved in the Lord, having felt it to be my duty to leave England for a short time to prevent a return of my former complaint, I am bound gratefully to acknowledge the good hand of the Lord upon me during my short sojourn abroad. I hope to return in a brief season, so strengthened as to continue to labour on for a considerable period without another pause. I take this opportunity of thanking my affectionate church and kind friends for their innumerable acts of generous sympathy, in aiding our College and Orphanage, and especially for those many prayers which were turned to my comfort and healing in my late illness, and are the means of my upholding in my ever-growing service for the Lord.
-
-The Lord return into their bosoms a thousand-fold the good which faithful friends have implored for me, and make me far more than ever the means of blessing to them by my ministry. Just now I implore a renewal of those prayers with increased earnestness, for a revival of religion is greatly needed. And it would be a sure evidence of its speedy coming if believers united in prayer for it. Already the flame is kindled at the Tabernacle, but it needs to be fanned into a mighty conflagration.
-
-Our country requires a divine visitation, and the promise of it only needs to be pleaded to be fulfilled. Brethren, as one man, cry mightily to the God of our Lord Jesus Christ, the Father of glory, beseeching him to put his hand to the work, and magnify his son in the eyes of all the people. Standing where Satan's seat is, in the midst of ten thousand idols, I beseech those who worship God in the spirit to wrestle in prayer for times of refreshing, that all lands may know that Jesus Christ is Lord.
-
-How long shall the name of Jesus be blasphemed by the idolatries of Antichrist. It may be that the times of darkness will last till the children of light cry out bitterly, day and night, by reason of soul anguish. Then will God avenge his own elect, and that speedily. As I have trodden the Appian way I have rejoiced that Jesus, whom Paul preached, is yet alive, and is certain in due season to put down his enemies. Already he has desolated the Colosseum where his faithful martyrs poured forth their blood. The pagan power has fallen, and so also shall the papal, and all others which opposes his kingdom.
-
-Let us proclaim a spiritual crusade, and set up our banners by redoubled prayer. It is certain that supplication produces marvelous results in heaven and earth. Its power is proven in our own personal experience, and throughout the history of the church. Brethren, LET US PRAY.
-
-Yours, for Jesus' sake,
-
-H. Spurgeon
