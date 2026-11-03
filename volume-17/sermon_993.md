@@ -132,23 +132,3 @@ Contend no more against the almighty, put back your sword into the scabbard and 
 O may you never know what that means! Cast down your weapons! Come now and ask for reconciliation. The ambassador of peace invites you. I point you no longer to his burning throne, but to yonder cross. See there God in human flesh, bleeding, suffering, dying. Those wounds are fountains of mercy. Look to them, and you shall live! Wrath is appeased by the death of Jesus. Fury is no more in Jehovah! Trust in Jesus, the crucified, and your transgression shall be forgiven you. That precious blood shall make reconciliation, there shall be peace between you and God.
 
 But O resist no longer, for the iron cannot break the northern iron and the steel. The Lord bless you for Jesus' sake. Amen.
-
-Portion of scripture read before sermon: Isaiah 40:9-31
-
-Letter
-
-Clapham, June 5th.
-
-To my friends everywhere,
-
-I have now endured ten silent Sundays, and as I know that many of you are anxious to have accurate information as to my state of health, and as I have now something cheerful to communicate, I feel bound to add the present note to this week's sermon. The pain of my disease, which has been intense, has now ceased for a week or more. I have had a succession of good nights in which sweet sleep has so refreshed me that I felt, each morning, to be far in advance of the previous day. I am now very weak, weak as a little child, but by the same mercy which allayed the pain, strength will be restored, and I shall have the pleasure of being again at my delightful labor.
-
-Please pray for me that I may be speedily and lastingly restored to health, if it is the Lord's will. Ask also that the furnace heat which I have suffered may produce its full effect upon me in my own soul and in my ministry. My heart's inmost desire, as the Lord knows, is the salvation of sinners and the building up of his people in their most holy faith to the glory of the Lord Jesus, therefore it has been very grievous to me to have been debarred my pulpit and shut out from other means of usefulness.
-
-Nevertheless, no work has flagged at the tabernacle because of my illness, pecuniary help has been furnished just when it was needed, and spiritual help has been given by the Lord of hosts. We desire to accomplish more and to receive more blessing when our health is restored to us. Surely the master has some great design to be answered by laying his servant aside, we trust it will prove to be so. Let our prayers be more fervent, our zeal more ardent and our labors for the spread of the truth more abundant, and "God will bless us, and all the ends of the earth shall fear him."
-
-I have one great favor to ask of all readers of the sermons, and that is that they will try to spread them abroad, and increase the number of regular subscribers. What has been good to you will be good for others if the Lord blesses it. If you cannot preach yourself, you can distribute the word spoken by others.
-
-I hope to be able to occupy the pulpit again by June 25, if the Lord wills, but all things are uncertain to us, especially when one is slowly recovering from severe affliction.
-
-Yours to serve till death,
