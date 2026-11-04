@@ -1,7 +1,7 @@
 # Sermon 1023 | Praises and Vows Accepted in Zion
 
 > "Praise waiteth for thee, O God, in Sion: and unto thee shall the vow be performed. O thou that hearest prayer, unto thee shall all flesh come."  
-> Psalm 65:1-2.  
+> Psalm 65:1-2  
 
 Upon Zion there was erected an altar dedicated to God for the offering of sacrifices. Except when prophets were commanded by God to break through the rule, burnt offering was only to be offered there. The worship of God upon the high places was contrary to the divine command: "Take heed to thyself that thou offer not thy burnt offerings in every place that thou seest: but in the place which the Lord shall choose in one of thy tribes, there thou shalt offer thy burnt offerings, and there thou shalt do all that I command thee." Hence the tribes on the other side of Jordan, when they erected a memorial altar, disclaimed all intention of using it for the purpose of sacrifice, and said most plainly, "God forbid that we should rebel against the Lord, and turn this day from following the Lord, to build an altar for burnt offerings, for meat offerings, or for sacrifices, beside the altar of the Lord our God that is before his tabernacle."
 
