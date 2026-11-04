@@ -1,7 +1,7 @@
 # Sermon 990 | Self-humbling and Self-searching
 
 > "Look not upon me, because I am black, because the sun hath looked upon me: my mother's children were angry with me, they made me the keeper of the vineyards; but mine own vineyard have I not kept."  
-> Song of Solomon 1:6.  
+> Song of Solomon 1:6  
 
 Whence do I draw my text, but from the very fountain of love? And to whom shall I address my discourse, but to the friends of the bridegroom? Ye must have warm hearts, quick sensibilities, lively emotions to interpret the sayings and sympathize the tender notes of this most sacred song.
 
