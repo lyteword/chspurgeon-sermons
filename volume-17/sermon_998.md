@@ -1,7 +1,7 @@
 # Sermon 998 | More and More
 
 > "But I will hope continually, and will yet praise You more and more."  
-> Psalm 71:14.  
+> Psalm 71:14  
 
 When sin conquered the realm of manhood, it slew all the minstrels except those of the race of Hope. For humanity, amid all its sorrows and sins, hope sings on. For believers in Jesus there remains a royal race of bards, for we have a hope of glory, a lively hope, a hope eternal and divine. Because our hope abides, our praise continues: "I will hope continually, and will yet praise You." Because our hopes grow brighter and are every day nearer and nearer to their fulfillment, therefore the volume of our praise increases. "I will hope continually, and will yet praise You more and more." A dying hope would bring forth declining songs. As the expectations grew more dim, so would the music become more faint.
 
