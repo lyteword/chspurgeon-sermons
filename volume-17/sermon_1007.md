@@ -1,7 +1,7 @@
 # Sermon 1007 | North and South
 
 > "I will say to the north, Give up; and to the south, keep not back."  
-> Isaiah 43:6.  
+> Isaiah 43:6  
 
 In the fullness of the promised days when the Jews shall be restored from their wanderings, and all the seed of Jacob shall again meet in their own land, God in his mighty providence will speak to all the nations, saying: "To the north, Give up; and to the south, Keep not back;" and at the divine bidding free passage shall be given, all lets and hindrances shall be removed, and his own people shall come to their own land. Entailed on Abraham's seed by a covenant of salt, the Holy Land shall receive again its rightful heritors, the banished shall come to their own again, and no nation or people shall keep them back. So much for the literal meaning. I am unable to indulge you with fuller details, for I have no skill in guessing at the meaning of dark passages, but leave such things to those to whom it is given, or who think it is given to them. We shall now pursue the spiritual teaching of the passage.
 
