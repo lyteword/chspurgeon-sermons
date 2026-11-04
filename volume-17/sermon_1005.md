@@ -1,7 +1,7 @@
 # Sermon 1005 | Lessons From Nature
 
 > "Where the birds make their nests: as for the stork, the fir trees are her house. The high hills are a refuge for the wild goats, and the rooks for the conies."  
-> Psalm 104:17, 18.  
+> Psalm 104:17, 18  
 
 This Psalm is all through a song of nature, the adoration of God in the great outward temple of the universe. Some in these modern times have thought it to be a mark of high spirituality never to observe nature. And I remember sorrowfully reading the expressions of a godly person, who, in sailing down one of the most famous rivers in the world, closed his eyes, lest the picturesque beauties of the scene should divert his mind from scriptural topics. This may be regarded by some as profound spirituality; to me it seems to savor of absurdity!
 
