@@ -1,7 +1,7 @@
 # Sermon 999 | The Withering Work of the Spirit
 
 > "The voice said, Cry. And he said, What shall I cry? All flesh is grass, and all the goodliness thereof is as the flower of the field: the grass withers, the flower fades: because the Spirit of the Lord blows upon it surely the people is grass. The grass withers, the flower fades: but the Word of our God shall stand forever."  
-> Isaiah 40:6-8.  
+> Isaiah 40:6-8  
 
 The passage in Isaiah which I have just read in your hearing may be used as a very eloquent description of our mortality, and if a sermon should be preached from it upon the frailty of human nature, the brevity of life, and the certainty of death, no one could dispute the appropriateness of the text. Yet I venture to question whether such a discourse would strike the central teaching of the prophet. Something more than the decay of our material flesh is intended here. The carnal mind, the flesh in another sense, was intended by the Holy Spirit when he bade his messenger proclaim those words. It does not seem to me that a mere expression of the mortality of our race was needed in this place by the context. It would hardly keep pace with the sublime revelations which surround it, and would in some measure be a digression from the subject in hand. The notion that we are here simply reminded of our mortality does not square with the New Testament exposition of it in Peter, which I have also placed before you as a text. There is another and more spiritual meaning here besides and beyond that which would be contained in the great and very obvious truth of God that all of us must die.
 
