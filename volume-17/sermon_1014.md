@@ -1,7 +1,7 @@
 # Sermon 1014 | "Nunc Dimittis"
 
 > "Lord, now let You Your servant depart in peace, according to Your Word: for my eyes have seen Your salvation."   
-> Luke 2:29-30.   
+> Luke 2:29-30   
 
 Blessed were you, O simeon, for flesh and blood had not revealed this to you; neither had it enabled you so cheerfully to bid the world farewell. The flesh clings to the earth; it is dust, and owes allegiance to the ground out of which it was taken. It loathes to part from mother earth. Even old age, with its infirmities, does not make men really willing to depart out of this world. By nature we hold to life with a terrible tenacity, and even when we sigh over the evils of life, and repine concerning its ills, and fancy that we wish ourselves away, it is probable that our readiness to depart lies only upon the surface. Down deep in our hearts we have no will to go.
 
