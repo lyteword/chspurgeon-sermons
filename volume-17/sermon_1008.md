@@ -1,7 +1,7 @@
 # Sermon 1008 | Love's Logic
 
 > "We love him because he first loved us."  
-> 1 John 4:19.  
+> 1 John 4:19  
 
 This is a great doctrinal truth, and I might with much propriety preach a doctrinal sermon from it, of which the sum and substance would be the sovereign grace of God. God's love is evidently prior to ours: "He first loved us." It is also clear enough from the text that God's love is the cause of ours, for "We love him because he first loved us." Therefore, going back to old times, or rather before all time, when we find God loving us with an everlasting love, we gather that the reason of his choice is not because we loved him, but because he willed to love us. His reasons, and he had reasons (for we read of the counsel of his will), are known to himself. But they are not to be found in any inherent goodness in us, or which was foreseen to be in us. We were chosen simply because he will have mercy on whom he will have mercy. He loved us because he would love us.
 
