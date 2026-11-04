@@ -1,7 +1,7 @@
 # Sermon 1010 | Light for Those Who Sit in Darkness
 
 > "The land of Zabulon, and the land of Nephthalim, by the way of the sea, beyond Jordan, Galilee of the Gentiles. The people which sat in darkness saw great Light, and to them which sat in the region and shadow of death Light is sprung up."  
-> Matthew 4:15, 16.  
+> Matthew 4:15, 16  
 
 Full of love to the place where he had been brought up, our Lord had gone to Nazareth, and in the Synagogue he had preached the most glad tidings. But, alas, the greatest of prophets and the Lord of prophets received no honor in his own country. "He came unto his own and his own received him not." Expelled from the city by violence, the patient one turned his footsteps another way. And yet, even when justly angry, love guided his footsteps. He must go, for the Nazarenes had proved themselves unworthy, but where shall he go? He will go to the outcasts, to that part of his country which was most neglected, to that region where the population was mixed and degenerate so as to be called not Galilee of the Jews, but Galilee of the Gentiles.
 
