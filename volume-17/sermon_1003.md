@@ -1,7 +1,7 @@
 # Sermon 1003 | Your Own Salvation
 
 > "Your own salvation."  
-> Philippians 2:12.  
+> Philippians 2:12  
 
 We select the words, "your own salvation," as our text this morning, not out of any singularity, or from the slightest wish that the brevity of the text should surprise you; but because our subject will be the more clearly before you if only these three words are announced. If I had nominally taken the whole verse I could not have attempted to expound it without distracting your attention from the topic which now weighs upon my heart. O that the divine Spirit may bring home to each one of your minds the unspeakable importance of "your own salvation"!
 
