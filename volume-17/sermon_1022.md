@@ -1,7 +1,7 @@
 # Sermon 1022 | Sleep Not
 
 > "Let us not sleep, as do others."  
-> 1 Thessalonians 5:6.  
+> 1 Thessalonians 5:6  
 
 We do not usually sleep towards the things of this world. We rise up early, and sit up late, and eat the bread of carefulness for Mammon's sake. In this age of competition, most men are wide enough awake for their temporal interests. But so is it, partly through our being in this body, and partly through our dwelling in a sinful world, that we are all of us very apt to sleep concerning the interests of our souls. We drive like Jehu for this present world, but loiter for the world to come. Nothing so much concerns us as eternity, and yet nothing so little affects us. We work for the present world, and we play with the world to come.
 
