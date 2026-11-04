@@ -1,7 +1,7 @@
 # Sermon 1013 | Our Watchword
 
 > "Let such as love thy salvation say continually, Let God be magnified."  
-> Psalm 70:4.  
+> Psalm 70:4  
 
 These words occur at least three times in the book of Psalms, and therefore we may regard them as especially important. When God speaks once, twice, thrice, he doth as it were awaken us to peculiar attention, and call for prompt obedience to what he saith. Let us not be deaf to the divine voice, but let each one say, "Speak Lord, for thy servant heareth."
 
