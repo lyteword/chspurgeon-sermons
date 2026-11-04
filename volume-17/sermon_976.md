@@ -1,7 +1,7 @@
 # Sermon 976 | The Wedding Garment
 
 > "And when the king came in to see the guests, he saw there a man which had not on a wedding garment: and he said unto him, Friend, how came you in here not having a wedding garment? And he was speechless. Then said the king to the servants, Bind him hand and foot, and take him away, and cast him into outer darkness. There shall be weeping and gnashing of teeth. For many are called, but few are chosen."  
-> Matthew 22:11-14.  
+> Matthew 22:11-14  
 
 Apparently the parable of the marriage feast would have been complete without this addition, but there was infinite wisdom in appending this sequel. This is seen practically in the experience of the Church of God. Those who are permitted to see large additions to the Church will find this parable of the wedding garment to be singularly appropriate and timely. Whenever there is a revival and many are brought to Christ, it seems inevitable that at the same time a proportion of unworthy persons should enter the Church. However diligent may be the oversight, there will be pretenders creeping in unaware who have no true part or lot in the matter, and hence, when the preacher is most earnest for the ingathering of souls to Christ, he needs to couple with it a jealousy, lest those who come forward to make a profession of faith should be moved by carnal motives, and should not really have given their hearts to God.
 
