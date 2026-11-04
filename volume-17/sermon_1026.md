@@ -1,7 +1,7 @@
 # Sermon 1026 | Joy Born at Bethlehem
 
 > "And the angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people. For unto you is born this day in the city of David a Savior, which is Christ the Lord. And this shall be a sign unto you: You shall find the babe wrapped in swaddling clothes, lying in a manger."  
-> Luke 2:10, 11, 12.  
+> Luke 2:10, 11, 12  
 
 We have no superstitious regard for times and seasons. Certainly we do not believe in the present ecclesiastical arrangement called Christmas, first, because we do not believe in the mass at all, but abhor it, whether it be said or sung in Latin or in English. And, secondly, because we find no Scriptural warrant whatever for observing any day as the birthday of the Savior. And, consequently, because not of Divine authority, its observance is a superstition. Superstition has fixed most positively the day of our Savior's birth although there is no possibility of discovering when it occurred. Fabricius gives a catalog of 136 different learned opinions upon the matter. And various divines invent weighty arguments for advocating a date in every month in the year.
 
