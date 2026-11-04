@@ -1,7 +1,7 @@
 # Sermon 1020 | "The Sun of Righteousness"
 
 > "In them has he set a tabernacle for the sun, which is as a bridegroom coming out of his chamber, and rejoices as a strong man to run a race. His going forth is from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof."  
-> Psalm 19:4, 5, 6.  
+> Psalm 19:4, 5, 6  
 
 We should feel quite justified in applying the language of the nineteenth Psalm to our Lord Jesus Christ from the simple fact that he is so frequently compared to the sun; and especially in the passage which we have given you as our second text, wherein he is called "the Sun of Righteousness." But we have a higher justification for such a reading of the passage, for it will be in your memories that, in the tenth chapter of the Epistle to the Romans, the Apostle Paul, slightly altering the words of this psalm, applies them to the gospel and the preachers thereof. "Have they not heard?" said he, "Yes, verily, their sound went into all the earth, and their words unto the ends of the world." So that what was here spoken of the sun by David, is referred by Paul to the gospel, which is the light streaming from Jesus Christ, "the Sun of Righteousness."
 
