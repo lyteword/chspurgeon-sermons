@@ -1,7 +1,7 @@
 # Sermon 968 | Life In Christ
 
 > "Because I live, you shall live also."  
-> John 14:19.  
+> John 14:19  
 
 This world saw our Lord Jesus for a very little time, but now it sees him no more. It only saw him with the outward eye and after a carnal sort, so that when the clouds received him and concealed him from bodily vision, this spiritually blind world lost sight of him altogether. Here and there, however, among the crowds of the sightless there were a few chosen men who had received spiritual sight; Christ had been light to them; he had opened their blind eyes, and they had seen him as the world had not seen him. In a high and full sense they could say, "We have seen the Lord," for they had in some degree perceived his Godhead, discerned his mission, and learned his spiritual character. Since spiritual sight does not depend upon the bodily presence of its object, those persons who had seen Jesus spiritually, saw him after he had gone out of the world unto the Father.
 
