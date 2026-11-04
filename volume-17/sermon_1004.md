@@ -1,7 +1,7 @@
 # Sermon 1004 | "Bought with a Price"
 
 > "You are not your own. For you are bought with a price: therefore glorify God in your body, and in your spirit, which are God's."  
-> 1 Corinthians 6:19, 20.  
+> 1 Corinthians 6:19, 20  
 
 Our beloved brother, Thomas Cook, who has for so long a time served this church as an honored deacon, has fallen asleep in Christ. We have laid his earthly remains in the tomb: his spirit rejoices before the throne of God. This day we thank God for his useful life, and ask for grace to imitate it. Before he closed his eyes in death he left a text of Scripture for the pastors: "Christ is all, and in all;" and he left another for his fellow church members, for all of you this day who are members of the body of Christ; and this is the legacy, which now, as a spiritual executor, I present to you: "You are not your own. For you are bought with a price: therefore glorify God in your body, and in your spirit, which are God's." I have no doubt the intention of our departed brother was to promote God's glory by speaking to us even after he was dead concerning our sanctification, that so we might be stirred up to a greater consecration to the Lord our Savior.
 
