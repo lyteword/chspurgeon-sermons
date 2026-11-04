@@ -1,7 +1,7 @@
 # Sermon 1001 | Altogether Lovely
 
 > "Yes, he is altogether lovely."  
-> Song of Solomon 5:16.  
+> Song of Solomon 5:16  
 
 When the old Puritan minister had delivered his discourse, and dwelt upon firstly, and secondly, and thirdly, and perhaps upon twenty-fifthly, before he sat down, he usually gave a comprehensive summary of all that he had spoken. Everyone who carefully noted the summary would carry away the essence of the sermon. The summary was always looked upon by the Puritan hearer as one of the most valuable helps to memory, and consequently a most important part of the discourse.
 
