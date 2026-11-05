@@ -35,7 +35,7 @@ Now observe the proof of this in the case of David. David was as penitent as a m
 
 Nothing about, "/ have washed my couch with tears, and therefore I am whiter than snow. I have made my bed to swim with my heart-sorrow for my transgression, and therefore I am pure." His remorse was very acute, but he never rests on that. He looks to the hyssop. He turns himself to the sacred Fountain of the atoning blood, and there he hopes for cleansing. Ah, dear hearer, and so must you!
 
-"Could your tears forever flow, Could your grief no respite know, All for sin could not atone,  Christ must save, and Christ alone."
+> "Could your tears forever flow, could your grief no respite know, all for sin could not atone, Christ must save, and Christ alone."  
 
 Be it also known that no form of suffering in this world can put away sin. There is a notion, especially among the poorer classes of London, based very much upon a mistaken interpretation of the parable of the rich man and Lazarus, that in the next world those who have been very poor, and have suffered a great deal, will as a sort of recompense be taken up to Heaven, while the rich, simply because they were rich, will be sent down to Hell. Such was by no means the teaching of Christ! It is as wide as the poles asunder from His meaning.
 
@@ -107,7 +107,7 @@ The Lord Christ gave up for you His human Body and soul and Spirit, all that con
 
 Doubts, however black they may be, ought to subside when we perceive that the Atonement made must have been infinitely meritorious, because it was not an Atonement of mere tears and blood and works, but an Atonement made by the Lord's giving up Himself, His very Self, that He might put away sin. Ah, my brethren, I can trust an infinite Savior to put away my sin. If I were told that there was this and that to be done by some human priest to put away my sin, I should be afraid that perhaps their efforts would not answer the designed end. But if my sin is put away because God Himself dwelt among men, and suffered in human flesh in my place, I can believe, and will believe, and rest in peace, 
 
-"My soul can on this doctrine live, Can on this doctrine die."
+> "My soul can on this doctrine live, Can on this doctrine die."  
 
 Here is solid ground work for the most guilty, heavy-laden sinner to build a cheerful hope for eternity!
 
@@ -129,7 +129,7 @@ Blessed be God, such a form of service is little suitable for believers in Jesus
 
 You are threatened if you do not believe, therefore take courage, man, and trust Christ now. "What? And having lived a sinful life up till now, if I, indeed trust Him, will that sinful life be blotted out? Must I not at least go home and begin to read my Bible and spend a month in preparation?" Delay not! Today, if you will hear His voice, harden not your heart. Trust Him now! Saul of Tarsus was struck down at once, in the midst of sin, and saved. The dying thief had not to be taken down from the Cross and laid up in hospital till he passed through a probation. He prayed the prayer, "Lord, remember me!" And he received the answer, "Today shall you be with Me in Paradise." The pardon of sin is instantaneous. It is not a matter of even minutes or seconds.
 
-"There is life in a look at the Crucified One."
+> "There is life in a look at the Crucified One."  
 
 One glance of your soul's eye at a crucified Savior and the simple reliance of your spirit upon Him, and you are saved beyond all risk. The Lord grant you, by His Holy Spirit's aid, to do this today, and I know you will go away to be among the dearest lovers of my Master, and among the most careful of His servants, for you will love Him too well to disobey Him. And it will be your joy from this time forth, even forever, to honor Him.
 
