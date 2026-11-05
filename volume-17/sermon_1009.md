@@ -1,7 +1,7 @@
 # Sermon 1009 | Travailing for Souls
 
 > "As soon as Zion travailed, she brought forth her children."  
-> Isaiah 66:8.  
+> Isaiah 66:8  
 
 Israel had fallen into the lowest condition, but an inward yearning of heart was felt in the midst of God's people for the return of the divine blessing. And no sooner had this anxious desire become intense than God heard the voice of its cry, and the blessing came. It was so at the time of the restoration of the captives from Babylon, and it was most evidently so in the days of our Lord. A faithful company had continued, still, to expect the coming of the Lord's anointed Messenger. They waited till He should suddenly come in His temple. The twelve tribes, represented by an elect remnant, cried day and night unto the Most High, and when at last their prayers reached the fullness of vehemence, and their anxiety worked in them the deepest agony of spirit, then the Messiah came. The Light of the Gentiles, and the Glory of Israel.
 

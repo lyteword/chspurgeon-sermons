@@ -1,7 +1,7 @@
 # Sermon 1025 | A Visit to the Harvest Field
 
 > "Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waited for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. Be ye also patient; stablish your hearts: for the coming of the Lord draweth nigh."  
-> James 5:7-8.  
+> James 5:7-8  
 
 The earth that yields seed to the sower and bread to the eater has received its constitution from God; and it is governed through his wise providence by fixed laws that are infinitely reliable; and yet, at the same time, with such diversified conditions and minute peculiarities as may well convince us that the Almighty intended the operations of nature to supply us with spiritual instruction as well as with material good. He who ordained the seed time and the harvest meant to teach us by them. Nor has he left us in vague uncertainty as to the lessons we should learn! In metaphor and parable he has interpreted them to us.
 

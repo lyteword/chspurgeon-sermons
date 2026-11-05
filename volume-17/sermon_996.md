@@ -1,7 +1,7 @@
 # Sermon 996 | The Alarum
 
 > "I myself will awake early."  
-> Psalm 57:8.  
+> Psalm 57:8  
 
 The proper subject to treat upon with such a text as this would be the propriety and excellence of early rising, especially when we are desirous of praising or serving God. The dew of dawn should be consecrated to devotion. The text is a very remarkable expression, and might fitly be made the early riser's motto. It is, in the original, a highly poetical phrase, and Milton and others have borrowed or imitated it. "I will awaken the morning." So early would the Psalmist arise for the praise of God, that he would call up the day, bid the sun arise from the chambers of the east, and proceed upon his journey. "I will awaken the morning."
 

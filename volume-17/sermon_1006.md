@@ -1,7 +1,7 @@
 # Sermon 1006 | Christ Is All
 
 > "Christ is all in all."  
-> Colossians 3:11.  
+> Colossians 3:11  
 
 The apostle was arguing for holiness. He was earnestly contending against sin and for the maintenance of Christian graces, but he did not, as some do, who would like to be thought preachers of the gospel, resort to reasons inconsistent with the gospel of free grace. He did not bring forward a single legal argument; he did not say, "This do, and ye shall merit reward;" or, "This do not, and ye shall cease to be the beloved of the Lord." He knew that he was writing to believers, who are not under the law but under grace, and he therefore used arguments fetched from grace, and suitable to the character and condition of "the elect of God, holy and beloved." He fed the flame of their love with suitable fuel, and fanned their zeal with appropriate appliances.
 
