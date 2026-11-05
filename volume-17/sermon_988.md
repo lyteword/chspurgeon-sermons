@@ -76,6 +76,3 @@ Thus a blessing will flow out to the world which lieth in darkness. If the grace
 
 Time compels me to cease, but ere I leave you, my beloved flock, I solemnly pronounce this benediction upon you: "The peace of our Lord Jesus Christ be with you all." And my heart says, Amen, Amen, Amen.
 
-Portion of Scripture Read Before Sermon, Romans 16.
-
-P.S., During our absence, we trust our ever-affectionate friends, both hearers and readers, will care for our various works and see that they do not lack pecuniary means. The College, the Orphanage, and the Tract Distributors are always at work, and expending considerable sums. Mr. Blackshaw, Secretary, Tabernacle, Newington, will receive and acknowledge any aid rendered. To the God of Providence, who supplies our needs through the willing offerings of his people, we look confidently. There will be no alteration in the publication of the Sermons during our absence. We have arranged that a Sermon shall appear each week, as usual.
