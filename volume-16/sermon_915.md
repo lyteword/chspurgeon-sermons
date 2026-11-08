@@ -1,7 +1,7 @@
 # Sermon 915 | Sinners Bound with the Cords of Sin
 
 > "His own iniquities shall take the wicked himself, and he shall be holden with the cords of his sins."  
-> Proverbs 5:22.  
+> Proverbs 5:22  
 
 The first sentence has reference to a net, in which birds or beasts are taken. The ungodly man first of all finds sin to be a bait, and, charmed by its apparent pleasantness he indulges in it, and then he becomes entangled in its meshes so that he cannot escape. That which first attracted the sinner, afterwards detains him. Evil habits are soon formed, the soul readily becomes accustomed to evil, and then, even if the man should have lingering thoughts of better things, and form frail resolutions to amend, his iniquities hold him captive like a bird in the fowler's snare. You have seen the foolish fly descend into the sweet which is spread to destroy him, he sips, and sips again, and by-and-by he plunges boldly in to feast himself greedily: when satisfied, he attempts to fly, but the sweet holds him by the feet and clogs his wings; he is a victim, and the more he struggles the more surely is he held. Even so is it with the sins of ungodly men, they are at first a tempting bait, and afterwards a snare. Having sinned, they become so bewitched with sin, that the scriptural statement is no exaggeration: "Can the Ethiopian change his skin, or the leopard his spots? then may ye also do good, that are accustomed to do evil."
 
