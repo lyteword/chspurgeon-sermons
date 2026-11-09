@@ -1,9 +1,9 @@
 # Sermon 926 | The Sine Qua Non
 
-> Jesus answered him, If I do not wash you, you have no part with Me.
-> John 13:8
+> Jesus answered him, If I do not wash you, you have no part with Me.  
+> John 13:8  
 
-IN matchless condescension our Lord had girt Himself as a servant, and was washing the feet of the disciples. Peter, struck with such a spectacle, would not allow his Lord to act as a menial, and flatly refused to have his feet washed by his Master. But he changed his mind at once when he was told that a refusal to receive this act of kindness from his Lord would be a virtual rejection of all part in Him, "If I do not wash you, you have no part with Me." I do not think our Lord here was thinking so much of the literal washing, as of that which the outward ablution was meant to represent. This is clear when we remember that our Lord replied to Peter concerning this washing, "What I do you know not now. But you shall know hereafter."
+In matchless condescension our Lord had girt Himself as a servant, and was washing the feet of the disciples. Peter, struck with such a spectacle, would not allow his Lord to act as a menial, and flatly refused to have his feet washed by his Master. But he changed his mind at once when he was told that a refusal to receive this act of kindness from his Lord would be a virtual rejection of all part in Him, "If I do not wash you, you have no part with Me." I do not think our Lord here was thinking so much of the literal washing, as of that which the outward ablution was meant to represent. This is clear when we remember that our Lord replied to Peter concerning this washing, "What I do you know not now. But you shall know hereafter."
 
 Now as to the literal washing, Peter knew all about it, and there was nothing to be explained except its inner meaning, and spiritual teaching. This it was that Peter did not then know, and was afterwards to learn. Our Lord, therefore, evidently referred not so much to the actual foot-washing, as to the spiritual washing, which is absolutely essential to all His people. Remember, too, that the mere cleansing of the feet did not involve union to Christ, for the feet of Judas were washed, and our Lord did not at all mean that Judas should imagine that he had any part with the Lord whom he was resolved to betray.
 
