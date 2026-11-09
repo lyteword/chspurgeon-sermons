@@ -1,11 +1,9 @@
 # Sermon 929 | The Model Home Mission and the Model Home Missionary
 
-> Who went about doing good.
-> Acts 10:38
+> Who went about doing good.  
+> Acts 10:38  
 
-In aid of the Funds of the Baptist British and Irish Home Missionary Society.
-
-OUR Lord's public ministry on earth was a Home Mission. He Himself said to His disciples, "I am not sent save to the lost sheep of the house of Israel." He went to the very borders of the Holy Land. But there He stayed, and north and south, east and west, in all directions, in towns and in villages, He itinerated preaching to His own countrymen. Afterwards there sprang out of His home work what may be called the foreign Mission, when they that were scattered abroad went everywhere preaching the Gospel.
+Our Lord's public ministry on earth was a Home Mission. He Himself said to His disciples, "I am not sent save to the lost sheep of the house of Israel." He went to the very borders of the Holy Land. But there He stayed, and north and south, east and west, in all directions, in towns and in villages, He itinerated preaching to His own countrymen. Afterwards there sprang out of His home work what may be called the foreign Mission, when they that were scattered abroad went everywhere preaching the Gospel.
 
 And thus the blessing of Israel became a blessing to all nations. It was always the Lord's intention that the Gospel should be preached to every creature under Heaven, but, so far as His own work was concerned, He began at home. And herein we see His wisdom, for it will be of little avail to attempt much abroad unless there is a solid basis at home, in an earnest sanctified Church, affording a fulcrum for our lever. We want to see England converted to Christ, and then shall she become the great herald of Christ's Gospel to other lands.
 
