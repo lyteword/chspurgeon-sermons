@@ -33,7 +33,7 @@ And it is so now, my dear hearers, no outward forms can make you clean. The lepr
 
 Now observe the proof of this in the case of David. David was as penitent as a man could well be. His Penitential Psalms remain forever the most wonderful expressions of a broken heart, yet David nowhere claims forgiveness because of his contrition. Take the fifty-first Psalm as a specimen. David nowhere concludes that he is forgiven because he repents, or that his tears can wash him white. His petition is, "Purge me with hyssop, and I shall be clean", alluding to the sacrificial blood which was sprinkled by a piece of hyssop. "Wash me, and I shall be whiter than snow."
 
-Nothing about, "/ have washed my couch with tears, and therefore I am whiter than snow. I have made my bed to swim with my heart-sorrow for my transgression, and therefore I am pure." His remorse was very acute, but he never rests on that. He looks to the hyssop. He turns himself to the sacred Fountain of the atoning blood, and there he hopes for cleansing. Ah, dear hearer, and so must you!
+Nothing about, "I have washed my couch with tears, and therefore I am whiter than snow. I have made my bed to swim with my heart-sorrow for my transgression, and therefore I am pure." His remorse was very acute, but he never rests on that. He looks to the hyssop. He turns himself to the sacred Fountain of the atoning blood, and there he hopes for cleansing. Ah, dear hearer, and so must you!
 
 > "Could your tears forever flow, could your grief no respite know, all for sin could not atone, Christ must save, and Christ alone."  
 
@@ -107,7 +107,8 @@ The Lord Christ gave up for you His human Body and soul and Spirit, all that con
 
 Doubts, however black they may be, ought to subside when we perceive that the Atonement made must have been infinitely meritorious, because it was not an Atonement of mere tears and blood and works, but an Atonement made by the Lord's giving up Himself, His very Self, that He might put away sin. Ah, my brethren, I can trust an infinite Savior to put away my sin. If I were told that there was this and that to be done by some human priest to put away my sin, I should be afraid that perhaps their efforts would not answer the designed end. But if my sin is put away because God Himself dwelt among men, and suffered in human flesh in my place, I can believe, and will believe, and rest in peace, 
 
-> "My soul can on this doctrine live, Can on this doctrine die."  
+> "My soul can on this doctrine live,  
+> Can on this doctrine die."  
 
 Here is solid ground work for the most guilty, heavy-laden sinner to build a cheerful hope for eternity!
 
