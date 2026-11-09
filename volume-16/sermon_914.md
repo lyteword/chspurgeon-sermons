@@ -1,7 +1,7 @@
 # Sermon 914 | Work in Us and Work by Us
 
-> Whereunto I also labor, striving according to His working, which works in me mightily.
-> Colossians 1:29
+> Whereunto I also labor, striving according to His working, which works in me mightily.  
+> Colossians 1:29  
 
 The Apostle Paul could very truthfully assert that he labored and agonized. When the Holy Spirit had anointed the Apostles they all became ardent enthusiasts for the spread of the Redeemer's kingdom. Having the whole world committed to them that they might enlighten it, they labored most ardently, each one in his sphere to spread abroad the truth of the gospel, but the Apostle of the Gentiles labored more abundantly than they all. Into how many countries did he carry the testimony of Christ? How often did he cross the sea, traverse mountains, and ford rivers?
 
@@ -47,9 +47,7 @@ Wherever the Holy Spirit works a sense of sin, the sinner is constrained to cry,
 
 And what is the result? The enlightened soul cries, "I desire to find this pearl of great price! I desire to be enriched by an interest in Christ! I too, would, with the blessed, take my everlasting heritage." Don't you see, then, that the Holy Spirit cannot make a man appreciate salvation without at the same time creating a desire to gain it? And out of which desire arises prayer for the promised blessing. After a man has found Christ to the pardon of his sin, the Holy Spirit is pleased to endear Christ more and more to him. It is the office of the spirit to take of the things of Christ and show them to us.
 
-Now, my brethren, you know very well that whenever you have a sight of the preciousness of Christ, you are moved at once to glorify Him. Do you not cry,
-
-"Oh, for this love let rocks and hills Their lasting silence break, And all harmonious human tongues The Savior's praises speak"?
+Now, my brethren, you know very well that whenever you have a sight of the preciousness of Christ, you are moved at once to glorify Him. Do you not cry, "Oh, for this love let rocks and hills their lasting silence break, and all harmonious human tongues the Savior's praises speak"?
 
 I know it is so! It is because we think so little of Christ that we do so little for Him. But when Christ is brought with vivid power home to the mind, then at once we cry, "Lord, what would You have me to do?" And we, by His grace, bestir ourselves to honor Him.
 
