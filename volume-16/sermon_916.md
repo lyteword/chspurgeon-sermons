@@ -1,9 +1,9 @@
 # Sermon 916 | A Generous Proposal
 
-> Come you with us, and we will do you good.
-> Numbers 10:29
+> Come you with us, and we will do you good.  
+> Numbers 10:29  
 
-THESE ancient words, so simple, yet so sweet, fascinate us with a potent hallowed charm. They ring out their melody like a familiar air. The language of a heart full of kindness, inspired with faith, and inspirited with the enthusiasm of a hope so much Divine that the lapse of ages impairs not their force, or diminishes anything from their natural spontaneous freshness. This story of Hobab one can hardly read without remembering the Apostolic declaration that the Law was a "shadow of good things to come." A truly instructive shadow it was. In this instance the shadow is so like the image, the type so like the antitype, that we can almost see the Christian Church, and the convert as he is invited to unite with it. And we may behold in metaphor the blessings of which he may expect to be a partaker in so doing.
+These ancient words, so simple, yet so sweet, fascinate us with a potent hallowed charm. They ring out their melody like a familiar air. The language of a heart full of kindness, inspired with faith, and inspirited with the enthusiasm of a hope so much Divine that the lapse of ages impairs not their force, or diminishes anything from their natural spontaneous freshness. This story of Hobab one can hardly read without remembering the Apostolic declaration that the Law was a "shadow of good things to come." A truly instructive shadow it was. In this instance the shadow is so like the image, the type so like the antitype, that we can almost see the Christian Church, and the convert as he is invited to unite with it. And we may behold in metaphor the blessings of which he may expect to be a partaker in so doing.
 
 "Come you with us, and we will do you good," seems to be quite as suitable an address from the lips of a Christian pastor as from those of the Prophet of Horeb, who was king in Jeshurun. We do not feel in the least degree hesitant as if we were wrenching the words from their natural association, or even exercising the slightest ingenuity in accommodating them to our own circumstances, so suitable do they seem for our use. The people of Israel in the wilderness were a type of the Church of Christ. The invitation here given was such as may be given to those who are proper subjects for communion with the Christian Church.
 
@@ -81,9 +81,7 @@ But now, our third observation is that the main argument—the most powerful inc
 
 I am sure it will, for I speak from experience. And if I were to call upon many scores, and even hundreds, in this House of Prayer, they would all bear the same testimony, that union with the people of God has done them good. The Church of God may say this, first, because she can offer to those who join with her good company. In the Church of God are those who are called "the excellent of the earth," in Whom David said was all his delight. In the Church of God are the humble, meek, and lowly.
 
-And, though in that Church there will come a traitorous Judas, yet there are not wanting the warm-spirited and loving John, the bold and daring Peter, the practical James, the well-instructed Paul in labors more abundant, and many of the precious sons of Zion and daughters of Jerusalem in like manner. Of whom, I might affirm, as the Apostle did of Priscilla and Aquila, they are my helpers in Christ Jesus, unto whom I not only give thanks, but also all the Churches of the Gentiles. Truly we can sing with heart-felt sincerity, Dr. Watts' paraphrase of David's Psalm:
-
-"Here my best friends, my kindred dwell, Here God my Savior reigns."
+And, though in that Church there will come a traitorous Judas, yet there are not wanting the warm-spirited and loving John, the bold and daring Peter, the practical James, the well-instructed Paul in labors more abundant, and many of the precious sons of Zion and daughters of Jerusalem in like manner. Of whom, I might affirm, as the Apostle did of Priscilla and Aquila, they are my helpers in Christ Jesus, unto whom I not only give thanks, but also all the Churches of the Gentiles. Truly we can sing with heart-felt sincerity, Dr. Watts' paraphrase of David's Psalm: "Here my best friends, my kindred dwell, here God my Savior reigns."
 
 Good company is ever a good thing, and the children of God may say to their brethren who have not yet joined with them, "Come you with us, and we will do you good," for we will introduce you to the goodly fellowship of the saints. Come join a section of the general assembly and Church of the First-Born whose names are written in Heaven, and whose work of faith, patience of hope, and labors of love are spread abroad throughout the world.
 
@@ -101,13 +99,12 @@ But the good that Hobab was to get was not only on the road. He must have got a 
 
 So, in the Church of God there are the footprints of Deity, there are marks of the sublime Presence of the Christ of God who abides in the furnace with His afflicted people. Signs of God's Presence such as all the world besides cannot exhibit. You shall get good on the road. But still, the main good that Hobab got was this, he went into the promised land with God's people. We read of his people, the Kenites dwelling in the land in aftertime. He seems to have become a partaker of the same Covenant with Israel, to have become part and parcel with them. So, the main blessing that you get from being united with the invisible Church of Christ through being part and parcel of the Body of Christ is reserved for the hereafter:
 
-"When God makes up His last account
+> When God makes up His last account  
+> Of natives in the Holy Mount;  
+> 'Twill be an honor to appear  
+> As one new born and nourished there.  
 
-Of natives in the Holy Mount;
-
-'Twill be an honor to appear
-
-As one new born and nourished there." Woe unto those who shall have no part with Israel in the day when the lots shall be divided and the portions shall be given! Woe unto such as shall be found among the Amalekites or Canaanites, strangers to the chosen seed! But happy shall all they be who have God to be their God, for their portion shall be bliss forever. Come you, therefore, with us, for whatever good the Lord shall do unto us you shall be a partaker in it.
+Woe unto those who shall have no part with Israel in the day when the lots shall be divided and the portions shall be given! Woe unto such as shall be found among the Amalekites or Canaanites, strangers to the chosen seed! But happy shall all they be who have God to be their God, for their portion shall be bliss forever. Come you, therefore, with us, for whatever good the Lord shall do unto us you shall be a partaker in it.
 
 And now, lastly. All this being seriously pondered and clearly understood, the last point is a matter of very serious importance. Lest we should be found mere pretenders, let all of us who belong to Christ's Church take care to make this argument true.
 
