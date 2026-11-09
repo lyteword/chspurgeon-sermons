@@ -107,7 +107,8 @@ I now put the question, What shall we render? What shall I render unto the Lord?
 
 There is the communion table around which we are about to gather. That may help me to render Him some homage. I will there take the cup of salvation, and call upon His name. Tomorrow I shall be in the world going forth to my labors. What shall I render? I will consecrate part of my substance to God, but I will try to consecrate all tomorrow and next day to Him. While I am at my work, if I use a saw, or use a hammer, or if I stand at a counter, or in the fields, or in the streets I will ask that my thoughts may be on God, that I may be kept from sin, and that by my example I may render some tribute of honor to His name in the sight of my fellow men. And I will try to seize every opportunity that comes in my way of telling,
 
-> To sinner round, > What a dear Savior I have found.
+> To sinner round,  
+> What a dear Savior I have found.  
 
 And yet, dear Friends, it is not for me to answer the question that is propounded for you. With these few brief hints I do put the question in all its touching pathos, in all its deep solemnity, in all its momentous gravity, before every Christian man and woman here, and I cite you to answer it before the Searcher of all hearts, "What shall I render?" Thrice happy you who respond in lip and life to the urgent call! "For God is not unrighteous to forget your work and labor of love, which you have showed toward His name, in that you have ministered to the saints, and do minister. And we desire that every one of you show the same diligence to the full assurance of hope unto the end that you are not slothful, but followers of them who through faith and patience inherit the promises."
 
