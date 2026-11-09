@@ -1,7 +1,7 @@
 # Sermon 917 | Precious, Honorable, Beloved
 
-> Since you were precious in My sight you have been honorable, and I have loved you.
-> Isaiah 43:4
+> Since you were precious in My sight you have been honorable, and I have loved you.  
+> Isaiah 43:4  
 
 The first reference of this text is evidently to Israel. That nation was precious in God's sight. He had been pleased sovereignly to make an election of the seed of Abraham, that they should be His portion, and He should be their portion evermore. They were precious in His sight because of the Covenant which He had made with their great forefather, saying, "In blessing I will bless you, and in multiplying I will multiply your seed, and in your seed shall all the nations of the earth be blessed."
 
@@ -89,7 +89,7 @@ Do you call your child precious, and would you give your very life that you migh
 
 Why, here is comfort for you, even if you are very poor, or bitterly persecuted. Perhaps you have, like Hannah, to suffer day by day sneering and bitter words from your adversary, who vexes you sorely to make you fret. Why, then, let this Truth of God console you. You are precious in the sight of the Lord, and therefore you may sing, "My soul does magnify the Lord, and my spirit has rejoiced in God my Savior, for He has regarded the low estate of His handmaiden." How it should make your spirit exult! How precious ought your thoughts of God to be to yourself, since you are precious in the sight of the Most High!
 
-But we must pass on briefly to the second choice word. Every child of God is, in the second place, "HONORABLE." If things go on as they do now, I do not know whether this word "honorable" will not be so degraded that a man will be ashamed to wear it. We who see lords dishonoring themselves will have to thank God that we are not lords, but men. Speak of the scum of society; it seems pretty clear that as the scum of every pot is on the top, so is it with the nation.
+But we must pass on briefly to the second choice word. Every child of God is, in the second place, "honorable." If things go on as they do now, I do not know whether this word "honorable" will not be so degraded that a man will be ashamed to wear it. We who see lords dishonoring themselves will have to thank God that we are not lords, but men. Speak of the scum of society; it seems pretty clear that as the scum of every pot is on the top, so is it with the nation.
 
 We are reaching a pretty state of things, certainly, when the highest sin is to be found in the highest places. God grant that our great ones may mend their manners, for it is a crying shame and a detestable scandal when those who are accounted honorable and noble by birth cannot be even decently moral. God grant our nation better lights and ornaments than these. But, my Friends, this grand old word was written when it was untarnished, and in its virgin purity. If it has now come to be ordinarily meaningless or a mockery, let us now restore it to its pristine luster and see it glow on the page of Scripture as gold seven times purified with fire. Every Christian is in God's sight right honorable and excellent, because the Lord in His discriminating Grace has made him precious.
 
@@ -117,11 +117,7 @@ These three things being put together, I want you, practically, this morning, as
 
 My Savior, once I knew You not, but now I prize You, and by Your Divine Grace my heart sees how precious You are. Now, therefore, You are honorable in my soul. Reign, reign over every heart, as well as over mine. Gladly would I seat You on a glorious high throne, and be content to be trampled in the mire, if I could lift You but one inch higher, or get to Your name but one grain more of love among the sons of men. "You have been honorable, and I have loved You."
 
-I am afraid, if you make this confession you will have to blush as you make it. You have loved Him, but, oh, how little have you loved Him! Look not back, then, except with penitence, but from now on say, "Lord, You have been honorable, I will love You. Forgive the past, kindle in my soul a fresh flame of Grace, help me to say:
-
-'Yes, I love You and adore,
-
-O for Grace to love You more!'" When you have so used those words, turn them in another direction. Apply them next to every child of God. Since you, my Brother, since you, my Sister, were precious in my sight, and you have been so ever since I knew how precious a child of God was, you have been honorable, and I have loved you.
+I am afraid, if you make this confession you will have to blush as you make it. You have loved Him, but, oh, how little have you loved Him! Look not back, then, except with penitence, but from now on say, "Lord, You have been honorable, I will love You. Forgive the past, kindle in my soul a fresh flame of Grace, help me to say: 'Yes, I love You and adore, O for Grace to love You more!'" When you have so used those words, turn them in another direction. Apply them next to every child of God. Since you, my Brother, since you, my Sister, were precious in my sight, and you have been so ever since I knew how precious a child of God was, you have been honorable, and I have loved you.
 
 Let us never think of the children of God in any other way than as honoring them. Some of them are very poor; many of them are illiterate; some of them not altogether in temper, action, or creed what we might desire them to be. But if they are bought with the blood of Christ, they are honorable. The Lord declares them so, and let us not treat them dishonorably. It is a very sad thing when poor saints are despised by those who happen to be better off. If some great noble were to come into this House of Prayer, how many of you would be glad to give him the best seat, and yet he might be one of the worst of men?
 
