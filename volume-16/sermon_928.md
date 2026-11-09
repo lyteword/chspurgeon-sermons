@@ -1,7 +1,7 @@
 # Sermon 928 | A New Song For New Hearts
 
-> And in that day you shall say, O Lord, I will praise You: though You were angry with me, Your anger is turned away, and You comfort me.
-> Isaiah 12:1
+> And in that day you shall say, O Lord, I will praise You: though You were angry with me, Your anger is turned away, and You comfort me.  
+> Isaiah 12:1  
 
 This prophecy is said by some to relate to the invasion by Sennacherib. That calamity threatened to be a very terrible display of Divine anger. It seemed inevitable that the Assyrian power would make an utter desolation of all Judea. But God promised that He would interpose for the deliverance of His people and punish the stout heart of the king of Assyria. And in that day His people should say, "We will praise You though You were angry with us, and therefore sent the Assyrian monarch to chastise us. Your anger is turned away, and You comfort us."
 
@@ -116,9 +116,7 @@ And now what shall I say unto the Lord, but, "I will praise You: for though You 
 
 Time fails me, but I must add that our song includes holy resolutions: "I will praise You." I will do it with my heart in secret. I will get alone and make my expressive silence sing Your praise. I will sit and pour out liquid songs in tears of gratitude, welling up from my heart. I will praise You in the church of God, for I will search out other believers, and I will tell them what God has done for me. I will cast in my lot with Your people: if they are despised, I will bear the shame with them: and count it honor. I will unite myself to them, and help them in their service. And if I can magnify Christ by my testimony among them, I will do it.
 
-I will praise You in my life. I will make my business praising You. I will make my parlor and my drawing room, I will make my kitchen and my fields praise You. I will not be content unless all I am and all I have shall praise You. I will make a harp of the whole universe. I will make earth and heaven, space and time to be but strings upon which my joyful fingers shall play lofty tunes of thankfulness. I will praise You, O my God! My heart is fixed, I will sing and give praise: and when I shall die, or rather pass from this life to another, I who have been forgiven so much sin through such a Savior, will, by your grace, continue to praise You: 
-
-"Oh, how I long to join the choir Who worship at His feet! Lord, grant me soon my heart's desire! Soon, soon Your work complete!"
+I will praise You in my life. I will make my business praising You. I will make my parlor and my drawing room, I will make my kitchen and my fields praise You. I will not be content unless all I am and all I have shall praise You. I will make a harp of the whole universe. I will make earth and heaven, space and time to be but strings upon which my joyful fingers shall play lofty tunes of thankfulness. I will praise You, O my God! My heart is fixed, I will sing and give praise: and when I shall die, or rather pass from this life to another, I who have been forgiven so much sin through such a Savior, will, by your grace, continue to praise You: "Oh, how I long to join the choir Who worship at His feet! Lord, grant me soon my heart's desire! Soon, soon Your work complete!"
 
 Note once more that this is a song which is peculiar in its character, and appropriate only to the people of God. I may say of it, "no man could learn this song but the redeemed." He only who has felt his vileness, and has had it washed away in the "fountain filled with blood," can know its sweetness. It is not a Pharisee's song: it has no likeness to, "God I thank You that I am not as other men." It confesses, "You were angry with me," and there owns that the singer was even as others. But it glories that through infinite mercy the Divine anger is turned away. And herein it leans on the appointed Savior.
 
@@ -130,9 +128,7 @@ I have done when I have said just these words by way of practical result from th
 
 I will show you that key: look at it, "Him that comes unto Me I will in no wise cast out." "Oh, but that does not happen to fit," you say. Well, here's another: "The blood of Jesus Christ His Son cleanses from all sin." Does not that meet your case? Then let me try again: "He is able also to save them to the uttermost that come unto God by Him." "To the uttermost": dwell on that and be comforted! I never knew God to shut a soul up in the prison of conviction but He sooner or later released the captive. The Lord will surely bring you out of the low dungeon of conviction. The worst thing in the world is to go unchastened: to be allowed to sin and eat honey with it. This is the precursor of damnation.
 
-But to sin, and have the wormwood of repentance with it. This is the prelude of being saved! If the Lord has embittered your sin, He has designs of love towards you. His anger shall yet be turned away. "When the poor and needy seek water, and there is none, and their tongue fails for thirst, I, the Lord, will hear them. I the God of Israel will not forsake
-
-them."
+But to sin, and have the wormwood of repentance with it. This is the prelude of being saved! If the Lord has embittered your sin, He has designs of love towards you. His anger shall yet be turned away. "When the poor and needy seek water, and there is none, and their tongue fails for thirst, I, the Lord, will hear them. I the God of Israel will not forsake them."
 
 The next is a word of admonition. Some of you have been forgiven, but are you praising God as you should? I have heard say that in our churches there are no more than five per cent who are doing any real work for Christ. That is not true of this church. I should be very sorry if it were, but I fear there are more than five per cent who are doing nothing. Where are you who have felt His anger pass away, and yet are not praising Him? Come, bestir yourself, bestir yourself! Seek to serve Jesus! Do you not know that you are meant to be the winners of souls?
 
