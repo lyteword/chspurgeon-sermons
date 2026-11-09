@@ -1,7 +1,7 @@
 # Sermon 920 | Backsliding Healed
 
-> I will heal their backsliding.
-> Hosea 14:4
+> I will heal their backsliding.  
+> Hosea 14:4  
 
 Which rings with the more sonorous voice, the knell, "their backsliding," or the marriage peal, "I will heal?" All through the Scripture records there is revealed a vehement contest between man's sin and God's grace; each of them striving to become more abundant than the other. Sin, like a dragon, pours forth floods from its mouth, and God's mercy, as a shoreless ocean, rolls in greater majesty. Sin abounds, so that none can measure its heinousness or power. But where sin abounds, grace does much more abound. In the text sin abounds; "their backsliding." There is a comprehensiveness in that word, a dreadful abyss of iniquity. But grace abounds yet more, "I will heal their backsliding." Here is a height and depth of grace like the God from whom it came; it is incomprehensible and infinite!
 
@@ -23,9 +23,7 @@ It is not said, "I will pardon their backsliding," that is included in the term,
 
 And then observe: having looked at backsliding as a disease, He does not say, "I will put this diseased one away." Under the legal dispensation he who had leprosy, or any contagious disease, must be put without the camp, but it is not here said, "I will banish them for their backsliding." O my dear friends, if we had been put out of God's church, if we had never been suffered again to come to His Table, we confess we have richly deserved to have it so, but it is not so written here. It is not, "I will put them in quarantine. I will expel them out of the goodly land, and from among My people." No; "I will heal their backsliding."
 
-Nor does He say, "I will destroy them, because of their backsliding." Some will have it that God's people may sin, partially and finally, so as never to be the Lord's beloved again. They say they can sin themselves out of the covenant. But we have not so learned Christ, neither have we so understood the Fatherhood of our God:
-
-"Whom once He loves, He never leaves, But loves them to the end."
+Nor does He say, "I will destroy them, because of their backsliding." Some will have it that God's people may sin, partially and finally, so as never to be the Lord's beloved again. They say they can sin themselves out of the covenant. But we have not so learned Christ, neither have we so understood the Fatherhood of our God: "Whom once He loves, He never leaves, but loves them to the end."
 
 "The gifts and calling of God are without repentance," on His part towards His people. "The God of Israel says He hates putting away." No, it is not, "I will strike their names out of the Book of Life." It is not, "I will disinherit them, seeing they have proved unfaithful to Me," but, "I will heal their backsliding." That is to say, whatever their sin may have been I will overcome it, I will drive it out, I will restore them to their first condition of health. I will do more, I will so heal them that one day without spot or wrinkle or any such thing they shall see their Father's face." A word of consolation!
 
@@ -69,9 +67,7 @@ It is a defiling thing to backslide, for a man cannot lose the intensity of his 
 
 I know some holy men (I wish to be more like they) who are a blessing to all with whom they converse. Wherever they are, like an Oriental perfume, they spread a fragrance all around. Their lives are like the star in the east which led men to Christ. Their graciousness reminds us of the blessing of Asher, whose promise was that he should dip his foot in oil; for wherever they go they leave the tokens of the unction of the Holy One behind them. But the dark side to this picture is the fact that if we decline in grace, our backsliding has a down-dragging tendency on others. The whole army is impeded by the lagging of a single regiment.
 
-The old naturalists used to speak of a creature they called a remora, which they believed could fasten with its suckers upon a sailing vessel and hinder its progress. Backsliding Christians are just such remoras to the good ship of the Church, they are barnacles upon her, and impede her voyage:
-
-"One sickly sheep infects the flock, And weakens all the rest."
+The old naturalists used to speak of a creature they called a remora, which they believed could fasten with its suckers upon a sailing vessel and hinder its progress. Backsliding Christians are just such remoras to the good ship of the Church, they are barnacles upon her, and impede her voyage: "One sickly sheep infects the flock, And weakens all the rest."
 
 When there is a parliamentary train crawling along in front, even the limited express mail is hindered. When one professor acts in a worldly, careless, indifferent, or covetous spirit, he encourages others to do the same, and the example soon multiplies itself.
 
@@ -115,19 +111,16 @@ The connection of the text leads me to remark that our heavenly Father in Christ
 
 If the prodigal son had once suspected that he was disinherited and was no more a child, he would have given up all thoughts of return. And though he confessed that he was not worthy to be called a son, yet he knew he was a son, and so back he came, and his father received him. We are willing to confess that to cast us away would be just, as we are considered in ourselves. But the fact that He has not cast away His people whom He did foreknow draws us with invisible but invincible bonds back to our Lord.
 
-Yes, oftentimes the child of God, when he is cold in heart, has been revived and refreshed by some such thoughts as these: "He is still faithful to me, though I am faithless to Him. Jesus bought me with His blood, and He will not lose me. In His Heaven I shall dwell, notwithstanding all this unworthiness of mine. O my heart, how can you be so like an iceberg to Him when He has loved you despite your innumerable faults? How can you give your eternal Benefactor so base a
-
-return?"
+Yes, oftentimes the child of God, when he is cold in heart, has been revived and refreshed by some such thoughts as these: "He is still faithful to me, though I am faithless to Him. Jesus bought me with His blood, and He will not lose me. In His Heaven I shall dwell, notwithstanding all this unworthiness of mine. O my heart, how can you be so like an iceberg to Him when He has loved you despite your innumerable faults? How can you give your eternal Benefactor so base a return?"
 
 The great furnace of Christ's love sends out sparks which fall into our hearts, and then they also begin to glow:
 
-"Depth of mercy, can there be
+> Depth of mercy, can there be  
+> Mercy yet reserved for me?  
+> Can my God His wrath forbear?  
+> Me, the chief of sinners spare?  
 
-Mercy yet reserved for me?
-
-Can my God His wrath forbear?
-
-Me, the chief of sinners spare?" Does He bid me return to Him, and does He say, "I am married unto you?" "How shall I give you up, Ephraim? How shall I deliver you, Israel? How shall I make you as Admah? How shall I set you as Zeboim?" Oh, then, while God's heart of mercy is moved, our repentings are kindled, our soul melts while our Beloved speaks! Our stony heart is like the rock which gushed with water. The mountains flow down at His Presence! As when the melting fire burns, the fire causes the waters to boil.
+Does He bid me return to Him, and does He say, "I am married unto you?" "How shall I give you up, Ephraim? How shall I deliver you, Israel? How shall I make you as Admah? How shall I set you as Zeboim?" Oh, then, while God's heart of mercy is moved, our repentings are kindled, our soul melts while our Beloved speaks! Our stony heart is like the rock which gushed with water. The mountains flow down at His Presence! As when the melting fire burns, the fire causes the waters to boil.
 
 We feel revenge against sin, and sacred jealousy is aroused. Then we return unto our first Husband, and our first love! With weeping and with supplications we return, and with desire we desire Him in the night:
 
