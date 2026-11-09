@@ -1,7 +1,7 @@
 # Sermon 923 | Prepare To Meet Your God
 
-> Prepare to meet your God, O Israel.
-> Amos 4:12
+> Prepare to meet your God, O Israel.  
+> Amos 4:12  
 
 God had, in the days of Amos, by different ways rebuked the sin of His people Israel. He had wasted them with famine and sword. He had withheld the rain. He had sent forth the pestilence after the manner of Egypt. He had smitten their fields and gardens with blast and mildew, and He had overthrown some of them, as Sodom and Gomorrah. But they still persevered in their rebellion, and therefore He declares that He will send them no more of His messengers, and shoot no more of His far-reaching arrows, but will come Himself, in His own Person, to deal with them.
 
@@ -69,7 +69,7 @@ Now you say in your heart "no God," because the thought of God is objectionable 
 
 His holiness will become wrath against your sin, not wrath treasured up and removed far away, but wrath that shall come near to you to consume you. It will be an inevitable meeting, from which you will not be able to escape. From your fellow creature, whom you do not wish to see, you readily withdraw yourself, but you cannot escape from God. The rays of the morning's sun could not carry you so fast as the Lord's right hand can move. The uttermost parts of the sea cannot conceal you. The night shall be light about you. Neither the heights of Heaven, nor the depths of Hell can conceal you from Him.
 
-You must meet face to face with your God. And it must be a personal meeting. God and you will meet as if alone. God alone and you alone. What if there are angels? What if there are ten thousand times ten thousands of your kindred sinners? To you, virtually, it shall be solitude itself. You must meet your God! You, YOU! O my dear hearer, it is a sad thing that this should be heavy tidings to you, for if you were what you should be, it would be joy to you to think that you shall be near your God, and dwell in His embrace. But, unconverted as you are, no tidings can have more of horror in them than these: that you, do as you will, and steel your heart as you may, must by-and-by confront your God.
+You must meet face to face with your God. And it must be a personal meeting. God and you will meet as if alone. God alone and you alone. What if there are angels? What if there are ten thousand times ten thousands of your kindred sinners? To you, virtually, it shall be solitude itself. You must meet your God! You, you! O my dear hearer, it is a sad thing that this should be heavy tidings to you, for if you were what you should be, it would be joy to you to think that you shall be near your God, and dwell in His embrace. But, unconverted as you are, no tidings can have more of horror in them than these: that you, do as you will, and steel your heart as you may, must by-and-by confront your God.
 
 Think awhile upon Who it is that you have to meet! You must meet your God, your God! That is, offended justice you must meet whose laws you have broken, whose penalties you have ridiculed. justice righteously indignant with its sword drawn you must confront. You must meet your God. That is, you must be examined by unblind omniscience. He who has seen your heart, and read your thoughts, and jotted down your affections, and remembered your idle words, you must meet Him. And infinite discernment you must meet, those eyes that never yet were duped. The God who will see through the veils of hypocrisy and all the concealments of formality.
 
