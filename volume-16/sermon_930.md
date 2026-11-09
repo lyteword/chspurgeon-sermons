@@ -1,7 +1,7 @@
 # Sermon 930 | Away With Fear
 
-> Fear you not. For I am with you; be not dismayed; for I am your God: I will strengthen you; yes, I will help you; yes, I will uphold you with the right hand of My righteousness.
-> Isaiah 41:10
+> Fear you not. For I am with you; be not dismayed; for I am your God: I will strengthen you; yes, I will help you; yes, I will uphold you with the right hand of My righteousness.  
+> Isaiah 41:10  
 
 If there should be nothing in the sermon this evening, Brethren, there is enough in the text to satisfy your mouth with good things, so that your youth may be renewed like the eagle's. May the Holy Spirit spread for you a table in the wilderness. And may He give you appetites to feed by faith upon these royal dainties, which, like the food that Daniel and his companions fed upon, shall make you well-favored before God and man.
 
@@ -15,9 +15,7 @@ But since, dear Friends, you and I cannot read the secret roll of God's electing
 
 Have you been so called that you have forsaken all for Christ, or are willing to do so? Have you left your old pleasures and your old companions? And are you now a separated one, set apart for Christ? Oh, if it is so, let nothing keep you back from enjoying the riches of my text, for every comfortable sentence in it belongs to you!
 
-Still, farther to help us to find out to whom this text belongs, notice that the person here described is spoken of in the eighth verse as a "servant." "You, Israel, are My servant," and in the ninth verse, "And said unto you, You are My servant." Now, are you God's servant, dear Hearer? A servant does not do his own will. He would soon get his discharge if he carried out his own whims and wishes. He takes his guidance from his master's mouth and his master's eyes. Have you submitted your will to God's will? Are you no longer governed by a proud and high spirit which cries, "Who is the Lord, that I should obey Him?" Do you desire to know what God's will is, and then to do just what He bids you? Do you count it your highest honor to be called a servant of Christ? Is it for Him that you live? Is His glory your highest aim? If
-
-so, then you who are willing to labor may come and feast upon the text, for every honey-dropping word of it belongs to you, since you serve the Lord Christ.
+Still, farther to help us to find out to whom this text belongs, notice that the person here described is spoken of in the eighth verse as a "servant." "You, Israel, are My servant," and in the ninth verse, "And said unto you, You are My servant." Now, are you God's servant, dear Hearer? A servant does not do his own will. He would soon get his discharge if he carried out his own whims and wishes. He takes his guidance from his master's mouth and his master's eyes. Have you submitted your will to God's will? Are you no longer governed by a proud and high spirit which cries, "Who is the Lord, that I should obey Him?" Do you desire to know what God's will is, and then to do just what He bids you? Do you count it your highest honor to be called a servant of Christ? Is it for Him that you live? Is His glory your highest aim? If so, then you who are willing to labor may come and feast upon the text, for every honey-dropping word of it belongs to you, since you serve the Lord Christ.
 
 One more word to help you to see whether you have a right to these promises. He says in the ninth verse, "I have chosen you, and not cast you away." Now you have, some of you, been professors of the Christian faith for many years. Some of the younger ones of us have now been twenty years maintained in His House, for it is just so long since we were baptized in Christ's name. Surely, my Brethren, we feel that, judged by the strictness of the Law, we deserved to have been cast away! And yet, being under Grace, we have been preserved by the Lord's salvation even until now.
 
@@ -41,25 +39,18 @@ Desponding people can find reason for fear where there is no fear. A certain cla
 
 They feel certain about this dreadful thing and that, and fret accordingly. None of these things have happened to them yet, and in the judgment of others they are less likely to happen now than ever they were. But yet they convert their suspicions into realities and torture themselves with them though they are but fancies. Oh, it is sad that we should degrade ourselves to this:
 
-"Shall the thin cloudlets of this transient life
+> Shall the thin cloudlets of this transient life  
+> Shut out the light of Love Immutable?  
+> Shall unsubstantial mists of earthborn care  
+> Conceal from saints the everlasting hills,  
+> From which their speedy succor shall descend?  
+> Oh, shame, and sin most base, that heirs of Heaven,  
+> Enriched with all the fullness of the Lord,  
+> Should fret, and fume, and wear away their souls  
+> With childish dreams of ills which never may come;  
+> Or coming, shall be laden deep with good!  
 
-Shut out the light of Love Immutable?
-
-Shall unsubstantial mists of earthborn care
-
-Conceal from saints the everlasting hills,
-
-From which their speedy succor shall descend?
-
-Oh, shame, and sin most base, that heirs of Heaven,
-
-Enriched with all the fullness of the Lord,
-
-Should fret, and fume, and wear away their souls
-
-With childish dreams of ills which never may come;
-
-Or coming, shall be laden deep with good!" In certain instances the habit of fearing has reached a monstrous growth. Indeed, I know some of my acquaintances who think it the right thing to be always fearing, and are half suspicious of a man who has strong faith. They even call full assurance, "presumption," and are amazed that anybody should have confidence in God. But if they did but know it, there is more presumption in unbelief than there can be in faith. It is gross presumption on a child's part to disbelieve its father's word. There is no presumption in a child's believing what its father tells it. It, then, only does its duty. For me to accept the naked promises of a faithful God, and, despite my unworthiness, still to believe them true, is humility.
+In certain instances the habit of fearing has reached a monstrous growth. Indeed, I know some of my acquaintances who think it the right thing to be always fearing, and are half suspicious of a man who has strong faith. They even call full assurance, "presumption," and are amazed that anybody should have confidence in God. But if they did but know it, there is more presumption in unbelief than there can be in faith. It is gross presumption on a child's part to disbelieve its father's word. There is no presumption in a child's believing what its father tells it. It, then, only does its duty. For me to accept the naked promises of a faithful God, and, despite my unworthiness, still to believe them true, is humility.
 
 But for me to take that promise from my Father's lips, and begin to cavil at it, and to question it, is nothing better than pride hiding its nakedness with the thinnest gauze of pretended modesty. Shun, I pray you, the unbelief that apes humility, and seek after that unstaggering faith which is the true meekness in the sight of God!
 
@@ -67,9 +58,7 @@ Yet, I would not blame all those who are much given to fear, for in some it is r
 
 I tell you, Sirs, I would sooner you would go to Heaven creeping on all fours, with never a song in your mouths, than go to Hell presuming. It is better to be a broken-legged lamb in Christ's bosom than to be the strongest ram in Satan's flock. God deliver us from being strong and mighty in ourselves. But yet at the same time there are many evils connected with fearing, and every child of God should be on his guard against giving way to it. In every case much may be accomplished by arousing ourselves to cry to the strong One for strength to overcome our unbelief. Gloom need not be perpetual with us.
 
-I know it is said that some of God's plants grow best in the shade. I believe they do, but I should like to try them in the sunlight a little and see if they would not grow better there than their best has up to now been. There are precious flowers of Grace which are constantly watered with the tears of sorrow, but methinks the dews of consolation would answer their purpose just as well. May the Lord visit such, and bring them up out of the horrible pit and out of the miry clay. May they be of good courage, for the Lord says to them:
-
-"Fear not. Be not dismayed."
+I know it is said that some of God's plants grow best in the shade. I believe they do, but I should like to try them in the sunlight a little and see if they would not grow better there than their best has up to now been. There are precious flowers of Grace which are constantly watered with the tears of sorrow, but methinks the dews of consolation would answer their purpose just as well. May the Lord visit such, and bring them up out of the horrible pit and out of the miry clay. May they be of good courage, for the Lord says to them: "Fear not. Be not dismayed."
 
 Be it also remarked before we leave this point, that even the strongest of God's servants are sometimes the subjects of fear. David was a very strong man, and he overthrew Goliath. But we read that on one occasion when he was in battle, "David waxed faint." So the Lord's mightiest heroes sometimes have their fainting fits. We used to talk of our "Iron Duke," and there was one man in Scripture who was an Iron Prophet, and that was Elijah the Tishbite, and yet he sat down under the juniper tree, and, I had almost said, whined, "It is enough. Now, O Lord, take away my life. For I am not better than my fathers."
 
@@ -77,30 +66,28 @@ The best of men are but men at the best, and the strongest men are weak if God's
 
 Yet, I do not say this to encourage anybody in fearing, for, let me just give you the opposite side. There is no reason why, if we lived nearer to God and walked more carefully, we might not, as a rule, live above all this fear and dismay. I once met with a dear Brother in Christ, who is now in Glory, about whose truthfulness I never could have a doubt. He told me that by the space of thirty years he had not felt a doubt of his interest in Jesus Christ. At the time I heard him say it, I thought it was quite an unusual circumstance, but I bless God that I have now met with several, "the excellent of the earth, in whom is all My delight."
 
-Their testimony is the same: that though they may have been shaken, they have never been moved from their steadfast hold on Christ. Though they may have had a few moments of trembling, yet they have never been so dismayed as to question their part in Jesus. They have stood fast, and they have sung year after year, "O God, my heart is fixed. My heart is fixed. I will sing and give praise." I hold that out as an object of ambition to every Believer in Christ. Do try and see if you cannot rinse your mouth out of all that bitter stuff which makes you sing so often and so dolefully:
-
-"It is a point I long to know__."
+Their testimony is the same: that though they may have been shaken, they have never been moved from their steadfast hold on Christ. Though they may have had a few moments of trembling, yet they have never been so dismayed as to question their part in Jesus. They have stood fast, and they have sung year after year, "O God, my heart is fixed. My heart is fixed. I will sing and give praise." I hold that out as an object of ambition to every Believer in Christ. Do try and see if you cannot rinse your mouth out of all that bitter stuff which makes you sing so often and so dolefully: "It is a point I long to know__."
 
 That is a very suitable song for Christian infants, a hymn often sung by enquirers. But O that you would get beyond such juvenile ditties, and learn to sing fitter music, such as this:
 
-> Now I have found the ground, wherein
-> Sure my soul's anchor may remain—
-> The wounds of Jesus, for my sin
-> Before the world's foundation slain.
-> Whose mercy shall unshaken stay,
-> When Heaven and earth are fled away.
-> Love! You bottomless abyss!
-> My sins are swallowed up in You;
-> Covered is my unrighteousness,
-> Nor spot of guilt remains on me.
-> While Jesus' blood through earth and skies,
-> Mercy, free, boundless mercy cries!
-> With faith I plunge me in this sea—
-> Here is my hope, my joy, my rest!
-> Hither, when Hell assails, I flee,
-> I look into my Savior's breast;
-> Away, sad doubt, and anxious fear!
-> Mercy is all that's written there.
+> Now I have found the ground, wherein  
+> Sure my soul's anchor may remain—  
+> The wounds of Jesus, for my sin  
+> Before the world's foundation slain.  
+> Whose mercy shall unshaken stay,  
+> When Heaven and earth are fled away.  
+> Love! You bottomless abyss!  
+> My sins are swallowed up in You;  
+> Covered is my unrighteousness,  
+> Nor spot of guilt remains on me.  
+> While Jesus' blood through earth and skies,  
+> Mercy, free, boundless mercy cries!  
+> With faith I plunge me in this sea—  
+> Here is my hope, my joy, my rest!  
+> Hither, when Hell assails, I flee,  
+> I look into my Savior's breast;  
+> Away, sad doubt, and anxious fear!  
+> Mercy is all that's written there.  
 
 We shall now occupy a little while in considering God's command against fear. "Fear you not. Be not dismayed." That precept is absolute and unqualified; we are not to fear at all. He does not say, "Fear so much, but not beyond that," but He gives an unlimited exhortation, "Fear not." He does not say, "Do not fear so often," but, "Fear not." It is an exhortation without any time to it, and therefore it applies to all times. "Fear not." Fear not at all. "Be not dismayed." He does not say, "Be not utterly dismayed." There is no qualifying adverb, but it means, "Be not dismayed at all." This command, then, chides fear and forbids dismay.
 
@@ -114,9 +101,7 @@ Doubts and fears also breed sin. It was said of Jeroboam that he sinned, and mad
 
 But here is another man. He says, "Well, I am in a very awkward predicament, and I must look to the main chance. I am not sure that God will be with me. I must help myself, for I am very likely to be ruined." That man will take up with one of those dodges in business by which men raise money. I need not tell you what those dodges are, because I dare say a great many of you know them, either by using them yourselves, or by having them used upon you. They are part and parcel of the art of stealing other people's money—without being locked up as a thief.
 
-Well, he avails himself of one of those schemes—of course he does—he who has not faith is sure to have much craft. He who cannot trust God soon begins to trust the devil, and he that begins to trust the devil soon finds himself in the mire. Faith it is that holds a man as the great bower anchor holds a vessel when the winds are out. Believing that God will not fail you enables you to defy temptation. Now see how the man who has faith beats the devil! There the devil stands. He says, "If you will serve me I will give you_." "Well, what will you give me?" "I will give you the whole
-
-world." "But I have that already, for this world is mine, given to me in Christ, and as much of it as is good for me I shall always have."
+Well, he avails himself of one of those schemes—of course he does—he who has not faith is sure to have much craft. He who cannot trust God soon begins to trust the devil, and he that begins to trust the devil soon finds himself in the mire. Faith it is that holds a man as the great bower anchor holds a vessel when the winds are out. Believing that God will not fail you enables you to defy temptation. Now see how the man who has faith beats the devil! There the devil stands. He says, "If you will serve me I will give you_." "Well, what will you give me?" "I will give you the whole world." "But I have that already, for this world is mine, given to me in Christ, and as much of it as is good for me I shall always have."
 
 "Well, but I will make you great." "I do not want to be great, my joy is to make Christ great, and my greatness is in Him." "But I will give you silver." "Oh, then!" says the Christian, "put it down." No sooner is the heap spread out than the Believer covers it all over with ten times its weight in gold, and so laughs the fiend to scorn. I mean that for every blessing that sin could bring, Divine Grace brings ten times as much of a greater blessing, and so faith checkmates Satan, and temptation is put away. Unbelief has no such power, but readily falls into the lion's jaws. Therefore, fear not, lest you in the hour of trial be overcome with temptation and hurried into sin.
 
@@ -148,16 +133,14 @@ Here is a word, then, for timid, trembling workers for God. "I will strengthen y
 
 Note, then, this word, "I will help you." I will not only give you strength to use yourselves, but I will exert My strength both in other men and in My Providence to help you. Well, you know what a grand matter is God's help. I told you once before a story I heard from a minister, but I must tell it again. He said he was one day bringing his books up stairs into another room, for he was going to have his study on the first floor instead of downstairs, and his little boy wanted to help Father carry some of the books. "Now," said the father, "I knew he could not do it, but as he wanted to be doing something, to please him and to do him good by encouraging his industry, I told him he might take a book and carry it up."
 
-So away he went, and picked out one of the biggest volumes—Caryl on Job or Poli Synopsis, I should think—and when he had climbed a step or two up the stairs, down he sat and began to cry. He could not manage to carry his big book any further. He was disappointed and unhappy. How did the matter end? Why, the father had to go to the rescue, and carry both the great book, and the little man. So, when the Lord gives us a work to do, we are glad to do it. But our strength is not equal to the work, and then we sit down and cry, and it comes to this: that our blessed Father carries the work, and carries the little man, too! And then it is all done, and done gloriously. It is a simple illustration, but may it comfort some desponding heart.
-
-"Yes, I will help you."
+So away he went, and picked out one of the biggest volumes—Caryl on Job or Poli Synopsis, I should think—and when he had climbed a step or two up the stairs, down he sat and began to cry. He could not manage to carry his big book any further. He was disappointed and unhappy. How did the matter end? Why, the father had to go to the rescue, and carry both the great book, and the little man. So, when the Lord gives us a work to do, we are glad to do it. But our strength is not equal to the work, and then we sit down and cry, and it comes to this: that our blessed Father carries the work, and carries the little man, too! And then it is all done, and done gloriously. It is a simple illustration, but may it comfort some desponding heart. "Yes, I will help you."
 
 The last word of the text is, "Yes, I will uphold you with the right hand of My righteousness." Many a child of God is afflicted with a fear that he shall one day bring dishonor upon the Cross of Christ, and in an unguarded moment shall slip with his feet. This is a very natural fear, and in some respects a very proper fear:
 
-> Ah, Lord, with such a heart as mine,
-> Unless You hold me fast,
-> I feel I must, I shall decline,
-> And perish at the last.
+> Ah, Lord, with such a heart as mine,  
+> Unless You hold me fast,  
+> I feel I must, I shall decline,  
+> And perish at the last.  
 
 It only wants, we think, the temptation to take us in the weak point, and then it will be all over with us. But now again I beg you to grasp this precious Word, "I will uphold you with the right hand of My righteousness." That is the same hand which holds the stars in their place. That is the hand which bears up the unpillared arch of Heaven, that spans both sea and shore. Can it not bear you up?
 
