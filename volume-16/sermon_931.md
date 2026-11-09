@@ -1,11 +1,13 @@
 # Sermon 931 | Three Precious Things
 
-> He is precious.
-> 1 Peter 2:7
+> He is precious.  
+> 1 Peter 2:7  
 
-"Precious promises." 2 Peter 1:4.
+> Precious promises.  
+> 2 Peter 1:4  
 
-"Precious faith." 2 Peter 1:1.
+> Precious faith.  
+> 2 Peter 1:1  
 
 These three precious things, when put together, present to us a treasure of priceless things, altogether without parallel. When Moses was about to die he pronounced a blessing upon all the tribes, but the benediction which he allotted to the tribe of Joseph was remarkable for containing in it an extraordinary collection of precious things.
 
@@ -123,13 +125,10 @@ But faith has the power to enrich us, and add no sorrow. Faith touches trials an
 
 I have spoken so far of these three precious things. Just these few words by way of closing. Precious as these things are, they are yours, Christian. You have the precious faith. Then the precious promises are all yours, and our precious Christ is yours. How do you mean to live? With these precious things about you, do you intend to live like a beggar? I mean will you be sinful, low, groveling, worldly? Oh, rise to your rank, and as you are so ennobled, walk as becomes saints! Is Jesus Christ precious to you? Then serve Him with your best, give Him your precious things, give Him your lives, give Him your substance, give Him all that you have. Do not give the Redeemer your odds and ends, such as you can afford to give without knowing it. Say, "He died to give me Himself. I will give him myself in return:
 
-'And if I might make some reserve,
-
-And duty did not call,
-
-I love my God with zeal so great,
-
-That I must give Him all.'"
+> 'And if I might make some reserve,  
+> And duty did not call,  
+> I love my God with zeal so great,  
+> That I must give Him all.'  
 
 Go and live like those who are rich to all the intents of bliss, and let your cheerful, your godly, your self-denying example be a protest to the unbelieving sons of men that you know the preciousness of Christ. Alas, for you who are unconverted. What shall I say to you? I am afraid I may preach up Christ a long time before you will believe me. It needs that the arm of God be revealed, before you will see these mysteries. The most of men remind us of the old story in Strabo, of the musician who thought himself very wonderfully gifted with power to create melody.
 
