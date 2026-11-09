@@ -1,7 +1,7 @@
 # Sermon 912 | The Glorious Hereafter and Ourselves
 
-> Now He that has worked us for the same thing is God, who also has given unto us the earnest of the Spirit.
-> 2 Corinthians 5:5
+> Now He that has worked us for the same thing is God, who also has given unto us the earnest of the Spirit.  
+> 2 Corinthians 5:5  
 
 It is a very comforting thing to be able to see the work of God in our own hearts. We can clearly enough perceive the effects of the Fall. The workings of our inward corruption are always sufficiently perceptible. We have not to search long for the foul handiwork of Satan within us, for his temptations vex us day by day, and too often wound us to our dismay. The evil influences of the world are also exceedingly apparent to the eyes of self-examination. It is, therefore, consoling to the highest degree when, amidst all this disfiguring of the vessel by the hands of evil, we can see growing traces of the Great Artist's hand still fashioning the clay upon the wheel and undoing the mischief of His enemies.
 
@@ -23,9 +23,7 @@ The Christian is the most contented man in the world, but he is the least conten
 
 But if you ask him whether he would choose to live on board in that narrow cabin, he will tell you that he longs for the time when the harbor shall be in view, and the green fields, and the happy homesteads of his native land. We, my brethren, thank God for all the appointments of Providence; whether our portion is large or scant we are content because God has appointed it; yet our portion is not here, nor would we have it here if we might!
 
-"We've no abiding city here,
-
-Sad truth were this to be our home." No thought would be more dreadful to us than the idea of having our portion in this life, in this dark world which refused the love of Jesus, and cast Him out of its vineyard. We have desires which the whole world could not fulfill. We have insatiable yearnings which a thousand empires could not satisfy. The Creator has made us to pant and long after Himself, and all the creatures put together could not delight our souls without His Presence:
+"We've no abiding city here, sad truth were this to be our home." No thought would be more dreadful to us than the idea of having our portion in this life, in this dark world which refused the love of Jesus, and cast Him out of its vineyard. We have desires which the whole world could not fulfill. We have insatiable yearnings which a thousand empires could not satisfy. The Creator has made us to pant and long after Himself, and all the creatures put together could not delight our souls without His Presence:
 
 > Hopeless of joy in anything below,   
 > We only long to soar,   
@@ -36,11 +34,12 @@ In addition to this dissatisfaction, there reigns within the regenerate heart a 
 
 But when we know that our Redeemer lives, and look forward to the Resurrection and to the Glory to be revealed, we cry:
 
-"Oh, if my Lord would come and meet,
+> Oh, if my Lord would come and meet,  
+> My soul should stretch her wings in haste,  
+> Fly fearless through death's iron gate,   
+> Nor fear the terrors as she passed.   
 
-My soul should stretch her wings in haste,
-
-Fly fearless through death's iron gate, Nor fear the terrors as she passed." Whatever the separation of the soul from the body may involve of pain or mystery, the believer feels that he could dare it all to enter at once into the unfading joys of Heaven. Sometimes the heir of Heaven grows impatient of his bondage. Like a captive looking out of the narrow window of his prison beholds the green fields of the unfettered earth, and marks the flashing waves of the ocean, ever free, and hears the songs of the free tenants of the air; he weeps as he views his narrow cell and hears the clanking of his chains.
+Whatever the separation of the soul from the body may involve of pain or mystery, the believer feels that he could dare it all to enter at once into the unfading joys of Heaven. Sometimes the heir of Heaven grows impatient of his bondage. Like a captive looking out of the narrow window of his prison beholds the green fields of the unfettered earth, and marks the flashing waves of the ocean, ever free, and hears the songs of the free tenants of the air; he weeps as he views his narrow cell and hears the clanking of his chains.
 
 There are times when the most patient of the Lord's banished ones feel the home sickness strong upon them. Like those beasts which we have sometimes seen in our menageries, which pace to and fro in their dens, and chafe themselves against the bars, uneasy, unhappy, bursting out every now and then into fierce roars, as though they yearned for the forest or the jungle. Even so we also chafe and fret in this, our prison, longing to be free. As by the waters of Babylon the sons of Zion sat down and wept, even so do we. Dwelling in Kedar's tents and sojourning with Mesech, we long for the wings of a dove that we might fly away and be at rest:
 
@@ -81,9 +80,7 @@ But if it had liberty to leave the society of beasts, how gladly would the brigh
 
 These desires are further increased by sanctified afflictions. Thorns in our nest make us take to our wings. The embittering of this cup makes us earnestly desire to drink of the new wine of the kingdom. We are very much like our poor who would stay at home in England and put up with their lot, hard though it is. But when at last there comes a worse distress than usual, then straightway they talk of emigrating to those fair and boundless fields across the Atlantic where a kindred nation will welcome them with joy.
 
-So here we are in our poverty, and we make the best of it we can. But a sharp distress wounds our spirit and then we say we will run away to Canaan, to the land that flows with milk and honey. For there, we think, we shall suffer no distress, neither shall our spirits hunger any more. Heavenly desires are still farther inflamed by communion with Christ. The sweets as well as the bitters may be made to increase our longings after the world to come. When a man has once known what fellowship with Jesus is, he then pines to enjoy it forever. Like the Gauls on this side the Alps, who, when they had once drank the Italian wines, said one to another, "It must be a fair land where they grow such wine as this. Come, brethren, let us draw our swords and cross the Alps and take the vineyards for ourselves." Thus does the love of Jesus set us longing to be with Him:
-
-"Since I have tasted of the grapes, I oftentimes long to go Where my dear Lord the vineyard keeps, And all the clusters grow."
+So here we are in our poverty, and we make the best of it we can. But a sharp distress wounds our spirit and then we say we will run away to Canaan, to the land that flows with milk and honey. For there, we think, we shall suffer no distress, neither shall our spirits hunger any more. Heavenly desires are still farther inflamed by communion with Christ. The sweets as well as the bitters may be made to increase our longings after the world to come. When a man has once known what fellowship with Jesus is, he then pines to enjoy it forever. Like the Gauls on this side the Alps, who, when they had once drank the Italian wines, said one to another, "It must be a fair land where they grow such wine as this. Come, brethren, let us draw our swords and cross the Alps and take the vineyards for ourselves." Thus does the love of Jesus set us longing to be with Him: "Since I have tasted of the grapes, I oftentimes long to go where my dear Lord the vineyard keeps, and all the clusters grow."
 
 Communion with Christ sharpens the edge of our desire for Heaven. And so, to close this vein of thought, does elevation of soul. The more we are sanctified and lifted above the grossness of earthliness into conformity with Jesus, the more we long for the world to come.
 
@@ -119,9 +116,7 @@ But if you and I have grown out of all taste for the things of sin and time. If 
 
 The text informs us that in addition to working in us desires and fitness for Glory, the Lord has graciously given to us an earnest of glory. An earnest, as you all know, is unlike a pledge, in some respects. A pledge has to be returned when the matter which it ensures is obtained; but an earnest is a part of the thing itself. A man has so much wage to take on Saturday night, he receives a part of it in the middle of the week, it is an earnest of the full payment; a part of the payment itself.
 
-So the Holy Spirit is a part of Heaven itself. The work of the Holy Spirit in the soul is the bud of Heaven. Divine Grace is not a thing which will be taken away from us when we enter Heaven, but which will develop into Glory. Grace will not be withdrawn as though it had answered its purpose, but will be matured into Glory. What is meant by the Holy
-
-Spirit being given to us as an earnest? I believe it signifies, first, that the very dwelling of the Holy Spirit within our soul is the earnest of Heaven.
+So the Holy Spirit is a part of Heaven itself. The work of the Holy Spirit in the soul is the bud of Heaven. Divine Grace is not a thing which will be taken away from us when we enter Heaven, but which will develop into Glory. Grace will not be withdrawn as though it had answered its purpose, but will be matured into Glory. What is meant by the Holy Spirit being given to us as an earnest? I believe it signifies, first, that the very dwelling of the Holy Spirit within our soul is the earnest of Heaven.
 
 My brothers and sisters, if God Himself condescends to make these bodies His temples, is not this akin to Heaven's honors? Only put away sin, and the indwelling of the Holy Spirit would make even this earthly state to be heavenly to us. O my brethren, you little know what a weight of Glory is contained in the indwelling of the Holy Spirit! If you did but know it and believe in it always, the sorrows of this life would become trivial, and as for the frowns of men you would deride them. God dwells in you. You walk among the sons of men unknown and despised, yet as angels see you, you are the objects of their wonder! Rejoice that in this, then, you have an earnest of Heaven.
 
