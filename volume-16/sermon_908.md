@@ -33,9 +33,7 @@ So also his whole lifework he delivered into the hands of God. Men said, no doub
 
 So did the Apostle resign to the hands of God in Christ his soul, whatever its jeopardy from surrounding temptations. However great the corruptions that were within it, and the dangers that were without, he felt safe in the great Surety's hands. He made over to the Divine Trustee all his mental powers, faculties, passions, instincts, desires and ambitions. He gave his whole nature up to the Christ of God to preserve it in holiness through the whole of life. And right well did his life-course justify his faith.
 
-He gave that soul up to be kept in the hour of death, then to be strengthened, sustained, consoled, upheld, and guided through the tracks unknown, up through the mysterious and unseen, to the Throne of God, even the Father. He resigned his spirit to Christ, that it might be presented without spot or wrinkle or any such thing in the Last Great Day. He did, in fact, make a full deposit of all that he was, and all that he had, and all that concerned him, into the keep-
-
-ing of God in Christ, to find in his God a faithful Guardian, a sure Defender and a safe Keeper. This was the matter, then, about which the Apostle was concerned.
+He gave that soul up to be kept in the hour of death, then to be strengthened, sustained, consoled, upheld, and guided through the tracks unknown, up through the mysterious and unseen, to the Throne of God, even the Father. He resigned his spirit to Christ, that it might be presented without spot or wrinkle or any such thing in the Last Great Day. He did, in fact, make a full deposit of all that he was, and all that he had, and all that concerned him, into the keeping of God in Christ, to find in his God a faithful Guardian, a sure Defender and a safe Keeper. This was the matter, then, about which the Apostle was concerned.
 
 But next to this, the matter in question concerned the Lord's ability to make good this guardianship. The Apostle did not doubt that Christ had accepted the office of Keeper of that which he had committed to Him. The question was never about Christ's faithfulness to that trust. The Apostle does not even say that he was confident that Jesus would be faithful. He felt that assertion to be superfluous. There was no question about Christ's willingness to keep the soul committed to Him, such a statement Paul felt it unnecessary to make. But the question with many was concerning the power of the once crucified Redeemer to keep that which was committed to Him.
 
@@ -72,9 +70,7 @@ He was tempted as you are, yet he knew that Christ was able to keep him. O tremb
 
 A Jewish mob may surround him, they may drag him out of the city, but Paul's mind is calm and composed. He may be laid in the stocks after having been scourged, but his heart finds congenial utterance in a song rather than a groan. He is always brave, always unconquerable, confident of victory. He believed that God would keep him, and he was kept. And you, my Brothers and Sisters, though your life may be a very severe conflict and you sometimes think you will give it up in despair, you never shall relinquish the sacred conflict. He that has borne you onward to this day will bear you through, and will make you more than conqueror, for He is able to keep you from fainting and despair.
 
-Doubtless, the Apostle meant, too, that Christ was able to keep him from the power of death. Beloved, this is great comfort to us who so soon shall die. To the Apostle, death was a very present thing. "I die daily," said he. Yet was he well
-
-assured that death would be gain rather than loss to him, for he was certain that Christ would so order all things that death should be but like an angel to admit him into everlasting life. Be certain of this, too, for He who is the Resurrection and the Life will not desert you. Do not, my Brothers and Sisters, fall under bondage through fear of death, for the living Savior is able to keep you, and He will.
+Doubtless, the Apostle meant, too, that Christ was able to keep him from the power of death. Beloved, this is great comfort to us who so soon shall die. To the Apostle, death was a very present thing. "I die daily," said he. Yet was he well assured that death would be gain rather than loss to him, for he was certain that Christ would so order all things that death should be but like an angel to admit him into everlasting life. Be certain of this, too, for He who is the Resurrection and the Life will not desert you. Do not, my Brothers and Sisters, fall under bondage through fear of death, for the living Savior is able to keep you, and He will.
 
 Do not, I pray, look too much at the pains, groans, and dying strife. Look rather to that kind Friend, who, having endured the agonies of death before you, can sympathize with your sufferings, and who, as He ever lives, can render you available assistance. Cast this care on Him, and fear no more to die than you fear to go to your bed when night comes.
 
@@ -92,11 +88,7 @@ We shall, in the third place, pass on to notice the assurance of that fact, or h
 
 He does not say, "I have served Christ." No. He does not say, "I am growing like Christ, therefore I am persuaded I shall be kept." No. He makes most prominent in his thought the fact that he believed, and so had committed himself to Christ. I would to God, dear Friends, that you who are subject to doubts and fears, instead of raking about in your hearts to find evidences and marks of growth in Grace and likeness to Christ, and so on, would first make an investigation concerning a point which is far more vital, namely this, have you believed?
 
-Dear anxious Heart, begin your search on this point. Do you commit yourself to Christ? If you do, what though marks should be few and evidences for awhile should be obscure, he that believes on Him has everlasting life. He that believes and is baptized shall be saved. The evidences will come, the marks will be cleared in due time. But all the marks and
-
-evidences between here and Heaven are not worth a single farthing to a soul when it comes to actual conflict with death
-
-and Hell.
+Dear anxious Heart, begin your search on this point. Do you commit yourself to Christ? If you do, what though marks should be few and evidences for awhile should be obscure, he that believes on Him has everlasting life. He that believes and is baptized shall be saved. The evidences will come, the marks will be cleared in due time. But all the marks and evidences between here and Heaven are not worth a single farthing to a soul when it comes to actual conflict with death and Hell.
 
 Then it must be simple faith that wins the day. Those other things are good enough in brighter times. But if it is a question whether you are safe or not, you must come to this, "I have rested with all my heart on Him that came into the world to save sinners, and though I am the very chief of sinners, I believe He is able to save me." You will get to assurance if you keep clear about your faith.
 
@@ -112,9 +104,7 @@ Men are studious in various schools and colleges in order to obtain knowledge of
 
 Once, again, the Apostle, it appears from the text, gained his assurance from close consideration as well as from knowledge. "I know and am persuaded." As I have already said, persuasion is the result of argument. The Apostle had turned this matter over in his mind. He had meditated on the pros and cons. He had carefully weighed each difficulty, and he felt the preponderating force of Truth swept every difficulty out of the way. O Christian, if you made your mind more familiar with Divine Truth, you would, under the guidance of the Holy Spirit, have much more assurance! I believe it is the doctrine which we have least studied in the Word which gives us the most trouble in our minds. Search it out and look.
 
-The divisions among Christians, nowadays, are not so much the result of real differences of opinion as of want of accurate thought. I believe we are getting closer and closer in our theology, and that on the whole, at least among the Nonconforming Churches of England, very much the same theology is preached by all evangelical ministers. But some are not careful of their terms and words, and use them incorrectly. And so they seem to preach wrong doctrines when in their
-
-hearts they mean rightly enough. May we come to be more thoughtful, each of us, for a thousand benefits would flow from there.
+The divisions among Christians, nowadays, are not so much the result of real differences of opinion as of want of accurate thought. I believe we are getting closer and closer in our theology, and that on the whole, at least among the Nonconforming Churches of England, very much the same theology is preached by all evangelical ministers. But some are not careful of their terms and words, and use them incorrectly. And so they seem to preach wrong doctrines when in their hearts they mean rightly enough. May we come to be more thoughtful, each of us, for a thousand benefits would flow from there.
 
 Thinking of the Deity of Christ, considering of the veracity of the Divine promises, meditating upon the foundations of the Everlasting Covenant, revolving in our minds what Christ has done for us, we should come at last, by the Spirit's teaching, to be fully persuaded of the power of Christ to keep the sacred charge which we have given to Him. Doubts and fears would vanish like clouds before the wind. How many Christians are like the miser who never feels sure about the safety of his money, even though he has locked up the iron safe and secured the room in which he keeps it, and locked up the house, and bolted and barred every door?
 
@@ -132,9 +122,7 @@ O you that doubt, and therefore fret and care, and ask the question, "Do I love 
 
 Those who are unsaved in this place may well envy those who are. That which attracted me to Christ, I have not heard of others brought in this way, but this brought me to Christ mainly, was the doctrine of the safety of the saints. I fell in love with the Gospel through that Truth. What, I thought, are those who trust in Jesus safe? Shall they never perish and shall none pluck them out of Christ's hands? Everybody esteems safety. One would not insure his life where he thought there was a doubt as to the safety of the insurance. Feeling that there was perfect safety if I gave myself up to the Redeemer, I did so. And I entertain no regrets to this day that I committed my soul to Him.
 
-Young people, you cannot do better than early in life entrust your future with the Lord Jesus. Many children at home appear to be very excellent. Many lads, before they leave their father's house, are amiable and commendable in
-
-character. But this is a rough world, and it soon spoils the Graces that have been nurtured in the conservatory of the home. Good boys very often turn out very bad men. And girls who were so lovely and pure at home have been known to become very wicked women.
+Young people, you cannot do better than early in life entrust your future with the Lord Jesus. Many children at home appear to be very excellent. Many lads, before they leave their father's house, are amiable and commendable in character. But this is a rough world, and it soon spoils the Graces that have been nurtured in the conservatory of the home. Good boys very often turn out very bad men. And girls who were so lovely and pure at home have been known to become very wicked women.
 
 O children, your characters will be safe if you trust them with Jesus! I do not say you will be rich if you trust Christ, nor that you will prosper after the manner of men. But I do say that you shall be happy in the best sense of that word, and that your holiness shall be preserved through trusting yourself with Jesus. I pray that you may be led to desire this, especially any of you who are leaving your father's house, or are setting up in business on your own account. Commit yourselves to God!
 
@@ -149,4 +137,4 @@ O come and trust Him, dear young Friends! You older ones, do you need that I sho
 > High Heaven, that heard the solemn vow,   
 > That vow renewed shall daily hear,    
 > Till in life's latest hour I bow,   
-> And bless in death a bond so dear.
+> And bless in death a bond so dear.  
