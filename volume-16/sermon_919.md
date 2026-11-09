@@ -1,7 +1,7 @@
 # Sermon 919 | The King Feasting in his Garden
 
-> I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice. I have eaten My honeycomb with My honey. I have drunk My wine with My milk: eat, O Friends; drink, yes, drink abundantly, O Beloved.
-> Song of Solomon 5:1
+> I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice. I have eaten My honeycomb with My honey. I have drunk My wine with My milk: eat, O Friends; drink, yes, drink abundantly, O Beloved.  
+> Song of Solomon 5:1  
 
 I believe this text to be appropriate to the spiritual condition of our Church. If I am not very sadly mistaken, the Lord of Hosts is with us in a very remarkable manner. Our meetings for prayer have been distinguished by an earnest and fervent spirit. Our meetings with enquirers have been remarkably powerful. In a quiet manner, without any outward outcries, souls have been smitten down with conviction of sin, and have been comforted as they have received Christ by faith. By His Grace we are not a deserted Church, we are not left with broken hedges, with the wild boar of the wood committing devastations.
 
@@ -9,9 +9,7 @@ The Lord has sent a gracious rain which has quickened the seed. He has watered t
 
 In happy and auspicious times, when the Spirit of God is working, it is very natural to say, "We must now work more abundantly than ever," and God forbid that we should hinder such zeal; but more spiritual privilege is not to be put in the second place. Let us commune as well as work. For there shall we find strength for service, and our service shall be done the better, and become the more acceptable, and ensure the larger blessing. If while we serve like Martha we at the same time commune like Mary, we shall not, then, become cumbered with much serving. We shall serve and not be cumbered, and shall feel no fretfulness against others whose only faculty may be that of sitting at the Master's feet.
 
-The text divides itself readily into three parts. First, we have the Presence of the heavenly Bridegroom: "I am come into My garden, My sister, My spouse." We have, secondly, the satisfaction which He finds in His Church: "I have gathered My myrrh with My spice, I have eaten My honeycomb with My honey, I have drunk My wine with my milk." And, thirdly, we have the invitation which He gives to His loving people: "Eat, O friends; drink, yes, drink abundantly, O
-
-Beloved."
+The text divides itself readily into three parts. First, we have the Presence of the heavenly Bridegroom: "I am come into My garden, My sister, My spouse." We have, secondly, the satisfaction which He finds in His Church: "I have gathered My myrrh with My spice, I have eaten My honeycomb with My honey, I have drunk My wine with my milk." And, thirdly, we have the invitation which He gives to His loving people: "Eat, O friends; drink, yes, drink abundantly, O Beloved."
 
 The voice of the Master Himself calls us to consider his presence: "I am come." He tells us He is come. What? Could He come without our perceiving it? Is it not possible? May we be like those whose eyes were held so that they knew Him not? Is it possible for us to be like Magdalene, seeking Christ, while He is standing very near us? Yes, and we may even be like the disciples, who, when they saw Him walking on the water, were afraid.
 
@@ -93,7 +91,7 @@ Even if your poverty compels you, to say, "As the Lord lives, I have not a cake,
 
 In a feast it is remarkable how complete the entertainment is. There is the sweetest food and the most nourishing and exhilarating drink. Then over and above that there is the rarest perfume, not counted to be needed in ordinary entertainments, but crowning all and making up a right royal feast. How marvelous that our Beloved should find within His Church all that His soul wants! Having given Himself to cover her, He delights in her, He rests in His love, and rejoices over her with singing. For the Joy that was set before Him, He endured the Cross, despising the shame. And this day He continues to be filled with the same delight.
 
-I would gladly linger, but time forbids. We must now remember, in the third place, that the text contains an INVITATION. The Beloved says, "Eat, O Friends; drink, yes, drink abundantly, O Beloved." In the invitation we see the character of the invited guests. They are spoken of as friends. We were once aliens, we are now more like the Lord from whom the love proceeds. O you that stand shivering in the cold shallows of the river of life, why tarry there? Descend into the greater depths, the warmer waves, and let the mighty stream bathe you breast high.
+I would gladly linger, but time forbids. We must now remember, in the third place, that the text contains an invitation. The Beloved says, "Eat, O Friends; drink, yes, drink abundantly, O Beloved." In the invitation we see the character of the invited guests. They are spoken of as friends. We were once aliens, we are now more like the Lord from whom the love proceeds. O you that stand shivering in the cold shallows of the river of life, why tarry there? Descend into the greater depths, the warmer waves, and let the mighty stream bathe you breast high.
 
 Yes, go farther, plunge where you can find no bottom, for it is blessed and safe swimming in the stream of Christ's everlasting love and He invites you to it now. When you are at a big banquet table, pick not here and there a crumb, sip not now and then a drop. He says, "Eat," and He adds, "drink abundantly." The invitation to receive abundantly applies to both refreshments. Your eating and your drinking may be without stint. You cannot impoverish the Most High God, possessor of Heaven and earth. When you are satiated with His love, His table shall still be loaded. Your cups may run over, but His flagons will still be brimmed. If you are straitened at all, you are not straitened in Him. You are straitened in yourselves.
 
