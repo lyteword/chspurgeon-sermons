@@ -1,7 +1,7 @@
 # Sermon 913 | Method and Music, Or the Art of Holy and Happy Living
 
-> And whatever you do in word or deed, do all in the name of the Lord Jesus, giving thanks to God the Father by Him.
-> Colossians 3:17
+> And whatever you do in word or deed, do all in the name of the Lord Jesus, giving thanks to God the Father by Him.  
+> Colossians 3:17  
 
 It is always an advantage to have the laws of a kingdom as concise as possible. No one will ever be able to tell how much of litigation and consequent calamity has been caused in this country by the confused condition of our laws. When Napoleon issued his celebrated "Code Napoleon," which is an admirable summary of French law, he conferred upon the empire one of the greatest gifts and proved himself a wise ruler.
 
@@ -27,12 +27,12 @@ In addition to your prayers and praises, you are bound to serve him according to
 
 Your burnt offerings and whole burnt offerings would have no acceptance with Jehovah, for your sinful nature pollutes them all. How necessary it is, then, that we should often pause in our holy work, and say, "I am doing this for God, but am I presenting it in the appointed way? If I see anything of merit in what I am doing, I am acting contrary to the gospel rule and I shall be rejected. I must bring all my work to the high priest of my profession and offer it through him."
 
-"The iniquity of all our holy things
-Is cleansed by His blood, which covers all,
-And adds a rich perfume divinely sweet,
-Winning acceptance at the Throne of God
-For broken prayers, and faulty songs, and even
-For service marred with sad infirmities."
+> The iniquity of all our holy things  
+> Is cleansed by His blood, which covers all,  
+> And adds a rich perfume divinely sweet,  
+> Winning acceptance at the Throne of God  
+> For broken prayers, and faulty songs, and even  
+> For service marred with sad infirmities.  
 
 Take heed, dear hearer, that you see the blood sprinkled on your service for God. Almost all things under the law were sanctified by blood, and all things under the gospel, without exception, must be thus made sweet to God. The atoning sacrifice, the prevalent intercession of the one appointed mediator, Christ Jesus, must be constantly before our minds in all that we attempt to do for our Lord God. Let us never forget this lest we utterly fail.
 
@@ -62,8 +62,8 @@ It is not that which is generally prescribed in society, for full often the pres
 
 My brethren, how calm will your hearts be, how serenely will you face your afflictions if you can feel, "I have done nothing but what my master did before me. I have sought to tread in the footprints of his pilgrimage!" Why, you must be safe, you must be accepted if you do as Jesus did, for never can Christ's example lead a simple soul astray.
 
-"It is always safe for souls to follow on
-Where Christ their holy shepherd leads the way."
+> It is always safe for souls to follow on  
+> Where Christ their holy shepherd leads the way.  
 
 Furthermore, as we are to do all through the office of Christ as mediator, within the authority of Christ as king, under the sanction of Christ as exemplar, so we should do everything to the glory of the Lord Jesus as our Lord and God.
 
@@ -75,10 +75,10 @@ The old philosopher, seeing a fool in fine apparel, pointed at him, and said, "t
 
 Dear friends, we must live for Christ, cost us what it may of watchfulness. We must not fail here. We dare not live for a party, or a sect, or even altogether for any one church, however dear to us. We may live for the truth, but only because God is glorified thereby. First and last, in the middle and everywhere, the constraining thought of Christian life should be, "all for Jesus."
 
-"All for the Master, all without reserve,
-All to the utmost of our manhood's might
-Each pulse, each throb of heart and thrill of nerve,
-Each hour of busy day and silent night."
+> All for the Master, all without reserve,  
+> All to the utmost of our manhood's might  
+> Each pulse, each throb of heart and thrill of nerve,  
+> Each hour of busy day and silent night.  
 
 Beloved, it is delightful to know that Christ is all mine, and I am all Christ's. It is a holy aspiration to desire to enjoy as much of Christ as our nature can receive, and then to exhibit as much of Christ as divine grace can enable us to reveal. "Everything for Jesus." "Christ all and in all Christ." Let these be the mottoes of every believer. "Whatsoever you do in word or deed, do all in the name of the Lord Jesus." Aim in all you do to do if for his glory.
 
@@ -122,20 +122,13 @@ We ought especially to praise God in the exercise of our religion. Whenever the 
 
 Holy happiness is a part of worship, and joy in the Lord one of the accepted graces of the Holy Spirit. Brethren, let us be happy when we praise God. I have noticed with pain the way in which people will get rid, if they can, of happy words out of their hymns. The hundredth psalm for instance, runs thus:
 
-> All people that on earth do dwell,
-> Sing to the Lord with cheerful voice,
-> Him serve with mirth,
+> All people that on earth do dwell,  
+> Sing to the Lord with cheerful voice,  
+> Him serve with mirth,  
 
-What? Well, they modernize it into,
+What? Well, they modernize it into, "Him serve with fear." But, as I believe, the older form is, "Him serve with mirth, His praise forth tell, come you before Him and rejoice."
 
-"Him serve with fear." But, as I believe, the older form is,
-
-"Him serve with mirth, His praise forth tell,
-Come you before Him and rejoice."
-
-I am amazed some other scribe did not cut out the word "cheerful," and put in,
-
-"Sing to the Lord with doleful voice." In this way the psalm might have been "improved" until there would not have been a grain of worship left in it. I mean to sing it, "Him serve with mirth." And with a glad and merry heart will I praise my God. If you are his child, rejoice in your father's presence. If you are pardoned, rejoice in the mercy that washed away your sins. Even if you are tried and troubled, rejoice that your afflictions are working together for your good! "Rejoice in the Lord always. And again I say, Rejoice."
+I am amazed some other scribe did not cut out the word "cheerful," and put in, "Sing to the Lord with doleful voice." In this way the psalm might have been "improved" until there would not have been a grain of worship left in it. I mean to sing it, "Him serve with mirth." And with a glad and merry heart will I praise my God. If you are his child, rejoice in your father's presence. If you are pardoned, rejoice in the mercy that washed away your sins. Even if you are tried and troubled, rejoice that your afflictions are working together for your good! "Rejoice in the Lord always. And again I say, Rejoice."
 
 The text tells us under what aspect we should regard God when we are thus thanking him, "Giving thanks unto God the Father," blessing him that he stands in that relation to us as well as to the Lord Jesus. The belief in the divine fatherhood will surely make the sons of God happy. It is instructive to observe that thanks are directed to be offered especially to the Father. I suppose because we are most apt to forget to praise the Father. We love Jesus Christ for dying for us. We forget not the Holy Spirit because he dwells in us. But the common idea of the Father is dishonoring to him.
 
@@ -145,14 +138,14 @@ The gist of this second precept is that you stir up your hearts, my dear friends
 
 This praise, this cheerful spirit wins others. They, marking how you give thanks, will be attracted to your savior and your God, while you will strengthen yourselves also, for "the joy of the lord is your strength." Despondency and murmuring will hamper you in all your efforts to glorify Christ, but to maintain an inward spring of thanksgiving is one of the best ways to keep yourselves in spiritual health. God help you, then, to carry out both these precepts:
 
-> Work and praise! Hearts upraise!
-> Drink your fill of joy!
-> Happy they who all the day
-> Spend in Christ's employ.
-> For their song makes them strong,
-> Ready for their toil;
-> And their mirth, not of earth,
-> Sorrow cannot spoil.
+> Work and praise! Hearts upraise!  
+> Drink your fill of joy!  
+> Happy they who all the day  
+> Spend in Christ's employ.  
+> For their song makes them strong,  
+> Ready for their toil;  
+> And their mirth, not of earth,  
+> Sorrow cannot spoil.  
 
 A few words upon the third point, namely, Holy Motive to Be Inscribed upon our hearts to secure obedience. These motives are four. A word on each.
 
@@ -160,10 +153,10 @@ Beloved in Christ, you have received all you have from God the Father through Ch
 
 Reflect, too, that the well-beloved for whom I plead today is worthy. "Him has God the Father exalted." Do you object to that exaltation? Should you not rather rejoice in it? Is not that song most true:
 
-"Worthy is He that once was slain,
-The Prince of Peace that groaned and died;
-Worthy to rise, and live, and reign,
-At His Almighty Father's side?"
+> Worthy is He that once was slain,  
+> The Prince of Peace that groaned and died;  
+> Worthy to rise, and live, and reign,  
+> At His Almighty Father's side?  
 
 Will you deny, then, to Christ that which he is worthy to receive? He deserves the crowns of angels, and the songs of all the perfected! Will you not give him the best you have, even your hearts? I appeal to the justice which I trust governs your judgment, should not Jesus Christ be the one object of your life?
 
