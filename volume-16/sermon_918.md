@@ -1,7 +1,7 @@
 # Sermon 918 | The Two Builders and Their Houses
 
-> Therefore whosoever hears these sayings of Mine, and does them, I will liken him unto a wise man, which built his house upon a rock: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell not: for it was founded upon a rock. And everyone that hears these sayings of Mine, and does them not, shall be likened unto a foolish man, which built his house upon the sand: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell: and great was the fall of it.
-> Matthew 7:24-27
+> Therefore whosoever hears these sayings of Mine, and does them, I will liken him unto a wise man, which built his house upon a rock: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell not: for it was founded upon a rock. And everyone that hears these sayings of Mine, and does them not, shall be likened unto a foolish man, which built his house upon the sand: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell: and great was the fall of it.  
+> Matthew 7:24-27  
 
 These were the closing words of our Savior's most famous sermon upon the mount. Some preachers concentrate all their powers upon an effort to conclude with a fine thing called a peroration, which, being interpreted, means a blaze of rhetorical fireworks in the glory of which the speaker subsides. They certainly have not the example of Christ in this discourse to warrant them in the practice. Here is the Savior's peroration, and yet it is as simple as any other part of the address. Here is an evident absence of all artificial oratory.
 
@@ -127,7 +127,11 @@ I pray you, if you are a seeker, be not put off with empty hopes and vain confid
 
 The descriptions of Scriptures are, after all, but condescensions to our ignorance; partial revelations of fathomless mysteries. But if these are so dreadful, what must the full reality be? Provoke Him not, my hearers; tempt not your God! Neglect not the great salvation, for if you do, you shall not escape. Play not with your souls! Be not heedless and careless of the realities of eternity! But now, even now, may God hear your prayer as you breathe it from your inmost souls, and give you truly to be washed in the precious blood, and effectually saved by Him, in Whom there is fullness of truth and grace. Amen.
 
-> My God, I mark with fear How many hopes decay, And like the foolish builder's house Fall in the trial day. Perhaps amid this throng   
+> My God, I mark with fear 
+> How many hopes decay,  
+> And like the foolish builder's house  
+> Fall in the trial day.  
+> Perhaps amid this throng   
 > You do a soul espy   
 > Whose towering hopes are built on sand,   
 > I ask, 'Lord, is it I?'   
@@ -146,4 +150,4 @@ The descriptions of Scriptures are, after all, but condescensions to our ignoran
 > Cemented fast to You   
 > No stone is laid in vain,   
 > My hope defies the assaults of Hell,   
-> The flood, the wind, the rain.
+> The flood, the wind, the rain.  
