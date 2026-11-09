@@ -1,7 +1,7 @@
 # Sermon 952 | Negotiations For Peace
 
-> Preaching peace by Jesus Christ; (He is Lord of all).
-> Acts 10:36
+> Preaching peace by Jesus Christ; (He is Lord of all).  
+> Acts 10:36  
 
 These words were addressed to an admirable congregation, all met with an earnest purpose, all conscious that they were in the Presence of God, all like good soil that had been plowed and prepared for the good seed. Happy preacher to have such a congregation! God make this congregation to be of the same sort. The preacher, also, was a right faithful messenger from Heaven. No sooner did Peter know that he was commissioned to the Gentile centurion and his household, than he came to his house. And when he found himself surrounded by the family and their friends, he girt up his loins for his work and gave his whole soul to his subject. Peter goes straight to his business. There is no beating about the bush, no prefatory apology. He begins to preach.
 
@@ -101,14 +101,14 @@ He delights in happiness. He is pleased to see us happy when it is safe for othe
 
 Here is all that the Lord asks of you, and this he will enable you to do: trust sincerely in his only begotten Son. On the Cross Jesus suffered; turn your eyes to that Cross. He rose again, he ascended to Heaven; trust him to save your soul, because he ever lives to make intercession for you:
 
-> All the doing is completed,
-> Now it is 'look, believe, and live.'
-> None can purchase His salvation,
-> Life's a gift that God must give.
-> Grace, through righteousness, is reigning,
-> Not of works, lest man should boast.
-> Man must take the mercy freely,
-> Or eternally be lost.
+> All the doing is completed,  
+> Now it is 'look, believe, and live.'  
+> None can purchase His salvation,  
+> Life's a gift that God must give.  
+> Grace, through righteousness, is reigning,  
+> Not of works, lest man should boast.  
+> Man must take the mercy freely,  
+> Or eternally be lost.  
 
 Down with your weapons of rebellion; surrender them, confess that you have erred, confess it in your Father's own bosom. Conscious of his love, be conscious of your sins. Confess that you have done wrong. Cease to do evil, learn to do well. Let the wicked forsake his way and the unrighteous man his thoughts, and let him return unto the Lord. Nurture not within your bosom the viper that will be your destruction. Pluck it out and hurl it from you in the strength of him that died to save you.
 
