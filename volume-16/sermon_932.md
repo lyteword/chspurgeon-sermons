@@ -63,13 +63,12 @@ Infinite love loved us, and infinite love loved Christ, but infinite love said, 
 
 I have often painted you that scene, but for the present I forbear. His inward sufferings, His soul-sufferings, were the soul of His sufferings.
 
-'Twas thus the Lord of Life appeared,
+> 'Twas thus the Lord of Life appeared,  
+> And sighed, and groaned, and prayed, and feared.  
+> Bore all Incarnate God could bear,  
+> With strength enough, and none to spare.  
 
-And sighed, and groaned, and prayed, and feared.
-
-Bore all Incarnate God could bear,
-
-With strength enough, and none to spare." Then and there He made expiation for man's guilt. What a condemnation that was of sin! Methinks it were as though the righteous Judge of all the earth had said, "I cannot suffer sin, I cannot pass by sin, even if it lies on the Innocent One. I must smite even My own Son if sin is imputed to Him. I cannot and will not clear the guilty. The Judge of all the earth am I. If My Son should be spared, or My Law should be put on one side, the thousands of worlds I govern might well be in high revolt against Me."
+Then and there He made expiation for man's guilt. What a condemnation that was of sin! Methinks it were as though the righteous Judge of all the earth had said, "I cannot suffer sin, I cannot pass by sin, even if it lies on the Innocent One. I must smite even My own Son if sin is imputed to Him. I cannot and will not clear the guilty. The Judge of all the earth am I. If My Son should be spared, or My Law should be put on one side, the thousands of worlds I govern might well be in high revolt against Me."
 
 Poised was the cause in the impartial scales of Justice, and on His Son He visited our transgressions. Into His hands the cup of wrath was given. Against Him the sword of vengeance was unsheathed. Of Him the uttermost penalty was exact, that we, for whom He stood as Surety, might be clear by His dying, justified by His rising from the dead, and from then on accepted in the Beloved.
 
@@ -83,17 +82,18 @@ But let care be taken that it is no sham, but a reality. That sin, from the dign
 
 Now, thirdly, I come to the main business of this evening, which is to show you how this does what the Law could not do. There were two desirable things, you will remember, that I started with. The first was that the offender should be pardoned. You can clearly see how that is done. If Jesus suffered in my place, from now on it becomes not only Mercy that absolves me, but Justice that seals my acquittal.
 
-"Since Christ has my discharge procured, And freely in my place, endured The whole of wrath Divine; Payment God cannot twice demand, First at my bleeding Surety's hand, And then again at mine."
+> Since Christ has my discharge procured,  
+> And freely in my place, endured  
+> The whole of wrath Divine;  
+> Payment God cannot twice demand,  
+> First at my bleeding Surety's hand,  
+> And then again at mine. 
 
-If Jesus paid the debt, it is paid, and I am clear. There is, therefore, now no condemnation to them that are in Christ Jesus. Your only question, dear Hearers, is: have you a part in the sufferings of Christ? Was He a Substitute for you? According to this grand old Book, on which we fix our trust as an Infallible guide in this matter, Jesus died for every soul that trusts Him. So is it written: "He that believes, and is baptized, shall be saved." Have you these personal evidences? Do you without question trust Him? Then you are forgiven. You are this night absolved. You may rejoice in God through our Lord Jesus Christ, by whom you have now received the Atonement. Your sins, past, present, and to come, are all blotted out.
-
-"Here's pardon for transgressions past, It matters not how black their cast And, O my soul, with wonder view, For sins to come, here's pardon too."
+If Jesus paid the debt, it is paid, and I am clear. There is, therefore, now no condemnation to them that are in Christ Jesus. Your only question, dear Hearers, is: have you a part in the sufferings of Christ? Was He a Substitute for you? According to this grand old Book, on which we fix our trust as an Infallible guide in this matter, Jesus died for every soul that trusts Him. So is it written: "He that believes, and is baptized, shall be saved." Have you these personal evidences? Do you without question trust Him? Then you are forgiven. You are this night absolved. You may rejoice in God through our Lord Jesus Christ, by whom you have now received the Atonement. Your sins, past, present, and to come, are all blotted out. "Here's pardon for transgressions past, it matters not how black their cast and, O my soul, with wonder view, for sins to come, here's pardon too."
 
 The red mark is drawn across the bill, it is discharged. The load of obligation is gone. From its burden you are released. The sin of the Believer has ceased to be. Christ has been punished in his place. Is not that simple enough for all of you to understand, and Scriptural enough for all of you to receive?
 
-But how comes the second necessity to be supplied? How does this tend from now on to make such a man pure in heart, and produce in his very soul an aversion and a total abhorrence of sin? This is not difficult to apprehend if you will give it a little quiet consideration. When the Holy Spirit comes with power into a man's heart, and renews his nature (oh,
-
-matchless miracle!), a miracle that has been worked many times in this house, at that moment the unhallowed and the impure are made chaste. The dishonest are made honest, and the ungodly are made to love God: "for if any man is in Christ he is a new creature."
+But how comes the second necessity to be supplied? How does this tend from now on to make such a man pure in heart, and produce in his very soul an aversion and a total abhorrence of sin? This is not difficult to apprehend if you will give it a little quiet consideration. When the Holy Spirit comes with power into a man's heart, and renews his nature (oh, matchless miracle!), a miracle that has been worked many times in this house, at that moment the unhallowed and the impure are made chaste. The dishonest are made honest, and the ungodly are made to love God: "for if any man is in Christ he is a new creature."
 
 Such motives as the following now begin to influence his mind: The man says, "Did God, instead of forgiving my sin without a penalty, make the anointed Substitute smart for it? Then I reverence the Lawgiver, the mighty Lawgiver who would not, even though He is Love itself, suffer His Law to be broken. I reverence that dreadful Judge of all the earth, who, though I am His child, yet since I had offended, would not spare me for my sin, but executed the penalty that was due to me upon Himself.
 
