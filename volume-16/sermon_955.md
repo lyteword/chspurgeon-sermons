@@ -83,11 +83,7 @@ Be considerate, I pray you, concerning the first and chief question. Do not give
 
 Now, there are some persons who have had a great deal of religious concern and have not shaken it off, and yet their answer to this question, "Will you be made whole?" is not a very earnest one. Years ago they were aroused. When they heard a sermon they used to treasure up every word. Their prayers were importunate, and their desires were eager, but they have not obeyed the command which says, "Believe in Christ and live."
 
-They have become habituated to unbelieving misery, to a continuance beneath the burden of sin which they will persist in carrying while there is a dear Savior waiting to relieve them of the burden. And now at this time their answer to the question is neither one thing nor the other. They groan out feebly, "I wish I did wish. I would that I did will. But oh, my heart is hard:
-
-'If anything is felt, it is only pain
-To find I cannot feel.'
-I will to will, but scarcely dare say I will."
+They have become habituated to unbelieving misery, to a continuance beneath the burden of sin which they will persist in carrying while there is a dear Savior waiting to relieve them of the burden. And now at this time their answer to the question is neither one thing nor the other. They groan out feebly, "I wish I did wish. I would that I did will. But oh, my heart is hard: 'If anything is felt, it is only pain to find I cannot feel.' I will to will, but scarcely dare say I will."
 
 See to what a state you have brought yourself, and may God help you now to make a desperate effort with that will of yours; may His quickening Spirit bless this affectionate word to your heart, and may you say, "Ah, yes, out of my deep despair, out of the pit wherein there is no water, I do yet cry to You, my God! Out of the belly of Hell do I desire deliverance. I will, I will, I would be saved! O give me Grace that I may be made whole." May none of you continue to be numbered with those who virtually give no answer to the question.
 

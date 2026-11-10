@@ -65,21 +65,14 @@ For this cause was he raised up, that he might be a standing testimony to all ge
 
 None can endure the terror of Jehovah's wrath. Why is it that they so lightly dare to provoke it? Yield, man! It is folly to stand out against God; you cannot hope to win. Sue for peace tonight, and may God send it to you. Without such peace your future is darkened with thick clouds, and the presages of an horrible tempest. The Lord most surely comes, and at his coming woe will be the portion of his enemies:
 
-"At His Presence nature shakes,
-
-Earth affrighted hastens to flee,
-
-Solid mountains melt like wax,
-
-What will then become of you?
-
-Who His advent may abide
-
-You that glory in your shame,
-
-Will you find a place to hide
-
-When the world is wrapt in flame?"
+> At His Presence nature shakes,  
+> Earth affrighted hastens to flee,  
+> Solid mountains melt like wax,  
+> What will then become of you?  
+> Who His advent may abide  
+> You that glory in your shame,  
+> Will you find a place to hide  
+> When the world is wrapt in flame?  
 
 Let me tell you, (and this is the most glad note that is in my heart tonight), let me tell you it will be altogether to your advantage to be at peace with God! It will be for your present happiness. It will be for your eternal welfare. A soul at war with God is also opposed to its own best interests, but a heart that has yielded to divine love, that has cast down its weapons, that has closed in with divine mercy, is a soul at peace, at rest, a soul that is ready for joy on earth, and for bliss unspeakable above! Were there no hereafter, it is profitable even for this present life to have God for our Friend. But when we think of the eternal future, even the most superficial consideration suffices to convince us of the urgent necessity of being reconciled to God.
 
@@ -140,21 +133,14 @@ Be it also known that Jesus the Savior must be received as Lord in the souls of 
 
 The ship is saved from the rock because it obeys the pilot's hand as he moves the helm. If it were untrue to the steerage it would perish with the best of helmsmen on board. It is most just that he who bought us, sought us, found us, saved us, and preserves us should have our loving allegiance. And so assuredly it must be, or no peace can be established between us and God. Let us welcome his sway and pray him to exert his power. Be this our daily prayer:
 
-"Almighty King of saints,
-
-These tyrant lusts subdue;
-
-Drive the old serpent from his seat,
-
-And all my powers renew.
-
-This done, my cheerful voice
-
-Shall loud hosannas raise;
-
-My soul shall glow with gratitude,
-
-My lips proclaim Your praise."
+> Almighty King of saints,  
+> These tyrant lusts subdue;  
+> Drive the old serpent from his seat,  
+> And all my powers renew.  
+> This done, my cheerful voice  
+> Shall loud hosannas raise;  
+> My soul shall glow with gratitude,  
+> My lips proclaim Your praise.  
 
 And lastly, let me say I do not put this to you as a matter of choice as to whether you will or will not submit to the will of God and seek reconciliation with him. Neither do I speak with bated breath when as a herald I hereby proclaim Jesus to be both Lord and God. But in the name of him that lives and was dead and is alive forevermore, and has the keys of hell and of death, I say, in his name, I demand of you that you obey him, and receive him as the Christ of God. Yield yourselves to him who is Lord of All. Do you refuse the summons that I give you now as his officer tonight?
 

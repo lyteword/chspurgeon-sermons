@@ -7,7 +7,7 @@ The most precious things lie in the smallest compass. Diamonds have much value i
 
 It were difficult, and it were as wicked as difficult, to be otherwise than simple in preaching such a text as this. May God grant that some of you may be reached by my simple testimony, and led in the way to Heaven. May those who are already in the way be strengthened, comforted, and quickened in it. And may God be glorified and sinners converted. Then our hearts shall be exceedingly glad.
 
-We shall go at once to the text, and consider, in the first place, HOW Jesus Christ IS THE WAY, AND HOW HE COMES TO BE SO. How is He the way? A way supposes two points, from which and to which. Christ is the way from man's ruin to the Father. Our Lord was speaking of man's coming to the Father, so we know where the way leads, and we know very well that the way were of no service unless it came to where we are by nature, and that is in the place of ruin and of wrath. Christ is the way that leads from the City of Destruction to the Celestial City, from the ruin of our father Adam right up to the glory of our Father who is in Heaven.
+We shall go at once to the text, and consider, in the first place, how Jesus Christ is the way, and how He comes to be so. How is He the way? A way supposes two points, from which and to which. Christ is the way from man's ruin to the Father. Our Lord was speaking of man's coming to the Father, so we know where the way leads, and we know very well that the way were of no service unless it came to where we are by nature, and that is in the place of ruin and of wrath. Christ is the way that leads from the City of Destruction to the Celestial City, from the ruin of our father Adam right up to the glory of our Father who is in Heaven.
 
 Christ is the way, then, first, from the guilt of sin to the Father. The great difficulty was, how is sin to be put away? Many attempts have been made to remove it, but there is no way of our escaping from the guilt of sin except by Jesus Christ. Some have hoped for pardon by future good conduct, but as we all know, the payment of a future debt can by no means discharge a past debt. So even the perfect future obedience of man, could he achieve it, could not touch his past sins. Self-righteousness, therefore, even if it could reach perfection, would not be "the way."
 
@@ -71,7 +71,7 @@ Again, we, by Jesus, come to resemble the Father. There is no way to get the lik
 
 It is, at least I find it so, impossible to grow in Grace except by abiding evermore at the foot of the Cross. When I know by faith, not by any other evidence than by faith, that Jesus loved me, and gave Himself for me. When I see Grace, magnified in sin, laid on Him rather than on me. And when I see Justice magnified, in that sin being put away by Him; and when I see Grace and Justice together, clasping hands in solemn covenant to secure my soul against all fear of risk, then I feel that I am master over sin! Then I feel my soul loves God, yearns after God, mounts up to God, and then it is she becomes more like God than she was before. So Christ is the way from sin, with all we can say of it, to the Father, with all the blessed things that flow from His Throne.
 
-WHAT SORT OF WAY IS Christ, AND FOR WHAT SORT OF PEOPLE? First, let me say He is the King's highway, which means that He is the Divinely appointed way from sin to the Father. If we came to you, dear friends, who are seeking salvation, and told you of a way of mercy, you would naturally enquire, "Who said it was the way? Who appointed it?" And if we replied that it was appointed by the last council at Rome, I should not wonder if you felt serious doubts about the matter, and questioned whether a council of men could infallibly determine the way of Grace.
+What sort of way is Christ, and for what sort of people? First, let me say He is the King's highway, which means that He is the Divinely appointed way from sin to the Father. If we came to you, dear friends, who are seeking salvation, and told you of a way of mercy, you would naturally enquire, "Who said it was the way? Who appointed it?" And if we replied that it was appointed by the last council at Rome, I should not wonder if you felt serious doubts about the matter, and questioned whether a council of men could infallibly determine the way of Grace.
 
 But I have to tell you this day that Jesus Christ is "the way" of God's appointment. Thus says the word: "Being justified freely by His Grace through the redemption that is in Christ Jesus: whom God has set forth to be a Propitiation through faith in His blood, to declare His righteousness for the remission of sins that are past, through the forbearance of God; to declare, I say, at this time His righteousness: that He might be just, and the Justifier of him which believes in Jesus." God the Father devised this plan of salvation by the transference of sin to Christ, and by the punishment of Christ the Substitute, instead of us.
 
@@ -101,7 +101,9 @@ And, O my Lord, I dare no more add any of my driveling merits to the worth of Yo
 
 Again, let me add, it is a permanent way. Jesus says, "I am the way; not a way for Abraham, Isaac, and Jacob, only, but for you. Not for the Apostles, and martyrs, and early saints, only, but for you."
 
-"His precious blood shall never lose its power, Till all the ransomed Church of God Are saved to sin no more."
+> His precious blood shall never lose its power,  
+> Till all the ransomed Church of God  
+> Are saved to sin no more.
 
 It is a way that never has been broken up, and never will be. All the floods of all His people's sins have never made a swamp or bog-hole in this blessed way.
 
@@ -119,7 +121,7 @@ Christ is the way, let me add, for the poorest of the poor. Our Master, when He 
 
 For all who long to escape from sin. For all who would come to God. For all who have a desire after mercy or eternal life. The great trumpet is blown, and may they come that are ready to perish, may the most needy and abject, and lost, and self-condemned, say, "I will come now and trust in Jesus who died the Just for the unjust to bring us to God."
 
-The last point is, HOW WE MAKE Christ OUR WAY, AND WHETHER HE IS OUR WAY NOW. How do we make Christ our way? Why, as we make any other way our way. We hear a man say, "This is my way." How does he make that his way? Has he got the title-deeds of it? Has he a charter from his Majesty? No, nothing of the sort. The way in which I shall make the Clapham Road my way after I have done preaching is by getting into it.
+The last point is, how we make Christ our way, and whether He is our way now. How do we make Christ our way? Why, as we make any other way our way. We hear a man say, "This is my way." How does he make that his way? Has he got the title-deeds of it? Has he a charter from his Majesty? No, nothing of the sort. The way in which I shall make the Clapham Road my way after I have done preaching is by getting into it.
 
 And the way in which Christ becomes a sinner's way is simply by going to Christ. That is all. You have no legal rights, no forms or ceremonies to go through; you have but to come to the King's highway by trusting Christ, and Christ is yours. "But may I," says one, "without any warrant, come and trust Christ?" What warrant do you want? The only warrant is God's permission, and you have a great deal more than that; you have God's command, which is more than permission. He has said, "Go you into all the world and preach the Gospel to every creature. He that believes and is baptized shall be saved, but he that believes not shall be damned."
 
@@ -137,11 +139,10 @@ This is the way to live, the way to live evermore, not only as a beginner, but w
 
 Now, the question to finish with is this, "Is Christ my way today?" Oh, I know many of you could rise up and say, "Yes, He is, He is all my salvation and all my desire."
 
-"Nothing in my hands I bring, Simply to the Cross I cling."
+> Nothing in my hands I bring,  
+> Simply to the Cross I cling.  
 
-"My God, You know all things. You know my soul's only reliance is on Your dying, Your risen, Your ever-living Son, who is my hope, my All."
-
-But, perhaps there are some here who are not in this way, because they do not even know it. I believe there is no doctrine so little known in England as the Gospel. While a great many doctrines are preached, and very properly so, and the precepts are preached, yet there are hearers who have heard for years, and yet do not know this fundamental, essential doctrine of the Gospel; that God laid sin on Christ that He might take sin off from us, and punished Him that He might be Just and yet the justifier of the ungodly. If you have never heard it before you have heard it now. You will not perish, therefore, with that excuse. If you put aside that way of salvation, it will not be because you have never heard it. If you perish, there will be no excuse for you.
+"My God, You know all things. You know my soul's only reliance is on Your dying, Your risen, Your ever-living Son, who is my hope, my All." But, perhaps there are some here who are not in this way, because they do not even know it. I believe there is no doctrine so little known in England as the Gospel. While a great many doctrines are preached, and very properly so, and the precepts are preached, yet there are hearers who have heard for years, and yet do not know this fundamental, essential doctrine of the Gospel; that God laid sin on Christ that He might take sin off from us, and punished Him that He might be Just and yet the justifier of the ungodly. If you have never heard it before you have heard it now. You will not perish, therefore, with that excuse. If you put aside that way of salvation, it will not be because you have never heard it. If you perish, there will be no excuse for you.
 
 But there are some who do not believe this plan to be Divine. When they hear it and understand it, they scrap it. Some will say it is inconsistent with the pursuit of morality. Others will say it is fantastic or unjust. One will say this and another that. But though the Cross of Christ is to them that perish foolishness, to us who are saved it is the wisdom of God and the power of God; and God forbid we should preach any other Gospel to you. Some there are who even hate it. They will gnash their teeth at the idea of being pardoned through the merit of Another; their righteous self feels indignant at being insulted by being put right out of the market.
 

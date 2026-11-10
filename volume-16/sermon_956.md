@@ -5,9 +5,7 @@
 
 Throughout this Psalm David is laboring under the fear that he should be judged and condemned with the ungodly world. He feels in his own heart that he is not one with the enemies of God, and he shudders lest having hated their society on earth he should be shut up in their company forever. His agonizing prayer is, "Gather not my soul with sinners, nor my life with bloody men." In urging reasons before the Throne of Grace why he should not be reckoned in the same condemnation as the ungodly, he urges not self-righteously, but truthfully and confidently that there was a difference made by Grace between himself and them.
 
-"I have not sat with vain persons, neither will I go in with dissemblers. I have hated the congregation of evildoers.
-
-And will not sit with the wicked..... Lord, I have loved the habitation of Your house, and the place where Your honor dwells." There was a difference, he declares, between himself and the wicked, even in the current of his thoughts. While their thoughts ran upon the world, vanity, sin, rebellion, hypocrisy, and violence, his meditations were upon all the marvelous works of God, and especially upon His loving kindness: 'Your loving kindness is before my eyes.' It is an encouraging fact when we can honestly feel as before God that our thoughts are habitually exercised upon Himself and upon Divine Truth. "As a man thinks in his heart, so is he."
+"I have not sat with vain persons, neither will I go in with dissemblers. I have hated the congregation of evildoers. And will not sit with the wicked; Lord, I have loved the habitation of Your house, and the place where Your honor dwells." There was a difference, he declares, between himself and the wicked, even in the current of his thoughts. While their thoughts ran upon the world, vanity, sin, rebellion, hypocrisy, and violence, his meditations were upon all the marvelous works of God, and especially upon His loving kindness: 'Your loving kindness is before my eyes.' It is an encouraging fact when we can honestly feel as before God that our thoughts are habitually exercised upon Himself and upon Divine Truth. "As a man thinks in his heart, so is he."
 
 We may form a better judgment of ourselves probably from the tenor of our thoughts than from any other evidence. If our thoughts all go downward, downward we ourselves are going. But if there are some breathings towards the heavenly, some aspirations of our spirit towards the pure and perfect Father of Lights, then may we have hope that we, also, are ascending towards the heavenly places, and shall dwell in them hereafter. David could urge, besides the secret evidence of his devout thoughts, the public proof of his holy acts: 'I have walked in Your Truth.' It would be vanity for a man to find evidence of a renewed heart in his private meditations if those thoughts were not sufficiently deep to lead him to practical godliness.
 
@@ -41,9 +39,7 @@ A powerful stream of holy contemplation will scour the thoughts and bear away th
 
 When Israel comes in the Canaanite must go out. Fill the cage of your heart with the birds of Paradise, and the foul birds will not have it all to themselves. If our soul shall become so full of thoughts of God and things Divine, that vain thoughts shall be banished, it will be a fine growing time for the plants of the Lord's right hand planting. Learn from the text the usefulness of having some sacred topic before the mind's eye.
 
-David, in selecting the topic of Divine loving kindness did well, for let us remark upon that subject, that it is, first of all, a rightful subject of meditation. I mean, it is our bounden duty to think much upon it. Some things we may not think of, certain other topics we are barely allowed to think of, but other themes we must think of. Now the loving kindness of God is one of the things which is not left to our choice. We are bound to meditate much upon that. As Dr. Watts says:
-
-"Oh, bless the Lord, my Soul, Nor let His mercies lie Forgotten in unthankfulness, And without praises die."
+David, in selecting the topic of Divine loving kindness did well, for let us remark upon that subject, that it is, first of all, a rightful subject of meditation. I mean, it is our bounden duty to think much upon it. Some things we may not think of, certain other topics we are barely allowed to think of, but other themes we must think of. Now the loving kindness of God is one of the things which is not left to our choice. We are bound to meditate much upon that. As Dr. Watts says: "Oh, bless the Lord, my Soul, nor let His mercies lie forgotten in unthankfulness, and without praises die."
 
 Shall God, day after day, send such stores of mercy to such unworthy ones as we are, and shall we treat His continuous generosity as a matter of course, and not even think of it? Base ingratitude! Let us scorn such meanness. If we ought to think of our duty to God, and of our violation of that duty, yet much more of the loving kindness which makes our duty pleasure, and which covers over with a mantle of love the transgressions of our lives. Infinite goodness is a rightful subject of meditation, and it deserves a large share of our thoughts.
 
@@ -69,23 +65,21 @@ And put the three together, the book of Revelation, the book of Providence, the 
 
 The venerable Christian matron may, before she departs, dwell still upon this topic, and tell her children and her children's children of what God has done for her. In your health or in your sickness, in your wealth or in your poverty, in your joy or in your sorrow; still, this theme of the loving kindness of God will be congenial and healthful. This you may study on the top of Amana when you have passed by the leopards' dens. This you may rehearse in the Valley of Humiliation when you lie down with the shepherd boy among the flocks and sing:
 
-"He that is down need fear no fall, He that is low, no pride."
+> He that is down need fear no fall,   
+> He that is low, no pride.  
 
-This you may think of when you are fighting with Apollyon, and the darts fly thick as hail, yes, fiery darts that burn as well as wound. And this you may think of in the Valley of the Shadow of Death, when heart and flesh fail you. This may be your last song, and as you enter into Glory it may be your first: 'Soon shall I pass the gloomy vale,
+This you may think of when you are fighting with Apollyon, and the darts fly thick as hail, yes, fiery darts that burn as well as wound. And this you may think of in the Valley of the Shadow of Death, when heart and flesh fail you. This may be your last song, and as you enter into Glory it may be your first: 
 
-Soon all my mortal powers must fail.
+> Soon shall I pass the gloomy vale,  
+> Soon all my mortal powers must fail.  
+> O may my last expiring breath  
+> His loving kindness sing in death!  
+> Then let me mount and soar a way  
+> To the bright world of endless day,  
+> And sing with rapture and surprise,  
+> His loving kindness in the skies.   
 
-O may my last expiring breath
-
-His loving kindness sing in death!
-
-Then let me mount and soar a way
-
-To the bright world of endless day,
-
-And sing with rapture and surprise,
-
-His loving kindness in the skies." I have thus introduced to you the topic for mental contemplation. We will at once proceed to the second part of our subject.
+I have thus introduced to you the topic for mental contemplation. We will at once proceed to the second part of our subject.
 
 The Psalmist sets before us a life ordered by a right rule. "I have walked in Your Truth." I wish we could say this as positively as he does, each of us. I am afraid we should have to alter it, and say, "I desire to have Your loving kindness before my eyes, and to walk in Your Truth." I shall invite each of you to look over your diaries to see how you could make such a statement, and the following remarks I offer as reflections to help you.
 
@@ -161,10 +155,9 @@ Well, then, one says, "How can I consider myself to be a child of God? Why, I ca
 
 If you doubt Christ's love to you, you will not love Him. But remember that He still loves you, believe it, hold on to it, and your love will revive:
 
-"And when your eye of faith is dim,
+> And when your eye of faith is dim,  
+> Still hold on Jesus, sink or swim,  
+> Still at His footstool bow the knee,  
+> And Israel's God your help shall be.  
 
-Still hold on Jesus, sink or swim,
-
-Still at His footstool bow the knee,
-
-And Israel's God your help shall be." If I am a dead soul and a lost soul and have not a grain of Grace, and have everything that is bad about me, still I will cling to the Cross, and say, "I will never depart from this place: if I perish, I will perish here." Light will come unto you again, and the joy of the Lord will return, and your heart will wonder to find its own hardness depart, and your dumb tongue shall sing, and you, though once so lame, shall leap as a hart! God the Holy Spirit cause these meditations to be the means of quickening our spirits, for Christ's sake. Amen.
+If I am a dead soul and a lost soul and have not a grain of Grace, and have everything that is bad about me, still I will cling to the Cross, and say, "I will never depart from this place: if I perish, I will perish here." Light will come unto you again, and the joy of the Lord will return, and your heart will wonder to find its own hardness depart, and your dumb tongue shall sing, and you, though once so lame, shall leap as a hart! God the Holy Spirit cause these meditations to be the means of quickening our spirits, for Christ's sake. Amen.

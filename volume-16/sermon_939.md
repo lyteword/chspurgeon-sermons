@@ -13,12 +13,12 @@ It has been said by some, and there have been others whose lives have almost pro
 
 Now, brethren, though we forget our obligations, it is clear from the text that God does; for here, after giving a summary of His benefits, He concludes by drawing an inference with the word, "therefore," and He tells Israel that having received so much, they were bound to walk in His ways and in His fear, and to keep his commandments. If He thus considers, whose wisdom none dare dispute, let us voluntarily, cheerfully, and practically concede that such is the very truth. And let us ask that He will help us to be obedient, and resolve that, receiving His help, we will say in our hearts and lives:
 
-> Loved of my God, for Him again   
-> With love intense I burn; Chosen of Him before time began, I choose Him in return.   
+> Loved of my God, for Him again  
+> With love intense I burn;  
+> Chosen of Him before time began,  
+> I choose Him in return.  
 
-I shall now ask your attention to the list of favors given in the text, with the view of enforcing the divine conclusions from them.
-
-Let us pass in review the favors of the Lord, taking what He did for Israel as being typical of what He has done for us.
+I shall now ask your attention to the list of favors given in the text, with the view of enforcing the divine conclusions from them. Let us pass in review the favors of the Lord, taking what He did for Israel as being typical of what He has done for us.
 
 The first blessing mentioned in our text is that of humbling: "And He humbled them, and suffered them to hunger." Not very highly esteemed among men will this favor be. And at first, perhaps, it may be regarded by ourselves as being more of a judgment, one of the terrible things in righteousness, than a great favor from the Most High. But rightly judged, this is one of the most admirable proofs of the Lord's loving kindness, that He does not leave His people in their natural pride and obstinacy, but by acts of grace brings them to their right mind.
 
@@ -128,9 +128,7 @@ Do not have an unholy room in your house. Let the bedchamber, let the banqueting
 
 Seek to have a sense of his presence, such as holy spirits have in heaven who view him face to face. Remember he is everywhere. You are never absent from that Eye. Tremble, therefore, before him with that sacred trembling which is consistent with holy faith. Serve him with faith and trembling, knowing that be you who you may, he is infinite and you are finite. He is perfect and you are sinful, he is All in All and you are nothing at all. With this sacred, reverential, childlike fear pregnant within your spirit, you will be sure to walk practically in obedience to him.
 
-I close by saying, we who have followed God's Word so far, and experienced the faithfulness of God so long, ought never to give way to unbelief. Your foot has not swollen, your garment has not waxed old these forty years; why will you then mistrust or be suspicious? If he meant to deceive you he would have left you long ago;
-
-"He cannot have taught you to trust in his name, and thus far have brought you to put you to shame."
+I close by saying, we who have followed God's Word so far, and experienced the faithfulness of God so long, ought never to give way to unbelief. Your foot has not swollen, your garment has not waxed old these forty years; why will you then mistrust or be suspicious? If he meant to deceive you he would have left you long ago; "He cannot have taught you to trust in his name, and thus far have brought you to put you to shame."
 
 Go on! The present difficulty will melt like the past. Go on! The future mercy will be as sure as the mercies that have up to now come to you. Though winds and waves go over your head, and friends vanish from you, "trust in the Lord, and do good, so shall you dwell in the land, and, verily, you shall be fed." The heavens and the earth may pass away, and rocks turn to rivers, and the sun turn to a coal, but the eternal promise never shall fail, and the heart of infinite love shall never change. "Be of good comfort, and He shall strengthen your heart; wait, I say, on the Lord."
 

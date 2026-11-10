@@ -9,11 +9,7 @@ But when the Lord was gracious to them and delivered them out of the house of bo
 
 Yet, since other nations bowed before the rule of despotic kings, these foolish people were not content till they had raised up between them and the Divine government a ruler who would take their daughters to be confectioners in his kitchen, and their sons to be servants in his court. God bore with their ill manners, and gave them a king in His anger. And then, even under the reign of kings, how graciously the Lord their God treated them! If it was necessary for their punishment to give them up for awhile to foreign dominion, how He soon took away the affliction when they cried unto Him!
 
-Though they were chastised, yet:
-
-"His strokes were fewer than their crimes, And lighter than their guilt."
-
-The whole dealings of Jehovah with His people Israel were full of matchless tenderness. As a nursing mother with her child, so did God deal gently with His people. Yet, hear, O heavens, and give ear, O earth! The Lord has nourished and brought up children, and they have rebelled against Him. Did a nation ever cast away her gods, even though they were not gods? Were not the heathen faithful to their idols? But Israel was bent on backsliding; her heart was set upon idolatry, and the God of her fathers was disregarded.
+Though they were chastised, yet: "His strokes were fewer than their crimes, and lighter than their guilt." The whole dealings of Jehovah with His people Israel were full of matchless tenderness. As a nursing mother with her child, so did God deal gently with His people. Yet, hear, O heavens, and give ear, O earth! The Lord has nourished and brought up children, and they have rebelled against Him. Did a nation ever cast away her gods, even though they were not gods? Were not the heathen faithful to their idols? But Israel was bent on backsliding; her heart was set upon idolatry, and the God of her fathers was disregarded.
 
 Jehovah was despised, and His gentle reign and government she set herself to destroy. This was the complaint against Israel of old. As in water face answers to face, so the heart of man to man. As men were in days of yore, so are they now. God has dealt with us who are His people in an unexampled way of loving kindness and tender mercy, and I fear that to a great extent the recompense we have rendered to Him has been very much like the ungrateful return which He received from the seed of Jacob of old.
 
@@ -87,9 +83,7 @@ I thought of this text when I looked at that sight the other day. It is the exac
 
 Let us take, then, the first point, "I was to them as they that take off the yoke." Now, the Lord has taken off from His people a great many yokes, or the same yoke under different aspects. He has taken many bits out of their mouths. First, there was the old yoke of ceremonialism; what a burden that must have been to believers under the Law! There was this they must not eat, and that they must not drink, and the other they must not wear. There was this to be done on one day and that to be done on another. It was always touch not, taste not, handle not, and so on. They were environed and surrounded with all sorts of legislation, and hedged in by laws about their houses, their clothes, their beds, their drinking vessels. Legislation about birds and beasts and fishes; about everything, in fact.
 
-But now Christ has taken off that yoke from us, and "touch not, taste not, handle not," stands as an abrogated Law. We have given to us a liberty, a freedom from every yoke of bondage; and though there are some who are for bringing in new ceremonial laws, with holy places, and holy days, and holy things, and priests, and rites, and ceremonies; and I know not what; these are the children of the bondwoman, we regard them not. Under the Law of Liberty which Christ has proclaimed, we are free, indeed:
-
-"Wherever we seek Him He is found, And every place is hallowed ground." Every creature of God is good, and nothing to be refused. Now it is the heart that is holy or unholy, and not the thing. What our Lord has cleansed, we count no longer common or unclean. Carnal ordinances of outward things are put away as childish things. We worship God in the Spirit, and have no confidence in the flesh. "Stand fast therefore in the liberty wherewith Christ has made us free, and be not entangled again with the yoke of bondage."
+But now Christ has taken off that yoke from us, and "touch not, taste not, handle not," stands as an abrogated Law. We have given to us a liberty, a freedom from every yoke of bondage; and though there are some who are for bringing in new ceremonial laws, with holy places, and holy days, and holy things, and priests, and rites, and ceremonies; and I know not what; these are the children of the bondwoman, we regard them not. Under the Law of Liberty which Christ has proclaimed, we are free, indeed: "Wherever we seek Him He is found, and every place is hallowed ground." Every creature of God is good, and nothing to be refused. Now it is the heart that is holy or unholy, and not the thing. What our Lord has cleansed, we count no longer common or unclean. Carnal ordinances of outward things are put away as childish things. We worship God in the Spirit, and have no confidence in the flesh. "Stand fast therefore in the liberty wherewith Christ has made us free, and be not entangled again with the yoke of bondage."
 
 Better still, He has taken from us the yoke of the Law. Oh, do you not remember, Beloved, when you carried that yoke because you were trying to save yourselves by your own works? You supposed that if this sin were relinquished, and that virtue were pursued, you might at length grow acceptable with God. But after months and perhaps years of such attempts, you found yourself as far off from acceptance as ever; as indeed you would have been if you had lived ten thousand years; for by the works of the Law there shall no flesh living be justified.
 
@@ -107,7 +101,10 @@ A minister was in a house where there were some five or six little children who 
 
 So also, I would add, has the Lord often delivered us from the yoke of fear. There is fear of death which haunts too many. Fear of coming trial alarms others. Fear of I know not what, a sort of indefinable dread comes over not a few. But when we fly to our God, all terrors, whether palpable or impalpable, are scattered like the mists before the wind. When we can but once come to God in Christ, and say, "My God, my Father, my whole trust is in You, and my heart resigns itself to You," then straightway we can sing:
 
-"Should earth against my soul engage, And hellish darts be hurled, Now I can smile at Satan's rage, And face a frowning world."
+> Should earth against my soul engage,  
+> And hellish darts be hurled,  
+> Now I can smile at Satan's rage,  
+> And face a frowning world.  
 
 Get near to God, believer, and you will be calm. Commune with Heaven and be at rest. The peace of God passes all understanding, and it is this which Jesus waits to give you. There is no reason why you should be heavily burdened. Return unto your rest, for the Lord has dealt bountifully with you.
 
@@ -131,7 +128,10 @@ A mother must love her child because she has done so much for it. She has suffer
 
 Another stream of love springs up at the Cross foot. "I," says the Redeemer, "can see My groans and agonies in them." He loves us because He has loved us. This thought ought to cheer us; God has done too much for us to let us perish:
 
-"Can He have taught me To trust in His name, And thus far have brought me To put me to shame?"
+> Can He have taught me  
+> To trust in His name,  
+> And thus far have brought me  
+> To put me to shame?  
 
 Can He have loved me before the world was, and redeemed me with His own Son's life, and yet cast me away? It cannot be; the love of God in times past is a guarantee for the continuance of that love forever and forever.
 

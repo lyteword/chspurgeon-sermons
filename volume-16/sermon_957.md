@@ -47,17 +47,13 @@ Everything is real but the Master walking on the waves. And yet, Beloved, there 
 
 And that promise, "All things work together for good to them that love God, to them who are the called according to His purpose"; we dare not deny it, but we are not comforted by it to the degree we should be, because we do not grip it, grasp it, know it. The holy children in the fire knew they were in the fire, but they were safe because they knew to an equal certainty that the Son of Man was there with them. And so in the furnace you know that, "no trial for the present seems to be joyous, but grievous." But know equally well that where Jesus is the trial is blessed, and the affliction has a sweetness in it unknown to anything beside.
 
-I shall only illustrate this in two other points. My dear brethren, in the matter of death: I do not know whether you can all think of death without a shudder. I am afraid there are not many of us who can. It is very easy to sing, when we are here on Sundays rejoicing with all our brethren:
-
-"On Jordan's stormy banks I stand, And cast a wishful eye."
+I shall only illustrate this in two other points. My dear brethren, in the matter of death: I do not know whether you can all think of death without a shudder. I am afraid there are not many of us who can. It is very easy to sing, when we are here on Sundays rejoicing with all our brethren: "On Jordan's stormy banks I stand, and cast a wishful eye."
 
 I am afraid, I am afraid, I am afraid we would rather live than die, after all. A missionary told me the story of an old Negro woman in Jamaica who used to be continually singing, "Angel Gabriel, come and take Aunty Betsy home to glory." But when some wicked wag knocked at the door in the dead of night, and told her the angel Gabriel was come for Aunty Betsy, she said, "She lives next door."
 
 I am afraid it may possibly be so with us; that though we think we wish the waves of Jordan to divide that we may be landed on the other shore, we linger on the bank shivering. It is so. We dread to leave the warm precincts of this house of clay. We cast many "a longing, lingering look behind." But why is it? It is all because we realize the dying bed, the death sweat, the pangs, the glazing eye. We often realize what never turns out to be reality; but we do not realize what are sure to be realities, namely, the angelic watchers at the bedside waiting to act as a convoy to bear our spirits up through tracts unknown of purest ether.
 
-We do not realize the presence of the Savior receiving saints into His bosom that they may rest there until the trumpet of the archangel sounds. We do not really grasp the rising again:
-
-"From beds of dust and silent clay, To realms of everlasting day."
+We do not realize the presence of the Savior receiving saints into His bosom that they may rest there until the trumpet of the archangel sounds. We do not really grasp the rising again: "From beds of dust and silent clay, to realms of everlasting day."
 
 If we did, then our songs about dying would be more true and our readiness to depart more abiding. For what is death? It is a pin's prick at the worst, often scarcely that; the shutting of our eyes on earth and the opening of them in Heaven! So rapid is the departure of the believer's soul from the body here to the Presence of the Lord yonder, that death is scarcely anything; it is swallowed up in victory.
 
@@ -103,35 +99,24 @@ I will only add that if we will but realize Christ, our great successes which wi
 
 But I must pass on to the third head. Our greatest sorrows arise from our treating our Lord as unreal. It is because of our weakening, vaporizing, and spiriting our Lord away, and making Him into a myth so often; instead of gripping Him with a commonsense, practical, firm, realizing faith; that we suffer so much from our troubles. For, Brothers and Sisters, it is a sad cause of trouble to have a phantom Redeemer, a Savior who cannot actually pardon sin when it comes to be great sin. A Savior who gives us only a little indefinite hope about our guilt, but does not literally put it away. This is the seedbed of all manner of evil weeds. I do not wonder if you are vexed with doubts and fears if you have not realized Christ. O that you would all learn to sing with Hart these precious lines:
 
-"A Man there is, a real Man,
+> A Man there is, a real Man,  
+> With wounds still gaping wide,  
+> From which rich streams of blood once ran,  
+> In hands, and feet, and side.  
+> (It is no wild fancy of our brains,  
+> No metaphor we speak.  
+> The same dear Man in Heaven now reigns,  
+> That suffered for our sake).  
+> This wondrous Man, of whom we tell,  
+> Is true Almighty God!  
+> He bought our souls from death and Hell,  
+> The price, His own heart's blood.   
 
-With wounds still gaping wide,
-
-From which rich streams of blood once ran,
-
-In hands, and feet, and side.
-
-(It is no wild fancy of our brains,
-
-No metaphor we speak.
-
-The same dear Man in Heaven now reigns,
-
-That suffered for our sake).
-
-This wondrous Man, of whom we tell,
-
-Is true Almighty God!
-
-He bought our souls from death and Hell,
-
-The price, His own heart's blood." Beware, my brethren, of resting content with anything short of faith in an actual, literal, living Mediator; for nothing but reality will be of any use to you in the matter. Of course, with a phantom Savior for real sins, an apparition of a Redeemer for real bondage; you cannot find comfort. Of what use is the appearance of bread and the resemblance of water to famishing pilgrims in the desert? If you have a phantom helper for real woes you are the worse for such help. If your Savior does not actually and practically support you in times of need, and supply your wants and console you under depression, then in what respects are you better off than those who have no helper at all?
+Beware, my brethren, of resting content with anything short of faith in an actual, literal, living Mediator; for nothing but reality will be of any use to you in the matter. Of course, with a phantom Savior for real sins, an apparition of a Redeemer for real bondage; you cannot find comfort. Of what use is the appearance of bread and the resemblance of water to famishing pilgrims in the desert? If you have a phantom helper for real woes you are the worse for such help. If your Savior does not actually and practically support you in times of need, and supply your wants and console you under depression, then in what respects are you better off than those who have no helper at all?
 
 Jesus is a Friend, indeed. His grace, love, and presence, are no fictions; of all facts they are most sure. If I have to carry a real load, and then have a ghost to assist me, I am in reality unassisted. We want true power, force, and energy, in our Helper, and all that, faith sees in Jesus, her Lord. But you will readily see how sorrows multiply where Jesus is lightly esteemed.
 
-Besides, to some Christ is not only, as it were, an impalpable spirit, but He is really an indifferent, unfeeling spirit. Jesus to His disciples on the sea seemed as though He would have gone by them and left them to their fate! And we often dream that our gracious Lord is unmindful of us; at any rate, we forget that he is tenderly mindful of our case. It did not strike you when you were so poor last week that Jesus knew it, and was grieved for your affliction? You forgot, dear brother, when you were trembling as you went into the pulpit, that Jesus knew you trembled, and would uphold you while hearing your testimony. Too seldom do we remember that:
-
-"In every pang that rends the heart The Man of Sorrows bears a part."
+Besides, to some Christ is not only, as it were, an impalpable spirit, but He is really an indifferent, unfeeling spirit. Jesus to His disciples on the sea seemed as though He would have gone by them and left them to their fate! And we often dream that our gracious Lord is unmindful of us; at any rate, we forget that he is tenderly mindful of our case. It did not strike you when you were so poor last week that Jesus knew it, and was grieved for your affliction? You forgot, dear brother, when you were trembling as you went into the pulpit, that Jesus knew you trembled, and would uphold you while hearing your testimony. Too seldom do we remember that: "In every pang that rends the heart The Man of Sorrows bears a part."
 
 Ah, good husband, you knew your wife pitied you. You noted well the teardrop when she saw your grief. Ah, dear child, you knew your mother sorrowed for you. Ah, but if you did but know Christ, you would know this, too; that He never puts you to an unnecessary pain, nor ever tries you with an unneeded trial. There is a needs be for all, and He has sympathy for you in all.
 
@@ -159,20 +144,15 @@ I know your heads would bow to worship, and then you would open your eyes and ga
 
 Is not He just as dear to you now, though unseen? Is not faith as mighty a faculty as sight? Is it not "the evidence of things not seen?" Is not Wesley's verse true?
 
-"The things unknown to feeble sense,
+> The things unknown to feeble sense,  
+> Unseen by reason's glimmering ray;  
+> With strong commanding evidence,  
+> Their heavenly origin display.  
+> Faith lends its realizing light,  
+> The clouds disperse, the shadows fly;  
+> The invisible appears in sight,  
+> And God is seen by mortal eye.   
 
-Unseen by reason's glimmering ray;
-
-With strong commanding evidence,
-
-Their heavenly origin display.
-
-Faith lends its realizing light,
-
-The clouds disperse, the shadows fly;
-
-The invisible appears in sight,
-
-And God is seen by mortal eye." Does not faith make Jesus as real to us as our sight would do? It should do so. I pray it may. And then see how true will be your consecration, how abundant will be your service, how ready your thanksgiving, how abounding your offerings!
+Does not faith make Jesus as real to us as our sight would do? It should do so. I pray it may. And then see how true will be your consecration, how abundant will be your service, how ready your thanksgiving, how abounding your offerings!
 
 May God grant you grace to get into this true position, both you who are saints and you who still are sinners; for in having a real Christ you will have the reality of every good. God give it to you for Jesus' sake. Amen and Amen.
