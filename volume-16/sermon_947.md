@@ -53,7 +53,12 @@ We wonder which way the scale will turn; your future quivers in the balances. As
 
 If you remain as you are, there is no hope for you. All the supposed good which is now in you is vanity itself if it leaves you short of Christ. Remember well this verse, and I will pass on:
 
-"Why those fears, poor seeking sinner. Why those anxious, gloomy fears. Sighs and sorrows cannot save you, Healing dwells not in your tears; It is believing Which the soul to Christ endears."
+> Why those fears, poor seeking sinner.  
+> Why those anxious, gloomy fears.  
+> Sighs and sorrows cannot save you,  
+> Healing dwells not in your tears;  
+> It is believing  
+> Which the soul to Christ endears. 
 
 The second part of our discourse shall deal with the perplexities of this state. "Seeking for Jesus" is a state of heart in which the poor soul is usually very much put to it, "tumbled up and down in his thoughts," as John Bunyan would say. For first, seekers are very often much perplexed as the result of their ignorance of the way of salvation. Too often, awakened souls, though they may have heard the Gospel, do not in their hearts understand it. Many enquirers do not know what faith is.
 
@@ -101,9 +106,7 @@ How often would He have gathered you, as a hen gathers her chickens under her wi
 
 My awakened hearer, this is your condition. You have in your bosom, and you have in God's Word that which will unlock every door in your prison. Up, man, and try it now! Can you not believe that Jesus is the Christ, and that God has sent Jesus to bear your sin? Can you not trust in Him? If you can, you are free; your sins are forgiven you; you are saved!
 
-You have, perhaps, heard the incident of a dove, pursued by a hawk, which flew into the bosom of a man who was walking in the fields. And you remember that it was safely protected by him whom it had trusted. The dove would not of itself have flown there, but under the terror of the hawk it sought a shelter. You have been afraid of Jesus, you have thought He would not receive you. But now that hell pursues you, be venturesome, and fly to Him! Say as our hymn puts it:
-
-"I can but perish if I go; I am resolved to try. For if I stay away, I know I must forever die."
+You have, perhaps, heard the incident of a dove, pursued by a hawk, which flew into the bosom of a man who was walking in the fields. And you remember that it was safely protected by him whom it had trusted. The dove would not of itself have flown there, but under the terror of the hawk it sought a shelter. You have been afraid of Jesus, you have thought He would not receive you. But now that hell pursues you, be venturesome, and fly to Him! Say as our hymn puts it: "I can but perish if I go; I am resolved to try. For if I stay away, I know I must forever die."
 
 If Christ stood with a drawn sword in His hand, you had better run on the point of His sword than perish without Him. O come to Him, driven by desperation itself, if by nothing else, come into His bosom! You shall have peace at once. But all the while you remain seeking, I know not in what distracted manner you are wasting time, you are missing comfort, you are losing opportunities of happiness. Cease your seeking, for there is the Man whom you seek. He stands revealed before you. Reach here your finger and put it into the print of the nails. Or if that is too bold, touch but the hem of His garment, and you shall be made whole!
 
@@ -123,13 +126,9 @@ Tramping the street will not feed his children. He is not contented with having 
 
 It is a good sign when there is an appetite. But a mere appetite does not satisfy a man; he must eat the food provided. Your seeking Christ will not save you, except it leads you in very deed to believe in Jesus. It is an ill sign when a man says, "Well, I am doing my best. I am always at a place of worship, I am a Bible reader, I practice prayer at home, I do my best." My dear friend, if you settle down in that idea, you are self-righteous, and are off the road altogether. Besides, you are lying to your own heart, for after all you are at enmity with God, and the sign of that enmity is this, that you refuse to believe on His dear Son.
 
-If you were reconciled to God you would love Jesus Christ, and trust in Him. I see what it is, you have resolved, after all, to be your own savior. You still think that there is something in outward religion to produce salvation. I solemnly assure you that if you stand out against believing in Christ, if you will not fly to those dear wounds of His, if you will not hide beneath the shelter of the Atonement, you will go to hell as well from a place of worship as from the haunts of sin, and will perish as certainly with a Bible read as with a Bible burned:
+If you were reconciled to God you would love Jesus Christ, and trust in Him. I see what it is, you have resolved, after all, to be your own savior. You still think that there is something in outward religion to produce salvation. I solemnly assure you that if you stand out against believing in Christ, if you will not fly to those dear wounds of His, if you will not hide beneath the shelter of the Atonement, you will go to hell as well from a place of worship as from the haunts of sin, and will perish as certainly with a Bible read as with a Bible burned: "None but Jesus, none but Jesus, can do helpless sinners good."
 
-"None but Jesus, none but Jesus, Can do helpless sinners good."
-
-"Oh, but," you say, "I feel my sins so much!" Yes, but if you trust in your feelings you will perish in them as much as though you wallowed in your sins. O soul, resolve with Toplady:
-
-"He that suffered in my place, Shall my Physician be; I will not be comforted Till Jesus comforts me."
+"Oh, but," you say, "I feel my sins so much!" Yes, but if you trust in your feelings you will perish in them as much as though you wallowed in your sins. O soul, resolve with Toplady: "He that suffered in my place, shall my Physician be; I will not be comforted 'till Jesus comforts me."
 
 Never hope to be saved except by God's way of salvation. O that the Holy Spirit would enable you in your heart to say, "Now I come to You, O Jesus! Guilty as I am, I lift my eye to You, and this is my prayer, 'Help me for Your mercy's sake. Have pity upon me and cleanse me in Your blood, for I put all my trust in You.' " Resolve, O seeker, to have no refuge of lies, no Savior but the Lamb of God.
 
