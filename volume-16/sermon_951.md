@@ -107,17 +107,14 @@ Since the time when first we heard His pardoning voice, we, many a time, have he
 
 Beloved, cannot you look back to many instances when you had no food for your soul but the promise; when your soul knew no music but the word of His love; Blest Master, speak to me thus evermore:
 
-"Each moment draw from earth away
+> Each moment draw from earth away  
+> My heart, that lowly waits Your call.  
+> Speak to my inmost soul, and say,  
+> 'I am your Love, your God, your All!'  
+> To feel Your power, to hear Your voice,  
+> To taste Your love, is all my choice.  
 
-My heart, that lowly waits Your call.
-
-Speak to my inmost soul, and say,
-
-'I am your Love, your God, your All!'
-
-To feel Your power, to hear Your voice,
-
-To taste Your love, is all my choice." And when you have enjoyed His Presence in your solitude, have had communion with Him, and He has revealed His ancient, His unchanging, His never-ending, His boundless love to you, have you not prized His Words far above the choicest joys of earth?
+And when you have enjoyed His Presence in your solitude, have had communion with Him, and He has revealed His ancient, His unchanging, His never-ending, His boundless love to you, have you not prized His Words far above the choicest joys of earth?
 
 When you have confessed your sins with penitent sorrow and He has given back the word of full remission. When you have revealed your sorrow and received the assurance of His tender sympathy. When you have laid bare your weakness and received the word that strengthens, have you not been ready to challenge all Heaven to compare with Him and exclaimed, "Never man spoke like this Man?" To those who are unbelievers, and to those professors who live at a distance from Christ, this will sound like mere fancy, but believe me, it is not so. If there is anything real beneath the skies, it is the communion which Christ has with His people by His Spirit.
 
