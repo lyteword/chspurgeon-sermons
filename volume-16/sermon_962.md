@@ -3,7 +3,7 @@
 > But now once in the end of the world has He appeared to put away sin by the sacrifice of Himself.  
 > Hebrews 9:26  
 
-IN those good old times when preachers did not grow weary, though they discoursed for three hours at a stretch. And when congregations were not given to slumber, even under such long discourses, the preacher had ample time not only to dilate upon the doctrine of his text, but to speak, also, upon what was then called "the improvement of the subject," namely, the practical and experimental application of the Truths of God taught to the cases of his hearers. Nowadays when we are restricted to three-quarters of an hour; not altogether to our loss or ours; there are occasions on which we feel our course so wide, and our time so narrow, that having found a good sea to sail upon, and objects of surpassing interest to attract our attention in the morning, we venture to resume the current of thought and follow up with the application in the evening.
+In those good old times when preachers did not grow weary, though they discoursed for three hours at a stretch. And when congregations were not given to slumber, even under such long discourses, the preacher had ample time not only to dilate upon the doctrine of his text, but to speak, also, upon what was then called "the improvement of the subject," namely, the practical and experimental application of the Truths of God taught to the cases of his hearers. Nowadays when we are restricted to three-quarters of an hour; not altogether to our loss or ours; there are occasions on which we feel our course so wide, and our time so narrow, that having found a good sea to sail upon, and objects of surpassing interest to attract our attention in the morning, we venture to resume the current of thought and follow up with the application in the evening.
 
 
 The application, then, which I proceed to take in hand is twofold: first, to some of you who are not converted, a few earnest, faithful, affectionate words. And, secondly, to you who have received Christ, and have also obtained power to become sons of God, a little tender counsel.
@@ -26,7 +26,10 @@ There you see how, though sin entrenched itself in the Blessed and Beloved Body 
 
 But if any sin could be lightly passed over, how should your sin escape, when you add to it this sin of sins, by way of aggravation; that you make God a liar by not believing on His Son? Ah, my hearer, let no ill deceive you. God's Word is true; every transgression shall receive its just recompense of reward. He will by no means spare the guilty. Do not hope to die with the words upon your lips, "God is merciful." I know He is, but He is also just, and to those who reject His Son there is no mercy:
 
-"How they deserve the deepest Hell, That leave the joys above! What claims of vengeance must they feel Who slight the bands of love!"
+> How they deserve the deepest Hell,   
+> That leave the joys above!   
+> What claims of vengeance must they feel   
+> Who slight the bands of love!  
 
 You shall find it so. Either Christ must bear your sins for you, and you must see your sin punished in the wounds of Immanuel, or you must feel them punished in yourself forever! O Soul, which shall it be? May God make the election for you, and may you be saved in Jesus Christ our Lord.
 
@@ -46,20 +49,16 @@ If I live and die knowing the Gospel, and yet rejecting it, what can I say at Go
 
 Our text tells us that Christ has appeared once to put away sin, but remember, He is to come a second time! Unconverted man, woman, have you thought of that? You would not look at Christ when He came the first time, despised and rejected of men, but you shall look at Him when at His second advent:
 
-> The Lord shall come! A dreadful form,   
-> With rainbow wreath, and robes of storm; On cherub wings, and wings of wind, Appointed Judge of all mankind.   
+> The Lord shall come! A dreadful form,    
+> With rainbow wreath, and robes of storm;   
+> On cherub wings, and wings of wind,   
+> Appointed Judge of all mankind.   
 
 You said it was nothing to you the first time, and you passed by. But you will find it something to you the second time. When the trumpet sounds exceedingly loud and long. When the cerements of the grave are rent asunder. When the dead shall rise from land and sea. When the Great White Throne shall be set, and all nations shall be gathered before it, and the Shepherd-King shall divide them as a shepherd divides the sheep from the goats; you will find, then, that from that Throne you cannot escape! The Throne of Mercy you may despise, but the Throne of Judgment you will not be able to set at nothing!
 
-Suppose the destined hour should transpire now; and it is but a little while before it shall overtake this giddy, thoughtless world. Overleap that brief interval for a moment. Let your imaginations transport you to:
+Suppose the destined hour should transpire now; and it is but a little while before it shall overtake this giddy, thoughtless world. Overleap that brief interval for a moment. Let your imaginations transport you to: "That tremendous day whose coming none can tell," although with silent, sure, and rapid steps it is approaching us now. Think that you are standing in the crowd, and the books are opened, and the eyes of fire have flashed upon you, and your life unveiled, with all your actions and their hidden springs, is being published to angels and to men; and your sentence is about to be pronounced.
 
-"That tremendous day Whose coming none can tell,"
-
-although with silent, sure, and rapid steps it is approaching us now. Think that you are standing in the crowd, and the books are opened, and the eyes of fire have flashed upon you, and your life unveiled, with all your actions and their hidden springs, is being published to angels and to men; and your sentence is about to be pronounced.
-
-No escape is possible! The rocks cannot hide you! The mountains cannot cover you! The eyes of Him who once wept will flash with lightning, and the tongue that said, "Come unto Me, you weary," shall say, "Depart, you cursed," and the Face that was once so full of pity, shall suddenly be red with holy anger as He shall say, "I know you not! Depart from Me, you workers of iniquity!" And shall that be your portion:
-
-"Prevent, prevent it by Your Grace; Be You, O God, my hiding place, In this the accepted hour!"
+No escape is possible! The rocks cannot hide you! The mountains cannot cover you! The eyes of Him who once wept will flash with lightning, and the tongue that said, "Come unto Me, you weary," shall say, "Depart, you cursed," and the Face that was once so full of pity, shall suddenly be red with holy anger as He shall say, "I know you not! Depart from Me, you workers of iniquity!" And shall that be your portion: "Prevent, prevent it by Your Grace; Be You, O God, my hiding place, In this the accepted hour!"
 
 My hearer, shall this be your portion? Shall it be the portion of any man or woman now sitting in this house of prayer? May God avert it by His eternal mercy! But I see not how it is to be avoided except you are led to fly to Christ. And the only opportunity you may ever have is this present opportunity, for, "Now is the accepted time, now is the day of salvation." May you be led by the Spirit at this moment to come to Jesus, and so shall you find eternal salvation in Him.
 
@@ -71,8 +70,14 @@ You will never enter Heaven without repentance. And if your faith does not lead 
 
 But where is true repentance to be had? It is never experienced by a man, except as he, by God's Grace, receives the cleansing, sanctifying power of the Savior's precious blood. To repent of sin because I know it has ruined me, or it will ruin me, is legal repentance, and needs to be repented of. But to be able to sing, as one of our hymn writers expresses it:
 
-> My sins, my sins, my Savior! Their guilt I never knew,   
-> Till with You in the desert, I near Your passion drew. I know they are forgiven, But still their pain to me, Is all the grief and anguish They laid, my Lord, on You.   
+> My sins, my sins, my Savior!  
+> Their guilt I never knew,   
+> Till with You in the desert,  
+> I near Your passion drew.  
+> I know they are forgiven,  
+> But still their pain to me,  
+> Is all the grief and anguish  
+> They laid, my Lord, on You.   
 
 That is repentance. To hate sin because it caused the brow of Christ to be girt with the crown of thorns, and the face of Christ to be dishonored with the spittle, and the hands of Christ to be pierced with the nails; this is repentance; not because I am afraid of Hell! Not because sin brings pains and penalties with it, but because it made Jesus Christ to suffer for me such pangs unutterable.
 
@@ -90,9 +95,7 @@ Still further, Beloved, what emotions of gratitude should this Truth of God insp
 
 There is yet another point to which I wish to have your particular attention, O you that believe in Jesus! We are told in the text that once in the end of the world Christ appeared to put away sin. Now what is your conviction upon the subject? Did He put away sin or not? I anticipate the answer of every believer here; "Of course He did! By His one offering He put away sin forever." Beloved, why is it that some of you tonight are troubled about your sin? Now look back during the past week. Has there not been a great deal in your life that you have to mourn over? Do you live a single day in which you went to your rest contented with the review of your character or your conduct? I must acknowledge I never spent such a day, and I am afraid I never shall till I get Home to Heaven.
 
-Sins and sorrows multiplied pollute the days to my shame and my horror. But when I come to look to Jesus Christ my Lord, and trust in Him, shall I feel dismayed on account of my sins? No! They are all forgiven! They are all forgiven! Yes, that particular sin; you know what it is; the one which has caused you so much trouble this week, is forgiven. There is no sin that you have fallen into, as a believer in Jesus, which can be laid to your charge. That bold speech of the Apostle makes a wide sweep; "Who shall lay anything to the charge of God's elect?" Observe, he does not say, "Any great things," but "anything"; any little things, anything, anything of any kind. Do you not know that though you have erred and strayed many times, and made yourself to be ashamed, yet still, when you come to the:
-
-"Fountain filled with blood, Drawn from Immanuel's veins," this Truth is sure; that "the blood of Jesus Christ, His Son, cleanses us from all sin"?
+Sins and sorrows multiplied pollute the days to my shame and my horror. But when I come to look to Jesus Christ my Lord, and trust in Him, shall I feel dismayed on account of my sins? No! They are all forgiven! They are all forgiven! Yes, that particular sin; you know what it is; the one which has caused you so much trouble this week, is forgiven. There is no sin that you have fallen into, as a believer in Jesus, which can be laid to your charge. That bold speech of the Apostle makes a wide sweep; "Who shall lay anything to the charge of God's elect?" Observe, he does not say, "Any great things," but "anything"; any little things, anything, anything of any kind. Do you not know that though you have erred and strayed many times, and made yourself to be ashamed, yet still, when you come to the: "Fountain filled with blood, drawn from Immanuel's veins," this Truth is sure; that "the blood of Jesus Christ, His Son, cleanses us from all sin"?
 
 Then every believer here tonight is as clean in the sight of God as the snow which falls from Heaven. Come, then, let us shake off these fears. He who knows that his debt is paid would be foolish to be troubled about the debt. And he who knows his sins are forgiven, may have, should have, ought to have, peace with God through Jesus Christ his Lord! My dear brethren, God will help me, I hope, to live more and more in the atmosphere of peace with God. I do believe the devil often worries us when there is no cause whatever for our being troubled. Sin is always to be hateful to us. We are always to loathe it. But when washed in the precious blood of Jesus we are to endeavor to realize that through His blood we are clean, and that, with His spotless vesture on, we are holy as the Holy One.
 
