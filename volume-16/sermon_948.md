@@ -31,8 +31,8 @@ See how on either bank rich verdure clothes the land! Wherever this stream comes
 
 Now we reach the mighty main of mercy, dare you attempt with wings of faith to fly over that glassy sea? No shore gives boundary to that great deep, no voice proclaims its length and breadth. But from its lowest deeps and all along its unruffled bosom I hear a voice which says, "Here is Love." "Touching the Almighty, we cannot find Him out," but this we know, that His love towards His elect surpasses all conception, even:
 
-"Imagination's utmost stretch
-In wonder dies away."
+> Imagination's utmost stretch  
+> In wonder dies away.  
 
 Turn to the words of the text a moment, for there is great suggestiveness in them. It is God's great mercy that is spoken of here. "The God and Father of our Lord Jesus Christ, who according to His abundant mercy." Everything in God is on a grand scale. Great power, He shakes the world. Great wisdom, He balances the clouds. His mercy is commensurate with His other attributes, it is Godlike mercy! Infinite mercy! You must measure His Godhead before you shall compute His mercy. My soul, think for awhile; you have drank out of this exceeding great and wide sea, and it is all yours to drink from forever!
 
@@ -120,15 +120,13 @@ But our inheritance is undefiled, for it was won by the obedience, the perfectio
 
 And then it is added for its beauty, "it fades not away." The substance of a thing might endure after its beauty was gone, but in Heaven there shall be no declining in the beauty of anything celestial. Milton sings of the amaranth, which he describes as blossoming at the foot of the tree of life in the garden of Eden. It was a flower of perpetual sweetness, whose beauty never faded. But he says:
 
-"Soon for man's offense
-
-To Heaven removed, where first it grew, there grows
-And flowers aloft, shading the fountain of life,
-And where the river of bliss through midst of heaven
-Rolls over Elysian flowers her amber stream;
-
-With these, that never fade, the spirits elect
-Bind their resplendent locks, wreathed with beams."
+> Soon for man's offense  
+> To Heaven removed, where first it grew, there grows  
+> And flowers aloft, shading the fountain of life,  
+> And where the river of bliss through midst of heaven  
+> Rolls over Elysian flowers her amber stream;  
+> With these, that never fade, the spirits elect  
+> Bind their resplendent locks, wreathed with beams.  
 
 The amaranthine inheritance is yours. The garden of Paradise shall never cease to bloom, and the wreath of victory shall never wither from your brows. Oh, what joy is this for you! Your inheritance is for substance incorruptible, for purity undefiled, for beauty unfading. And then for possession, it is secure; "reserved in Heaven for you." How I delight to dwell upon the thought that Heaven is not to be scrambled for, that the portion of each saint in Glory is given to him by lot even as was Canaan of old to Judah, to Reuben, to Manasseh, and the like.
 
@@ -140,17 +138,17 @@ Our great enemy has determined to raze the citadel of our faith even to the grou
 
 Herein is our confidence; our great Captain has walled us around; He has appointed Salvation for walls and bulwarks. We are safe, though all the devils of Hell surround us, for we are garrisoned by Omnipotence. Each believer is kept by that same power which "bears the earth's huge pillars up," and sustains the arches of Heaven. Jerusalem, you are besieged, but you may laugh your enemy to scorn, he shall never break through your ramparts:
 
-"Munitions of stupendous rock
-Our dwelling place shall be,
-There shall our soul without a shock
-Our vanquished foeman see."
+> Munitions of stupendous rock  
+> Our dwelling place shall be,  
+> There shall our soul without a shock  
+> Our vanquished foeman see.  
 
 Our enemies shall assemble, but when they perceive that God is known in our palaces for a refuge, they shall be troubled and hasten away. Fear shall take hold upon them, and pain, as of a woman in travail. Every believer is kept by the power of God, but the power of God does not produce in us sloth; but faith. We are commanded to watch, that is what we are to do. But we are told both to watch and pray, because our watching is not enough. We need God's watching, also, and we are to pray for it. Faith is the under captain of the city. God's power protects it; "the King is in the midst of her." But Faith is the high constable of the tower. He it is that goes on the walls, arms the warders, strengthens the bastions, and brings help out of the sanctuary. While the sword of the Lord and of Gideon is at work, the Midianites cannot prevail.
 
 This keeping, observe, my brothers and sisters, for I must leave the point; this keeping is complete and continuous; it will never end until we shall need keeping no longer. We shall be kept "unto salvation ready to be revealed in the last time." I believe this means that we shall not only be kept till our souls reach Heaven, but we shall be kept till the advent. You say, "Why is that necessary?" I reply, only half of our manhood goes to Heaven at death, the other part, namely, our body, waits below till the resurrection. Yet our dust is precious in God's sight, and therefore it is watched over until the day of Christ's appearing; for that is the appointed hour for the redemption of the body:
 
-"Sweet Truth to me, I shall arise,
-And with these eyes, my Savior see."
+> Sweet Truth to me, I shall arise,  
+> And with these eyes, my Savior see.  
 
 Wherever my dust may be scattered, though to the four winds of Heaven it is divided, though it pass through every conceivable change and combination; yet each atom of my dust shall hear the sound of the archangel's trump; or if not each earthly particle of this my frame, yet each essential constituent shall hear the voice of God. And bone to bone each bone shall come, and the body shall rise intact and perfect, for it is kept by the power of God unto the salvation ready to be revealed.
 
