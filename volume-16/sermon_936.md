@@ -55,14 +55,14 @@ If you do avow yourself to be the chief of sinners, and yet do believe that He c
 
 May the Eternal Spirit draw them now to Jesus, and give them immediate salvation by precious faith in a precious Christ. Faith is the vital point, the one necessary matter; may it be worked in you now. Faith can soon remove the difficulties which stand in your path, and make you a straight road to Glory, for it is a wonder-worker, and all things are possible to it:
 
-"It says to the mountains, Depart,
-That stand between God and the soul.
-It binds up the broken in heart,
-And makes wounded consciences whole.
-Bids sins of a crimson-like dye
-Be spotless as snow, and as white,
-And makes such a sinner as I
-As pure as an angel of light.'"
+> It says to the mountains, Depart,  
+> That stand between God and the soul.  
+> It binds up the broken in heart,  
+> And makes wounded consciences whole.  
+> Bids sins of a crimson-like dye  
+> Be spotless as snow, and as white,  
+> And makes such a sinner as I  
+> As pure as an angel of light.  
 
 Thirdly, another wonder was the energy of this man's faith which led him to deal with the case in such a business-like way. Alas, alas, the hackneyed form which most men's religion assumes! They take it up at second-hand, or they cut and shape it after somebody else's fashion. Not so this man. I do not know that he had ever had a religious acquaintance, but falling in probably with some of the books of Scripture, he read them, and he discovered that Jesus Christ was what He professed to be; the Son of God and the Savior of men.
 
@@ -110,10 +110,10 @@ It may be many months or even years before some forms of disease can be eradicat
 
 The dying thief did not imagine that his salvation would occupy a month. He simply said, "Lord, remember me when You come into Your kingdom," and the answer was, "Today shall you be with Me in Paradise"; saved that day, saved at once. The pardon of sin is not the result of weeks of fasting, and months of repentance, and years of mortification. The sinner's eyes look to Christ and the sinner's sin is gone at once:
 
-"The moment a sinner believes,
-And trusts in his crucified God,
-His pardon at once he receives,
-Salvation in full through Christ's blood."
+> The moment a sinner believes,  
+> And trusts in his crucified God,  
+> His pardon at once he receives,  
+> Salvation in full through Christ's blood.  
 
 The new birth of the soul, the regeneration of our nature by the Holy Spirit, is not a work requiring a long period of time. It is in a moment that the Spirit of God visits our hearts and turns the stone to flesh. It may seem as though I talked without consideration, but yet I speak the words of Truth and soberness when I say that if the Lord puts forth the fullness of His power, sinners sitting in these galleries or in this area, might be saved before that clock ticks again. Who shall restrain the Lord and say what He can, or cannot, do?
 
@@ -121,7 +121,7 @@ All things are possible with Him, and we will therefore add, that if each one of
 
 Once more. One other point of wonder. Throughout this whole story the centurion's deep humility was conspicuous, but that deep humility, instead of weakening his faith, only strengthened it.
 
-Pride is the associate of presumption, but humility is the companion of assurance. He who thinks that it needs but little Grace and power to save him, that he is, in fact, better than most, and as good as any, cannot believe at all. He may be able to presume, but be is unable to believe. Doubtless, presumption would grow well in the soil of his heart, but a broken heart, alone, becomes a believing heart, and an assured heart must first be a humble heart.
+Pride is the associate of presumption, but humility is the companion of assurance. He who thinks that it needs but little grace and power to save him, that he is, in fact, better than most, and as good as any, cannot believe at all. He may be able to presume, but be is unable to believe. Doubtless, presumption would grow well in the soil of his heart, but a broken heart, alone, becomes a believing heart, and an assured heart must first be a humble heart.
 
 The centurion had done good service for the Jews. He loved their nation and had built them a synagogue. They thought a great deal of him, but he thought very little of himself. He said, "Lord, I am not worthy that You should come under my roof." I am not only not worthy of the blessing I ask, but not worthy that You should come into such communion with me as to tread my floor. Deeply humbled was the man, and you, also, must have a humbled spirit to become a Believer. I have met with a great many who, when they have felt a sense of their sin, have said directly, "I cannot believe in Christ." Then you fancy, do you, that if you had less sin you could believe? No. I tell you it is not so. If your sense of sin is a hindrance to faith, your sense of righteousness would be infinitely more a barrier. To believe that I shall be saved because I am not a sinner is not faith. But to know that I am one of the very worst of sinners, and very guilty and very vile, and yet I place my trust in Jesus; this is faith. I do love, when I look at my sins, to look at the Cross, too. If I have been of service to God, and the Holy Spirit has helped me to do some good thing for the Church, it is scarcely faith to say that I then am at peace. Why, that is seeing, not believing!
 
