@@ -49,9 +49,7 @@ Happy is that man who can go about his Master's work as sure that God is with hi
 
 Yet, brethren, after what we have seen, and after all that our fathers have seen, after what we have experienced in deliverances, in protections, in supplies, in upholding and in restorations, the Lord of Love may well marvel because of our unbelief! When we stoop to mistrust the faithfulness of God, who cannot lie, and think that the everlasting God that faints not, neither is weary, of whose understanding there is no searching, can fail to keep His Word and fulfill his covenant. This is unbelief, indeed!
 
-Another very remarkable form of unbelief among God's people is with regard to the efficacy of prayer. If there is anything under Heaven that I am as sure of as I am of the demonstrations of mathematics, it is the fact that God hears prayer. Answers to prayer have come to some of us, not now and then on rare occasions, so that after a series of years we have a few facts to collate, but they come to us as ordinary circumstances of everyday life. God has heard for us prayers about great things and prayers about little things, prayers about things that we could reveal to others, and prayers
-
-about secret matters in which none could join us. We have had so many answers to prayer that the fact is far beyond any further question with us.
+Another very remarkable form of unbelief among God's people is with regard to the efficacy of prayer. If there is anything under Heaven that I am as sure of as I am of the demonstrations of mathematics, it is the fact that God hears prayer. Answers to prayer have come to some of us, not now and then on rare occasions, so that after a series of years we have a few facts to collate, but they come to us as ordinary circumstances of everyday life. God has heard for us prayers about great things and prayers about little things, prayers about things that we could reveal to others, and prayers about secret matters in which none could join us. We have had so many answers to prayer that the fact is far beyond any further question with us.
 
 And yet there may be a matter pressing upon our heart for God's glory, and it may be a subject about which we could plead a precise promise, such as this: "If two of you are agreed as touching anything concerning My kingdom, it shall be done unto you," and yet we are half afraid that our prayer will not be heard. The husband is afraid that the conversion of his wife will never occur! The wife fearful that that swearing husband of hers will not, after all, yield to the importunate entreaties which she has addressed to Heaven! A teacher in a Sunday school class still afraid that his children, though often prayed for, will not be converted!
 
@@ -65,11 +63,7 @@ But it is not so. I will prove it is not so. Has the Gospel saved you, my brothe
 
 So, too, in hours of great distress we have known true Christians doubtful of the efficacy of the precious blood of Christ. They would not confess such unbelief, but it comes to that. They have said, "I thought I was, indeed, one of His. I went up with the multitude that kept holy day, and gladsome were my songs, but I have turned aside. I have backslidden, I have lost the joy of my Lord, and for me there is no hope." We bid such persons look to the Redeemer anew, and we say, "There is still power in the Atonement to take away all sin, for 'the blood of Jesus Christ, God's dear Son, cleanses us from all sin.' "
 
-For awhile, these desponding ones will say, "Alas, I cannot find peace, I cannot get comfort. My sin is gone over my head as a heavy burden, and, as David said, my wounds stink and are corrupt, there is no healing for my sores. I thought I was a child of God, but I am driven from His Presence, and I shall know no hope." But, brothers and sisters, it is not so. While the Bible remains true, it becomes none of us ever to think that we can be beyond the reach of mercy. Jesus Christ came into the world not to save good people, but to save sinners, even the very chief. He did not come to save the virtuous, but "to seek and to save that which was lost." "The whole have no need of a physician, but they that are sick." Our sickness and our poverty, our ruin and our destruction are proper pleas with the Christ of God. There shall never come a day when His precious blood shall lose its power:
-
-"Till all the ransomed Church of God Are saved to sin no more,"
-
-there shall still be efficacy in the fountain for cleansing, still be power in Jesus to blot out iniquity.
+For awhile, these desponding ones will say, "Alas, I cannot find peace, I cannot get comfort. My sin is gone over my head as a heavy burden, and, as David said, my wounds stink and are corrupt, there is no healing for my sores. I thought I was a child of God, but I am driven from His Presence, and I shall know no hope." But, brothers and sisters, it is not so. While the Bible remains true, it becomes none of us ever to think that we can be beyond the reach of mercy. Jesus Christ came into the world not to save good people, but to save sinners, even the very chief. He did not come to save the virtuous, but "to seek and to save that which was lost." "The whole have no need of a physician, but they that are sick." Our sickness and our poverty, our ruin and our destruction are proper pleas with the Christ of God. There shall never come a day when His precious blood shall lose its power: "Till all the ransomed Church of God are saved to sin no more," there shall still be efficacy in the fountain for cleansing, still be power in Jesus to blot out iniquity.
 
 I might go on and mention some other forms of this unbelief, but I will rather consider why they are so amazing. First, it is very amazing in saints of God to be disbelieving because of their relationship to the Father and to the Lord Jesus. To doubt a stranger is not at all an extraordinary thing, but for a child to doubt its father, for a brother to doubt a tender, truthful, loving brother. For a bride to doubt the bridegroom who has made her blessed. These things are strange. And for me, for you, for any blood-washed soul to doubt your Father God, to mistrust your elder Brother Jesus, to have suspicions of the Bridegroom of your hearts, even Jesus, the Well-Beloved of Heaven and earth. Well may we marvel, and mingle sadness with the marvel! And well may you marvel, and mingle bitter penitence with your wonder.
 
@@ -96,17 +90,11 @@ Before I have done, notice that your sin is so amazing that it makes Jesus Chris
 
 Ah, why could I judge others while myself guilty? No doubt these doubters think much the same of us, and think us inexcusable when we are desponding. There are times when we wonder at our own unbelief! When God has brought us safely through a trial, we have said, "I cannot think how I could mistrust Him." And in the surprising joy of some remarkable mercies, we have looked back with blushes and with tears, and said, "Have mercy upon me, O my God, for my unbelief, for I can never doubt You again." Yes, it is very amazing, it is very strange that we should be so basely incredulous. May God lift us out of this unbelief, and make us to hold fast His Word, and trust in Him without ceasing.
 
-I shall now want your earnest attention, you who are not yet converted, while I try affectionately to
-
-speak with you concerning your unbelief.
-
-Among the hearers who continually frequent this place there are a great number who were never infidel in the common sense of the term. And though they would be very grieved even to approach to that state, they are nevertheless infidel in another sense; they are unbelieving as to any saving trust in the Person and work of Jesus Christ. Now I desire to speak to your hearts this morning. Your unbelief is very marvelous, and in each form that it takes it is so!
+I shall now want your earnest attention, you who are not yet converted, while I try affectionately to speak with you concerning your unbelief. Among the hearers who continually frequent this place there are a great number who were never infidel in the common sense of the term. And though they would be very grieved even to approach to that state, they are nevertheless infidel in another sense; they are unbelieving as to any saving trust in the Person and work of Jesus Christ. Now I desire to speak to your hearts this morning. Your unbelief is very marvelous, and in each form that it takes it is so!
 
 Perhaps you fear that your sin is too great for mercy. You profess to believe God's Word? "Yes." And yet you dare talk in that way, when it is written, "All manner of sin and of blasphemy shall be forgiven unto men." "The blood of Jesus Christ His Son cleanses us from all sin." "Ah, no!" you say, "that is not the form of my unbelief. I am not in a fit state for the reception of divine grace." And you believe God's Word, do you? You believe the Gospel which I have preached to you so often, and yet dare say that?
 
-Do you not know that your very unfitness is your fitness? "The whole have no need of a physician, but they that are sick." "I have not come to call the righteous but sinners to repentance." You know very well that salvation is all of grace, that from first to last it is all of pure mercy and yet you talk about being unfit to come! I think I have heard you sing, some of you:
-
-"If we tarry till we're better, We shall never come at all."
+Do you not know that your very unfitness is your fitness? "The whole have no need of a physician, but they that are sick." "I have not come to call the righteous but sinners to repentance." You know very well that salvation is all of grace, that from first to last it is all of pure mercy and yet you talk about being unfit to come! I think I have heard you sing, some of you: "If we tarry till we're better, we shall never come at all."
 
 You know that, and that your present state is the very best state in which you could come, and yet you dare disbelieve in such a way! Shame on you! Shame on you!
 
@@ -114,13 +102,16 @@ But perhaps you say, "No, my doubts are of another kind. I am afraid mine is an 
 
 You know how broad and unlimited those promises are made, and yet you dare to talk of your being excluded! Did you not sing the other Sunday, when I gave out the verse:
 
-"None are excluded therefore but those Who do themselves exclude. Welcome the learned and polite, The ignorant and rude. While grace does not forget the prince, The poor may take their share, No mortal has a just pretense To perish in despair."
+> None are excluded therefore but those  
+> Who do themselves exclude.  
+> Welcome the learned and polite,  
+> The ignorant and rude.  
+> While grace does not forget the prince,  
+> The poor may take their share,  
+> No mortal has a just pretense  
+> To perish in despair.  
 
-I will say that over again:
-
-"No mortal has a just pretense To perish in despair."
-
-The reason for despair is a mere pretense, and an unjust one. The Gospel of Jesus Christ has with a sound of trumpet declared that if you have no goodness Christ Jesus will give you the goodness! That if you have no fitness you need no fitness! That you may come just as you are and rely upon the unsurpassed and unbounded mercy of the God that made the heavens and the earth, who has Himself set forth Jesus Christ to be a Propitiation for sin, in Whom, if you put your trust, you shall find instant pardon and eternal salvation, a change of heart and a renewed life!
+I will say that over again: "No mortal has a just pretense to perish in despair." The reason for despair is a mere pretense, and an unjust one. The Gospel of Jesus Christ has with a sound of trumpet declared that if you have no goodness Christ Jesus will give you the goodness! That if you have no fitness you need no fitness! That you may come just as you are and rely upon the unsurpassed and unbounded mercy of the God that made the heavens and the earth, who has Himself set forth Jesus Christ to be a Propitiation for sin, in Whom, if you put your trust, you shall find instant pardon and eternal salvation, a change of heart and a renewed life!
 
 Such unbelief as these. I will not mention more, because they are all alike, a pack of rubbish to be thrown out at once. All are marvelous! It is amazing that they should be indulged in by people who hear the Gospel. In your case, my dear hearers, they are more than ordinarily marvelous for this reason: because you already admit so much. If you did not believe in the Bible I could not talk so to you. If you did not believe Christ to be the Son of God I should not so much marvel at your unbelief.
 
