@@ -95,10 +95,7 @@ He looks on men, and often selects the grossest transgressor and the chief of si
 
 "I, even I, am he that blots out your transgressions for my own sake, and will not remember your sins." "I have blotted out, as a thick cloud, your transgressions, and, as a cloud, your sins." "All manner of sin and blasphemy shall be forgiven unto men." Blasphemy is expressly mentioned as a violent form of evil and direct attack upon God. The most heinous forms of human iniquity the grace of God blots out of the Book of Remembrance, and he takes those who committed those heinous sins, changes their nature, makes them his children, and receives them, at last, into his glory; and all because of the free favor which is in his heart towards them.
 
-Another glory of this grace is its unfailing continuance. Where once the grace of God has fallen, it is never taken away. If God, in his mercy, visits a man with grace, he never afterwards revokes the pardon he gives, or recalls the favor he has bestowed. "The gifts and calling of God are without repentance." Grace is no intermittent brook flowing today and dried up tomorrow, no fleeting meteor dazzling all beholders and then vanishing in thick darkness;
-
-"Whom once he loves he never leaves,
-But loves them to the end." His grace is unchanging, his mercy endures forever.
+Another glory of this grace is its unfailing continuance. Where once the grace of God has fallen, it is never taken away. If God, in his mercy, visits a man with grace, he never afterwards revokes the pardon he gives, or recalls the favor he has bestowed. "The gifts and calling of God are without repentance." Grace is no intermittent brook flowing today and dried up tomorrow, no fleeting meteor dazzling all beholders and then vanishing in thick darkness; "Whom once he loves he never leaves, but loves them to the end." His grace is unchanging, his mercy endures forever.
 
 Another glory of it is that it is unalloyed and unmingled. God's grace in saving souls rules alone. Human merit does not intrude here and there to make a patchwork of the whole. Grace triumphant can say, "I have trod the winepress alone, and of the people there was none with me." Grace is alpha. Grace is omega. It is grace's glory that no mortal finger touches her work, and no human hammer is lifted up thereon. This is what men cannot bear. They will have it that man must have some merit, must do some little. But it must not be. The grace of God demands a clear stage. It saves and it, alone, from first to last.
 
@@ -144,9 +141,9 @@ My last word shall briefly indicate what is the privilege of each sinner who wou
 
 That is it! You have been fighting against God, standing out against him, trying to make terms more or less favorable to yourself. Now here you stand in the presence of God, and you drop the sword of your rebellion and say, "Lord, I surrender, I am your prisoner. I trust to your mercy to save me. I have done with self, I fall into your arms."
 
-"A guilty, weak, and helpless worm,
-On Christ's kind arms I fall;
-Be you my strength and righteousness,
-My Jesus and my all."
+> A guilty, weak, and helpless worm,  
+> On Christ's kind arms I fall;  
+> Be you my strength and righteousness,  
+> My Jesus and my all.  
 
 May God bless you. Amen.
