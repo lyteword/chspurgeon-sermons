@@ -117,7 +117,8 @@ A Negro was asked when he had been sitting up to nurse his master one night, "Ho
 
 Very often the dying thoughts of a Christian man are troubled about the condition of the Church of Christ. He fears that dark days are coming upon her. If a minister, he anxiously asks, "What will my people do, now that I can no longer lead and feed them? Will they not be like a flock without a shepherd?" But here will come in the consolation. There are better days for the Church of God. Though the fathers sleep.
 
-"All the promises do travail, With a glorious day of grace."
+> All the promises do travail,  
+> With a glorious day of grace.  
 
 Though one after another we shall pass away, there are not dark days for our descendants, but days of brightness are on the way. "Let Your work appear unto Your servants, and Your glory unto their children."
 
