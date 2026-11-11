@@ -27,7 +27,10 @@ Remember, too, that Isaac was a most lovely and obedient son. We have proof of t
 
 "Don't you know," He said, "that I must be about My Father's business?" And yet this obedient Son, this Son of sons, God spared not, but unsheathed His sword against Him and gave Him up to the agony and bloody sweat, the Cross and death itself! What mighty love must have led the Father to this! Impossible is it to measure it,
 
-"So strange, so boundless was the lo ve Which pitied dying men, The Father sent His equal Son, To give them life again."
+> So strange, so boundless was the love  
+> Which pitied dying men,  
+> The Father sent His equal Son,  
+> To give them life again.  
 
 It must not be forgotten, too, that around Isaac there clustered mysterious prophecies. Isaac was to be the promised seed through which Abraham should live down to posterity and evermore be a blessing to all nations. But what prophecies gathered about the head of Christ?! What glorious things were spoken of Him before His coming!
 
