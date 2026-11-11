@@ -3,9 +3,12 @@
 > Now is our salvation nearer than when we believed.  
 > Romans 13:11  
 
-BUT what "salvation" is this? The question is important because we very commonly speak of "salvation" as that state of Divine Grace into which everyone that believes in Jesus is introduced when he passes from death unto life, being delivered from the power of darkness and translated into the kingdom of God's dear Son. This sweet assurance we celebrate in our hymns of praise,
+But what "salvation" is this? The question is important because we very commonly speak of "salvation" as that state of Divine Grace into which everyone that believes in Jesus is introduced when he passes from death unto life, being delivered from the power of darkness and translated into the kingdom of God's dear Son. This sweet assurance we celebrate in our hymns of praise,
 
-"The moment a sinner believes And trusts in His crucified God, His pardon at once he receives, Redemption in full through His blood."
+> The moment a sinner believes  
+> And trusts in His crucified God,  
+> His pardon at once he receives,  
+> Redemption in full through His blood.  
 
 Salvation, so far as the forgiveness of sin, the imputation of righteousness, and the eternal safety of the soul are concerned, is given to us the moment that we are brought to trust in Jesus. But the term, "salvation," here and in some other parts of Scripture signifies that complete deliverance from sin, that glorious perfection which will not be attained by us until the day of the appearing of our Lord and Savior Jesus Christ.
 
@@ -21,9 +24,7 @@ Now, between these two points you and I, if we have believed, are sailing! And t
 
 I have been told, I have not been on the voyage, but I have been told that in going to Australia it has frequently been the custom to toast "Friends behind," till they get half-way. And then it changes to, "Friends ahead." "Here's to the helm, friends behind," and then near to the port, "Friends ahead." Well, I am going to say something tonight about things behind, and then we shall congratulate you as we talk of things ahead. "Now is our salvation nearer than when we believed."
 
-The Things That Are Behind. I want you to look back a little, all of you who have started from the point of believing. Recollect, and it will do you good to recollect it, when you did believe. Oh, that blessed day! Of all the days we have ever seen, that was, in some respects, the brightest of all! Not to be compared with the day of our natural birth, for that was a day of our first weeping. But in the day of our new birth, we wept tears of sacred joy! We were thrust from death into life, from condemnation to acceptance, from everlasting peril into eternal safety,
-
-"Happy day, happy day! When Jesus washed my sins away!"
+The Things That Are Behind. I want you to look back a little, all of you who have started from the point of believing. Recollect, and it will do you good to recollect it, when you did believe. Oh, that blessed day! Of all the days we have ever seen, that was, in some respects, the brightest of all! Not to be compared with the day of our natural birth, for that was a day of our first weeping. But in the day of our new birth, we wept tears of sacred joy! We were thrust from death into life, from condemnation to acceptance, from everlasting peril into eternal safety, "Happy day, happy day! When Jesus washed my sins away!"
 
 That was the day, we may say, when we left the first shore, and you all know those who are going round the world to dwell on the other side, always look back with great satisfaction at the day when they left. When the vessel was first tugged out of dock and safely towed down to the Nore and began to try the deep sea wave, what congratulations there were of friends, and many tears, no doubt, and waving of handkerchiefs and hurrahing, as the vessel left the port. Well, now, in our case we remember how our friends and kinsfolk in Christ rejoiced over us, how glad they were to hear us tell the tale of saving Grace! They prized us as a new-born child is prized in the household. No, not only friends below, but the angels looking down from Heaven rejoiced over us as repenting sinners! And surely, if it were worth their while to rejoice when we believed, we need not blush to go back to that period.
 
@@ -35,9 +36,7 @@ You remember it. And we have had many since then, when the waves of unbelief hav
 
 And you remember when you had almost gone too far and you just caught sight of the red lights, for if you had but gone a little further your soul would have been wrecked, cast away forever. But Mercy interposed at the precise moment, when there was time yet to tack about and save the vessel and rescued us in the hour of temptation, saved us as by fire. Well, now, why do I call these things to your remembrance, but to make you bless the name of your God? You have been nearly shipwrecked, but you are not wrecked. The storm has been very furious, but above all the billows Jehovah's power has kept and preserved you! Your feet had almost gone. Your steps had well near slipped, but the Divine power interposed in everlasting Grace and to this day, a wonder unto many, but especially a wonder to yourself, you are still on the road towards the Celestial City and you are nearer to it than when you first believed.
 
-But I would not have your recollection of what is behind be altogether saddened. Remember, Beloved, you have had a great deal of fair weather, too, since you left the port of believing. Oh, there have been happy days with us! Blessed days, as the days of Heaven upon earth! We have sailed along with a favoring breeze. All has been happy within our spirits, and peace, like a river, has abounded in our souls. Let us praise the name of God for this! Life is not the dreary thing that some men say it is. It has its sorrows, for what rose has not its thorns? Thistles spring up in it, but after all, who would not expect the thistles to grow here and there in the midst of a harvest field? But we bear our testimony that we have not had such a bad time of it after all,
-
-"The men of Grace have found Glory begun below, Celestial fruit on earthly ground, From faith and hope may grow."
+But I would not have your recollection of what is behind be altogether saddened. Remember, Beloved, you have had a great deal of fair weather, too, since you left the port of believing. Oh, there have been happy days with us! Blessed days, as the days of Heaven upon earth! We have sailed along with a favoring breeze. All has been happy within our spirits, and peace, like a river, has abounded in our souls. Let us praise the name of God for this! Life is not the dreary thing that some men say it is. It has its sorrows, for what rose has not its thorns? Thistles spring up in it, but after all, who would not expect the thistles to grow here and there in the midst of a harvest field? But we bear our testimony that we have not had such a bad time of it after all, "The men of Grace have found Glory begun below, celestial fruit on earthly ground, from faith and hope may grow."
 
 So that behind us, since the hour we first believed, there are the storms from which we have escaped, but there are also the mercies, the loving kindnesses which we dare not and will not forget. Behind us, too, dear Brethren, and this will be a mingled thought, behind us, how many opportunities of service have we left? When we sailed ourselves, there were with us many other little ships and some of these, ah, some of these, have been cast away and shipwrecked before our eyes! In that night of storm, when we ourselves were hard beset, a companion vessel that bade fair to make as good a voyage as our own, went to pieces and was never heard of again. A great professor foundered, his hypocrisy was discovered and his profession ruined forever.
 
@@ -74,7 +73,10 @@ O Christian, if you would take your crowns up to your Lord and great sheaves fro
 
 But looking still further ahead, let us tonight, when we remember we are nearer our salvation than when we believed, begin to think of what that salvation will be. How near it may be to some of us it were not possible for us to tell. But twenty-four hours may take some of us there, yes, less time than that! What is the distance between earth and Heaven? It only takes a second of time,
 
-"One gentle sigh, the fetter breaks. We scarcely can say, 'They're gone!' Before the willing spirit takes Her mansion near the Throne."
+> One gentle sigh, the fetter breaks.  
+> We scarcely can say, 'They're gone!'  
+> Before the willing spirit takes  
+> Her mansion near the Throne.  
 
 Now, what shall we see when we get there? Well, first we shall see Jesus. And the sight of Him, oh, say no more, think of it! The vision of the Man of Sorrows! Our Beloved, who gave Himself for us, once to see Him, once to fall at His feet and speechless there to lie, bursting with gratitude, which even there shall be inexpressible! Oh, what a Heaven to be with Him!
 
@@ -84,13 +86,26 @@ I cannot doubt but that the message was delivered. I think there is such a conne
 
 So, too, wrote one, who, if I am not mistaken, had been a votary of fashion in her gay circles,
 
-"The friends of youth, manhood and age, At length are all laid in the ground. An unit I stand on life's stage, With nothing but vanity round. I wander bewildered and lost, Without impulse or interest view. And all hope of my heart is at most To soon bid the desert adieu. But this derelict state of man's lot That fate to the aged ordains, Bids the heart turn the thoughts where it ought, Nor seek worldly cure for its pains. Thus I turn from the past and the lost, Close the view my life's picture supplies And while penitent tears pay the cost, Blot the follies of mirth from my eyes."
+> The friends of youth, manhood and age,  
+> At length are all laid in the ground.  
+> An unit I stand on life's stage,  
+> With nothing but vanity round.  
+> I wander bewildered and lost,  
+> Without impulse or interest view.  
+> And all hope of my heart is at most  
+> To soon bid the desert adieu.  
+> But this derelict state of man's lot  
+> That fate to the aged ordains,  
+> Bids the heart turn the thoughts where it ought,  
+> Nor seek worldly cure for its pains.  
+> Thus I turn from the past and the lost,  
+> Close the view my life's picture supplies  
+> And while penitent tears pay the cost,  
+> Blot the follies of mirth from my eyes.  
 
 Well, but what a comfort to such a one if he could but feel that though there is nobody here, yet there are plenty there among those that are gone before to greet and love him!
 
-So, let us salute those that are ahead. We cannot yet see the bright light at the harbor's mouth, but we know we are on the right tack and that God's Eternal Spirit is driving us on towards the harbor. O let us still think of them and sing as Wesley did,
-
-"Even now by faith we join our hands With those that went before And greet the blood-besprinkled bands On the eternal shore."
+So, let us salute those that are ahead. We cannot yet see the bright light at the harbor's mouth, but we know we are on the right tack and that God's Eternal Spirit is driving us on towards the harbor. O let us still think of them and sing as Wesley did, "Even now by faith we join our hands with those that went before and greet the blood-besprinkled bands on the eternal shore."
 
 I shall not delay you, however, with these anticipations. There are some mournful reflections with which I will close.
 
