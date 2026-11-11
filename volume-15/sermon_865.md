@@ -3,11 +3,13 @@
 > Deep calls unto deep.  
 > Psalm 42:7  
 
-IN the grandeur of Nature there are awful harmonies. When the storm agitates the ocean below, the heavens above hear the tumult and answer to the clamor. Down comes a deluge of sonorous hail or swift-descending rain, attended with peals of thunder and flashes of flame. Frequently the waterspout, of which David speaks in the next sentence, evidences the sympathy of the two great waters above and beneath the firmament, the great deep above stretches out its hands to the great deep below and in voice of thunder their old relationship is recognized. It is almost as if the twin seas remembered how once they lay together in the same cradle of confusion till the decree of the Eternal appointed each his bounds and place.
+In the grandeur of Nature there are awful harmonies. When the storm agitates the ocean below, the heavens above hear the tumult and answer to the clamor. Down comes a deluge of sonorous hail or swift-descending rain, attended with peals of thunder and flashes of flame. Frequently the waterspout, of which David speaks in the next sentence, evidences the sympathy of the two great waters above and beneath the firmament, the great deep above stretches out its hands to the great deep below and in voice of thunder their old relationship is recognized. It is almost as if the twin seas remembered how once they lay together in the same cradle of confusion till the decree of the Eternal appointed each his bounds and place.
 
 "Deep calls unto deep", one splendor of creation holds fellowship with another. Amazed and overwhelmed by the spectacle of some tremendous tempest upon land, you have yet been able to observe how the clouds appear to be emptying themselves each into each and the successive volleys of Heaven's artillery are answered by rival clamors, the whole chorus of sublimities lifting up their voices. It has seemed to me that a strange wild joy was moving all the elements and that the angels of wind and tempest were clapping their awful hands in glorious glee. Among the Alps, in the day of tempest, the solemnly silent peaks break through their sacred quiet and speak to each other in that dread language which is echoing the voice of God,
 
-"Far along, From peak to peak the rattling crags among, Leaps the live thunder!
+> Far along,  
+> From peak to peak the rattling crags among,  
+> Leaps the live thunder!  
 
 Not from one lone cloud, But every mountain now has found a tongue, And Jura answers, through her misty shroud, Back to the joyous Alps, who call to her aloud." Height calls unto height even as "deep calls unto deep." David, perceiving these solemn harmonies, uses the metaphor to describe his own unhappy experience. I suppose that when he wrote this Psalm he was an exile from his throne and country, driven out by the rebellion of his favorite son. He crossed the brook Jabbok in fear and hastened by night over Jordan and withdrew to a dry and thirsty land where there was no water. He was saddened, most of all, at the remembrance of the sacred shrine to which he had so often gone with the multitude that kept holy day, because he was now unable to join with that hallowed throng in worship so refreshing to his soul.
 
@@ -27,7 +29,8 @@ Strange decree that sin should be tolerated, permitted first, to enter, and then
 
 Brothers and Sisters, I cannot contemplate the doctrines connected with predestination, true as they are, without a shudder of reverential awe! Read that ninth chapter of Romans and while you are silenced by the voice of Paul, "No, but O man, who are you that replies against God? Shall the thing formed say to Him that formed it, Why have You made me thus?" Yet a thrill of awe passes through your souls and you whisper,
 
-"Great God, how infinite are You, What worthless worms are we!"
+> Great God, how infinite are You,  
+> What worthless worms are we!  
 
 If we could turn over those awful pages in which every event has been recorded. If it were permitted to us to see that book of fate chained to the Throne of God, in which every angel's form and size is drawn by the eternal pen. In which everything is written down, from the falling of a sere leaf from an oak to the tumbling of an avalanche from its Alp, in which God has as much arranged the course of yonder dust blown in the wind as of the planet which He steers in its mighty orbit. If we could see it all, we should exclaim, "O wondrous depth, how can I measure you? My plummet utterly fails. I will adore, for I cannot comprehend."
 
@@ -71,7 +74,12 @@ Moreover, to meet the obstinacy and depravity of our hearts, behold how deep cal
 
 Fourthly and with brevity, The Depth of Divine Love to the Saints Calls for a Deep of Consecration in Every Believing Heart. Study, my dear Brothers and Sisters, quietly, the depth of the love of God to you, His people. He loved you without a cause,
 
-"What was there in you that could merit esteem, Or give the Creator delight? 'Twas even so, Father,'you ever must sing, For so it seemed good in Your sight." He loved you without beginning. Before years and centuries and millenniums began to be counted, your name was on His heart. Eternal thoughts of love have been in God's bosom towards you! He has loved you without a pause, there never was a minute in which He did not love you. Your name, once engraved upon His hands has never been erased, nor has He ever blotted it out of the Book of Life.
+> What was there in you that could merit esteem,  
+> Or give the Creator delight?  
+> 'Twas even so, Father, you ever must sing,  
+> For so it seemed good in Your sight.  
+
+He loved you without beginning. Before years and centuries and millenniums began to be counted, your name was on His heart. Eternal thoughts of love have been in God's bosom towards you! He has loved you without a pause, there never was a minute in which He did not love you. Your name, once engraved upon His hands has never been erased, nor has He ever blotted it out of the Book of Life.
 
 Since you have been in this world He has loved you most patiently. You have often provoked Him. You have rebelled against Him times without number, yet He has never stopped the outflow of His heart towards you. And, blessed be His name, He never will! You are His and you always shall be His. Jesus says, "Because I live, you shall live also." God's love to you is without boundary. He could not love you more, for He loves you like a God, and He never will love you less. All His heart belongs to you. "As the Father has loved Me," says Jesus, "even so have I loved you."
 
@@ -105,7 +113,9 @@ Listen, now, I pray you! As surely as God has shown towards you a great deep of 
 
 Do not deceive yourselves by any dream of annihilation! Do not imagine there shall come an end to your woe! If there were the shadow of a ground for that statement, Hell would cease to be Hell, for hopelessness is of the essence of Hell. O, by the boundless love treasured up in Christ Jesus, remember there is equal terror in His wrath! The hand that is mighty to save is equally mighty to destroy! All Omnipotence has been put out to save, but this rejected, an equal Omnipotence shall be put out to crush. Tempt not the Lord! The deeps of your sin are already challenging the deeps of His justice. "Turn you, turn you, why will you die?"
 
-Awaken not the fury which you cannot endure, overcome, or avoid! Kindle not the fire which, like flames among stubble, will burn furiously and cannot be stopped! O dash not your souls upon the bosses of Jehovah's buckler! Cast not yourselves upon the point of His glittering spear! God grant of His eternal mercy that you may not tempt those deeps. ' VI. Now to close with a more cheerful theme. There is, Brethren, a Blessed Deep of Holy Happiness and Bliss for the Saints in Heaven, And Today It Calls to the Deep of Joy and Thankfulness Within Saintly Hearts who are lingering here below. Yes, the day is coming and all the wings of time are bringing it nearer, when we shall be emancipated from the body of this death! We are not forever to be sickly, sinful and sorrowing. We shall soon be set free from everything that encumbers us.
+Awaken not the fury which you cannot endure, overcome, or avoid! Kindle not the fire which, like flames among stubble, will burn furiously and cannot be stopped! O dash not your souls upon the bosses of Jehovah's buckler! Cast not yourselves upon the point of His glittering spear! God grant of His eternal mercy that you may not tempt those deeps.
+
+Now to close with a more cheerful theme. There is, Brethren, a blessed deep of holy happiness and bliss for the saints in Heaven, and today it calls to the deep of joy and thankfulness within saintly hearts who are lingering here below. Yes, the day is coming and all the wings of time are bringing it nearer, when we shall be emancipated from the body of this death! We are not forever to be sickly, sinful and sorrowing. We shall soon be set free from everything that encumbers us.
 
 If Christ come not in our lifetime to take us to Himself, we shall go to Him to dwell with Him where He is. And what are the delights of being in Heaven! To be with Christ! The spouse forever with the Bridegroom! The child forever in His Father's bosom! What must it be to dwell above! Forever pure! Forever beyond the danger of temptation! Safe and blessed! Shielded from all fear! Enriched with all blessedness! Christian, you shall soon be like Jesus as well as with Him. You shall be crowned as He is and blessed as He is. Oh, how satisfied shall you be when you wake up in His likeness!
 
