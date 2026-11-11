@@ -3,7 +3,7 @@
 > This is an evil generation: they seek a sign.  
 > Luke 11:29  
 
-READING the Old Testament we observe that the Lord, in the olden times, condescendingly gave signs to His servants when He saw that it would be for their good. Moses, when he was called to undertake the great work of bringing the chosen people up out of Egypt and conducting them into the promised land, had a sign given him by which to assure him that he was truly called of God. He put his hand into his bosom and when he took it out it was leprous, white as snow. He thrust it into his bosom again and again removed it and, lo, it was whole as the other! He cast his rod upon the earth and the rod became a serpent, and when he took it by the tail, it stiffened into a rod again.
+Reading the Old Testament we observe that the Lord, in the olden times, condescendingly gave signs to His servants when He saw that it would be for their good. Moses, when he was called to undertake the great work of bringing the chosen people up out of Egypt and conducting them into the promised land, had a sign given him by which to assure him that he was truly called of God. He put his hand into his bosom and when he took it out it was leprous, white as snow. He thrust it into his bosom again and again removed it and, lo, it was whole as the other! He cast his rod upon the earth and the rod became a serpent, and when he took it by the tail, it stiffened into a rod again.
 
 So also in the case of Gideon, when he was commanded to go against the Midianite oppressors of Israel, you remember how his fleece was wet when all around was dry. And how the sign was reversed and when all around was saturated with moisture, the fleece was dry. In the cases of holy men favored with signs, there was faith. There was a real desire for more faith and a willing obedience to God. But the work to which the men were called was peculiar, difficult and even superhuman! And the flesh being but weak, God in infinite tenderness to the weakness of His servants, gave them signs and wonders that they might be strengthened.
 
@@ -86,7 +86,29 @@ Let your folly appear still further when I remind you that you are asking for un
 
 Thoughts of suicide! Why, my Brothers and Sisters, they are awful, they are not to be allowed! There is murder in them! He that even thinks of them has committed murder already in his heart! And are these terrible, these devilish things, to be helps to you to believe? Why, they would just drive you into Hell! How can they help you to Heaven? You are asking for that which would be your ruin. You ask for a scorpion. You ask for a stone. You ask for a serpent and then you think that after having all these evil things you would be more fit to receive the bread of the Divine blessing? God will deny you, I trust, what you so foolishly ask for. Oh, be content to be led in a gentler way! Be willing to be blown to Christ by the soft south wind, ask not for tempests! Be satisfied to be drawn by the cords of love! Demand not by the bands of a man, demand not whips and chains! Enquire not for the thunder and lightning of Sinai, be satisfied with the turtle-notes of Calvary,
 
-"Hark! the voice of Jesus calling, 'Come, you laden, come to Me, I have rest and peace to offer Rest, poor laboring one, for you. Take salvation, Take it now and happy be.' Life is found alone in Jesus, Only there 'tis offered you, Offered without price or money, 'Tis the gift of God sent free! Take salvation, Take it now and happy be."
+> Hark! the voice of Jesus calling,  
+> 'Come, you laden, come to Me,  
+> I have rest and peace to offer  
+> Rest, poor laboring one, for you.  
+> Take salvation,  
+> Take it now and happy be.'  
+> Life is found alone in Jesus,  
+> Only there 'tis offered you,  
+> Offered without price or money,  
+> 'Tis the gift of God sent free!  
+> Take salvation,  
+> Take it now and happy be.  
+> 'Come, you laden, come to Me,  
+> I have rest and peace to offer  
+> Rest, poor laboring one, for you.  
+> Take salvation,  
+> Take it now and happy be.'  
+> Life is found alone in Jesus,  
+> Only there 'tis offered you,  
+> Offered without price or money,  
+> 'Tis the gift of God sent free!  
+> Take salvation,  
+> Take it now and happy be.  
 
 Remember, my dear Hearers, that some of you who are not believing are seeking signs which others have never had. To give you an instance or two. There stood the prodigal son feeding the swine, so hungry that he would gladly have filled his belly with the husks. The thought crossed his mind, "I will arise and go unto my father." What sign had he? He sets off to seek his father's face. What sign had he, I say? There does not appear to have been even an invitation sent, but he sought his father and he found forgiveness. Take another case. Christ has likened seeking souls to the widow who sought help of the unjust judge. She cried to him. She continued to cry to him until she gained her suit! But what sign had she? If any sign, it was all negative, all from the opposite quarter, yet on she went.
 
@@ -125,4 +147,10 @@ There is one other thing of which you are in danger, namely, that if you are spa
 
 But if you will look to your good works, to your preparations, to your fears, to your joys, if, indeed, you look to anything but Christ, it may be the Holy Spirit will never strive with you again, your conscience will become hardened and you, being given up to your idols, will perish, utterly perish, under the sound of the Gospel, perish with the light of the Gospel shining on your eyeballs! Perish of the serpent bite while the bronze serpent is lifted high! Perish of thirst when the Water of Life runs rippling at your feet because you are not content to stoop down and take it as God presents it to you! O that you would this very day end these follies and these sins, believing in Jesus Christ through the power of the Holy Spirit!
 
-"Jesus, the eternal Son of God, Whom seraphim obey, The bosom of the Father lea ves And enters human clay."
+> Jesus, the eternal Son of God,  
+> Jesus, the eternal Son of God,  
+> Whom seraphim obey,  
+> The bosom of the Father leaves  
+> And enters human clay.  
+> The bosom of the Father leaves  
+> And enters human clay.  
