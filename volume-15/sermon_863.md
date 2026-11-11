@@ -40,17 +40,16 @@ As surely as Jesus rose, so must His people leave the dead, there is nothing to 
 
 In the second place, regard the stone as a trophy, set up. As men of old set up memorial stones and as at this day we erect columns to tell of great deeds of prowess, so that stone rolled away was, as it were, before the eyes of our faith consecrated that day as a memorial of Christ's eternal victory over the powers of Death and Hell. They thought that they had vanquished Him. They deemed that the Crucified was overcome. Grimly did they smile as they saw His motionless body wrapped in the winding-sheet and put away in Joseph's new tomb. But their joy was fleeting! Their boasting was but brief, for at the appointed moment He who could not see corruption rose and came forth from beneath their power! His heel was bruised by the old serpent, but on the Resurrection Morning He crushed the dragon's head,
 
-"Vain the stone, the watch, the seal, Christ has burst the gates of Hell!
+> Vain the stone, the watch, the seal,   
+> Christ has burst the gates of Hell!  
+> Death in vain forbids His rise,   
+> Christ has opened Paradise!  
+> Lives again our glorious King!  
+> 'Where, O Death, is now your sting?'  
+> Once He died our souls to save,  
+> 'Where's your victory, boasting grave?'  
 
-Death in vain forbids His rise, Christ has opened Paradise!
-
-Lives again our glorious King!
-
-'Where, O Death, is now your sting?'
-
-Once He died our souls to save,
-
-'Where's your victory, boasting grave?'" Brethren beloved in Christ, as we look at yonder stone, with the angel seated upon it, it rises before us as a monument of Christ's victory over Death and Hell and it becomes us to remember that His victory was achieved for us and the fruits of it are all ours! We have to fight with sin, but Christ has overcome it! We are tempted by Satan, Christ has given Satan a defeat. We by-and-by shall leave this body unless the Lord comes speedily. We may expect to gather up our feet like our fathers and go to meet our God. But Death is vanquished for us and we can have no cause to fear! Courage, Christian soldiers, you are encountering a vanquished enemy!
+Brethren beloved in Christ, as we look at yonder stone, with the angel seated upon it, it rises before us as a monument of Christ's victory over Death and Hell and it becomes us to remember that His victory was achieved for us and the fruits of it are all ours! We have to fight with sin, but Christ has overcome it! We are tempted by Satan, Christ has given Satan a defeat. We by-and-by shall leave this body unless the Lord comes speedily. We may expect to gather up our feet like our fathers and go to meet our God. But Death is vanquished for us and we can have no cause to fear! Courage, Christian soldiers, you are encountering a vanquished enemy!
 
 Remember that the Lord's victory is a guarantee for yours! If the Head conquers, the members shall not be defeated. Let not sorrow dim your eyes, let no fears trouble your spirit, you must conquer, for Christ has conquered! Awaken all your powers to the conflict and nerve them with the hope of victory. Had you seen your Master defeated, you might expect yourself to be blown like chaff before the wind. But the power by which He overcame He lends to you! The Holy Spirit is in you! Jesus Himself has promised to be with you always, even to the end of the world and the mighty God is your Refuge. You shall surely overcome through the blood of the Lamb! Set up that stone before your faith's eye this morning and say, "Here my Master conquered Hell and Death and in His name and by His strength I shall be crowned, too, when the last enemy is destroyed."
 
@@ -79,7 +78,11 @@ I was reminded, as I thought over this passage of my discourse, of that time whe
 
 O you weary sheep of the fold, O you who are faint and ready to die, come here! Here is sweet refreshment! Jesus Christ is risen! Let your comforts be multiplied!
 
-"Every note with wonders swell, Sin overthrown and captive Hell; Where is Hell's once dreaded king? Where, O Death, your mortal sting? Hallelujah."
+> Every note with wonders swell,   
+> Sin overthrown and captive Hell;   
+> Where is Hell's once dreaded king?   
+> Where, O Death, your mortal sting?   
+> Hallelujah.  
 
 In the fifth place, that stone was a boundary appointed. Do you not see it so? Behold it, then, there it lies and the angel sits upon it. On that side what do you see? The guards frightened, stiffened with fear, like dead men. On this side what do you see? The timid trembling women, to whom the angel softly speaks, "Fear not: for I know that you seek Jesus." You see, then, that stone became the boundary between the living and the dead, between the seekers and the haters, between the friends and the foes of Christ. To His enemies His Resurrection is "a stone of stumbling and a rock of offense." As of old on Mar's Hill, when the sages heard of the Resurrection, they mocked. But to His own people, the Resurrection is the headstone of the corner.
 
