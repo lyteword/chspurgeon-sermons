@@ -3,7 +3,7 @@
 > Knowing this, that our old man is crucified with Him.  
 > Romans 6:6  
 
-EVERY new man is two men, every Believer in Christ is what he was and not what he was, the old nature and the new nature exist at the same time in each regenerate individual. That old nature the Apostle calls a man, because it is a complete manhood after the image of fallen Adam. It has the desires, the judgment, the mind, the thoughts, the language and the action of man as he is in his rebellious estate. He calls it the "old man," because it is as old as Eden's first transgression. It is as old as we are. It is the nature born with us, the natural depravity, the fleshly mind which we inherited from our parents. It is tainted by the old serpent and bears within it a dread propensity to his old sin.
+Every new man is two men, every Believer in Christ is what he was and not what he was, the old nature and the new nature exist at the same time in each regenerate individual. That old nature the Apostle calls a man, because it is a complete manhood after the image of fallen Adam. It has the desires, the judgment, the mind, the thoughts, the language and the action of man as he is in his rebellious estate. He calls it the "old man," because it is as old as Eden's first transgression. It is as old as we are. It is the nature born with us, the natural depravity, the fleshly mind which we inherited from our parents. It is tainted by the old serpent and bears within it a dread propensity to his old sin.
 
 When Adam first plucked the forbidden fruit, sin polluted our race and the original stain abides in all mankind, it is manifest in the most ancient history and continues to reveal itself all along the pages of the story of this blighted world. The old nature, then, is what the Apostle means. The lusts of the flesh, the carnal desires, the affections of our estranged hearts, these he calls the old man. I am much mistaken if every Christian does not find this old man still troubling him.
 
@@ -15,7 +15,7 @@ In the text the Apostle says that the old nature is in every Believer crucified 
 
 That shall make our first point, the old nature crucified. The second point shall be that if ever the old nature is put to death at all, it must be with Christ, we are crucified with Him. The old man is crucified with Him. And then, in the third place, we shall have some practical and solemn applications to make.
 
-Now, first, The Old Man Is to Die, But It Is to Die in the Likeness of Christ's DEATH by CRUCIFIXION.
+Now, first, The Old Man Is to Die, But It Is to Die in the Likeness of Christ's death by crucifixion.
 
 What kind of death was that? First, our Lord died a true and real death. There were certain heretics who disturbed the early Christian Church who said that our Lord did not really and actually die. But we know that He died, for His heart was pierced by the spear and the flowing of the blood and water proved that He was, in very deed, most truly dead.
 
@@ -80,7 +80,7 @@ Do not come into Prayer Meeting and pray with the saints if you are behaving as 
 
 And so it is with men's characters. If they cannot be decent, sober and truthful in their daily life, their inner parts are more abominable still! The deeper you pry into their secrets the worse will be the report. O dear Hearers, do be sincere in renouncing outward sin! You sinful men, put away your drunkenness, your swearing, your lying, your fornication and uncleanness. These must be nailed up before God's sun in open day. Let all men know by your outward conduct that you are dead to sin and cannot live any longer in it.
 
-There was much room in this first point to have enlarged, but I must not, for time flies so swiftly. This crucifixion of the old nature is, let us remember, WITH Christ. The old man was crucified with Christ representatively. Christ represented the Church. When He died He died for the Church and the Church died in Him, all His people died representatively when He died. Christ's dead body represents to us, in its death, the death of our old man, and virtually and before God, the body of this death died for each of us when Jesus died. We have not the time, however, to go into that doctrine, but the experience is what I would say a word upon.
+There was much room in this first point to have enlarged, but I must not, for time flies so swiftly. This crucifixion of the old nature is, let us remember, with Christ. The old man was crucified with Christ representatively. Christ represented the Church. When He died He died for the Church and the Church died in Him, all His people died representatively when He died. Christ's dead body represents to us, in its death, the death of our old man, and virtually and before God, the body of this death died for each of us when Jesus died. We have not the time, however, to go into that doctrine, but the experience is what I would say a word upon.
 
 Depend upon it, my dear Brothers and Sisters, if ever our sins are to die, it must be with Christ. You will find you cannot kill the smallest viper in the nest of your heart if you get away from the Cross. There is no death for sin except in the death of Christ. Stand and look up to His dear wounds. Trust in the merit of His blood. Love Him, love Him with a perfect heart and sin-killing will not be difficult. You will hear the Savior say, "Take us the foxes, the little foxes, that spoil the vines," and you will note His words, take us, not take them, but take us. Come with me, says the spouse, we will go together and we will do it. Your killing of your sin is not in your power, but if Jesus goes with you, it will be done.
 
@@ -109,9 +109,7 @@ Do you see yonder blood-washed host? Without spot or wrinkle they stand before t
 
 You must get to Christ, nearer to Christ and you will overcome sin.
 
-I must now conclude with these two observations. First, Christian, here is your practical lesson tonight, Fight with your sins. Hack them in pieces as Samuel did Agag! Let not one of them escape. Take them as Elijah took the prophets of Baal, hew them in pieces before the Lord! Revenge the death of Christ upon your sins, but keep to Christ's
-
-Cross for power to do it. Think more of Jesus' Cross! Spend more time in contemplation of His blessed Person, of His death and of His rising again. Drink in more of His life and live more upon Him. I pray you do this.
+I must now conclude with these two observations. First, Christian, here is your practical lesson tonight, Fight with your sins. Hack them in pieces as Samuel did Agag! Let not one of them escape. Take them as Elijah took the prophets of Baal, hew them in pieces before the Lord! Revenge the death of Christ upon your sins, but keep to Christ's Cross for power to do it. Think more of Jesus' Cross! Spend more time in contemplation of His blessed Person, of His death and of His rising again. Drink in more of His life and live more upon Him. I pray you do this.
 
 The words may sound in your ears as very common and such as you have heard ten thousand times before, but the sense is weighty and all-important. If I had but one sentence that I might utter to Believers, I think I should make it this, live nearer to Christ. All virtues flourish in the atmosphere of the Cross. All vices die beneath the shade of the Cross, but get away from your Master and you will be undone.
 
