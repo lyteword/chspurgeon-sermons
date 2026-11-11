@@ -3,7 +3,7 @@
 > What is the chaff to the wheat? says the Lord.  
 > Jeremiah 23:28  
 
-IT is remarkable that God has traced so much of the misery of the children of Israel in the period of their degradation to the unfaithfulness of those governors, priests and prophets who ruled over them. The crying evil of a nation's crimes lay at the door of these foolish shepherds. At first it would seem that the main stress of calamity rested on the common people, and the time-serving rulers enjoyed ease and affluence as the fruit of their own corruption. But when the Most High arises to judgment, He begins with those "pastors" who have foully betrayed their sacred trust. As one who has seen their way with His watchful eyes and heard their lies with His ever-listening ears, He denounces them with terrible threats.
+It is remarkable that God has traced so much of the misery of the children of Israel in the period of their degradation to the unfaithfulness of those governors, priests and prophets who ruled over them. The crying evil of a nation's crimes lay at the door of these foolish shepherds. At first it would seem that the main stress of calamity rested on the common people, and the time-serving rulers enjoyed ease and affluence as the fruit of their own corruption. But when the Most High arises to judgment, He begins with those "pastors" who have foully betrayed their sacred trust. As one who has seen their way with His watchful eyes and heard their lies with His ever-listening ears, He denounces them with terrible threats.
 
 While, on the other hand, He looks with compassion on the unhappy victims of strange delusion and cruel oppression, and compares them to a flock hard driven and mercilessly scattered. No, more, He claims this people as His own flock, whose wrongs He will avenge, whose rights He will restore, whose fears He will relieve and whose prosperity He will secure. The sin of those false prophets is exposed in terms which leave them no shadow of excuse. It was a profanity that dared to invoke the Divine name for their horrible wickedness. It was a folly that perverted every kind of truth, and it was a mischief that made the land mourn and dried up all its pleasant places. Therefore the anger of the Lord went forth like a whirlwind in its fury, yet like arrows shot from His bow it singled out the head of the wicked and executed vengeance on the real offenders.
 
@@ -51,7 +51,15 @@ Some Christians are greatly puzzled when we begin to talk about the experimental
 
 Though old Ralph Erskine's remark, in his, "Believer's Riddle," may be a little strong, still we can find the marrow of truth in it. He says,
 
-"Down like a stone, I sink and dive, Yet daily upward soar and thrive. To Hea ven I fly, to earth I tend, Still better grow, yet never mend. As all amphibious creatures do, I live in land and water, too. To good and evil equal bent, I'm both a devil and a saint."
+> Down like a stone, I sink and dive,  
+> Yet daily upward soar and thrive.  
+> To Heaven I fly, to earth I tend,  
+> Still better grow, yet never mend.  
+
+> As all amphibious creatures do,  
+> I live in land and water, too.   
+> To good and evil equal bent,   
+> I'm both a devil and a saint.  
 
 You know how he means it, not that the Christian is such in his life, but that he finds within himself very strong tendencies to evil, as well as powerful tendencies to good. Though in his general character faith overcomes, for he is so kept that the Evil One touches him not, yet while he is preserved among the godly he cannot help discovering his kindred with the children of disobedience, among whom he sometime walks. I know that saying of Solomon's, "I am black, but comely," would suit me. I have serious doubts, sometimes, about the latter part of it, but never much doubt about the former, "I am black."
 
@@ -74,9 +82,7 @@ Depend upon it, that is a great prayer to offer, "Lead us not into temptation." 
 
 Perhaps, Brethren, some of you are passing, just now, through a severe ordeal. You have been tried, exercised, tempted, and much tossed about, and you think you are losing a great deal. So you are, but what a blessed loss if you are only losing your chaff! When the goldsmith puts the lump of gold into the firing pot, he may perhaps think, "Now, the precious metal is dissolving and getting smaller and smaller in quantity." But, oh, what beautiful losing it is, when the loss is nothing but the withdrawal of the dross and the pure gold shines and sparkles with a yet brighter luster because of that loss which it has endured! May your loss and mine be only the loss of our chaff!
 
-And now, very briefly, This Text May Have a Very Strong Bearing Upon the ChristIAN
-
-CHURCH. "What is the chaff to the wheat? says the Lord." What a vision is that which salutes the eyes of the seer as he now looks upon the visible Church of God! It is a great threshing floor! Was there ever such a one before? On it are piled heaps and heaps upon heaps! Men rejoice and are glad and they say, "This is the threshing floor of Zion, and these are the sheaves from Israel's garners." Be it so.
+And now, very briefly, This Text May Have a Very Strong Bearing Upon the Christian church. "What is the chaff to the wheat? says the Lord." What a vision is that which salutes the eyes of the seer as he now looks upon the visible Church of God! It is a great threshing floor! Was there ever such a one before? On it are piled heaps and heaps upon heaps! Men rejoice and are glad and they say, "This is the threshing floor of Zion, and these are the sheaves from Israel's garners." Be it so.
 
 Soon the threshing time arrives and the wheat and the chaff are there. Do you see these men congregated and massed together? You may call them by different names, but God regards not that. He looks upon that threshing floor as one and He sees lying together the heaps of chaff and of wheat. Now, imagine that we could have, back again, among us the days in which Popery was rampant. Suppose that a strong blast of persecution were to come and sweep through our Churches, whether established or nonconforming, where would they be? Do you believe that all those multitudes who go up to a House of Prayer, now, would go there if by so doing their lives were placed in jeopardy?
 
