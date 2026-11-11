@@ -19,9 +19,7 @@ We will now endeavor to learn a practical lesson from the story of the Wise Men 
 
 Their Enquiry: "Where is He?" Many things are evident in this question. It is clear that when the Wise Men thus enquired, there was in their minds awakened interest. The King of the Jews was born, but Herod did not ask, "Where is He?" until his jealousy was excited, and then he asked the question in a malicious spirit. Christ was born at Bethlehem, near Jerusalem. Yet throughout all the streets of the holy city there were no enquirers, "Where is He?" He was to be the Glory of Israel, and yet in Israel there were few, indeed, who, like these Wise Men, asked the question, "Where is He?"
 
-My dear hearers, I will believe that there are some here this morning whom God intends to bless, and it will be a very hopeful sign that He intends to do so, if there is an interest awakened in your mind concerning the work and Person of the Incarnate God. Those who anxiously desire to know of Him are but a slender company. Alas, when we preach most earnestly of Him, and tell of His sorrows as the atonement for human sin, we are compelled to lament most bitterly the carelessness of mankind, and enquire mournfully:
-
-"Is it nothing to you, all you that pass by; Is it nothing to you that Jesus should die?"
+My dear hearers, I will believe that there are some here this morning whom God intends to bless, and it will be a very hopeful sign that He intends to do so, if there is an interest awakened in your mind concerning the work and Person of the Incarnate God. Those who anxiously desire to know of Him are but a slender company. Alas, when we preach most earnestly of Him, and tell of His sorrows as the atonement for human sin, we are compelled to lament most bitterly the carelessness of mankind, and enquire mournfully: "Is it nothing to you, all you that pass by; is it nothing to you that Jesus should die?"
 
 He is despised and rejected of men. Men see in Him no beauty that they should desire Him. But there are a chosen number who enquire diligently, and who come to receive Him. To these He gives power to become the sons of God. A happy circumstance it is, therefore, when there is interest evinced. Interest is not always evinced in the things of Christ, even by our regular hearers. It gets to be a mere mechanical habit to attend public worship. You become accustomed to sit through such a part of the service, to stand and sing at such another time, and to listen to the preacher with an apparent attention during the discourse.
 
@@ -45,7 +43,7 @@ Even thus, by degrees, God works. It is a fair sight to see in human hearts a li
 
 Furthermore, in the case of the Wise Men, we see ignorance admitted. Wise men are never above asking questions, because they are wise men; so the Magi asked, "Where is He?" Persons who have taken the name and degree of wise men, and are so esteemed, sometimes think it beneath them to confess any degree of ignorance, but the really wise think not so. They are too well instructed to be ignorant of their own ignorance. Many men might have been wise if they had but been aware that they were fools. The knowledge of our ignorance is the doorstep of the temple of knowledge.
 
-Some think they know, and therefore never know. Had they known that they were blind, they would soon have been made to see, but because they say, "We see," therefore their blindness remains upon them. Beloved hearer, do you want to find a Savior? Would you gladly have all your sins blotted out? Would you be reconciled to God through Jesus Christ? Then blush not to enquire; admit that you do not know. How should you know if Heaven teach you not? How should any man attain the knowledge of divine things, unless it be given him from Above?
+Some think they know, and therefore never know. Had they known that they were blind, they would soon have been made to see, but because they say, "We see," therefore their blindness remains upon them. Beloved hearer, do you want to find a Savior? Would you gladly have all your sins blotted out? Would you be reconciled to God through Jesus Christ? Then blush not to enquire; admit that you do not know. How should you know if Heaven teach you not? How should any man attain the knowledge of divine things, unless it be given him from above?
 
 We must all be taught of the Spirit of God, or be fools forever. To know that we need to be taught of the Holy Spirit is one of the first lessons that the Holy Spirit Himself teaches us. Admit that you need a Guide, and diligently enquire for one. Cry to God to lead you, and He will be your Instructor. Be not high-minded and self-sufficient. Ask for heavenly light, and you shall receive it. Is it not better to ask God to teach you, than to trust to your own unaided reason? Bow, then, the knee; confess your aptness to err, and say, "What I know not, teach me."
 
@@ -97,27 +95,30 @@ Get to the life of Christ, and let that life be in you, that you are, indeed, Go
 
 I have turned my thoughts on this last head into verse, and I will repeat the lines:
 
-Where is Christ my King? I languish for the sight,
-Gladly would I fall to worshipping, for He's my soul's delight.
-Himself, Himself alone,
-I seek no less, no more,
-Or on His Cross, or on His Throne,
-I'd equally adore.
+> Where is Christ my King?   
+> I languish for the sight,  
+> Gladly would I fall to worshipping,   
+> For He's my soul's delight.  
 
-The Sages saw His star,
-But rested not content,
-The way was rough, the distance far,
-Yet on that way they went.
+> Himself, Himself alone,  
+> I seek no less, no more,  
+> Or on His Cross, or on His Throne,  
+> I'd equally adore.  
 
-And now my thoughts discern
-The sign that Christ is near,
-With love unquenchable I burn,
-To enjoy His company.
+> The Sages saw His star,  
+> But rested not content,  
+> The way was rough, the distance far,  
+> Yet on that way they went.  
 
-No star nor heavenly sign
-My soul's desire can fill,
-For Him, my Lord, my King Divine,
-My soul is thirsting still.
+> And now my thoughts discern  
+> The sign that Christ is near,  
+> With love unquenchable I burn,  
+> To enjoy His company.  
+
+> No star nor heavenly sign  
+> My soul's desire can fill,  
+> For Him, my Lord, my King Divine,  
+> My soul is thirsting still.  
 
 And now we shall conclude, by considering The Example of these Wise Men. They came to Jesus, and in so doing, they did three things: they saw, they worshipped, they gave. Those are three things which every believer here may do this morning again, and which every seeker should do for the first time.
 
@@ -127,9 +128,7 @@ First, they saw the young Child. I do not think they merely said, "There He is,"
 
 For our redemption the Word was made flesh! This truth will breed the brightest hope within your soul. If you follow that Babe's wondrous life till it ends at the Cross, I trust you may there be able to give such a look at Him that, like when Moses lifted up the serpent in the wilderness, and they that looked were healed, so you, looking, may be healed of all your spiritual diseases! Though it is many a year since I first looked to Him, I desire to look to Jesus again. The incarnate God! My eyes swim with tears to think that He who might have crushed me into hell forever, becomes a young Child for my sake!
 
-See Him, all of you, and seeing, worship. What did the Wise Men do next? They worshipped Him. We cannot properly worship a Christ whom we do not know. "To the unknown God" is poor worship. But, oh, when you think of Jesus Christ, whose goings forth were of old from everlasting! The eternally begotten Son of the Father! And then when you see Him coming here to be a Man of the substance of His mother, and know and understand why He came and what He did when He came, then you must fall down and worship Him:
-
-"Son of God, to You we bow, You are Lord, and only You. You the woman's promised Seed; You who did for sinners bleed."
+See Him, all of you, and seeing, worship. What did the Wise Men do next? They worshipped Him. We cannot properly worship a Christ whom we do not know. "To the unknown God" is poor worship. But, oh, when you think of Jesus Christ, whose goings forth were of old from everlasting! The eternally begotten Son of the Father! And then when you see Him coming here to be a Man of the substance of His mother, and know and understand why He came and what He did when He came, then you must fall down and worship Him: "Son of God, to You we bow, You are Lord, and only You. You the woman's promised Seed; You who did for sinners bleed."
 
 We worship Jesus! Our faith sees Him go from the manger to the Cross, and from the Cross right up to the Throne, and there where Jehovah dwells, amidst the insufferable glory of the divine Presence stands the Man, the very Man who slept at Bethlehem in the manger! There He reigns as Lord of lords. Our souls worship Him again. You are our Prophet, every word You say, Jesus, we believe and desire to follow; You are our Priest, Your sacrifice has made us clean; we are washed in Your blood. You are our King! Command, we will obey. Lead on, and we will follow. We worship You. We should spend much time in worshipping the Christ, and He should ever have the highest place in our reverence.
 
