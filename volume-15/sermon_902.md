@@ -3,7 +3,7 @@
 > He shall cover you with His feathers, and under His wings shall you trust.  
 > Psalm 91:4  
 
-WHAT condescending words! I cannot express the sense I feel of the great loving kindness of the Lord to us in using such a simile to set forth His protecting care of His people. Had any poet suggested the metaphor, we might have recoiled from it as unseemly, or rejected it as profane. It really is so familiar and so homely that unless God Himself had spoken it by the mouth of His Holy Spirit, we might have accounted it impertinent for any human being to have used the comparison. The Lord here compares Himself to a hen covering her brood, and He speaks not only of the wings, which give shelter, but He enters into detail and speaks of the feathers which give warmth and comfort and repose. "He shall cover you with His feathers and under His wings shall you trust."
+What condescending words! I cannot express the sense I feel of the great loving kindness of the Lord to us in using such a simile to set forth His protecting care of His people. Had any poet suggested the metaphor, we might have recoiled from it as unseemly, or rejected it as profane. It really is so familiar and so homely that unless God Himself had spoken it by the mouth of His Holy Spirit, we might have accounted it impertinent for any human being to have used the comparison. The Lord here compares Himself to a hen covering her brood, and He speaks not only of the wings, which give shelter, but He enters into detail and speaks of the feathers which give warmth and comfort and repose. "He shall cover you with His feathers and under His wings shall you trust."
 
 Using thus the maternal instinct as an emblem of His own parental tenderness, God compares Himself to the mother bird which fosters, cherishes and protects her little ones. You have stood, sometimes, in the farmyard and there you have noticed the little chicks as they cowered down under the hen. She has given some note of warning that betokened danger, perhaps your very presence discomposed her and made her betray some little fluttering of fear. She called her little ones by her peculiar cry. They came to her and then, stooping down and spreading out her wings, she covered them and they were safe.
 
@@ -11,11 +11,21 @@ You would have noticed that after they were safely nestled there, the warmth of 
 
 Well now, that is precisely the idea that the text teaches. So, at least, I understand it. So, evidently, Dr. Watts thought, when he wrote the well-known paraphrase,
 
-"Just as a hen protects her brood, From birds of prey that seek their blood, Under her feathers, so the Lord Makes His own arm His people's guard." There is even more fullness of meaning than the doctor has compassed. Not only is protection from danger vouchsafed, but a sense of comfort and happiness is communicated, making the child of God feel that he is at home under the shadow of the Almighty. He feels he has all the comforts that he can need when he has once come to cower down under a blessed sense of the Divine Presence and to feel the warm flowing out of the very heart of God, as He reveals Himself in the most tender relationship towards His weak and needy servants.
+> Just as a hen protects her brood,  
+> From birds of prey that seek their blood,  
+> Under her feathers, so the Lord  
+> Makes His own arm His people's guard.  
+
+
+> From birds of prey that seek their blood,  
+> Under her feathers, so the Lord  
+> Makes His own arm His people's guard.  
+
+There is even more fullness of meaning than the doctor has compassed. Not only is protection from danger vouchsafed, but a sense of comfort and happiness is communicated, making the child of God feel that he is at home under the shadow of the Almighty. He feels he has all the comforts that he can need when he has once come to cower down under a blessed sense of the Divine Presence and to feel the warm flowing out of the very heart of God, as He reveals Himself in the most tender relationship towards His weak and needy servants.
 
 Carrying this picture in your mind's eye, may it often cheer and encourage you. Though I have nothing new, no bewitching novelty to introduce to you, I want to bring this old, old Truth of God vividly before your minds, to examine it in detail and press it home to your souls.
 
-Let our starting-point be a question, a question of paramount interest, When May This Text Be Relied Upon by a BELIEVER? "He shall cover you with His feathers and under His wings shall you trust." Well, it may be relied upon in cases of extreme peril. I do not doubt that servants of God, in times of danger at sea, when the huge billows have roared and the tempest has raged and the vessel seemed likely to go to pieces, have often cheered their hearts with such a thought as this. "Now, He that holds the waters in the hollow of His hand will take care of us, and cover us with His feathers and under His wings may we trust."
+Let our starting-point be a question, a question of paramount interest, When may this text be relied upon by a Believer? "He shall cover you with His feathers and under His wings shall you trust." Well, it may be relied upon in cases of extreme peril. I do not doubt that servants of God, in times of danger at sea, when the huge billows have roared and the tempest has raged and the vessel seemed likely to go to pieces, have often cheered their hearts with such a thought as this. "Now, He that holds the waters in the hollow of His hand will take care of us, and cover us with His feathers and under His wings may we trust."
 
 Perhaps at this very moment, down in some cabin, or amidst the noise and tumult and the raging of the ocean, when many are alarmed, there are Christians with calm faces, patiently waiting their Father's will, whether it shall be to reach the port of Heaven, or to be spared to come again to land into the midst of life's trials and struggles once more. They feel that they are well-cared for. They know that the storm has a bit in its mouth and that God holds it in and nothing can hurt them, nothing can happen to them but what God permits. On the dry land, too, the same blessed text has often comforted the Lord's people. Some are particularly timid in times of storm when the thunder comes, peal after peal and the lightning flashes follow each other, when it seems as if the very earth did tremble and the skies fled away from the glance of an angry God.
 
