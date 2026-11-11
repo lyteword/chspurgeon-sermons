@@ -3,13 +3,25 @@
 > A friend loves at all times and a brother is born for adversity.  
 > Proverbs 17:17  
 
-THERE is one thing about the usefulness of which all men are agreed, namely, friendship. But most men are soon aware that counterfeits of friendship are common as autumn leaves. Few men enjoy from others the highest and truest form of friendship. The friendships of this world are hollow. They are as unsubstantial as a dream, as soon dissipated as a bubble, as light as thistledown. Those airy compliments, those empty sentences of praise, how glibly they fall from the lips, but how little have they to do with the heart! He must be a fool, indeed, who believes that there is anything in the complimentary affection but mere flattery or matter of form.
+There is one thing about the usefulness of which all men are agreed, namely, friendship. But most men are soon aware that counterfeits of friendship are common as autumn leaves. Few men enjoy from others the highest and truest form of friendship. The friendships of this world are hollow. They are as unsubstantial as a dream, as soon dissipated as a bubble, as light as thistledown. Those airy compliments, those empty sentences of praise, how glibly they fall from the lips, but how little have they to do with the heart! He must be a fool, indeed, who believes that there is anything in the complimentary affection but mere flattery or matter of form.
 
 The loving cup means not love and the loud cheering of the toast means not sincere fellowship. With very many, friendship sits very loosely, they could almost write as Horace Walpole does in one of his letters. He says he takes everything very easily, "and if," says he, "a friend should die, I drive down to the St. James's coffee house and bring home another," doubtless as cordial and enraptured with the new friend as with the old. Friends in this world are too often like the bees which swarm around the plants while they are covered with flowers and those flowers contain nectar for their honey. But let November send its biting frosts, the flowers are nipped and their friends, the bees, forsake them. Swallow friendship lives out with us our summer, but finds other loves in winter.
 
 It has always been so from of old, even until now. Ahithophel has deserted David and Judas has sold his Lord. The greatest of kings who have been fawned upon by their courtiers while in power, have been treated as if they were but dogs in the time of their extremity. We say, as the poet of the passions,
 
-"King Darius, great and good, Deserted in his utmost need, By those his former bounty fed. On the cold ground exposed he lies, With not a friend to close his eyes." Of all friendship which is not based on principle, we may say with the Prophet, "You are weighed in the balances and found wanting."
+> King Darius, great and good,  
+> Deserted in his utmost need,  
+> By those his former bounty fed.  
+> On the cold ground exposed he lies,  
+> With not a friend to close his eyes.  
+
+
+> Deserted in his utmost need,  
+> By those his former bounty fed.  
+> On the cold ground exposed he lies,  
+> With not a friend to close his eyes.  
+
+Of all friendship which is not based on principle, we may say with the Prophet, "You are weighed in the balances and found wanting."
 
 But there is a higher friendship than this, by far, and it exists among Christian men, among men of principle, among men of virtue where profession is not all, but where there is real meaning in the words they use. Damon and Pythias still have their followers among us. Jonathan and David are not without their imitators. All hearts are not traitorous. Fidelity still lingers among men. Where godliness builds her house, true friendship finds a rest. Solomon, speaking not of the world's sham friends, but of friends, indeed, says, "A friend loves at all times." Having once given his heart to his chosen companion, he clings to him in all weathers, fair or foul. He loves him none the less because he becomes poor, or because his fame suffers an eclipse. His friendship, like a lamp, shines the brighter, or is made more manifest because of the darkness that surrounds it.
 
