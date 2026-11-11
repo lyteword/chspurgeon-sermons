@@ -3,7 +3,7 @@
 > Lead me in the way everlasting.  
 > Psalm 139:24  
 
-WE must all of us have a "way." We must be journeying, for this is not our resting place. We cannot abide in any one stay. "Forward" is the word of command. As the round earth never pauses but perpetually revolves. As the stars never halt in their course but traverse incessantly their ordained orbits. As the rivers evermore seek the sea, as the ocean waves unrestingly pursue each other, even so feel we the common motion and always must we move onward, onward through this life unto the next, onward forever and ever.
+We must all of us have a "way." We must be journeying, for this is not our resting place. We cannot abide in any one stay. "Forward" is the word of command. As the round earth never pauses but perpetually revolves. As the stars never halt in their course but traverse incessantly their ordained orbits. As the rivers evermore seek the sea, as the ocean waves unrestingly pursue each other, even so feel we the common motion and always must we move onward, onward through this life unto the next, onward forever and ever.
 
 Since we must have a way, it is of the highest importance that our way should be a right one. Important, because if it is not right we shall not long be happy in our course since the happiness of those who follow the path of evil is fleeting as a meteor, mocking as a will-o'-the-wisp, deceptive as the mirage, frail as a bubble on the wave and unsubstantial as a phantom of the night. Today the path of sin leads us through flowery meads and groves resounding with song of birds, but tomorrow it will wind among the desolations of many generations where souls and all their joys are withered as the green herb in the summer sun. The ways of righteousness are ways of pleasantness and all her paths are peace. The good is growing and the pleasure deepening where the wise in heart are walking, but nowhere else. We have need, then, to find the right way, that we may be happy pilgrims along it.
 
@@ -73,13 +73,19 @@ O Lord, then, give me strength of resolution, and when I know that a thing is wr
 
 There are some who have strength and resolution enough by fits and starts, but they have not stability enough to persevere. If Heaven could be won by one great leap, how soon they would have it! But if to enter into the pearly gates one must go on pilgrimage all the way, then they cannot hold out to the end. Lord, lead me! How speedily do I begin to shrink! How soon would my rebellious heart draw back from Your service! O give me persevering Grace and when I would stand aside, lead me forward! Draw, draw me, good Lord! Yes, gently tug at my laggard soul and when,
 
-"My heart can neither fly nor go To reach celestial joys," Then,
+> My heart can neither fly nor go  
+> To reach celestial joys,  
 
-"Come, Holy Spirit, heavenly dove, With all Your power Divine. Come, shed abroad a Savior's love, And that shall kindle mine."
+then,
+
+> Come, Holy Spirit, heavenly dove,  
+> With all Your power Divine.  
+> Come, shed abroad a Savior's love,  
+> And that shall kindle mine.  
 
 Lead me, Lord! You see what is meant by the prayer and I need not go further, though there is much room for enlargement. Need of knowledge and lack of strength are both confessed in this remarkable verse.
 
-Let us close by noticing THE REMarkABLY Comprehensive Prayer before us. I do not know many of the collects or particularly wish to know them, but I will give you my text for a collect and you shall never find its superior. Let this be your constant prayer, you may use it as long as you like and as often as you please, for if it is sincere, it will never be a vain repetition: "Lead me in the way everlasting."
+Let us close by noticing the remarkably comprehensive prayer before us. I do not know many of the collects or particularly wish to know them, but I will give you my text for a collect and you shall never find its superior. Let this be your constant prayer, you may use it as long as you like and as often as you please, for if it is sincere, it will never be a vain repetition: "Lead me in the way everlasting."
 
 Now, notice this prayer very carefully. First, observe how comprehensive it is, because of its object. Its object is the whole man. "Lead me, not half of me, not part of me. Lead me in the whole way, not in some part of the way, but in the whole way, that is to say, let my thoughts be led in the way that I may not think unrighteously, that I may not believe the Truth of God in part, but that I may be sound in the faith. Lead me that I may not believe false doctrine. Lord, lead my understanding and my intellect in the way of Revelation, make me to know Your Covenant Truths and the great Doctrines of Grace. Let me not be satisfied to know half Your Truth and think I know it all, but lead me into all Your Truth. Let there not be one doctrine that I would erase, nor one precept that I would forget, nor one single word in Your Book that I would blot out. Lord, lead me as to my understanding, knowledge and thoughts, lead me in the way everlasting."
 
