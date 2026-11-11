@@ -57,7 +57,10 @@ After this man had thus pleaded, it is noteworthy that Jesus stood still and cal
 
 Ah, and it is a great mercy when a poor soul feels that it can throw away anything and everything to get to Christ! "Oh," says the sinner who really seeks a Savior, "if there is any sin that I indulged that prevents my finding mercy, only let me know it and I will do away with it. Is there any habit I have which I do not even know to be sin, or a thing I do that gives me pleasure, but is objectionable in the sight of God, I will do away with it! O Lord, if I must be poor, or if I must be sick, I will do away with my health and away with my wealth if I may but find mercy,
 
-"The dearest idol I have known, Whatever thatidolis, Help me to tear it from its throne, And worship only You."
+> The dearest idol I have known,  
+> Whatever that idol is,  
+> Help me to tear it from its throne,  
+> And worship only You.  
 
 I charge you, seekers of Jesus, let nothing stand between you and Christ! You must have salvation! You cannot afford to do without it. O fling away, then, everything that might impede you. Cast off the garment that might trip you up in the heavenly race. Lay aside every weight and the sin that does most easily beset you and press to Jesus at once. Tonight, I pray you, press to Jesus with vehement speed and be not content till you get the blessing!
 
