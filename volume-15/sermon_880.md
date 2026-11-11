@@ -3,7 +3,7 @@
 > Let us now fear the Lord our God, who gives rain, both the former and the latter, in its season. He reserves for us the appointed weeks of the harvest.  
 > Jeremiah 5:24  
 
-SUCH are the climate and soil of Palestine, that all agricultural operations are most manifestly dependent upon the periodical rainfall. Hence the people speak of the weather and the crops with a more immediate reference to God than is usual with us. It is said that the common expressions of the peasantry are such as quite strike travelers with their apparently devout recognition of the Almighty agency. Certainly we may account for a very large number of what may be called the agricultural promises of the Old Testament from the fact that little of the food of the people was gained by manufacture or commerce. The whole population depended upon the field and the field upon the rain.
+Such are the climate and soil of Palestine, that all agricultural operations are most manifestly dependent upon the periodical rainfall. Hence the people speak of the weather and the crops with a more immediate reference to God than is usual with us. It is said that the common expressions of the peasantry are such as quite strike travelers with their apparently devout recognition of the Almighty agency. Certainly we may account for a very large number of what may be called the agricultural promises of the Old Testament from the fact that little of the food of the people was gained by manufacture or commerce. The whole population depended upon the field and the field upon the rain.
 
 Palestine is the very opposite of Egypt, which is so well irrigated by its river. And it is equally different from our own land, in which seasons of comparative drought may yet prove to be years of plenty. In Palestine, the agriculturalist must have the rain. He must receive the first rain soon after the corn is put into the ground, otherwise it will rot or be blown away with the dust as his fields become turned into a kind of impalpable powder by the summer's sun. He must have the latter rain just before the time of harvest, otherwise the ears lacking the moisture that should fill them out, will become thin and lean, barely worth the ingathering, in fact, they will yield no flour for the food of man. The farmer depends entirely upon the early and the latter rain, and if these do not fall pretty plenteously in their season, a time of famine will ensue.
 
@@ -54,7 +54,8 @@ We little cared, then, whether the place of worship was hot or cold. Whether we 
 
 If, in those days we had to suffer anything for Jesus, we only regretted we could not suffer more. We did not run out of the way of reproaches in those days, but were almost prepared to court them for His dear name's sake,
 
-"What peaceful hours we then enjoyed, How sweet their memory still."
+> What peaceful hours we then enjoyed,  
+> How sweet their memory still.  
 
 That was the early rain. The seed had just been sown and the Master, to make it take deeper root and spring up faster into the green blade, gave us the sacred shower of His loving Presence. There was much tender wisdom in this gentleness, for the new-born soul is very weak at first. Looking back to those days, we can clearly see what helpless infants we were. In knowledge we were very babes to whom many things could not be revealed because we could not have borne them. We fancied that our souls' battle was over, that we were out of gunshot of the devil and doubt, whereas the fight was just commencing, a fight never to cease until death and Heaven reveal the victory!
 
@@ -64,7 +65,10 @@ It was tenderly wise on our Lord's part that when we came out at last and rejoic
 
 Those early, happy days! Could it have all been a delusion? Was it all a mistake? What? When our sinful companions were all given up? When our darling lusts were all torn away? When the right eye was plucked out and the right arm cut off? Could it all have been a sham? When the head was leaned upon the Savior's bosom and the promise was so sweet, was it all excitement? No, our memory says it was not so, it was real, it was true! And He that gave us thus the foretaste, certainly has not changed,
 
-"His love in times past forbids us to think, He'll leave us at last in trouble to sink." I do not give much for the faith which lives on past experiences, for the precious faith of God's elect feeds on fresh manna day by day. But, at the same time, there are dark and dreary moments when past experience serves us well.
+> His love in times past forbids us to think,  
+> He'll leave us at last in trouble to sink.  
+
+I do not give much for the faith which lives on past experiences, for the precious faith of God's elect feeds on fresh manna day by day. But, at the same time, there are dark and dreary moments when past experience serves us well.
 
 Beloved Christian, if you are now this day in the dark, pluck a torch from the altars of yesterday with which to kindle the lights of today! The faithful Promiser was with you, then. You had His love to cheer you, then, go to Him yet once more and you shall receive the latter rain of renewed Grace from Him who gives Grace upon Grace! Before I leave this point, let me say one word of encouragement to any who are seeking my Lord and Master. I trust some of you are doing so. You have long been hearers of the Word of God, but you are not converted yet, and perhaps you are sad because, after much seeking, you have not been found by Him.
 
