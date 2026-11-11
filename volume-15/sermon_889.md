@@ -3,7 +3,7 @@
 > He healed them that had need of healing.  
 > Luke 9:11  
 
-"HE healed them that had need of healing," that is to say, on this gracious occasion no single case came before Him which baffled Him. However rampant might be the disease, however extreme the condition of the patient's malady, Jesus worked an instantaneous cure. And truly to this very hour no spiritual sickness has defeated the great Physician. No sick souls have ever been carried away from His feet to perish hopelessly because their need outreached His power. Satan's worst is soon undone by Jesus' best. The Son of God, in no solitary instance, has been foiled. Still in the goings forth of His mercy He has "healed them that had need of healing."
+"He healed them that had need of healing," that is to say, on this gracious occasion no single case came before Him which baffled Him. However rampant might be the disease, however extreme the condition of the patient's malady, Jesus worked an instantaneous cure. And truly to this very hour no spiritual sickness has defeated the great Physician. No sick souls have ever been carried away from His feet to perish hopelessly because their need outreached His power. Satan's worst is soon undone by Jesus' best. The Son of God, in no solitary instance, has been foiled. Still in the goings forth of His mercy He has "healed them that had need of healing."
 
 The text also indicates that our Lord continued unweariedly to heal all the multitudes that came. From morning till night, as fast as the various patients presented themselves, He worked their care. There was an eye to be opened here, hearing to be given there, a lame man to be made to leap, a withered limb to be outstretched. There was leprosy to be cleansed, dropsy to be dried, fever, epilepsy, madness and all manner of maladies to be subdued, and Jesus paused not, virtue continued still to flow to heal "them that had need of healing." Though they had been countless as the sands, His love, like the sea, would have touched them all. His restoring power was by no means exhausted, the oil only ceased to flow when there was not another vessel to fill!
 
@@ -97,7 +97,8 @@ Will He prove a liar! Will you dare to think so? O come, for He cannot cast you 
 
 Moreover, you cannot doubt His will. Have you ever heard of Him, He that was God and became Man? He was gentle as a woman,
 
-"His heart is made of tenderness, His heart melts with love."
+> His heart is made of tenderness,  
+> His heart melts with love.  
 
 It was not in Him to be harsh. When the woman taken in adultery, in the very fact, was brought to Him, what did He say? "Neither do I condemn you: go and sin no more." It was said of Him, "This man receives sinners, and eats with them," and He is not changed now that He reigns above! He is just as willing to receive sinners now as when He was here below.
 
