@@ -3,7 +3,7 @@
 > Wherein God, willing more abundantly to show unto the heirs of promise the immutability of His counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.  
 > Hebrews 6:17,18  
 
-THE Lord's transactions with the Patriarch Abraham are frequently used in Scripture as types of His dealings with all the heirs of promise. The Lord found him in an idolatrous household, even as He finds all His people far off from Him and strangers to Him. But the Lord separated him by an effectual call and brought him out from his country and from his father's house, even as He does unto all His people when He visits them in mercy, and says, "Come out from among them and be you separate and touch not the unclean thing."
+The Lord's transactions with the Patriarch Abraham are frequently used in Scripture as types of His dealings with all the heirs of promise. The Lord found him in an idolatrous household, even as He finds all His people far off from Him and strangers to Him. But the Lord separated him by an effectual call and brought him out from his country and from his father's house, even as He does unto all His people when He visits them in mercy, and says, "Come out from among them and be you separate and touch not the unclean thing."
 
 The Lord, then, was pleased to give to His servant a very gracious promise, the likes of which, only yet more clear and bright, He is pleased to give to every heir of salvation. And after awhile, that the Patriarch's faith in the midst of his increasing trials might come to a fullness of strength, the Lord was pleased to make a Covenant with him and to confirm that Covenant by sacrifice of blood and by solemn oath. Even thus does He reveal Himself to us, unfolding the ancient Covenant of Grace which He has made with us in Christ Jesus and He bids us look upon the solemn seal of the Savior's sacrifice and of the oath of old which the Lord made unto His Son.
 
@@ -51,7 +51,7 @@ We are daily blessed with inward aspirations after it, hungry longings for it, D
 
 But if not and you do not answer to this description, so far from wishing to administer any consolation to you, we fear lest we should say a word that might lull you into a deeper and more dangerous peace. For you no sweet notes of consolation! But the shrill trumpet must be sounded in Gibeah and we must lift up the voice of alarm in Zion, for out of Christ, not having fled for refuge, wrath comes upon you even to the uttermost and there shall be no escape! If they that despised Moses' Law perished without mercy, of how much sorer vengeance shall you be counted worthy that shall despise the Son of God? How shall you escape if you neglect so great a salvation?
 
-But we must pass on to our second head. Let us humbly look, for a minute, to the ways and dealings of our CONDESCENDING God to these favored people, hoping that we belong to their number. Notice each word, "God willing." Whenever God does anything in a way of Divine Grace, He does it, as we say, con amore, He does it, in the highest sense, willingly. In a certain sense, all the acts of God are willingly done, but there are some which in another sense He does unwillingly. "He does not afflict willingly nor grieve the children of men."
+But we must pass on to our second head. Let us humbly look, for a minute, to the ways and dealings of our condescending God to these favored people, hoping that we belong to their number. Notice each word, "God willing." Whenever God does anything in a way of Divine Grace, He does it, as we say, con amore, He does it, in the highest sense, willingly. In a certain sense, all the acts of God are willingly done, but there are some which in another sense He does unwillingly. "He does not afflict willingly nor grieve the children of men."
 
 It is not the will of God that sinners should perish. He has declared it. He had rather that they turn unto Him and live. But when He reveals Himself to His saints, He does it with a sacred willingness, a Divine cheerfulness. It is an occupation Divinely suitable to His generous Nature. "God willing." "Willing more abundantly." Notice that expression. It has, in the Greek, the sense of more than is necessary and is secretly meant to answer the objection concerning the Lord's taking an oath. God is willing to reveal Himself to His people and He is willing to do that "more abundantly," up to the measure of their need. He would let them know that His counsel is immutable and He would not only give them enough evidence to prove it, He would give them overwhelming evidence, evidence more than would be or could be possibly required by the case itself, so that their unbelief may have no chance to live and their faith may be of the strongest kind.
 
@@ -71,7 +71,10 @@ Men sometimes make promises that they cannot fulfill, they are in circumstances 
 
 Moreover, His promise is made to His own Son, and His love to Him is intertwisted and interwoven with His promise. He could not break His word to one of us without breaking it to His dear Son, since we are in Him and trust in Him. O my Brethren, the Divine promise must stand good! Show me where it was ever broken! I will tell you where it has been kept even to the end, in the ten thousand times ten thousand of the blood-washed, who, with white robes, are this day surrounding His Throne with never-ceasing songs! It has never been broken even to us on earth! Here stand some of us, the witnesses of Divine fidelity. Why, then, should we mistrust a promise which has always been immutable and has never been, for a moment, treated by God as a thing to be tampered with? Why should we begin to doubt Him?
 
-"O for a strong, a lasting faith, To credit what the Almighty says, To embrace the message of His Son, And call the joys of Heaven our own."
+> O for a strong, a lasting faith,  
+> To credit what the Almighty says,  
+> To embrace the message of His Son,  
+> And call the joys of Heaven our own.  
 
 But, Brethren, it is added that God, in order to prevent our unbelief effectually, has taken an oath. An oath, if it is allowable, and I think our Lord Jesus has forever forbidden all Christian men every oath of every sort, an oath, if ever allowable, as it was under the old dispensation, should never be taken except upon the most solemn business and in the most solemn manner. An oath of a man is a thing at which an angel might well tremble. What greater dishonor or shame could you pour upon a man than to convict him of perjury? We count such men the pariahs of the human race! We put them outside the social scale as unworthy to be communed with! Their breath is pestilence and leprosy is on their brows! Perjury! The man is no man! He has sunk below the level of manhood when he comes to that. But God has, with an oath, sworn by Himself that all the heirs of promise shall be blessed forever, saying, "Surely blessing I will bless you."
 
@@ -85,7 +88,10 @@ But I must turn away to the third point and note The Strong Consolation Which Fl
 
 Now, God would not give them consolation if they were not to have tribulation. Wherever the Lord gives a man comfort, it is because he will need it. You will need it, dear Brothers and Sisters. Write that down in your tablets, then: "In the world you shall have tribulation." The text says, "strong consolation." If you are an heir of Heaven, you may look for severe trials,
 
-"Crosses each day and trials hot The Christian's path has been, And who has found a happy lot Without a cross between?"
+> Crosses each day and trials hot  
+> The Christian's path has been,  
+> And who has found a happy lot  
+> Without a cross between?  
 
 All the followers of the Great Cross-bearer are cross-bearers, too! But then there is the strong consolation for the strong tribulation.
 
