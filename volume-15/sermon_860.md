@@ -3,7 +3,7 @@
 > And all the people that came together to that sight, beholding the things which were done, smote their breasts and returned.  
 > Luke 23:48  
 
-MANY in that crowd came together to behold the crucifixion of Jesus, in a condition of the most furious malice. They had hounded the Savior as dogs pursue a stag and at last, all mad with rage, they hemmed Him in for death. Others, willing enough to spend an idle hour and to gaze upon a sensational spectacle, swelled the mob until a vast assembly congregated around the little hill upon which the three crosses were raised. There unanimously, whether of malice or of wantonness, they all joined in mockery of the Victim who hung upon the center Cross. Some thrust out their tongue. Some wagged their heads. Others scoffed and jeered, some taunted Him in words and others in signs, but all alike exulted over the defenseless man who was given as a prey to their teeth.
+Many in that crowd came together to behold the crucifixion of Jesus, in a condition of the most furious malice. They had hounded the Savior as dogs pursue a stag and at last, all mad with rage, they hemmed Him in for death. Others, willing enough to spend an idle hour and to gaze upon a sensational spectacle, swelled the mob until a vast assembly congregated around the little hill upon which the three crosses were raised. There unanimously, whether of malice or of wantonness, they all joined in mockery of the Victim who hung upon the center Cross. Some thrust out their tongue. Some wagged their heads. Others scoffed and jeered, some taunted Him in words and others in signs, but all alike exulted over the defenseless man who was given as a prey to their teeth.
 
 Earth never beheld a scene in which so much unrestrained derision and expressive contempt were poured upon one man so unanimously and for so long a time. It must have been hideous to the last degree to have seen so many grinning faces and mocking eyes and to have heard so many cruel words and scornful shouts. The spectacle was too detestable to be long endured of Heaven. Suddenly the sun, shocked at the scene, veiled his face and for three long hours the ribald crew sat shivering in midday midnight.
 
@@ -71,7 +71,7 @@ Still keeping you at the foot of the Cross, dear Friends, every Believer here ma
 
 Suffering does not always excite the same degree of pity. You must know something of the individual before the innermost depths of the soul are stirred, and so it happens to us that the higher the character and the more able we are to appreciate it, the closer the relation and the more fondly we reciprocate the love, the more deeply does suffering strike the soul. You are coming to His Table, some of you, today, and you will partake of bread, I pray you remember that it represents the quivering flesh that was filled with pain on Calvary! You will sip of that cup, then be sure to remember that it betokens to you the blood of One who loves you better than you could be loved by mother, or by husband, or by friend!
 
-sit down and strike your breasts that He should grieve! That heaven's Sun should be eclipsed! That Heaven's Lily should be spotted with blood and Heaven's Rose should be whitened with a deadly pallor! Lament that Perfection should be accused, Innocence struck and Love murdered, and that Christ, the happy and the holy, the ever blessed, who had been for ages the delight of angels, should now become the sorrowful, the acquaintance of grief, the bleeding and the dying! Smite upon your breasts, Believers and go your way! Beloved in the Lord, if such grief as this should be kindled in you, it will be well to pursue the subject and to reflect upon how unbelieving and how cruel we have been to Jesus since the day that we have known Him.
+Sit down and strike your breasts that He should grieve! That Heaven's Sun should be eclipsed! That Heaven's Lily should be spotted with blood and Heaven's Rose should be whitened with a deadly pallor! Lament that Perfection should be accused, Innocence struck and Love murdered, and that Christ, the happy and the holy, the ever blessed, who had been for ages the delight of angels, should now become the sorrowful, the acquaintance of grief, the bleeding and the dying! Smite upon your breasts, Believers and go your way! Beloved in the Lord, if such grief as this should be kindled in you, it will be well to pursue the subject and to reflect upon how unbelieving and how cruel we have been to Jesus since the day that we have known Him.
 
 What? Does He bleed for me and have I doubted Him? Is He the Son of God and have I suspected His fidelity? Have I stood at the foot of the Cross unmoved? Have I spoken of my dying Lord in a cold, indifferent spirit? Have I ever preached Christ Crucified with a dry eye and a heart unmoved? Do I bow my knee in private prayer and are my thoughts wandering when they ought to be bound hand and foot to His dear bleeding self? Am I accustomed to turn over the pages of the Evangelists which record my Master's wondrous Sacrifice and have I never stained those pages with my tears? Have I never paused spellbound over the sacred sentence which recorded this miracle of miracles, this marvel of marvels?
 
@@ -86,7 +86,7 @@ O my Heart, well may I strike you, that at the sight of the death of the dear Lo
 > And then I would, O that I might  
 > A constant weeper be!  
 
-One might desire to become a Niobe and realize the desire of Jeremy, "O that my head were waters." Even the holy extravagance of George Herbert does not surprise us, for we would even sing with him the song of GRIEF:
+One might desire to become a Niobe and realize the desire of Jeremy, "O that my head were waters." Even the holy extravagance of George Herbert does not surprise us, for we would even sing with him the song of grief:
 
 > Oh, who will give me tears?  
 > Come, all you springs,  
@@ -96,9 +96,24 @@ One might desire to become a Niobe and realize the desire of Jeremy, "O that my 
 > The watery things  
 > That nature has produced.  
 > Let every vein  
-> Suck up a river to supply my eyes, My weary weeping eyes, too dry for me, Unless they get new conduits, new supplies To bear them out and with my state agree. What are two shallow fords, two little spouts Of a less world? The greater is but small. A narrow cupboard for my griefs and doubts, Which need provision in the midst of all. Verses, you are too fine a thing, too wise, For my rough sorrows. Cease! Be dumb and mute. Give up your feet and running to my eyes, And keep your measures for some lover's lute, Whose grief allo ws him music and a rhyme For mine excludes both measure, tune and time, Alas, my God!  
+> Suck up a river to supply my eyes,  
+> My weary weeping eyes, too dry for me,  
+> Unless they get new conduits, new supplies  
+> To bear them out and with my state agree.  
 
-Having, perhaps, said enough on this point, enough if God blesses it, too much if without His blessing, let me invite you, in the third place, to remember that At Calvary, Dolorous Notes Are Not the Only Suitable Music. We admired our poet when, in the hymn which we have just sung, he appears to question with himself which would be the most fitting tune for Golgotha. "It is finished", shall we raise songs of sorrow or of praise? Mourn to see the Savior die, or proclaim His victory?:
+> What are two shallow fords, two little spouts  
+> Of a less world? The greater is but small.  
+> A narrow cupboard for my griefs and doubts,  
+> Which need provision in the midst of all.  
+> Verses, you are too fine a thing, too wise,  
+> For my rough sorrows. Cease! Be dumb and mute.  
+> Give up your feet and running to my eyes,  
+> And keep your measures for some lover's lute,  
+> Whose grief allows him music and a rhyme  
+> For mine excludes both measure, tune and time,  
+> Alas, my God!   
+
+Having, perhaps, said enough on this point, enough if God blesses it, too much if without His blessing, let me invite you, in the third place, to remember that At Calvary, Dolorous Notes Are Not the Only Suitable Music. We admired our poet when, in the hymn which we have just sung, he appears to question with himself which would be the most fitting tune for Golgotha. "It is finished", shall we raise songs of sorrow or of praise? Mourn to see the Savior die, or proclaim His victory:
 
 > If of Calvary we tell,  
 > How can songs of triumph swell!  
@@ -107,13 +122,14 @@ Having, perhaps, said enough on this point, enough if God blesses it, too much i
 
 He shows that since our sin pierced the side of Jesus, there is cause for unlimited lamentation, but since the blood which flowed from the wound has cleansed our sin, there is ground for unbounded thanksgiving! And, therefore, the poet, after having balanced the matter in a few verses, concludes with,
 
-" 'It is finished,'let us raise Songs of thankfulness and praise." After all, you and I are not in the same condition as the multitude who had surrounded Calvary, for at that time our Lord was still dead, now He is risen, indeed! There were yet three days from that Thursday evening (for there is much reason to believe that our Lord was not crucified on Friday), in which Jesus must dwell in the regions of the dead. Our Lord, therefore, so far as human eyes could see Him, was a proper object of pity and mourning and not of thanksgiving.
+"'It is finished,' let us raise Songs of thankfulness and praise." After all, you and I are not in the same condition as the multitude who had surrounded Calvary, for at that time our Lord was still dead, now He is risen, indeed! There were yet three days from that Thursday evening (for there is much reason to believe that our Lord was not crucified on Friday), in which Jesus must dwell in the regions of the dead. Our Lord, therefore, so far as human eyes could see Him, was a proper object of pity and mourning and not of thanksgiving.
 
 But now, Beloved, He ever lives and gloriously reigns! No grave confines that blessed body! He saw no corruption, for the moment when the third day dawned, He could no longer be held with the bonds of death, but He manifested Himself alive unto His disciples! He tarried in this world for forty days. Some of His time was spent with those who knew Him in the flesh. Perhaps a larger part of it was passed with those saints who came out of their graves after His Resurrection, but certain it is that He is gone up, as the first-fruit from the dead. He is gone up to the right hand of God, even the Father!
 
 Do not bewail those wounds, they are lustrous with supernal splendor! Do not lament His death, He lives no more to die! Do not mourn that shame and spitting,
 
-"The head that once was crowned with thorns, Is crowned with glory now."
+> The head that once was crowned with thorns,  
+> Is crowned with glory now.  
 
 Look up and thank God that death has no more dominion over Him. He ever lives to make intercession for us and He shall shortly come with angelic bands surrounding Him to judge the quick and the dead. The argument for joy overshadows the reason for sorrow! Like as a woman when the child is born remembers no more her anguish, for joy that a child is born into the world, so, in the thought of the risen Savior who has taken possession of His crown, we will forget the lamentation of the Cross and the sorrows of the broken heart of Calvary.
 
