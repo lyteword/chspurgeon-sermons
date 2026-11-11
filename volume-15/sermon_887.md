@@ -1,6 +1,6 @@
 # Sermon 887 | A Door Opened In Heaven
 
-> After this I looked and, behold, a door was opened in Hea ven.  
+> After this I looked and, behold, a door was opened in Heaven.  
 > Revelation 4:1  
 
 How highly favored was the Apostle John! While his Master was on earth he was the favored disciple, permitted to lean his head upon His bosom as a token of the most familiar and loving communion. After our Lord had ascended, He had the same heart towards John and, finding him alone amidst the wild rocks of Patmos, He visited him on the Lord's-Day and revealed Himself to him in a most glorious manner. Brothers and Sisters, if Heaven should offer any one thing which we might choose, if ever the Lord should appear to us as He did to Solomon and say, "Ask what you will, and it shall be given you," be it ours to request that we may enjoy the closest possible fellowship with the Well-Beloved!
@@ -67,7 +67,8 @@ Further, Brothers and Sisters, a door is often opened in Heaven in the joys of C
 
 Do you not feel, sometimes, your Sundays to be the most blessed portions of your life below the skies? And the assemblies of God's people, what are they to you? Are they not the House of God and the very gate of Heaven! Yes, and if it is sweet, today, to mingle with Christians in their praise and prayer, when we are so soon to separate and go our way, how passing sweet that place must be where the saints meet in eternal sessions of worship, where the King is always with them, where there is never a dreary service, where the song never, never, never ceases, where no discord mars it and no harp is hung upon the willows,
 
-"There no tongue can silent be, All shall join the harmony."
+> There no tongue can silent be,  
+> All shall join the harmony.  
 
 Why, if there were no other door in Heaven than these blessed Sunday gatherings and the sweet enjoyments of the assemblies of the saints, surely this would be enough to make us long to be there!
 
@@ -83,7 +84,8 @@ I read a story the other day of an elder of a Scottish Church, who at the elders
 
 Brethren, why should there be strife below? Let us love each other and by the fact that we are coheirs of that blessed inheritance, let us dwell together as partakers of a common life and soon to be partakers of a common Heaven. Brethren, I think I may add a door has often been opened in Heaven to us at the communion table. Astronomers select the best spots for observatories. They like elevated places which are free from traffic so that their instruments may not quiver with the rumbling of wheels. They prefer, also, to be away from the smoke of manufacturing towns, that they may discern the orbs of Heaven more clearly. Surely, if any one place is more fit to be an observatory for a Heaven-mind than another, it is the table of communion,
 
-"I have been there and still will go, 'Tis like a little Heaven below."
+> I have been there and still will go,  
+> 'Tis like a little Heaven below.  
 
 Christ may hide Himself from His people in preaching, as He did from His disciple on the road to Emmaus, but He made Himself known unto them in the breaking of bread. Prize much the solemn breaking of bread. That ordinance has been perverted. It has been caricatured and profaned, and therefore some tender Christians scarcely value it at its right account. To those who will use it rightly, examining themselves and so coming to that table, it is, indeed, a Divine observatory, a place of calm retirement from the world. The elements of bread and wine become the lenses of a far-seeing telescope through which we behold the Savior. And I say again, if there is one spot of earth clear from the smoke of care, it is the table where saints have fellowship with their Lord. A door is often opened in Heaven at this banquet, when His banner over us is love, and if it is so sweet to enjoy the emblem, what must it be to live with Christ Himself and drink the new wine with Him in the kingdom of our Father!
 
@@ -119,4 +121,7 @@ Beloved, never try to forget your departure. Thoughts of mortality are incessant
 
 Anticipate, I pray you, the Glory which is surely yours if you are in Christ. But O make sure that you are in Christ! Get two grips of Him! O hold Him by a strong, but humble confidence! Fling away all other hopes, they are vanity! Bind yourself to His dear Cross, the one plank on which you can swim to Glory! Never mariner was drowned on that,
 
-"None but Jesus, none but Jesus, Can do helpless sinners good." God bless you for the Redeemer's sake. Amen.
+> None but Jesus, none but Jesus,  
+> Can do helpless sinners good.  
+
+God bless you for the Redeemer's sake. Amen.
