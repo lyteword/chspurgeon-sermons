@@ -11,7 +11,7 @@ Because it is so simple and so plain, you will not attend to it. I will therefor
 
 The thing I spoke of cannot be, wish it as I might. I cannot speak to every one of you individually. It remains that I stand here, returning the glance of each and all of you as best I can, while I converse with you freely and friendly, but firmly and truly, of the things that make for your peace.
 
-Our subject shall be full of reprimands. First of all, let me notice the Pride of Man's HEART. Stands there before your mind's eye this great man, the captain of the host of the King of Syria. He is a typical character, or to say the least, he is a representative man. His haughty bearing prompts the inquiry, "Who is this?" As you learn that he holds a high office, that he has served his country well and that he enjoys the favor of his master, you will be apt to count him a man of mark, one to be admired.
+Our subject shall be full of reprimands. First of all, let me notice the pride of man's heart. Stands there before your mind's eye this great man, the captain of the host of the King of Syria. He is a typical character, or to say the least, he is a representative man. His haughty bearing prompts the inquiry, "Who is this?" As you learn that he holds a high office, that he has served his country well and that he enjoys the favor of his master, you will be apt to count him a man of mark, one to be admired.
 
 But look at him more closely. Observe his pale face and his emaciated frame and your pity is moved. Now you ask with concern, what ails this mighty man of valor? The fatal secret is quickly told, he is a leper. Why, then, comes he thus with his splendid equipage to Samaria? Surely it is not to air his nobility, but to get relief from his debility that he takes this journey into the land of Israel. How better, then, could his distressing case be met than by the simple message which Elisha sent him? The manner disappoints his expectation, his temper is irritated by a method of treatment that he thinks beneath his station, and he indignantly rejects the faithful admonition of the Prophet.
 
@@ -63,9 +63,7 @@ How can future obedience make up for past transgression? The cliff has fallen an
 
 This doing of great things is an empty conceit! Nor could it avail you even if you had the power to put your grand resolutions into full effect and fulfill the schemes that your folly dotes upon. Ah, you who seek salvation by your own doings, let the example of others warn you. All those who do thus labor for that which satisfies not. They lead miserable lives in this world, and in the world to come their existence is without hope. I have seen many of those who hope to be saved by ceremonies, by prayers and by holy services, as they think them to be, but I am sure when I have come to talk to them, I have never met with one of them that possessed perfect peace. How could they? The foundation is so rotten that the house cannot stand!
 
-Look at them! When they have done their best, what does conscience say? Why, like the horse-leech, it cries "Give, give, give!" With many men, when they lie awake at night, or seriously think about their lives, there is an inward suspicion creeping over them that though they stand so well with the Church and with their neighbors and are spoken so well of, yet it is not quite right. They say, "after all, my Church attendance and Chapel attendance and prayers and almsgiving do not stand me in so good a turn as I could wish." I tell you, such people are like the blind horse going round the mill, they never get any further. They realize the old fable of those who tried to fill up the bottomless pit. They are like
-
-Sisyphus who was always rolling a stone up hill that always rolled back to his feet again before he could accomplish the task.
+Look at them! When they have done their best, what does conscience say? Why, like the horse-leech, it cries "Give, give, give!" With many men, when they lie awake at night, or seriously think about their lives, there is an inward suspicion creeping over them that though they stand so well with the Church and with their neighbors and are spoken so well of, yet it is not quite right. They say, "after all, my Church attendance and Chapel attendance and prayers and almsgiving do not stand me in so good a turn as I could wish." I tell you, such people are like the blind horse going round the mill, they never get any further. They realize the old fable of those who tried to fill up the bottomless pit. They are like Sisyphus who was always rolling a stone up hill that always rolled back to his feet again before he could accomplish the task.
 
 The self-righteous man knows that what he is doing cannot satisfy God, for it cannot satisfy himself! And though he may, perhaps, drug his conscience, there is generally enough left of the Divine element within the man to make him feel and know that it is not satisfactory. When he lets his heart speak he finds it so. It is dreadful to die with no other hope than what you have done for yourselves! Oh, it is poor work and it is poor comfort, too, to lay on a dying bed and turn over such poor rotten rags as prayers, attendances at worship, alms-giving and religious exercises that looked so nice when we were in the dark. When the veil begins to be pulled up and the light of eternity comes streaming in, then we see that we had bad motives for our good actions, that our charities were done out of ostentation, that our worship of God was only formality and even our own private prayers, if not insincere, were yet mixed with such selfishness and inconsistency as to make them unacceptable to God.
 
@@ -79,7 +77,7 @@ If you are out of Christ, though your self-righteousness is ever so fair, I tell
 
 May infinite mercy prevent this being the lot of so much as one of us in this assembly.
 
-Think, Sirs, now, while escaping this false pride and deprecating this offensive folly, what is MAN's Best Wisdom! I think I see you, Brother, baffled in all your schemes, sickened of your solemn but hollow pretences, bewildered with strange imaginations and thoroughly out of conceit with yourself. Is it thus with you? Do I rightly describe your present feelings? Sit not down desponding, though your lips are parched and your strength exhausted. One drop from the pure fountain of faith will refresh your spirits! Yield yourself up like a child to be taught by the great Comforter and you shall not only find rest unto your soul, but you shall be able to instruct and cheer others also.
+Think, Sirs, now, while escaping this false pride and deprecating this offensive folly, what is man's best wisdom! I think I see you, Brother, baffled in all your schemes, sickened of your solemn but hollow pretences, bewildered with strange imaginations and thoroughly out of conceit with yourself. Is it thus with you? Do I rightly describe your present feelings? Sit not down desponding, though your lips are parched and your strength exhausted. One drop from the pure fountain of faith will refresh your spirits! Yield yourself up like a child to be taught by the great Comforter and you shall not only find rest unto your soul, but you shall be able to instruct and cheer others also.
 
 To believe that which God says. To do that which God bids. To take that salvation which God provides, this is man's highest and best wisdom. Begin with the alphabet and spell out the golden letters from this great prophetic Book. It is the child's primer, the pilgrim's guide and still it is the apocalypse of the saint in which he descries the Glory yet to be revealed. This is the one message of the Gospel, "Believe and live." Trust in the Incarnate Savior, whom God appointed to stand in the place of sinners. Trust in Him and you shall be saved! The whole Gospel is condensed into one sentence as Christ left it before He ascended up on high, "He that believes and is baptized shall be saved."
 
@@ -93,7 +91,16 @@ Nor can you be safer than when you fall flat on the promise of mercy which God h
 
 You will never get to that point by coming to God, first, in the bald revelation of His adorable attributes. No man comes to the Father but through the Son. You must believe in the Man, Christ Jesus, the Man in whom all the fullness of the Godhead dwells bodily, for He is God, over all blessed forever! Trust Him for the remission of your sins and the acceptance of your person! And when you know in your soul that your sins are forgiven, with holy joy you will sing:
 
-"Now for the love I bear His name, What was my gain I count my loss. My former pride I call my shame, And nail my glory to His Cross. Yes, and I must and will esteem All things as loss for Jesus' sake. O may my soul be found in Him, And of His righteousness partake." The man who has not the work of saving himself to do, the man who feels that Christ has saved him, now, out of love gives himself up to holiness, and this is salvation practically illustrated.
+> Now for the love I bear His name,  
+> What was my gain I count my loss.  
+> My former pride I call my shame,  
+> And nail my glory to His Cross.  
+> Yes, and I must and will esteem  
+> All things as loss for Jesus' sake.  
+> O may my soul be found in Him,  
+> And of His righteousness partake.  
+
+The man who has not the work of saving himself to do, the man who feels that Christ has saved him, now, out of love gives himself up to holiness, and this is salvation practically illustrated.
 
 When people put water in children's faces and regenerate them, we say: "Well, if you do it, let us see it, are those children better than anybody else's children?" And we do not find out that they are the least better. I consider that such regeneration is not worth the snap of a finger! When a man really believes in Jesus Christ, he lives to Christ and to righteousness. If he has been a drunk, or unchaste, or a swearer, he renounces his former evil course and becomes a new man! That which satisfactorily and practically saves men from guilt deserves notice and consideration and with some reason it may be supposed to rescue them from the doom of transgressors.
 
@@ -105,6 +112,9 @@ I feel that if I had all the sins of all the men that ever lived, the precious b
 
 Can you look and yet not trust Him? Can you look at the Incarnate God, laying down His life for sinners and yet doubt? Oh, blackest of sins is this doubting of God and of Christ! Yield, I pray you! Yield to a simple faith in Jesus and there shall rush through your soul a life the like of which you never knew and you shall go out of this tabernacle saying in your spirit, "I have been born again this night! The mystery has been unraveled! The Divine deed is done! I am forgiven! I am forgiven, glory be to His name!",
 
-"Oh, how sweet to view the flowing Of the Savior's precious blood, With Divine assurance knowing He has made my peace with God!"
+> Oh, how sweet to view the flowing  
+> Of the Savior's precious blood,  
+> With Divine assurance knowing  
+> He has made my peace with God!  
 
 May that be your portion, every one of you. Amen.
