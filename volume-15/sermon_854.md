@@ -45,7 +45,7 @@ It has often been through opposition that the Church has made her greatest advan
 
 The Christian man who is slandered and opposed can afford to smile with a sacred contempt at all that can be done against the Gospel of Christ. It was during the persecution which raged against the saints at Jerusalem that the Church obtained one of the greatest pillars that have ever strengthened and adorned her fabric, I mean the Apostle Paul. Breathing out threats against the people of God, he is on the road to Damascus, but the blaze of heavenly fire blinds him, strikes him to the ground and afterwards he becomes a chosen vessel to carry, like an uplifted cresset, that very fire throughout the nations of the earth!
 
-I look, Brothers and Sisters, for recruits to the Truth of God from the ranks of our enemies. Never despair, the brightest preacher of Christ may yet be fashioned out of the wretched raw material of Roman Catholic and Anglican priests! In politics, one of the leaders of reform has come to us from the hostile party, and we may expect in religious matters to see the same, or even more wonderful enlightenments! A monk reformed Germany! A parish priest was the morning star of England's day of light! The Lord can send out His warrant to arrest a ringleader in the army of Satan and to say to him, "You shall be no more against Me. You are Mine. Enlist beneath My banner and from this day be a champion for the Truth which you have despised."
+I look, brothers and sisters, for recruits to the Truth of God from the ranks of our enemies. Never despair, the brightest preacher of Christ may yet be fashioned out of the wretched raw material of Roman Catholic and Anglican priests! In politics, one of the leaders of reform has come to us from the hostile party, and we may expect in religious matters to see the same, or even more wonderful enlightenments! A monk reformed Germany! A parish priest was the morning star of England's day of light! The Lord can send out His warrant to arrest a ringleader in the army of Satan and to say to him, "You shall be no more against Me. You are Mine. Enlist beneath My banner and from this day be a champion for the Truth which you have despised."
 
 Never let us fear! The fire of God which Christ has cast among us shall go on to burn, let man do what he will to quench it! Thus I have given you a very brief abstract of the history of the Gospel from the Bible and the man, to the convert and the persecution, until opposition, valiantly met, yields up its spoils.
 
@@ -73,9 +73,7 @@ Fire is not to be talked to in that way. It knows nothing about moderation and k
 
 Yes, that is just what the world desired in Christ's day, no doubt. Idolaters would have been satisfied if Christianity had kept itself to the handful of disciples which Christ had gathered. Christians might have been ridiculed at first, but by degrees they would have cooled down into a respectable sect like the Pharisees and Sadducees, especially after those uneducated fishermen had died out and some respectable tradesmen in Jerusalem and, perhaps, a squire or two from beyond Jordan had joined the community.
 
-But Christianity did not happen to be a thing that would so soon be frozen. The Gospel of Jesus was a thing of fire! Jerusalem, alone, would not serve its purpose. All Judea and Galilee could not escape from it,
-
-"More and more the kingdom grows, Ever mighty to prevail."
+But Christianity did not happen to be a thing that would so soon be frozen. The Gospel of Jesus was a thing of fire! Jerusalem, alone, would not serve its purpose. All Judea and Galilee could not escape from it, "More and more the kingdom grows, ever mighty to prevail."
 
 Asia Minor is set upon a blaze by that fanatical firebrand, Saul of Tarsus, and even that is not enough! The fire burns so fiercely in Asia that the sparks fly across the Bosphorus! Paul is working in Macedonia. He is heard of in Athens, he is talked about in Corinth, and even that is not enough, that restless soul must cross the sea and is found in Rome thundering at the gates of Caesar's palace! Right away in Spain the new religion is gaining ground. Proconsuls, what are you doing? The gods of Rome defied in far-off Spain?
 
@@ -117,4 +115,13 @@ The warm-hearted, earnest, thorough Christian is the life of the Church! And if 
 
 O lovers of Christ, come and bow at His feet and ask Him to let His love supply you with fire this morning! Come to the Pierced One! Gaze upon the crown of thorns! Look into the hole which the soldier's spear has made! Gaze into the nail prints and say unto your soul,
 
-'Now, for the love I bear His name, What was my gain I count my loss. My former pride I call my shame And nail my glory to His Cross. Yes, and I must and will esteem All things but loss for Jesus' sake. O may my soul be found in Him, And of His righteousness partake." God bless you for Christ Jesus' sake. Amen.
+> Now, for the love I bear His name,  
+> What was my gain I count my loss.  
+> My former pride I call my shame  
+> And nail my glory to His Cross.  
+> Yes, and I must and will esteem  
+> All things but loss for Jesus' sake.  
+> O may my soul be found in Him,  
+> And of His righteousness partake.  
+
+God bless you for Christ Jesus' sake. Amen.
