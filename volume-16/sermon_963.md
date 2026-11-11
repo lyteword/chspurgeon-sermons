@@ -19,9 +19,7 @@ If we are His followers, come fair, come foul, come life, come death, none shall
 
 Loyal subjects do not only submit to those decrees of their Monarch which are pleasing in themselves, but they give in their unwavering adhesion to the entire administration of their King. His throne and dynasty to them are paramount, and in his actions they take delight. In the case of our great Lord and King, the rule is absolute; what He commands we desire to do. What He wills we seek to will. We acquiesce in His determinations, and hope even to rejoice in the most painful of His Providences.
 
-Christian loyalty finds music in the name, and Heaven in the Person of King Jesus. None can extol Him too much. Our hearts are never surfeited with His glories, our ears never weary of hearing His praises. His rule is so good, so kind, so loving, that no other people ever had such a monarch! Every day we elect Him afresh in our heart's warmest love, and we sing again and again:
-
-"Crown Him, crown Him King of kings, and Lord of lords."
+Christian loyalty finds music in the name, and Heaven in the Person of King Jesus. None can extol Him too much. Our hearts are never surfeited with His glories, our ears never weary of hearing His praises. His rule is so good, so kind, so loving, that no other people ever had such a monarch! Every day we elect Him afresh in our heart's warmest love, and we sing again and again: "Crown Him, crown Him King of kings, and Lord of lords."
 
 Zion's citizens are something more than loyal to the Monarch; they are attached to His Person. Apart from the Throne and Crown of the Lord Jesus we feel a devout attachment to His very Person. As the Son of God, we worship Him and adore Him, and our heart reverently confides in Him.
 
@@ -53,27 +51,23 @@ We would have our judgment controlled by His teaching, our affections enamored o
 
 We are joyful to think that not an angel bows in the courts of Heaven who would refuse to perform the will of Jesus our Lord, and not a devil howls and bites his iron bonds in the nethermost Hell who can effectually resist the purpose of the Crucified. No powers: physical, moral, or spiritual, predominate over Christ or are apart from His sway. We are joyful in our King because of His dominion, which has no end. He is the Almighty Savior, and we will bless and praise His name:
 
-"Blessing, honor, glory, might,
-Are the Conqueror's native right;
-
-Thrones and powers before Him fall;
-Lamb of God, and Lord of all!"
+> Blessing, honor, glory, might,  
+> Are the Conqueror's native right;  
+> Thrones and powers before Him fall;  
+> Lamb of God, and Lord of all!  
 
 We rejoice, too, in the power of our King and in the various displays of it. We are very weak and feeble; without Him we can do nothing. Sometimes we are much discouraged when the Gospel makes slow progress, but it is delightful to the last degree to fall back upon the thought that it might subdue the whole world tomorrow if Jesus willed it, for all power is in His hands. He can do great wonders yet, and that, too, when it seems as if the age of wonders were over. The Lord of Pentecost is mighty still to save. His arm is not shortened. Awake, O Lord, and let the arm of Your strength be made bare. Are You not the One who cut Rahab and wounded the dragon?
 
 The enemy knows the power of Jesus' name, and though Christ may put up His sword for awhile, it is ours with importunity to cry, "Gird Your sword upon Your thigh, O Most Mighty," for He is most mighty, still. If He should once take His bow of might and shoot forth the arrows of conviction among His foes, the battle would soon be turned, and the victory would be unto the banners of His Church. The time comes when we shall see far greater things than our eyes have yet beheld; the future is His with glory:
 
-"Kings shall fall down before Him,
-And gold and incense bring;
-
-All nations shall adore Him,
-His praise all people sing;
-
-For He shall have dominion
-Over river, sea, and shore,
-
-Far as the eagle's pinion,
-Or dove's light wing can soar."
+> Kings shall fall down before Him,  
+> And gold and incense bring;  
+> All nations shall adore Him,  
+> His praise all people sing;  
+> For He shall have dominion  
+> Over river, sea, and shore,  
+> Far as the eagle's pinion,  
+> Or dove's light wing can soar.  
 
 We rejoice, then, in all the triumphs He has achieved, and all the power that He has in reserve for future conquests.
 
