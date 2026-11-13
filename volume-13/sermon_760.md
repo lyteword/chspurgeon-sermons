@@ -9,7 +9,7 @@ I pray that my dear Brothers and Sisters who are cast down may have Divine Grace
 
 May the oil of joy be exchanged for mourning by many sorrowing ones this morning! Sometimes my text is a trumpet of alarm, or a trombone of lamentation, but today it is a harp of sweetest sound. Saul was subject to fits of deep despondency, but when David, the skillful harper, laid his hand among the obedient strings, the evil spirit departed, overcome by the subduing power of melody. My text is such a harp, and if the Holy Spirit will but touch its strings, its sweet discourse shall charm away the demon of despair.
 
-"I am with you", it is a harp of ten strings containing the full chords of consolation. Its notes quiver to the height of ecstasy or descend to the hollow bass of the deepest grief. Let us see if this psaltery will yield us melody today. In the first place we shall note THE TIMES WHEN ITS SWEET STRAINS ARE MOST NEEDED. Occasions when comfort is needed are many. There are some, who, like the willow, will only flourish in a soil which is always wet with consolation. These are men and women of a sorrowful spirit. If their mothers did not bear them with sorrow, like Jabez, they commenced very early on their own account to accumulate a heritage of woe.
+"I am with you", it is a harp of ten strings containing the full chords of consolation. Its notes quiver to the height of ecstasy or descend to the hollow bass of the deepest grief. Let us see if this psaltery will yield us melody today. In the first place we shall note the times when its sweet strains are most needed. Occasions when comfort is needed are many. There are some, who, like the willow, will only flourish in a soil which is always wet with consolation. These are men and women of a sorrowful spirit. If their mothers did not bear them with sorrow, like Jabez, they commenced very early on their own account to accumulate a heritage of woe.
 
 As John Bunyan would say, they need not be afraid of the Slough of Despond for they carry a slough within their own hearts and are never out of it or it is never out of them. They are plants which flourish best in shady places among the dampness of sorrow. They scarcely think themselves safe unless they are unhappy. They fear to be joyous, they tremble to be glad.
 
@@ -35,13 +35,16 @@ And, my Brethren, some of us know what it is to hear this voice of God in the mi
 
 You may have been sifted in this sieve again and again, but it is delightful, indeed, when you can feel "God is with me. My responsibilities are overwhelming, but my God is Omnipotent. I could not carry the load, but He can, and by faith I will cast the burden upon the Most High." Were you ever seeking to win souls, the most blessed of occupations, and have you had to return to your closet saying, "Who has believed our report? And to whom is the arm of the Lord revealed?" Then you will begin to question whether you were ever called to an enterprise so high and lofty, and perhaps you will be tempted, like Jonah, to take ship and flee away to Tarshish, that you may escape from a service which brings you no honor.
 
-At such a juncture, what can be more reassuring than the echo of these words, "'Fear not, for I am with you?" I am with you even in your non-success, with you in your casting down, with you in those labors which remain unrequited. "Fear not, for I am with you." And the issues must, in the end, all be well! Dear Friend, did you ever stand, as a servant of God, alone in the midst of opposition? Were you ever called to attack some deadly popular error, and, with rough bold hands, like an iconoclast, to dash down the graven images of the age?
+At such a juncture, what can be more reassuring than the echo of these words, "Fear not, for I am with you"? I am with you even in your non-success, with you in your casting down, with you in those labors which remain unrequited. "Fear not, for I am with you." And the issues must, in the end, all be well! Dear Friend, did you ever stand, as a servant of God, alone in the midst of opposition? Were you ever called to attack some deadly popular error, and, with rough bold hands, like an iconoclast, to dash down the graven images of the age?
 
 Have you heard the clamor of many, some saying this thing, and some the other, some saying, "He is a good man," but others saying, "No, but he deceives the people?" Did you ever see the rancor of the priests of Baal flashing from their faces and foaming from their mouths? Did you ever read their hard expressions, see their misrepresentations of your speech, and of your motives? And did you ever feel the delight of saying, "The best of all is, that God is with us! And, in the name of God, instead of folding up the standard, we will set up our banners. If this is vile, we purpose to be viler still and throw down the gauntlet once more in the name of the God of Truth against the error of the times"?
 
 If you have ever passed through that ordeal, then have you needed the words, "Fear not, for I am with you; be not dismayed for I am your God." "Who are you, that you should be afraid of a man that shall die, and of the son of man which shall be made as grass?" "I will make you unto this people a fenced bronze wall: and they shall fight against you, but they shall not prevail against you." "Fear not; for you shall not be ashamed."
 
-But, my dear Friends, we shall want this word of comfort most of all when we go down the shelving banks of the black river, when we hear the booming of its waves and feel the chill influence of its dark flood, and cannot see to the other side! When the mists of depression of spirit hide from us "Jerusalem the Golden," and our eyes catch no glimpse of the "land that flows with milk and honey," for the soul is occupied with present pain and wrapped in darkness which may be felt. In such a condition: "We linger shivering on the brink, And fear to launch away."
+But, my dear Friends, we shall want this word of comfort most of all when we go down the shelving banks of the black river, when we hear the booming of its waves and feel the chill influence of its dark flood, and cannot see to the other side! When the mists of depression of spirit hide from us "Jerusalem the Golden," and our eyes catch no glimpse of the "land that flows with milk and honey," for the soul is occupied with present pain and wrapped in darkness which may be felt. In such a condition:
+
+> We linger shivering on the brink,  
+> And fear to launch away.  
 
 We talk of death too lightly. It is solemn work to the best of men. It would be no child's play to an Apostle to die. Yet if we can hear the whisper, "Fear not, for I am with you," then the mists will sweep away from the river and that stream which was dark will become clear as crystal, and we shall see the "Rock of Ages" at the bottom of the flood. Then shall we descend with confidence and hear the splash of the death stream and think it music.
 
@@ -74,7 +77,7 @@ Over the edge of that where I stood I gazed with awe, for I saw nothing but a ga
 > When He calls us, why delay?  
 > They are happy who obey.  
 
-Secondly, we come to you, harp in hand, and pray you TO DISTINCTLY HEAR ITS NOTES. The sweetness of all the notes melt into each other but now we shall touch each string severally and by itself, and if you have an educated ear, for all men have not the ear with which to hear the music of God, you will hear that which will solace your souls. "Fear not, for I am with you." What does it mean?
+Secondly, we come to you, harp in hand, and pray you to distinctly hear its notes. The sweetness of all the notes melt into each other but now we shall touch each string severally and by itself, and if you have an educated ear, for all men have not the ear with which to hear the music of God, you will hear that which will solace your souls. "Fear not, for I am with you." What does it mean?
 
 In the first place, it means, "I am with you in deepest sympathy." When you suffer, you suffer not a new pang, Christ knew that pain long ago. As Baxter puts it: "Christ leads me through no darker rooms than He went through before." No, not only has Jesus once suffered, but in all our affliction He is still afflicted. When His servants were persecuted, the Lord Jesus cried out of Heaven to the persecutor, "Why do you persecute Me?" The touching of the feeblest member is felt by the Head. Though He is crowned with light, yet He is not insensitive to the glowing of His feet, which John tells us are like fine brass glowing in the furnace.
 
@@ -109,13 +112,26 @@ And, once more, there is a way by which the Lord can be with His people which is
 
 Describe it, I cannot. It is not a thing for words. It is like what Heaven must be! It is a stray gleam of the sunlight of Paradise fallen upon this sinful world. You are as sure that God is with you as you are sure that you are in the body. Though the walls do not glow, and though the humble floor does not blaze with light, and though no rustle of angels' wings is heard, yet you are like Moses when he put off his shoes from off his feet for the place where you stand has become holy ground to you.
 
-Bowed down, I have felt it, until it seemed as if the spirit must be crushed. Yet, at the same time, lifted up till the exceeding weight of Glory became too great a joy, too overwhelming for flesh and blood! Ah, then, in such moments: "Should earth against my soul engage, And hellish darts be hurled, Then I can smile at Satan's rage, And face a frowning world. Let cares like a wild deluge come, And storms of sorrow fall, May I but safely reach my home, My God, my Heaven, my All! There shall I bathe my weary soul In seas of heavenly rest, And not a wave of trouble roll Across my peaceful breast."
+Bowed down, I have felt it, until it seemed as if the spirit must be crushed. Yet, at the same time, lifted up till the exceeding weight of Glory became too great a joy, too overwhelming for flesh and blood! Ah, then, in such moments:
+
+> Should earth against my soul engage,  
+> And hellish darts be hurled,  
+> Then I can smile at Satan's rage,  
+> And face a frowning world.  
+>
+> Let cares like a wild deluge come,  
+> And storms of sorrow fall,  
+> May I but safely reach my home,  
+> My God, my Heaven, my All!  
+>
+> There shall I bathe my weary soul  
+> In seas of heavenly rest,  
+> And not a wave of trouble roll  
+> Across my peaceful breast.  
 
 I have tried thus, but in a poor way, to show in what senses God does appear to help His people. I beseech you, let each string yield you music, and pass not over these words hurriedly, for there is an abyss of solemn joy within them if you know but how to plunge into it.
 
-Thirdly, having thus bid you distinctly hear the notes of my harp, I must now request you to MEDITATE
-
-Much UPON THE SWEETNESS OF THOSE NOTES. How shall I bring out their delights? Taste and see, my Brothers and Sisters, that the Lord is good! It is the shortest mode and the surest of knowing the sweetness of God's goodness. Let me, however, put a few things before you. The comfort of my text excels all other comfort under Heaven.
+Thirdly, having thus bid you distinctly hear the notes of my harp, I must now request you to meditate much upon the sweetness of those notes. How shall I bring out their delights? Taste and see, my Brothers and Sisters, that the Lord is good! It is the shortest mode and the surest of knowing the sweetness of God's goodness. Let me, however, put a few things before you. The comfort of my text excels all other comfort under Heaven.
 
 Here is a person who has lost all his goods and is very poor. He is met tomorrow morning by a generous friend who says to him, "Fear not, you shall go share and share with me. You know that I am a person of considerable property. Fear not, I know your losses, but I am with you." Now, I feel sure that any person so accosted would go home and say to himself, "Well, now, I have no need of any trouble. I am rich, since one half of what my friend has is more than I had before."
 
@@ -137,13 +153,13 @@ Then we find that individual becomes a traveler, traveling without water in a ba
 
 So, my Brethren, no matter where we may be cast, God is with us! The Manx people have for their motto three legs, so that whichever way you throw them they are sure to stand. But as for the Christian, it is impossible for them to be thrown down by misfortune, or even by the infernal powers. We shall stand, for God upholds us. Carried to the highest heavens to judgment, God is with us! Cast down to the depths of sufferings, still He is with us! Slumbering in the tomb, as our dust soon must, still God is with us!
 
-It is not possible for the Christian to be in any condition in which these words shall not be to him universal medicine for all disease! Universal armor against every weapon! Universal supply of every necessity. Now divide the words, and view them separately. "I AM." Do you know what this means: "I am?" God is self-existent, eternal, independent, sitting on no precarious throne, nor borrowing leave to be. "I am." It is no other than "JEHOVAH," "JAH," "I AM," who has become the Friend of His people. Note the tense of it, not, "I was," not, "I shall be," but, "I am."
+It is not possible for the Christian to be in any condition in which these words shall not be to him universal medicine for all disease! Universal armor against every weapon! Universal supply of every necessity. Now divide the words, and view them separately. "I AM." Do you know what this means: "I am?" God is self-existent, eternal, independent, sitting on no precarious throne, nor borrowing leave to be. "I am." It is no other than "Jehovah," "Jah," "I AM," who has become the Friend of His people. Note the tense of it, not, "I was," not, "I shall be," but, "I am."
 
 We have, yesterday, today, and forever, the same great "I AM." "I am", what? "I am with you," poor, feeble thing as you are. As "I AM" was in the bush, and made it glow with golden fire, transforming it from a despicable bush to become a throne for Deity, so shall it be with you. "I am with you, poor bush that might readily be burned. I will fill you with Myself and make you radiant with glory, for I have set My love upon you from of old."
 
 My spirit bows beneath the majesty of the text! I commend it to your earnest consideration. Bear it with you to your chambers of meditation this afternoon, and God open it up to you, that you may be filled with delight!
 
-In the last place, I would have all my hearers remember that though I have spoken of my text as a harp yielding rarest music, yet IT NEEDS THAT THE EAR BE TUNED BEFORE ITS MUSIC CAN BE APPRECIATED. It is not every man that understands the delights of harmony, even in ordinary music. The clown stands by and thinks that a brass band in the street, with all its horrors, would be almost as good. He does not understand how sound accords with sound. He knows nothing of "linked sweetness long drawn out."
+In the last place, I would have all my hearers remember that though I have spoken of my text as a harp yielding rarest music, yet it needs that the ear be tuned before its music can be appreciated. It is not every man that understands the delights of harmony, even in ordinary music. The clown stands by and thinks that a brass band in the street, with all its horrors, would be almost as good. He does not understand how sound accords with sound. He knows nothing of "linked sweetness long drawn out."
 
 So, Beloved, there are tens of thousands of men who know nothing at all of what it is to have God with them. Yes, this would be their dread, they would be glad to escape from God if they could. Is it so with you, my Hearers? Are you afraid of God? Would you shun His Presence? Is it because you are His enemy, and conscience makes a coward of you? If you were His child your spirit would long for His embrace. And as the hart thirsts for the water brooks, so would you thirst after your God.
 
