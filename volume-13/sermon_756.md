@@ -13,7 +13,7 @@ We gather, then, that the Savior has a greater respect for work than He has for 
 
 We may say of the field of enterprise and work for Christ, as of the land of Havilah, "The gold of that land is good," and Christ thinks it to be so. He estimates the work of faith and labor of love done for Him as of great price.
 
-I shall ask your attention to the text, taking and keeping close to the very words of it. And the thing we observe first, is, a NECESSITY TO LABOR: "I must work." With Christ it was not, "I may if I will." Nor, "I can if I like." It was not the mere possibility and the mere potentiality of work, but an imperious necessity: "I must." He could not help Himself. If I may use such words concerning One who is no less Divine than He was human, He was under restraint. He was bound. He was compelled.
+I shall ask your attention to the text, taking and keeping close to the very words of it. And the thing we observe first, is, a necessity to labor: "I must work." With Christ it was not, "I may if I will." Nor, "I can if I like." It was not the mere possibility and the mere potentiality of work, but an imperious necessity: "I must." He could not help Himself. If I may use such words concerning One who is no less Divine than He was human, He was under restraint. He was bound. He was compelled.
 
 The cords, which bound Him, however, were the cords of His Deity. They were the cords of love which bound Him who is Love. "I must work." It was because He loved the sons of men so well that He could not sit still and see them perish. He could not come down from Heaven and stand here robed in our mortal flesh and be an impassive, careless, loitering spectator of so much evil, so much misery. His heart beat high with desire. He thirsted to be doing good, and His greatest and grandest act, His sacrifice of Himself, was a baptism with which He had to be baptized, and He was straitened until it was accomplished.
 
@@ -31,7 +31,7 @@ So, hopefully looking forward to the recompense of the reward, anticipating the 
 
 Our Savior's ambition was to be crowned with the gems of the souls which He had saved, to be the great Friend of man, the great Redeemer of mankind, and consequently He must work. He must be men's Savior, He cannot be their Savior without working and, therefore, the passion within, the need without, and the great and all-absorbing aim which drew Him onward, furnished three cords which bound Him, like a sacrifice, to the horns of the altar. "I must work."
 
-Now, Brethren, without enlarging upon a theme so tempting, let us ask whether you and I feel the same compulsion, for if we are as Christ was in the world, if we are worthy to be called His followers at all, we must be compelled with His compulsion, we must be weighted with His load. Do we feel as if we MUST work? Oh, there are so many professors who feel that they must feed! No, they must be fed! They do not even get so far into activity as to desire to feed, but they must be fed as with a spoon, and they desire to have certain precious Gospel Truths broken down and dissolved into pap for them, and put into their mouths while they lie in bed, almost too idle to digest the food after they have received it!
+Now, Brethren, without enlarging upon a theme so tempting, let us ask whether you and I feel the same compulsion, for if we are as Christ was in the world, if we are worthy to be called His followers at all, we must be compelled with His compulsion, we must be weighted with His load. Do we feel as if we must work? Oh, there are so many professors who feel that they must feed! No, they must be fed! They do not even get so far into activity as to desire to feed, but they must be fed as with a spoon, and they desire to have certain precious Gospel Truths broken down and dissolved into pap for them, and put into their mouths while they lie in bed, almost too idle to digest the food after they have received it!
 
 There are some other Christians who feel as if they must always find fault with other people's work, as if it were a passion with them to criticize and judge. Many besides are there who must be excused from working, they will do anything to get out of any task, they count it no small thing if they can escape giving to any charitable or Christian object, or if they can avoid exposing their own precious selves to any kind of sorrow or toil in the service of the Lord Jesus.
 
@@ -39,8 +39,13 @@ I trust we are not of such a craven spirit as this. If we are, then let us leave
 
 I have heard the Gospel which tells me that there is life for a look at the Crucified One. I have looked to Christ, and I am saved. Then why must I work? Why, because I am saved! If He bought me with His blood, I must spend myself for Him who bought me. If He sought me by His Spirit, I must give myself to Him who sought me. If He has taught me by His Grace, I must tell others what I have learned from Him. The motive which constrains to Christian activity is not so base and selfish a one as that of obtaining Heaven by it!
 
-Why, even a Romanist (a masterly Romanist however, strange anomaly that so sweet a song should come from so foul a cage of unclean birds!) could sing: "My God, I love You not because I hope for Heaven thereby, Nor yet because who love you not Must burn eternally.
+Why, even a Romanist (a masterly Romanist however, strange anomaly that so sweet a song should come from so foul a cage of unclean birds!) could sing:
 
+> My God, I love You not because  
+> I hope for Heaven thereby,  
+> Nor yet because who love You not  
+> Must burn eternally.  
+>
 > You, O my Savior, You did me  
 > Upon the Cross embrace;  
 > For me did bear the nails and spear,  
@@ -56,7 +61,7 @@ I hope you do feel, Brethren, that the love of Christ which is in you makes you 
 
 Our city missionaries must sometimes feel marvelously enthusiastic, I should think, from the sights which they see and the sounds which they hear. They must feel as if they must work, for men are dying, Hell is filling, the Gospel is not taken to the people and the people do not come to the Gospel, and the multitude go their way as though there were no Christ, and no Heaven, and would to God I could have said, no Hell after they died! But there is their portion, and they live here as if they were preparing themselves for inheriting it! May we, then, understand, by God's Grace, the first part of the text, "I must work."
 
-Now, secondly, let us notice that here is a SPECIALITY OF WORK: "I must work the works of Him that sent Me." There are plenty of people who say, "I must work," but there are very few who say, "I must work the works of Him that sent me." Oh, the work, the brain-work and head-work that is done in London to get rich! It is very proper, of course. If a man wants to get on in the world, he must work. It is very well. I would not say to any young man, "Be idle."
+Now, secondly, let us notice that here is a speciality of work: "I must work the works of Him that sent Me." There are plenty of people who say, "I must work," but there are very few who say, "I must work the works of Him that sent me." Oh, the work, the brain-work and head-work that is done in London to get rich! It is very proper, of course. If a man wants to get on in the world, he must work. It is very well. I would not say to any young man, "Be idle."
 
 If you want to prosper in anything, throw your whole soul into it, and work as hard as you can. Many, many people feel the compulsion of working to get on, or working to support a family. Very proper, indeed! But I need not exhort you to do it, for I dare say, as honest and moral men, you will feel that compulsion without any exhortation from me!
 
@@ -94,7 +99,7 @@ But the next thing is this, they make all their members and all their admirers e
 
 Oh, God forbid! May the old spirit, and the old valor, and the old enthusiasm come back to the Christian Church and there is enough yet to save London! There is enough yet for us to send back the tide of Popery! There is enough yet to vindicate the Gospel, and to show that it is yet a thing of power, mighty through God to the pulling down of strongholds! Only we must come to this, that our work, our activity, must drive itself into the special channel of doing the work of Him that has sent us, and doing it at once.
 
-Thirdly, as there is a necessity for work, and a specialty of effort, so there is a LIMITATION OF TIME: "I must work the work of Him that sent Me while it is day." This limitation of time sounds very weightily to my ears, coming, as it does, from the lips of Christ. Jesus Christ, the Immortal, the Ever-living, yet says, "I, I must work while it is day!" My Brethren, if anyone could have postponed work, it was our eternal Lord! See Him. He is in Heaven, but He is still working!
+Thirdly, as there is a necessity for work, and a specialty of effort, so there is a limitation of time: "I must work the work of Him that sent Me while it is day." This limitation of time sounds very weightily to my ears, coming, as it does, from the lips of Christ. Jesus Christ, the Immortal, the Ever-living, yet says, "I, I must work while it is day!" My Brethren, if anyone could have postponed work, it was our eternal Lord! See Him. He is in Heaven, but He is still working!
 
 There are a thousand ways in which He can serve His Church. We believe not in the intercession of the saints, they cannot work for us in that land of rest after they quit this world of labor, but we do believe in the intercession of the saints' Master. He can pray for us still. The Head of the Church is always active, and yet He said, "I must work while it is day!" Then, see with what force it comes to you and to me, for we can do nothing more with our hands when once the turf has covered our head! All, as to work, is over then, so heed it as an omen. That word is full of portent which you hear: "while it is day."
 
@@ -106,7 +111,10 @@ Some of you are getting gray and your day cannot be very much longer. Eventide h
 
 Dear Mother, if you had only another thirty days, another month to live, and you knew it, how you would pray for your children during that month! How you would talk to those dear boys about their souls, though you have never taken them aside and spoken to them before! Dear Sunday school Teachers, if you knew that you should only go to school one, or two, or three, or four more Sundays, how solemnly would you now begin to talk with those children in your class! And yet, remember, this is the way in which we ought to live and work always.
 
-You know Baxter's words: "I preach as tho'I ne'er might preach again, And as a dying man to dying men."
+You know Baxter's words:
+
+> I preach as though I ne'er might preach again,  
+> And as a dying man to dying men.  
 
 Let us do the same. Then, supposing you should live ten, twenty, or thirty years longer, yet how brief those years are! And when they are gone, they seem but as yesterday! So let me even ring the bell myself. Let me sound the text like a knell in your ear, "While it is day! While it is day! While it is day!" And, having thus reminded you of your own mortality, let me give the text another sound, as I bid you remember that the "day" may soon be passed, not to you, but to the objects of your care. Let me, if you would loiter, remind you that there are two lives here to be insured, another life as well as your own. "While it is day."
 
@@ -118,7 +126,7 @@ You came over Blackfriars Bridge tonight, you may drop down dead on it as you go
 
 And after having very much enjoyed themselves, they went to bed. At midnight, the whole family were startled from their sleep, for the Highland chieftain was in the pangs and agonies of death. He went up to his chamber in sound health, but died in the night. The impression upon Chalmers' mind was this: "Had I known that he would have so died, would not the evening have been differently spent? Then ought it not to have been spent in a very different manner by men all of whom might have died?" He felt as if the blood of that man's soul, in some measure, fell upon him. The occurrence itself was a lasting blessing to him. May it be so to us in the hearing of the story, and from this time forth may we work with all our might "while it is day."
 
-We close tonight with the last words of the text: "The night comes when no man can work." Here is the REMEMBRANCER OF OUR MORTALITY. "The night comes." You cannot put it off. As sure as night comes in its due season to the earth, so death comes to you. There are no arts nor maneuvers by which night can be deferred or prevented, nor by which death can be postponed or altogether adjourned. "The night comes," however much we may dread it, or however much we may long for it. It comes with stealthy tread, surely, and in its appointed time. "The night comes."
+We close tonight with the last words of the text: "The night comes when no man can work." Here is the remembrancer of our mortality. "The night comes." You cannot put it off. As sure as night comes in its due season to the earth, so death comes to you. There are no arts nor maneuvers by which night can be deferred or prevented, nor by which death can be postponed or altogether adjourned. "The night comes," however much we may dread it, or however much we may long for it. It comes with stealthy tread, surely, and in its appointed time. "The night comes."
 
 The night comes for the pastor who has labored for his flock. For the evangelist who has preached with earnestness. For the Sunday school teacher who has loved her charge. For the missionary who has worked for souls. "The night comes." The night comes for the sitters in the pews. For the father, the mother, the daughter, the husband, the wife. "The night comes." Dear Hearer, shall you need to be reminded that the night comes for you?
 
@@ -144,4 +152,4 @@ Is it not strange that while we are so much in earnest about you, you are not in
 
 Well, now, if you should be lost forever, it will be no wonder, will it? You do not value yourself at all. You throw yourself away. Who shall be blamed for this? O dear Hearers, shall this be one of the thorns in your pillow forever? "I took no thought about my soul. I set no value upon it, but I carelessly cast it away?" Shall this keen remorse keep up the flames unquenchable that shall forever torture your conscience: "I would not think of everlasting things. I played the fool, and danced my way into Hell. I trifled where God was earnest. I was careless where ministers wept. I was frivolous where Christ bled"?
 
-Oh, I beseech you, consider your ways, and remember that whoever believes in the Lord Jesus Christ shall be saved! Believe in Him! Trust Him! That is the way of salvation. Rest upon Him! And the Lord grant that when you have so done, being saved, you may feel the impulse of my text and say, "I, too, must join with the band of workers saved by Christ! I, too, must say as Christ said, 'I must work the works of Him that sent Me while it is day, for the night comes, when no man can work.' "
+Oh, I beseech you, consider your ways, and remember that whoever believes in the Lord Jesus Christ shall be saved! Believe in Him! Trust Him! That is the way of salvation. Rest upon Him! And the Lord grant that when you have so done, being saved, you may feel the impulse of my text and say, "I, too, must join with the band of workers saved by Christ! I, too, must say as Christ said, 'I must work the works of Him that sent Me while it is day, for the night comes, when no man can work.'"
