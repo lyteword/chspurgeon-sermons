@@ -1,6 +1,6 @@
 # Sermon 3186 | Peter's Shortest Prayer
 
-> "Lord, save me."  
+> Lord, save me.  
 > Matthew 14:30  
 
 I am going to talk about the characteristics of this prayer in the hope that there may be many who have never yet prayed aright, who may make this their own prayer, tonight, so that from many a person here present this cry may silently go up, "Lord, save me."

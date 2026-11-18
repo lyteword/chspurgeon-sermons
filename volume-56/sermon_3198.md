@@ -1,8 +1,9 @@
 # Sermon 3198 | What Christians Were and Are
 
-> "And were by nature the children of wrath, even as others."  
+> And were by nature the children of wrath, even as others.  
 > Ephesians 2:3  
-> "The Spirit itself bears witness with our spirit that we are the children of God, and if children, then heirs, heirs of God, and joint heirs with Christ."  
+
+> The Spirit itself bears witness with our spirit that we are the children of God, and if children, then heirs, heirs of God, and joint heirs with Christ.  
 > Romans 8:16-17  
 
 These two texts will furnish me with two familiar but most important themes, what Christians were and what they are. There are great and vital differences between what they once were and what they now are, and these are implied or indicated by the two expressions, "the children of wrath" and, "the children of God." There is so much instruction in each of our texts that we will proceed at once to consider them without any further introduction.

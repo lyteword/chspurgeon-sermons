@@ -1,6 +1,6 @@
 # Sermon 3196 | Noah's Eminence
 
-> "And the Lord said unto Noah, Come you and all your house into the ark, for you have I seen righteous before Me in this generation."  
+> And the Lord said unto Noah, Come you and all your house into the ark, for you have I seen righteous before Me in this generation.  
 > Genesis 7:1  
 
 God keeps His eyes upon the sons of men and He searches among them for certain individuals upon whom He delights to fix His gaze. These are not the kings and princes. These are not the men of talent or of fashion. These are not the men who are regarded by their fellows as famous. When God speaks of having seen Noah, He speaks of having seen one of the kind of men for whom He was looking, namely, a righteous man. There is not a righteous man upon the earth whom God does not see. He may be in a very obscure position, his circumstances may be those of poverty, he may be anything but famous. But as long as he is righteous, God delights to look upon him. He looks upon him so as to take care of him so that if destruction is to come upon the face of the earth, an ark is to be prepared for the preservation of righteous Noah and his family. "The eyes of the Lord are upon the righteous, and His ears are open unto their cry." Whoever else He does not see, He is sure to see the righteous! But "the face of the Lord is against them that do evil, to cut off the remembrance of them from the earth."

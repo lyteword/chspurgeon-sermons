@@ -1,11 +1,13 @@
 # Sermon 3187 | The Great Pot and the Twenty Loaves
 
-> "Set on the great pot."  
+> Set on the great pot.  
 > 2 Kings 4:38  
-> "Then bring meal."  
+
+> Then bring meal.  
 > 2 Kings 4:41  
 
-"Give unto the people that they may eat." 2 Kings 4:42.
+> Give unto the people that they may eat.  
+> 2 Kings 4:42  
 
 We scarcely need go over the story. There was a shortage of food in the land. Elisha came to the college of the Prophets, which consisted of about a hundred Brothers, and found that they were in need as the result of the famine. While he was teaching the young men, he observed that they looked as if they needed food and he found that there was none in the house. Elisha, therefore, ordered his servant to take the great pot, which generally stood upon long legs over the fire, and make a nourishing soup in it. True, there was nothing to put in this pot, but he believed that God would provide. It was for him to set the pot over the fire, and it was for the Lord to fill it! Some of the young men were not so sure as Elisha was that God could fill it without their help, and one, with great eagerness, went out to gather something from the fields. His help turned out to be of small service, for he brought home poisonous cucumbers, cut them up and threw them into the broth. And, lo, when they began to pour it out, it was acrid to the taste, gave them a terrible colic, and made them cry out, "There is death in the pot!"
 
