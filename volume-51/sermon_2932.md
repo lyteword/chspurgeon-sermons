@@ -3,7 +3,8 @@
 > If I justify myself, my on mouth shall condemn me.  
 > Job 9:20  
 
-"It is God that justifies. Who is he that condemns?" Romans 8:33,34.
+> It is God that justifies. Who is he that condemns?  
+> Romans 8:33,34  
 
 The great question for the human race to answer has always been this, "How can man be just with God?" It is clear to every conscience that is at all awake that the thrice-holy God demands obedience to His Law and that disobedience to the Divine Law will certainly entail punishment. Hence the grand essential for each one of us is to be right towards God, to be accounted just even at His judgment bar. This is a most important matter at all times, but it appears to increase in importance as we advance in years and get nearer to that great testing time when the Lord shall put everyone into His unerring balances, to weigh him and so to prove what he really is. Woe unto the man who shall stand before the Bar of God unjustified! But happy shall he be who, in that last dread day, shall be approved and accepted by the Judge of all the earth!
 
