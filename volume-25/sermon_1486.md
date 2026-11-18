@@ -1,7 +1,7 @@
 # Sermon 1486 | The Shame and Spitting
 
-> "I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting."  
-> Isaiah 50:6.  
+> I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.  
+> Isaiah 50:6  
 
 Of whom speaketh the prophet this? Of himself or of some other? We cannot doubt but what Isaiah here wrote concerning the Lord Jesus Christ. Is not this one of the prophecies to which our Lord Himself referred in the incident recorded in the eighteenth chapter of Luke's Gospel at the thirty-first verse? "Then he took unto him the twelve, and said unto them, Behold, we go up to Jerusalem, and all things that are written by the prophets concerning the Son of man shall be accomplished. For he shall be delivered unto the Gentiles, and shall be mocked, and spitefully entreated, and spitted on: and they shall scourge him and put him to death." Such a remarkable prophecy of scourging and spitting as this which is now before us must surely refer to the Lord Jesus; its highest fulfillment is assuredly found in Him alone.
 
