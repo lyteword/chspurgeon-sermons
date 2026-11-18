@@ -3,9 +3,8 @@
 > I have kept Your precepts and Your testimonies: for all my ways are before You.  
 > Psalm 119:168  
 
-"I have gone astray like a lost sheep; seek Your servant; for I do not forget Your commandments."
-
-Psalm 119:176.
+> I have gone astray like a lost sheep; seek Your servant; for I do not forget Your commandments.  
+> Psalm 119:176  
 
 If anyone says that these two texts contradict one another, I say that they do not. They form a paradox and they are both true, and true of the same man, at the same time. I will read them to you again. "I have kept Your precepts and Your testimonies: for all my ways are before You." "I have gone astray like a lost sheep; seek Your servant; for I do not forget Your commandments."
 
