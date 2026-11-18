@@ -1,7 +1,7 @@
 # Sermon 2085 | A Dirge for the Down-grade and a Song For Faith
 
-> "Rejoice for joy with her, all you that mourn for her."  
-> Isaiah 66:10.  
+> Rejoice for joy with her, all you that mourn for her.  
+> Isaiah 66:10  
 
 A mourner is always an interesting person. We pass by joyful people without a thought. But when we see the ensigns of woe we pause and sympathize even if we dare not enquire. The new widow, the fatherless child, the bereaved husband, these have a history in which our common humanity is interested. "One touch of nature makes the whole world kin." And when that natural touch comes from the hand of sorrow that kinship is quick to show itself.
 

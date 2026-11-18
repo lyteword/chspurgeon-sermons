@@ -1,7 +1,7 @@
 # Sermon 2089 | Profitable Mixture
 
-> "For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it."  
-> Hebrews 4:2.  
+> For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it.  
+> Hebrews 4:2  
 
 The people that came out of Egypt were an interesting company, if we think of what God had done on their behalf and of what he proposed to do for them. They had been lifted up from a state of slavery into one of freedom and they were on their way to a country where they were to be settled, each one upon his own portion of land, therein to become priests and kings unto Jehovah. What an unhappy circumstance that the high ideal set before them was never realized by any of them save two lone men, Joshua and Caleb!
 

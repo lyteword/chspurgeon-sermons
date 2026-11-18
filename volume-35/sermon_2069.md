@@ -1,7 +1,7 @@
 # Sermon 2069 | My Own Personal Holdfast
 
-> "My God will hear me."  
-> Micah 7:7.  
+> My God will hear me.  
+> Micah 7:7  
 
 Observe that the Prophet has no sort of doubt. He insinuates no "if," no "an," no "but," no "perhaps," but he says it straight out as a fact of which he is infallibly convinced: "My God will hear me." What a blessed thing it is that the child of God knows and feels that this is true! Wherever he may fail, he will succeed at the Throne! If all other friendly ears are closed, his Friend of friends will hear him. Lose your confidence in the power of prayer and I know not what remains for you. If you are obliged to say, "My God will not hear me," if that is the language of your unbelieving spirit, your Achilles tendon is cut and you cannot stand with confidence, much less run with delight.
 

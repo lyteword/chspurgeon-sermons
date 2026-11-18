@@ -1,7 +1,7 @@
 # Sermon 2092 | God's Own Gospel Call
 
-> "Incline your ear and come unto Me: hear and your soul shall live. And I will make an Everlasting Covenant with you, even the sure mercies of David."  
-> Isaiah 55:3.  
+> Incline your ear and come unto Me: hear and your soul shall live. And I will make an Everlasting Covenant with you, even the sure mercies of David.  
+> Isaiah 55:3  
 
 This very memorable chapter may be called God's own Gospel sermon. In reading it we forget Isaiah and only remember Jehovah. He speaks not here by the Prophet but in the first Person. God Himself says, "Incline your ear and come unto Me." Now, we value every single word of Holy Writ, but especially those words which come directly from the mouth of God Himself, not so much spoken for Him as by Him. Take heed that you turn not away from Him that speaks from Heaven. These are not my words but the Words of the living God; it is not I that invite your attention to myself. It is your Maker, your God, saying to you, "Incline your ear and come unto Me: hear and your soul shall live. And I will make an Everlasting Covenant with you, even the sure mercies of David."
 

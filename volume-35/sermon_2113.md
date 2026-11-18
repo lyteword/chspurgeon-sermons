@@ -1,9 +1,10 @@
 # Sermon 2113 | By The Fountain
 
-> "Joseph is a fruitful bough, even a fruitful bough by a well; whose branches run over the wall."  
-> Genesis 49:22.  
+> Joseph is a fruitful bough, even a fruitful bough by a well; whose branches run over the wall.  
+> Genesis 49:22  
 
-"And of Joseph he said, Blessed of the Lord be his land, for the precious things of Heaven, for the dew and for the deep that couches beneath" Deuteronomy 32:13.
+> And of Joseph he said, Blessed of the Lord be his land, for the precious things of Heaven, for the dew and for the deep that couches beneath  
+> Deuteronomy 32:13  
 
 Dear friends, we long to have many converts. We count that Church happy to which God adds daily of such as are being saved. But we are very much concerned about the quality of our converts. We do not wish to make up a Church with a number of shallow professors, whose religion lies upon the surface, and is of a doubtful character. We are very anxious that we should have those in our fellowship who are thoroughly converted, richly experienced and fully instructed in the deep things of God.
 

@@ -1,7 +1,7 @@
 # Sermon 2088 | The Form of Godliness Without the Power
 
-> "Having a form of godliness but denying the power thereof: from such turn away."  
-> 2 Timothy 3:5.  
+> Having a form of godliness but denying the power thereof: from such turn away.  
+> 2 Timothy 3:5  
 
 Paul warns us of certain characters which will appear in the last times. It is a very terrible list. The like have appeared in other days but we are led by his warning to apprehend that they will appear in greater numbers in the last days than in any previous age. "Lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy, without natural affection, trucebreakers, false accusers, incontinent, fierce, despisers of those that are good, traitors, heady, high-minded, lovers of pleasures more than lovers of God."
 

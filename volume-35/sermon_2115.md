@@ -1,7 +1,7 @@
 # Sermon 2115 | The Drought of Nature, the Rain of Grace and the Lesson Therefrom
 
-> "And their nobles have sent their little ones to the waters: they came to the pits and found no water. They returned with their vessels empty. They were ashamed and confounded and covered their heads. Because the ground is parched, for there was no rain in the earth, the plowmen were ashamed, they co vered their heads. Are there any among the vanities of the Gentiles that can cause rain? Or can the hea vens give showers? Are not you He, O Lord our God? Therefore we will wait upon You: for You have made all these things."  
-> Jeremiah 14:3, 4,22.  
+> And their nobles have sent their little ones to the waters: they came to the pits and found no water. They returned with their vessels empty. They were ashamed and confounded and covered their heads. Because the ground is parched, for there was no rain in the earth, the plowmen were ashamed, they co vered their heads. Are there any among the vanities of the Gentiles that can cause rain? Or can the hea vens give showers? Are not you He, O Lord our God? Therefore we will wait upon You: for You have made all these things.  
+> Jeremiah 14:3, 4,22  
 
 It is my heart's desire and earnest prayer that many in this house may this morning say with the Prophet, "O Lord our God, we will wait upon You." I shall not be satisfied to have delivered a discourse, nor for you to have heard it, and even approved of it, unless there shall come from it this delightful fruit, that those far off from God shall be drawn near to Him. And that they shall say, in very deed and of a truth, "Therefore we will wait upon You." In God alone can men live happily. And if they would be recovered from their fallen state, it is to the Lord their God that they must turn, Oh, that they would wait upon Him!
 

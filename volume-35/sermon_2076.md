@@ -1,7 +1,7 @@
 # Sermon 2076 | Sounding Out the Word of the Lord
 
-> "For from you sounded out the Word of the Lord not only in Macedonia and Achaia but also in every place your faith to God-ward is spread abroad; so that we need not to speak anything."  
-> 1 Thessalonians 1:8.  
+> For from you sounded out the Word of the Lord not only in Macedonia and Achaia but also in every place your faith to God-ward is spread abroad; so that we need not to speak anything.  
+> 1 Thessalonians 1:8  
 
 Paul went to Thessalonica from Philippi with a sore back but with a sound heart. He went resolved to spend and to be spent for his Lord in that city. On the first three Sabbaths he spoke to the Jews in the synagogue but he soon found that they were obstinately resolved to reject Jesus of Nazareth as the Messiah. Therefore he directed his attention to the heathen of Thessalonica and among them he had wonderful success. Large numbers of persons, some of honorable rank, turned from their idols to worship the living God and he soon gathered about him an enthusiastic people.
 

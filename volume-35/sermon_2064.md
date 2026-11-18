@@ -1,7 +1,7 @@
 # Sermon 2064 | Essential Points In Prayer
 
-> "The Lord appeared to Solomon the second time, as He had appeared unto him at Gibeon. And the Lord said unto him, I have heard your prayer and your supplication, that you have made before Me: I have hallowed this house, which you have built, to put My name there forever. And My eyes and My heart shall be there perpetually."  
-> 1 Kings 9:2,3.  
+> The Lord appeared to Solomon the second time, as He had appeared unto him at Gibeon. And the Lord said unto him, I have heard your prayer and your supplication, that you have made before Me: I have hallowed this house, which you have built, to put My name there forever. And My eyes and My heart shall be there perpetually.  
+> 1 Kings 9:2,3  
 
 Beloved friends, it was an exceedingly encouraging thing to Solomon that the Lord should appear to him before the beginning of his great work of building the temple. See in the third chapter of this First Book of the Kings, at the fifth verse, "In Gibeon the Lord appeared to Solomon in a dream by night: and God said, Ask what I shall give you." Some of us remember how the Lord was with us at the beginning of our life-work, when we started as young men and women newly converted, full of zeal and earnestness, determined to do something for the Lord. How we sought His face! With what simplicity, with what tenderness of heart, with what dependence upon Him and diffidence as to ourselves!
 

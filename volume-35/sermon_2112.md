@@ -1,7 +1,7 @@
 # Sermon 2112 | Peace: How Gained, How Broken
 
-> "I will hear what God the Lord will speak: for He will speak peace unto His people and to His saints: but let them not turn again to folly."  
-> Psalm 85:8.  
+> I will hear what God the Lord will speak: for He will speak peace unto His people and to His saints: but let them not turn again to folly.  
+> Psalm 85:8  
 
 "I will hear what God the Lord will speak." There were voices and voices. There were voices of the past concerning God's wondrous mercy to His people: "You have been favorable unto Your land; You have brought back the captivity of Jacob." But mingled with these were the sad voices of the present. He heard the wailing and the pleading of those who said, "Will You be angry with us forever? Will You draw out Your anger to all generations?" From this mingling of singing and sighing, the Psalmist turned away and cried, "I will hear what God the Lord will speak. I will get me into the secret place of the tabernacles of the Most High. I will hear that voice from between the cherubim which speaks peace to the soul."
 

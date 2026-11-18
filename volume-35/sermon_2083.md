@@ -1,7 +1,7 @@
 # Sermon 2083 | One Lost Sheep
 
-> "How think you? If a man has an hundred sheep and one of them is gone astray, does he not leave the ninety and nine and go into the mountains and seek that which is gone astray? And if he should find it, verily I say unto you, he rejoices more of that sheep, than of the ninety and nine which went not astray."  
-> Matthew 18:12,13.  
+> How think you? If a man has an hundred sheep and one of them is gone astray, does he not leave the ninety and nine and go into the mountains and seek that which is gone astray? And if he should find it, verily I say unto you, he rejoices more of that sheep, than of the ninety and nine which went not astray.  
+> Matthew 18:12,13  
 
 This passage occurs in a discourse of our Savior against despising one of those little ones that believe in Him. He foretells a dreadful doom for those who, in their contempt for the little ones, cause them to stumble. And He forbids that contempt by a variety of forcible arguments upon which we cannot now dwell. There is a tendency, apparent at this present time, to think little of the conversion of individuals and to look upon the work of the Holy Spirit upon each separate person as much too slow a business for this progressive age.
 

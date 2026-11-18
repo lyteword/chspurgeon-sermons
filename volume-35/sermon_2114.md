@@ -1,7 +1,7 @@
 # Sermon 2114 | The Burden of the Word of the Lord
 
-> "The burden of the Word of the Lord."  
-> Malachi 1:1.  
+> The burden of the Word of the Lord.  
+> Malachi 1:1  
 
 The Prophets of old were no triflers. They did not run about as idle tellers of tales, but they carried a burden. Those who at this time speak in the name of the Lord, if they are, indeed, sent of God, dare not sport with their ministry or play with their message. They have a burden to bear: "The burden of the Word of the Lord." And this burden puts it out of their power to indulge in levity of life. I am often astounded at the way in which some who profess to be the servants of God make light of their work; they jest about their sermons as if they were so many comedies or farces.
 

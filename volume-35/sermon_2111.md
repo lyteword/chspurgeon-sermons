@@ -1,7 +1,7 @@
 # Sermon 2111 | Filling With the Spirit and Drunkenness With Wine
 
-> "And be not drunk with wine, wherein is excess. But be filled with the Spirit."  
-> Ephesians 5:18.  
+> And be not drunk with wine, wherein is excess. But be filled with the Spirit.  
+> Ephesians 5:18  
 
 While I was reading to you just now, in the fourth and fifth chapters of Paul's letter to the Ephesian Believers, I could not help feeling that you could little understand the elevation and the purity of the precepts of the Apostle, as they must have appeared to the inhabitants of such a wicked city as Ephesus. When first read, these precepts must have seemed like an unearthly light.
 

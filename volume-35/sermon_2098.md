@@ -1,6 +1,6 @@
 # Sermon 2098 | Where Go You?
 
-> "But He knows the way that I take: when He has tried me, I shall come forth as gold."  
+> But He knows the way that I take: when He has tried me, I shall come forth as gold.  
 > Job 23:10  
 
 On several Sabbath mornings of late I have earnestly handled spiritual subjects which I trust may have been for the edification of the people of God. But it will not do to continue in that line. I am a fisher of men as well as a shepherd of the flock. I must attend to both offices. Here are souls perishing, sinners that need to be saved by Christ, and therefore I must leave the flock and go after the wanderers. I must lay down the crook and take up the net.

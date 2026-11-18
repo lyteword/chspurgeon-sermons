@@ -1,7 +1,7 @@
 # Sermon 2099 | Concerning the Consolations Of God
 
-> "Are the consolations of God too small for you? Is there any secret thing with you?"  
-> Job 15:11.  
+> Are the consolations of God too small for you? Is there any secret thing with you?  
+> Job 15:11  
 
 These are the words of Eliphaz, one of those three friends of Job who blundered dreadfully over his case. Their words are not to be despised. For they were men in the front rank of knowledge and experience. Eliphaz says, "With us are both the gray-headed and very aged men, much elder than your father." Their errors were not the superficial mistakes of fools but the profound reasoning of men of light and leading. Their utterances are, at least, equal to anything our own learned men may have to say on the same problem.
 

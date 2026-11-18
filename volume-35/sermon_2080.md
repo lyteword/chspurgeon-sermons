@@ -1,7 +1,7 @@
 # Sermon 2080 | The Power of His Resurrection
 
-> "That I may know Him and the power of His resurrection."  
-> Philippians 3:10.  
+> That I may know Him and the power of His resurrection.  
+> Philippians 3:10  
 
 Paul, in the verses before the text, had deliberately laid aside his own personal righteousness. "But what things were gain to me, those I counted loss for Christ, for whom I have suffered the loss of all things and do count them but dung, that I may win Christ and be found in Him, not having my own righteousness, which is of the Law." It is insinuated in these days that a belief in the righteousness of faith will lead men to care little for good works, that it will act as a sedative to their zeal, and therefore they will exhibit no ardor for holiness. The very reverse is seen in the case of the Apostle and in the case of all who cast aside the righteousness of the Law, that they may be clothed with that righteousness "which is through the faith of Christ, the righteousness which is of God by faith."
 

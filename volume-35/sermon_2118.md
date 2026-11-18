@@ -1,6 +1,6 @@
 # Sermon 2118 | The Planter of the Ear Must Hear
 
-> "He that planted the ear, shall He not hear? He that formed the eye, shall He not see?"  
+> He that planted the ear, shall He not hear? He that formed the eye, shall He not see?  
 > Psalm 94:9  
 
 The character of a man hinges upon his relation to God. You may know what manner of man he is and what are his communications, if you find out how he stands towards God. With many, God is a mere name, a word to be pronounced more or less reverently. But nothing more. He is not a force operating upon their daily lives. His Glory is no motive of action, no object of desire, no joy of their heart. "God is not in all their thoughts." And in consequence their lives are not conformed to His holy Law. Blessed be the Most High, there are a few to whom God is everything, the First and Last, the Center and Circumference of their being.

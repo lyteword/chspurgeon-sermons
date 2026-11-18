@@ -1,7 +1,7 @@
 # Sermon 2094 | Foundation Work
 
-> "And the king commanded and they brought great stones, costly stones and hewed atones, to lay the foundation of the house."  
-> 1 Kings 5:17.  
+> And the king commanded and they brought great stones, costly stones and hewed atones, to lay the foundation of the house.  
+> 1 Kings 5:17  
 
 "The king commanded," that is the beginning of all. Holy zeal waits for the king's orders. But as soon as the command was given there was neither pause nor hesitation: "the king commanded and they brought." Oh, that it were always so in the Church of God. That the King's command were at once followed by His people's obedience! That obedience was true to every detail: "The king commanded and they brought great stones, costly stones, and hewed stones." They did not omit one particular, or deviate in the least degree. The advice of the Blessed Virgin to the servants at the marriage feast is our advice to all workers: "Whatsoever He says unto you, do it."
 

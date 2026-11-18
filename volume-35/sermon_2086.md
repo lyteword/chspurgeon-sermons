@@ -1,7 +1,7 @@
 # Sermon 2086 | Taking Possession Of Our Inheritance
 
-> "Moses My servant is dead. Now therefore arise, go over this Jordan, you and all this people, unto the land which I do give to them, even to the children of Israel. Every place that the sole of your foot shall tread upon, that have I given unto you, as I said unto Moses."  
-> Joshua 1:2,3.  
+> Moses My servant is dead. Now therefore arise, go over this Jordan, you and all this people, unto the land which I do give to them, even to the children of Israel. Every place that the sole of your foot shall tread upon, that have I given unto you, as I said unto Moses.  
+> Joshua 1:2,3  
 
 Under the leadership of Moses the children of Israel had been journeying towards the land of promise. Owing to their waywardness, what might have been done in less than a month occupied many years. They wandered up and down in the wilderness, sometimes close on the border of their inheritance and other times lost in the great desert. Alas, many of God's people are still in this unsatisfactory condition; they have come out of Egypt; the depths have swallowed up their adversaries and they are on the way to the promised heritage. But they have not yet entered into rest. They will, we trust, ultimately reach the peace of God which passes all understanding, for they have sufficient faith to prove them to be God's people and therefore, the Lord will surely bring them in.
 

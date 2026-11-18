@@ -1,7 +1,7 @@
 # Sermon 2095 | The Lamb In Glory
 
-> "And I beheld and, lo, in the midst of the Throne and of the four living creatures and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth. And He came and took the book out of the right hand of Him that sat upon the Throne."  
-> Revelation 5:6, 7.  
+> And I beheld and, lo, in the midst of the Throne and of the four living creatures and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth. And He came and took the book out of the right hand of Him that sat upon the Throne.  
+> Revelation 5:6, 7  
 
 The Apostle John had long known the Lord Jesus as the Lamb. That was his first view of Him, when the Baptist, pointing to Jesus, said, "Behold the Lamb of God, which takes away the sin of the world." He had been very familiar with this blessed Personage, having often laid his head upon His bosom, feeling that this tender goodness of the Savior proved Him to be in nature gentle as a lamb. He had beheld Him when He was brought "as a lamb to the slaughter," so that the idea was indelibly fixed upon his mind that Jesus, the Christ, was the Lamb of God.
 
