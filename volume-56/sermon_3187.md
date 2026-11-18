@@ -1,8 +1,9 @@
 # Sermon 3187 | The Great Pot and the Twenty Loaves
 
-"Set on the great pot." 2 Kings 4:38.
-
-"Then bring meal." 2 Kings 4:41.
+> "Set on the great pot."  
+> 2 Kings 4:38  
+> "Then bring meal."  
+> 2 Kings 4:41  
 
 "Give unto the people that they may eat." 2 Kings 4:42.
 
