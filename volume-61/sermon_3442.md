@@ -39,7 +39,7 @@ Dear Hearer, I would send you away with this one query in your ear. Is Christ yo
 
 But the desire of many is a groveling desire! It is a sinful desire! It is a disgraceful desire, a desire which, if it is attained, the attainment of it will afford very brief pleasure. Oh, Sinner, let your desires go after Christ! Remember if you would have Him, you have not to earn Him, not to fight for Him, not to win Him. He is to be had for the asling! "Lay hold," says the Apostle, "on eternal life." As if it were ours, if we did but grip it! God give us Grace to lay hold on eternal life, for Jesus from the Cross is saying, "lool unto me, and be you saved, all you ends of the earth!" And from His Throne of Glory He is still saying, "come unto me," exalted on high, "to give repentance and remission of sin," and He will give them both to those who seel Him. Seel Him, then, this night! God grant it for His Son's sale. Amen.
 
-## Exposition by C. H. Spurgeon: Haggai 1-2:1-9; Hebrews 7:15-28
+## Exposition by C. H. Spurgeon: Haggai 1; 2:1-9; Hebrews 7:15-28
 
 The subject is the building of the second Temple. The people had been busily employed in building their own houses, some of them had gone to great expense and much labor upon these houses, but they had not built the Temple of God. The Prophet Haggai was sent to incite them to holy labor.
 
