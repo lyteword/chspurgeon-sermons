@@ -3,9 +3,8 @@
 > I go to prepare a place for you.  
 > John 14:2  
 
-"Giving thanks unto the Father, who has qualified us to be partakers of the inheritance of the saints in the light."
-
-Colossians 1:12.
+> Giving thanks unto the Father, who has qualified us to be partakers of the inheritance of the saints in the light.  
+> Colossians 1:12  
 
 My real text is not in the Bible, it is one of those Christian proverbs which are not Inspired in words, but the spirit of which is Inspired, "Heaven is a prepared place for a prepared people." You have often heard that sentence. It is familiar in your mouths as household words, and well it may be.
 
