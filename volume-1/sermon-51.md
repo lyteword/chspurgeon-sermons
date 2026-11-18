@@ -1,7 +1,7 @@
 # Sermon 51 | Comfort for the Desponding
 
-> Oh that I were as in months past.   
-> Job 29:2
+> Oh that I were as in months past.  
+> Job 29:2  
 
 For the most part the gracious Shepherd leads his people beside the still waters, and makes them to lie down in green pastures; but at times they wander through a wilderness, where there is no water, and they find no city to dwell in. Hungry and thirsty, their soul fainteth within them, and they cry unto the Lord in their trouble. Though many of his people live in almost constant joy, and find that religion's ways are ways of pleasantness, and all her paths are peace, yet there are many who pass through fire and through water: men do ride over their heads,&mdash;they endure all manner of trouble and sorrow. The duty of the minister is to preach to different characters. Sometimes we admonish the confident, lest they should become presumptuous; oftentimes we stir up the slumbering, lest they should sleep the sleep of death. Frequently we comfort the desponding, and this is our duty this morning&mdash;or if not to comfort them, yet to give them some exhortation which may by God's help be the means of bringing them out of the sad condition into which they have fallen, so that they may not be obliged to cry out for ever&mdash;"Oh that I were as in months past!"
 
