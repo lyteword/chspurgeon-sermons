@@ -1,7 +1,7 @@
 # Sermon 575 | The Pierced One Pierces The Heart
 
-> "And I will pour upon the house of David and upon the inhabitants of Jerusalem, the spirit of Grace and of supplications: and they shall look upon Me whom they have pierced and they shall mourn for Him, as one mourns for his only son and shall be in bitterness for Him, as one that is in bitterness for his first-born."  
-> Zechariah 12:10.  
+> And I will pour upon the house of David and upon the inhabitants of Jerusalem, the spirit of Grace and of supplications: and they shall look upon Me whom they have pierced and they shall mourn for Him, as one mourns for his only son and shall be in bitterness for Him, as one that is in bitterness for his first-born.  
+> Zechariah 12:10  
 
 This prophecy, first of all, refers to the Jewish people. And I am happy that it confirms our hearts in the belief of the good which the Lord will do unto Israel. We know of a surety, because God has said it, that the Jews will be restored to their own land and that they shall inherit the goodly country which the Lord has given unto their fathers by a Covenant of salt forever. But, better still, they shall be converted to the faith of our Lord Jesus Christ and shall see in Him the house of David restored to the throne of Israel. The day is coming when they shall see in Jesus of Nazareth, that Messiah for whom their saints looked with joyful expectation, of whom the Prophets spoke with rapture, but who was despised and rejected of their blinded sires.
 

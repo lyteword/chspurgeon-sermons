@@ -1,10 +1,10 @@
 # Sermon 550 | The Ship on Fire: A Voice of Warning
 
-> "Escape for thy life."  
-> Genesis 19:17.  
+> Escape for thy life.  
+> Genesis 19:17  
 
-> "Thou hast magnified thy mercy, which thou hast shewed unto me in saving my life."  
-> Genesis 19:19.  
+> Thou hast magnified thy mercy, which thou hast shewed unto me in saving my life.  
+> Genesis 19:19  
 
 Here is the alarm of mercy declaring the sinner's duty: "Escape for thy life." Here is the work of grace, and the gratitude of the sinner after he is saved. "Thou hast magnified thy mercy, which thou hast shewed unto me in saving my life."
 

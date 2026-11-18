@@ -1,7 +1,7 @@
 # Sermon 580 | God Is With Us
 
-> "If God is for us, who can be against us?"  
-> Romans 8:31.  
+> If God is for us, who can be against us?  
+> Romans 8:31  
 
 The Truth of God here asserted is indisputable. Even heathens have taken this for their motto and emblazoned it upon their standards of war. "God is for us!" has been the war cry of many a warrior as he has dashed to the fight, however out of place it was in such association its force was clearly perceived. Our text, however, protects itself from ill usage, for you observe that the text is guarded with the little word, "If," as a sentinel. No man, therefore, has any right to the treasures of this text unless he can give the password and answer the question!
 

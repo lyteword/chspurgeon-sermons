@@ -1,7 +1,7 @@
 # Sermon 587 | God's Strange Choice
 
-> "For you see your calling, Brethren, how that not many wise men after the flesh, not many mighty, not many noble, are called. But God has chosen the foolish things of the world to confuse the wise, and God has chosen the weak things of the world to confuse the things which are mighty. And base things of the world and things which are despised has God chosen, yes, and things which are not, to bring to nothing things that are: that no flesh should glory in His Presence."  
-> 1 Corinthians 1:26-29.  
+> For you see your calling, Brethren, how that not many wise men after the flesh, not many mighty, not many noble, are called. But God has chosen the foolish things of the world to confuse the wise, and God has chosen the weak things of the world to confuse the things which are mighty. And base things of the world and things which are despised has God chosen, yes, and things which are not, to bring to nothing things that are: that no flesh should glory in His Presence.  
+> 1 Corinthians 1:26-29  
 
 The Apostle Paul had been led to make the confession that Christ Jesus was despised both by Jew and Gentile. He confessed that this was no cause of stumbling to him, for what others counted foolishness he believed to be wisdom and rejoiced that the foolishness of God was wiser than men, and the weakness of God stronger than men! Lest, however, any of the Corinthian Church should be confused by the fact that Christ was despised, the Apostle goes on to show that it was the general way of God's proceeding to select means which men despised in order that by accomplishing His purpose through them, He might have all the Glory.
 

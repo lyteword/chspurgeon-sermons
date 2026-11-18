@@ -1,9 +1,9 @@
 # Sermon 571 | Unbelievers Stumbling: Believers Rejoicing
 
-> "As it is written, Behold I lay in Zion a stumbling stone and rock of offense: and whoever believes on Him shall not be ashamed."  
-> Romans 9:33.  
+> As it is written, Behold I lay in Zion a stumbling stone and rock of offense: and whoever believes on Him shall not be ashamed.  
+> Romans 9:33  
 
-Our Apostle was inspired of God and yet he was moved to quote passages out of the Old Testament. The Spirit of God might have dictated new words to him. He might have shown him how to confirm the Truth by other arguments, but He is not pleased to do so. He moves His servant to establish the present Truth by Truths formerly revealed and thus He sets us an example of searching the Scriptures and prizing the ancient Oracles of God. The passage before us appears to be composed of two Scriptures woven into one, a method not very infrequent with the Apostles. A part of the text before us is found in Isaiah 28:16.
+Our Apostle was inspired of God and yet he was moved to quote passages out of the Old Testament. The Spirit of God might have dictated new words to him. He might have shown him how to confirm the Truth by other arguments, but He is not pleased to do so. He moves His servant to establish the present Truth by Truths formerly revealed and thus He sets us an example of searching the Scriptures and prizing the ancient Oracles of God. The passage before us appears to be composed of two Scriptures woven into one, a method not very infrequent with the Apostles. A part of the text before us is found in Isaiah 28:16  
 
 The Apostle does not quote verbatim, but gives us rather the sense than the words: "Behold, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone, a sure foundation: he that believes shall not make haste." But the Apostle inlays this word of Prophecy with another, selecting this time from Isaiah 8:14: "And He shall be for a sanctuary. But for a stone of stumbling and for a rock of offense to both the houses of Israel." I cannot help making an observation or two upon these passages before I come to the text before us.
 

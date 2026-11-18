@@ -1,7 +1,7 @@
 # Sermon 588 | The Prodigal's Reception
 
-> "And he arose and came to his father. But when he was yet a great way off, his father saw him and had compassion, and ran and fell on his neck and kissed him."  
-> Luke 15:20.  
+> And he arose and came to his father. But when he was yet a great way off, his father saw him and had compassion, and ran and fell on his neck and kissed him.  
+> Luke 15:20  
 
 There he is! He is as wretched as misery itself, as filthy as his brute associates who could satisfy themselves with husks, while he could not. His clothes hang about him in rags and what he is on the outside, that he is within. He is disgraced in the eyes of the good and the virtuous remember him with indignation. He has some desires to go back to his father's house but these desires are not sufficient to alter his condition. Mere desires have not scraped the filth from him, nor have they so much as patched his rags. Whatever he may or may not desire, he is still filthy, still disgraced, still an alien from his father's house, and he knows it, for, by God's Grace, he has come to himself.
 

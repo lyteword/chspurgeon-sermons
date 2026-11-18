@@ -1,7 +1,7 @@
 # Sermon 592 | The True Position Of Assurance
 
-> "In whom you also trusted, after that you heard the Word of Truth, the Gospel of your salvation: in whom also after that you believed, you were sealed with the Holy Spirit of promise."  
-> Ephesians 1:13.  
+> In whom you also trusted, after that you heard the Word of Truth, the Gospel of your salvation: in whom also after that you believed, you were sealed with the Holy Spirit of promise.  
+> Ephesians 1:13  
 
 Many sincerely seeking souls are in great trouble because they have not yet attained to an assurance of their interest in Christ Jesus; they dare not take any comfort from their faith because they suppose that it has not attained to a sufficient strength. They have believed in the Lord Jesus and they have His promise that they shall be saved, but they are not content with this; they want to get assurance and then they suppose they shall have a better evidence of their salvation than the bare word of the Savior.
 

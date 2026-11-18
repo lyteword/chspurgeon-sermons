@@ -1,7 +1,7 @@
 # Sermon 579 | God Pleading For Saints, And Saints Pleading For God
 
-> "O Lord, You have pleaded the causes of my soul; You have redeemed my life."  
-> Lamentations 3:58.  
+> O Lord, You have pleaded the causes of my soul; You have redeemed my life.  
+> Lamentations 3:58  
 
 The Prophet speaks experimentally as of a matter which he had proved for himself. There is no true understanding of the Truths of God except by a personal experience of them. We have heard of men sitting in their drawing rooms and writing volumes on voyages and travels, but such books always bear the marks of fiction upon their title page; they can never vie in interest and freshness with the adventures of men who have actually traversed lands unknown. The botanist who shall never have seen a flower must necessarily be a mere pretender to the science. And the soldier who has never shouldered a gun is nothing but a raw recruit.
 

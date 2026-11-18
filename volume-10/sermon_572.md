@@ -1,7 +1,7 @@
 # Sermon 572 | Laus Deo
 
-> "For of Him and through Him and to Him, are all things: to whom be glory forever. Amen."  
-> Romans 11:36.  
+> For of Him and through Him and to Him, are all things: to whom be glory forever. Amen.  
+> Romans 11:36  
 
 My text consists almost entirely of monosyllables, but it contains the loftiest of sublimities. Such a tremendous weight of meaning is concentrated here that an archangel's eloquence would fail to convey its teaching in all its glory to any finite minds, even if seraphs were his hearers. I will affirm that there is no man living who can preach from my text a sermon worthy of it. No, among all the sacred orators and the eloquent pleaders for God, there never did live and never will live a man capable of reaching the height of the great argument contained in these few simple words. I utterly despair of success and will not, therefore, make an attempt to work out the infinite Glory of this sentence.
 

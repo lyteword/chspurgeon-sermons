@@ -1,7 +1,7 @@
 # Sermon 568 | What God Cannot Do!
 
-> "God, that cannot lie."  
-> Titus 1:2.  
+> God, that cannot lie.  
+> Titus 1:2  
 
 Truth once reigned supreme upon our globe and then earth was Paradise. Man knew no sorrow while he was ignorant of falsehood. The Father of Lies invaded the garden of bliss and with one foul lie he blighted Eden into a wilderness and made man a traitor to his God. Cunningly he handled the glittering falsehood and made it dazzle in the woman's eyes: "God does know that in the day you eat thereof, then your eyes shall be opened and you shall be as gods, knowing good and evil."
 

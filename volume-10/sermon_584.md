@@ -1,7 +1,7 @@
 # Sermon 584 | A Hearer In Disguise
 
-> "And it was so, when Ahijah heard the sound of her feet, as she came in at the door, that he said, Come in, you wife of Jeroboam; why do you pretend to be another? For I am sent to you with heavy tidings."  
-> 1 Kings 14:6.  
+> And it was so, when Ahijah heard the sound of her feet, as she came in at the door, that he said, Come in, you wife of Jeroboam; why do you pretend to be another? For I am sent to you with heavy tidings.  
+> 1 Kings 14:6  
 
 Ahijah the Prophet was blind. Did I not tell you this morning that God's servants could be happy without the light of the sun? If God should be pleased to deprive their natural eyes of the pleasures of light their souls would not be without joy, for as in the New Jerusalem, so in the renewed heart: "the glory of God does lighten it and the Lamb is its Light." Doubtless this was the case with that venerable Prophet. He was not like Moses, whose eyes did not wax dim and whose natural strength did not abate. But his eyes were set with age. The organs of vision had so decayed through the multitude of his years that he could not see so much as a ray of light.
 

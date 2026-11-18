@@ -1,7 +1,7 @@
 # Sermon 578 | A Bad Excuse Is Worse Than None
 
-> "And they all with one consent began to make excuses."  
-> Luke 14:18.  
+> And they all with one consent began to make excuses.  
+> Luke 14:18  
 
 The provisions of the Gospel of Christ may well be compared to a supper, provided as they were, in the evening of the world, "in these last days." The description, "a great supper," is well borne out if we consider the greatness of the provision: how much love and mercy God has displayed towards the sons of men in the Person of Christ Jesus, how much power and gracious working He has shown by His Holy Spirit. A great supper it is if we think of the richness and sweetness of the provision; it is a feast worthy of the great King. The flesh of Jesus is our spiritual meat and His blood our choicest wine. Our souls are satisfied with Covenant mercies, most fitly set forth as "A feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well refined."
 

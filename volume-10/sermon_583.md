@@ -1,7 +1,7 @@
 # Sermon 583 | The Lamb: The Light
 
-> "And the city had no need of the sun, neither of the moon, to shine in it: for the Glory of God did lighten it and the Lamb is its light."  
-> Revelation 21:23.  
+> And the city had no need of the sun, neither of the moon, to shine in it: for the Glory of God did lighten it and the Lamb is its light.  
+> Revelation 21:23  
 
 To the lover of Jesus it is very pleasant to observe how the Lord Jesus Christ has always stood foremost in Glory from before the foundation of the world and will do so as long as eternity shall last. If we look back by faith to the time of the creation, we find our Lord with His Father as one brought up with Him. "When there were no depths, I was brought forth, when there were no fountains abounding with water. While as yet He had not made the earth, nor the fields, nor the highest part of the dust of the world. When He prepared the heavens, I was there: when He set a compass upon the face of the depth: when He established the clouds above: when He strengthened the fountains of the deep."
 

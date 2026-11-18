@@ -1,7 +1,7 @@
 # Sermon 557 | Where to Find Fruit
 
-> "From me is thy fruit found."  
-> Hosea 14:8.  
+> From me is thy fruit found.  
+> Hosea 14:8  
 
 The text has a double significance. It may indicate the fruit upon which we feed, or the fruit which we are enabled to produce. If it shall mean the first, there is much of comfort in it. The Lord has compared himself, in his condescending mercy, to a green fir tree in the sentence which precedes the text. The fir tree in the East yields a most goodly shade. Neither the burning heat of the sun, nor the drops of pouring rain can pass through the dense foliage, and therefore it affords a welcome shelter to the traveler. But shade is not enough for a man; he requires food, and the fir tree fails in that respect, for it yields no repast for the hungry. To complete the picture, therefore, when the Lord deigns to compare himself to a green fir tree, he adds, "From me is thy fruit found." Our gracious God is like a fir tree for shade, but like the apple tree among the trees of the wood for fruit. We sit under his shadow with great delight, and his fruit is sweet unto our taste. Living souls must have food to feed upon, or however well housed, they would be comparable to the king of Israel in the besieged city of Samaria. He sat in his palace of ivory, he wore his mantle of purple, and placed the crown of gold upon his head; but what availed his splendor, when neither barn-floor nor winepress could relieve his hunger? In vain all other blessings if the soul received no nourishment from on high; Jesus must not only be our life, but the bread of heaven by which that life is sustained. Glory be to his name! he is all in all to his people: we may gather fruit from him which shall satisfy the cravings of the soul.
 

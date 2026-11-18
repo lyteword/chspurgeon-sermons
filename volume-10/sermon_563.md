@@ -1,7 +1,7 @@
 # Sermon 563 | The Barley Field on Fire
 
-> "Absalom sent for Joab, to have sent him to the king; but he would not come to him; and when he sent again, the second time, he would not come. Therefore he said unto his servants, See, Joab's field is near mine, and he hath barley there: Go and set it on fire. And Absalom's servants set the field on fire. Then Joab arose, and came to Absalom unto his house, and said unto him, Wherefore have thy servants set my field on fire?"  
-> 2 Samuel 14:29-31.  
+> Absalom sent for Joab, to have sent him to the king; but he would not come to him; and when he sent again, the second time, he would not come. Therefore he said unto his servants, See, Joab's field is near mine, and he hath barley there: Go and set it on fire. And Absalom's servants set the field on fire. Then Joab arose, and came to Absalom unto his house, and said unto him, Wherefore have thy servants set my field on fire?  
+> 2 Samuel 14:29-31  
 
 You remember the historical narrative. Absalom had fled from Jerusalem under fear of David's anger. He was after a time permitted to return; but he was not admitted into the presence of the king. Earnestly desiring to be restored to his former posts of honor and favor, he besought Joab to come to him, intending to request him to act as mediator. Joab, having lost much of his liking for the young prince, refused to come; and, though he was sent for repeatedly, he declined to attend at his desire. Absalom therefore thought of a most wicked, but most effective plan of bringing Joab into his company. He bade his servants set Joab's field of barley on fire. This brought Joab down in high wrath to ask the question, "Wherefore have thy servants set my field on fire?" This was all that Absalom wanted; he wished an interview, and he was not scrupulous as to the method by which he obtained it. The burning of the barley-field brought Joab into his presence, and Absalom's ends were accomplished.
 

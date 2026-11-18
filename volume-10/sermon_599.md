@@ -1,7 +1,7 @@
 # Sermon 599 | The Certainty And Freeness Of Divine Grace
 
-> "All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out."  
-> John 6:37.  
+> All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out.  
+> John 6:37  
 
 Let it be forevermore remembered that the words of Jesus Christ are full of Truth and Grace. And that in each of these two sentences, whether we perceive the fact or not, there is the surest Truth and the freest Grace. There will be some who from the peculiarity of their minds, will prize most the first sentence. They will say, as they read these words, "'All that the Father gives Me shall come to Me,' why, here is high doctrine! Here is the security of the Covenant, the purpose of God effectually carried out! Here is the Truth of God which we love and the Grace in which we glory."
 

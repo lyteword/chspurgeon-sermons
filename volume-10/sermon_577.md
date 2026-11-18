@@ -1,7 +1,7 @@
 # Sermon 577 | Let Us Go Forth
 
-> "Let us go forth therefore unto Him outside the camp, bearing His reproach."  
-> Hebrews 13:13.  
+> Let us go forth therefore unto Him outside the camp, bearing His reproach.  
+> Hebrews 13:13  
 
 Modern professors have discovered a very easy way of religion. There is a method by which a man may attain to great reputation as a Christian and yet avoid all the trials of the Believer's estate. He may go through the world finding his path as smoothly turfed as the flesh could desire. Blessed with the smiles of friendly formalists and with the admiration of the ungodly, he may pass from his first entrance into the Church to his grave without experiencing so much as a single shower to dampen his happiness. The sun may smile sweetly upon him all the way, the birds may sing; not a raven may dare to croak, not a single owl may hoot; his road to glory and immortality shall be all that ease could wish!
 
