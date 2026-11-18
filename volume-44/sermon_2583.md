@@ -71,7 +71,7 @@ How far have your buds developed? Have you begun to pray a little? Oh, that your
 
 The fair lilies of the garden toil not, neither do they spin; but yet they glorify God. How they seem to stand still and just show what God can do with them! They just drink in the light and heat and then pour it all out again in silent, quiet beauty. Now you do the same! Let the purity of your life, like the purity of the lily, glorify the God who created it in you. So may His blessing rest upon you all, dear Friends, for our Lord Jesus Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: Isaiah 4:8-20
+## Exposition by C. H. Spurgeon: Isaiah 41:8-20
 
 But you, Israel, are My servant, Jacob whom I have chosen, the seed of Abraham, My friend. Let us, for the time being, forget the people to whom this message was addressed, and see whether it might not be spoken to ourselves. Come, my Friend, are you truly God's servant? Do you delight to do His will and to walk in His ways? If so, then you are God's chosen, for, wherever there is the true spirit of obedience to the Lord, it is the result of His Grace, and Grace never comes except from the wellhead of electing love! If you are God's servant, you are God's chosen. Then see to it that you walk and live as one of the seed of Abraham, whom God calls, "My friend."
 
