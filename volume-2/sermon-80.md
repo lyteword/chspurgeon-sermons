@@ -1,6 +1,6 @@
 # Sermon 80 | God Alone the Salvation of his People
 
-> He only is my rock and my salvation.    
+> He only is my rock and my salvation.  
 > Psalm 62:2  
 
 How noble a title. So sublime, suggestive, and overpowering. "My Rock." It is a figure so divine, that to God alone shall it ever be applied.
