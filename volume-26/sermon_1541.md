@@ -3,13 +3,11 @@
 > And cast you the unprofitable servant into outer darkness: there shall be weeping and gnashing of teeth.  
 > Matthew 25:30  
 
-"So likewise you, when you shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do."
+> So likewise you, when you shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do.  
+> Luke 17:10  
 
-Luke 17:10.
-
-"His lord said unto him, Well done, you good and faithful servant."
-
-Matthew 25:21.
+> His lord said unto him, Well done, you good and faithful servant.  
+> Matthew 25:21  
 
 There is a narrow path between indifference and morbid sensibility. Some men seem to feel no holy anxiety; they place their Master's talent in the earth, leave it there and take their pleasure and their ease without a moment's compunction. Others profess to be so anxious to be right that they come to the conclusion that they can never be so and fall under a horror of God, viewing His service as a drudgery and Himself as a hard master, though probably they never say so. Between these two lines there is a path, narrow as a razor's edge, which only the grace of God can enable us to trace. It is free from carelessness and from bondage and consists in a sense of responsibility bravely borne by the help of the Holy Spirit.
 

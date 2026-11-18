@@ -3,9 +3,8 @@
 > Receiving the end of your faith; the salvation of your souls. Of this salvation the Prophets have inquired and searched diligently, who prophesied of the Grace that would come to you, searching what, or what manner of time the Spirit of Christ which was in them did indicating, when He testified beforehand the sufferings of Christ and the glories that would follow. To whom it was revealed, that not to themselves, but to us they did minister the things which are now reported to you by them that have preached the Gospel to you by the Holy Spirit sent down from Heaven, which things angels desire to look into.  
 > 1 Peter 1:9-12  
 
-"Let Your mercies come also unto me, O Lord, even Your salvation, according to Your Word."
-
-Psalm 119:41
+> Let Your mercies come also unto me, O Lord, even Your salvation, according to Your Word.  
+> Psalm 119:41  
 
 these two texts will be, to me, as a bow and a sword; the first for shooting the arrows of the truth of God and the second for close quarters in dealing with individual consciences. You will see the reason for the pair of texts as we proceed. May the Holy Spirit make use of both according to His own mind. Last sabbath I preached upon the God of salvation; this morning our principal objective is to speak of that salvation, itself. I then tried to show that God is always the same and that the God of the Old Testament, unto whom belongs the issues, or escapes from death, is still the God of our salvation.
 
