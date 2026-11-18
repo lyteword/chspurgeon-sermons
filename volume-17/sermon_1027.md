@@ -1,6 +1,6 @@
 # Sermon 1027 | The Joy of the Lord, the Strength of His People
 
-> "The joy of the Lord is your strength."  
+> The joy of the Lord is your strength.  
 > Nehemiah 8:10  
 
 Last Sunday morning I spoke of the birth of our Savior as being full of joy to the people of God, and, indeed, to all nations. We then looked at the joy from a distance. We will now in contemplation draw nearer to it, and perhaps as we consider it and remark on the multiple reasons for its existence, some of those reasons may operate upon our own hearts. And we may go out of this house of prayer ourselves partakers of that exceedingly great joy. We shall count it to have been a successful morning if the people of God are made to rejoice in the Lord, and especially if those who have been bowed down and burdened in soul shall receive the oil of joy for mourning.

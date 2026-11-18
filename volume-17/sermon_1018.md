@@ -1,6 +1,6 @@
 # Sermon 1018 | Pleading
 
-> "But I am poor and needy: make haste unto me, O God: You are my help and my deliverer; O Lord, make no tarrying."  
+> But I am poor and needy: make haste unto me, O God: You are my help and my deliverer; O Lord, make no tarrying.  
 > Psalm 70:5  
 
 Young painters were anxious, in the olden times, to study under the great masters. They concluded that they should more easily attain to excellence if they entered the schools of eminent men. At this present time men will pay large premiums that their sons may be apprenticed or articled to those who best understand their trades or professions. Now, if any of us would learn the sacred art and mystery of prayer, it is well for us to study the productions of the greatest masters of that science. I am unable to point out one who understood it better than did the psalmist David. So well did he know how to praise, that his psalms have become the language of good men in all ages.

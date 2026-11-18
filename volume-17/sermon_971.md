@@ -1,6 +1,6 @@
 # Sermon 971 | The Open Fountain
 
-> "In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem for sin and for uncleanness."  
+> In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem for sin and for uncleanness.  
 > Zechariah 13:1  
 
 We do not begrudge the seed of Israel after the flesh the first application of this very precious promise. There will be a day when those who have so long refused to acknowledge Jesus as the Messiah shall discern the marks of his mission, and shall mourn that they have pierced him. When the tribes of Israel shall lament their sin with holy earnestness, there shall be no mourning to exceed it. They shall weep even as in the mourning of Hadad Rimmon in the valley of Megiddo, when the well-beloved Josiah was slain.

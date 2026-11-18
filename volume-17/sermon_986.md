@@ -1,7 +1,7 @@
 # Sermon 986 | Victor Emmanuel, Emancipator
 
-> "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house."  
-> Isaiah 42:7    
+> To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house.  
+> Isaiah 42:7  
 
 It is a great relief to turn to another subject akin to that, but full of cheerfulness and joy. We showed you the prisoner; we have now to speak of him who came to set the prisoners free. We described the captive's cords and bonds; we have now to tell you of him whose mighty touch liberates the bondslaves, and signs the Magna Charta of eternal emancipation. The case of manhood bound like Prometheus to the rock, and preyed upon by the vulture of hell, appeared utterly hopeless, and the more so because the prisoner was his own fetter, and disdained to be free.
 

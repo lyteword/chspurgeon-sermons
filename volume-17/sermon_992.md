@@ -1,6 +1,6 @@
 # Sermon 992 | A New Order of Priests and Levites
 
-> "And I will also take of them for priests and for Levites, says the Lord."  
+> And I will also take of them for priests and for Levites, says the Lord.  
 > Isaiah 66:21  
 
 This chapter is surrounded with critical difficulties, and yet it is full of spiritual instruction. The verse before us is, by some, referred to Gentiles, and supposed to mean that the Lord promises that He will take out of the heathen nations a people whom He will make into priests and Levites. Others would say it points to the Jews, rejected for their unbelief and dispersed in judgment among all nations. When their own Messiah came, it was not with a devout faith, but with a profane imprecation they said, "His blood be on us, and on our children." The curse they invoked did come upon them. The retribution they challenged has been meted out to them in full measure. To the letter it was verified.

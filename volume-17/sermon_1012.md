@@ -1,6 +1,6 @@
 # Sermon 1012 | The Unbeliever's Unhappy Condition
 
-> "He that believeth not the Son shall not see life; but the wrath of God abideth on him."  
+> He that believeth not the Son shall not see life; but the wrath of God abideth on him.  
 > John 3:36  
 
 This is a part of a discourse by John the Baptist. We have not many sermons by that mighty preacher, but we have just sufficient to prove that he knew how to lay the axe at the root of the tree by preaching the law of God most unflinchingly, and also that he knew how to declare the gospel, for no one could have uttered sentences which more clearly contain the way of salvation than those in the text before us. Indeed, this third chapter of the gospel according to the evangelist John is notable among clear and plain Scriptures, notable for being yet clearer and more plain than almost any other.
