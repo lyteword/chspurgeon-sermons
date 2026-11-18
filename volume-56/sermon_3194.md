@@ -1,6 +1,7 @@
 # Sermon 3194 | A Look and Its Lessons
 
-"Hearken to Me, you that follow after righteousness, you that seek the Lord: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
+> "Hearken to Me, you that follow after righteousness, you that seek the Lord: look unto the rock where you were hewn, and to the hole of the pit where you were dug."  
+> Isaiah 51:1  
 
 These words were addressed to those who were already the people of God. No others could be thus exhorted to look unto the rock where they were hewn, since they have never been hewn from it. Nor to the hole of the pit where they were dug, for they still are in the hole of the pit. They are lost and ruined and they still remain in that condition. But the people of God have been broken off that rock by a blow from the Divine hammer. They have been brought up from the horrible pit by the might of the Divine arm and their feet are now firmly fixed upon the Rock of Ages!
 
