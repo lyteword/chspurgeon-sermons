@@ -1,7 +1,7 @@
 # Sermon 3500 | Two Coverings and Two Consequences
 
 > He that covereth his sins shall not prosper.  
-> Proverbs 38:13  
+> Proverbs 28:13  
 
 > Thou Hast covered all their sins.  
 > Psalm 85:2  
