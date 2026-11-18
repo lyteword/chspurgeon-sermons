@@ -3,17 +3,14 @@
 > If anyone comes to Me and does not hate his father and mother, wife and children, brothers and sisters, yes, and his own life, also, he cannot be My disciple.  
 > Luke 14:26  
 
-"Then said Jesus to those Jews who believed Him, If you continue in My word, you are My disciples indeed."
+> Then said Jesus to those Jews who believed Him, If you continue in My word, you are My disciples indeed.  
+> John 8:31  
 
-John 8:31.
+> By this all will know that you are My disciples, if you have love for one another.  
+> John 13:35  
 
-"By this all will know that you are My disciples, if you have love for one another."
-
-John 13:35.
-
-"By this My Father is glorified, that you bear much fruit; so you will be My disciples."
-
-John 15:8.
+> By this My Father is glorified, that you bear much fruit; so you will be My disciples.  
+> John 15:8  
 
 This morning, I preached upon one of the privileges of the disciples of Christ, "When they were alone, He expounded all things to His disciples." They formed the inner circle and they had the privilege of hearing the expositions and explanations which our Lord gave only to His disciples. As I was speaking, I think the question must have arisen in the hearts of many of my hearers, "What is a disciple of Christ?" and also the further enquiry, "Am I one of His disciples?" It is very important for us who are preachers to know what a disciple is, for we are bidden to go and make disciples of all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit. What is involved in the making of a disciple? We cannot fully answer that question until we know what a disciple is!
 

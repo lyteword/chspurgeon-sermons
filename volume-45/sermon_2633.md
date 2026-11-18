@@ -3,9 +3,8 @@
 > I am the God of your father, the God of Abraham, the God of Isaac, and the God of Jacob.  
 > Exodus 3:6  
 
-"Therefore God is not ashamed to be called their God: for He has prepared a city for them."
-
-Hebrews 11:16.
+> Therefore God is not ashamed to be called their God: for He has prepared a city for them.  
+> Hebrews 11:16  
 
 You remember, dear Friends, that Paul is writing to the Hebrews concerning Abraham, Isaac and Jacob, and he says, "God is not ashamed to be called their God." Then, when you turn back to our text in Exodus, you find that God was called their God at the burning bush and, oftentimes, on other occasions, He is called the God of Abraham, the God of Isaac and the God of Jacob. We must not forget that at the time when God appeared to Moses, in the desert, in the bush that burned, but was not consumed, the condition of the descendants of Abraham, Isaac and Jacob was very terrible. They were slaves to the Egyptians. They were an oppressed and downtrodden race. Their male children were taken from them and cast into the river. They were entirely in Pharaoh's hands. They were a degraded people, as all slaves gradually become, and they were unable, of themselves, to rise out of that degradation. Yet, at that very time, God was not ashamed to be called their God! There, with Israel in bondage, Jehovah, whose name is the great I AM, a name which makes all Heaven bright with ineffable Glory, did not disdain to say to Moses, "I am the God of Abraham, the God of Isaac and the God of Jacob." I do not wonder that the Apostle should note it as a remarkable thing, that He was not ashamed to be called their God!
 
