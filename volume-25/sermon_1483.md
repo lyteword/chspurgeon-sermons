@@ -1,8 +1,7 @@
 # Sermon 1483 | The Present Crisis
 
-"I will go and return to My place, till they acknowledge their offense, and seek My face: in their affliction they will seek Me early."
-
-Hosea 5:15.
+> "I will go and return to My place, till they acknowledge their offense, and seek My face: in their affliction they will seek Me early."  
+> Hosea 5:15  
 
 The Lord does not always tell us what He will do. "Verily You are a God that hides yourself, O God of Israel, the Savior." He has told us that "it is the glory of God to conceal a thing" and our Lord Jesus has said, "It is not for you to know the times or the seasons which the Father has put in His own power." When He does make known to us what He is about to do, it is not to gratify our curiosity but to direct our conduct. In this case the Lord speaks aloud concerning His intentions. He had grown weary with chastening His people and, therefore, He was about to withdraw Himself from them and leave them alone, as a man leaves a hopeless work, or as a judge leaves the bench and gives the prisoner over to condemnation
 
