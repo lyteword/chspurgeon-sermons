@@ -1,10 +1,8 @@
 # Sermon 1606 | Ziklag: Or David Encouraging Himself In God
 
-"And David was greatly distressed; for the people spoke of stoning him because the soul of all the people was grieved, every man for his sons and for his daughters. But Da vid encouraged himself in the Lord his God."
-
-"And David enquired of the Lord, saying, Shall I pursue after this troop? Shall I overtake them? And He answered him, Pursue, for you shall surely overtake them and without fail recover all."
-
-1 Samuel 30:6,8.
+> "And David was greatly distressed; for the people spoke of stoning him because the soul of all the people was grieved, every man for his sons and for his daughters. But David encouraged himself in the Lord his God."  
+> "And David enquired of the Lord, saying, Shall I pursue after this troop? Shall I overtake them? And He answered him, Pursue, for you shall surely overtake them and without fail recover all."  
+> 1 Samuel 30:6, 8  
 
 We ought to be deeply grateful to God for the Inspired history of the life of His servant, David. It was a great life, a vigorous life, a life spent in many positions and conditions. I almost rejoice that it was not a faultless life, for its failings and errors are instructive. It is the life of a man after God's own heart but still, the life of one who went astray, like a lost sheep and was recovered by the great Shepherd's Divine Grace. By this fact he comes all the nearer to us poor, faulty men and women. I would venture to apply to David the description which has been applied to the world's own poet: "A man so various, that He seemed to be Not one, but all mankind's epitome." Each one may find something like himself in the long, eventful and checkered life of the son of Jesse. Among other things we learn this, that where there is faith there is sure to be trial, for David, though he trusted God so heartily, had good need of all the faith he possessed.
 
