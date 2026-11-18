@@ -1,6 +1,6 @@
 # Sermon 3281 | The Broad Wall
 
-> The broad wall."  
+> The broad wall.  
 > Nehemiah 3:8  
 
 It seems that around Jerusalem of old, in the time of her splendor, there was a broad wall which was her defense and her glory. Jerusalem is a type of the Church of God. It is always well when we can see clearly, distinctly and plainly that around the Church to which we belong there runs a broad wall.
