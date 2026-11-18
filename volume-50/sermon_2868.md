@@ -3,9 +3,11 @@
 > Ready to perish.  
 > Isaiah 27:13  
 
-"Ready to forgive." Psalm 86:5.
+> Ready to forgive.  
+> Psalm 86:5  
 
-"The graves are ready for me." Job 17:1.
+> The graves are ready for me.  
+> Job 17:1  
 
 When attempting to prepare for this service, I found it impossible to fix my mind upon any one subject. This afternoon I had to take rather a long journey to visit a friend who is sick unto death. And at his bedside I trust I have learned some lessons of encouragement and have been animated by witnessing the joy and peace which God grants to His children in their declining hours. Finding that I could not fix upon any one subject, I thought that I would have three. It may be that out of the three, there will be one intended by Divine Grace for a third of the audience, the second for another third and the other for the rest, so that there will be a portion of meat in due season for all. You know, dear Friends, that the motto of our navy is, "Ready, yes, ready!" That is something like my present subject, for I have three texts in which the word, "Ready," occurs, each time in a different connection.
 

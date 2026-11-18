@@ -3,7 +3,8 @@
 > With His stripes we are healed.  
 > Isaiah 53:5  
 
-"By whose stripes you were healed." 1 Peter 2:24.
+> By whose stripes you were healed.  
+> 1 Peter 2:24  
 
 It is well for the preacher, every now and then, to go back to the very beginning and once again traverse the whole ground of the Gospel, just as the schoolteacher does when, after his pupils have advanced to some of the higher branches of study, he deems it desirable to make sure that they are well grounded in the very elements of knowledge, for he knows that it is quite possible for him to be doing mischief in leading them on to the higher forms of study unless they are thoroughly familiar with the first principles. So he goes back to the beginning over and over again, and a wise preacher will do likewise. As for myself, it is not at all grievous to speak, in the simplest terms, of Jesus Christ and the plan of salvation and, for you, it is safe as Paul said in writing "the same things" to the Philippians. I have always noticed that those who love Christ best and who know the most about His great salvation are just the very people who delight to hear again and again: "The old, old story Of Jesus and His love."
 
