@@ -1,7 +1,7 @@
 # Sermon 159 | The True Christian's Blessedness
 
-> We know that all things work together far good to them that love God, to them who are the called according to his purpose.    
-> Romans 8:28.    
+> We know that all things work together far good to them that love God, to them who are the called according to his purpose.  
+> Romans 8:28  
 
 We have here the description of a true Christian, and a declaration of that Christian's blessedness. We have him first very succinctly, but very fully described in these words&mdash;"Them that love God, them who are the called according to his purpose." These two expressions are the great distinguishing marks whereby we are able to separate the precious from the vile, by discovering to us who are the children of God.
 

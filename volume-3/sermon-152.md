@@ -1,7 +1,7 @@
 # Sermon 152 | Things That Accompany Salvation
 
-> Things that accompany Salvation.    
-> Hebrews 6:9.    
+> Things that accompany Salvation.  
+> Hebrews 6:9  
 
 I am not quite certain that my text will warrant all I shall say upon it this day if read and understood in its connection. But I have taken the words rather by accommodation than otherwise, and shall make use of them as a kind of heading to the discourse which I hope to be enabled to deliver. I sat myself down, and I meditated on this subject&mdash;"Things that accompany Salvation." And after some period of rumination, my thoughts assumed the form of an allegory; in which I hope to present them to you this morning. I compared Salvation to a rich and costly treasure, which God in his infinite love and mercy had determined to send into the world, and I remembered that our Lord Jesus was so much interested in the bringing of this Salvation to this earth, that he did send all that he had, and came himself to attend and to accompany this Salvation. I then pictured to myself a great march of bright ones through this land, carrying in their midst the sacred jewel of Salvation. I looked forward, and I saw a mighty van-guard, who already had attained the shores of Eternity. I looked around Salvation, and I saw it always in every case attended with divers graces and virtues which seemed to be like troops and soldiers to guard it in the ran, about its flanks, and in the rear.
 

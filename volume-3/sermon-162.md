@@ -1,7 +1,7 @@
 # Sermon 162 | The First and Great Commandment
 
-> Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment.    
-> Mark 12:30.    
+> Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment.  
+> Mark 12:30  
 
 Our saviour said, "This is the first and great commandment." It is "the first" commandment&mdash;the first for antiquity, for this is older than even the ten commandments of the written law. Before God said, "Thou shalt not commit adultery, thou shalt not steal," this law was one of the commands of his universe; for this was binding upon the angels when man was not created. It was not necessary for God to say to the angels, "Thou shalt do no murder, thou shalt not steal;" for such things to them were very probably impossible; but he did doubtless say to them, "Thou shalt love the Lord thy God with all thy heart;" and when first Gabriel sprang out of his native nothingness at the fiat of God, this command was binding on him. This is "the first commandment," then, for antiquity. It was binding upon Adam in the garden; even before the creation of Eve, his wife, God had commanded this; before there was a necessity for any other command this was written upon the very tablets of his heart&mdash;"Thou shalt love the Lord thy God."
 
