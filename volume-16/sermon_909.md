@@ -7,7 +7,7 @@
 > Matthew 17:5  
 
 > Father, glorify Your name. Then came there a Voice from Heaven, saying, I have both glorified it, and will glorify it again.  
-> John 12:28   
+> John 12:28  
 
 That our Lord was the true Messiah of God was proved by His answering to all those prophecies which described the promised Messenger of the Covenant. His miracles also proved that God was with Him, and from their character they marked Him out as the ordained Deliverer. To open blind eyes and unstop deaf ears were works foretold as denoting the Messiah. His teachings were equally clear proofs of His mission, there is about them an authority found nowhere else. The words which He spoke are Spirit and Life. They are self-evidencing in their elevation, purity, perfection. "Never man spoke like this Man."
 

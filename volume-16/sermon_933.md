@@ -1,7 +1,7 @@
 # Sermon 933 | Angelic Studies
 
 > To the intent that now unto the principalities and powers in heavenly places might be known by the Church the manifold wisdom of God.  
-> Ephesians 3:10.  
+> Ephesians 3:10  
 
 The "principalities and powers in heavenly places" to whom the Apostle here refers, are, no doubt, the angels. These bright and glorious spirits, never having fallen into sin, did not need to be redeemed, and therefore, in the sense of being cleansed from guilt, they have no share in the atoning sacrifice of Christ. Yet it is interesting to notice how our Lord did, as it were, pass and pass again their shining ranks when He sped His way down to the regions of death, and when He came back triumphant to the realms of glory.
 
