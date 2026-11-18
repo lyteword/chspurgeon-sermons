@@ -1,6 +1,7 @@
 # Sermon 3199 | How the Lambs Feed
 
-"Then shall the lambs feed in their pasture." Isaiah 5:17.
+> "Then shall the lambs feed in their pasture."  
+> Isaiah 5:17  
 
 The sense of this passage may be that Judea would be so desolated that it would become rather a wild wilderness pasture for flocks than an inhabited country. But that is not the meaning which the old readers of the Bible were accustomed to give to it. The Hebrew commentators considered "the lambs" to mean the house of Israel and regarded this as a promise that in all times of distress and affliction, God's flock would still be fed, there would still be a people kept alive and these should still meet with suitable support. Whether that is the correct sense or not, I shall use the words as having some such meaning.
 
