@@ -3,7 +3,8 @@
 > For I have no pleasure in the death of him that dieth, saith the Lord God: wherefore turn yourselves, and live ye.  
 > Ezekiel 18:32  
 
-"As I live, saith the Lord God, I have no pleasure in the death of the wicked: but that the wicked turn from his way and live: turn ye, turn ye from your evil ways for why will ye die, O house of Israel?" Ezekiel 33:11.
+> As I live, saith the Lord God, I have no pleasure in the death of the wicked: but that the wicked turn from his way and live: turn ye, turn ye from your evil ways for why will ye die, O house of Israel?  
+> Ezekiel 33:11  
 
 SIN HAVING a THOROUGH POSSESSION of the human heart, entrenches itself within the soul, as one who has taken a stronghold speedily attends to the repairing of the breaches, and the strengthening of the walls, lest haply he should be dislodged. Among the most subtle devices of sin to keep the soul under its power, and prevent the man's turning to God, is the slandering of the Most High by misrepresenting his character. As dust blinds the eye, so does sin prevent the sinner from seeing God aright. "Blessed are the pure in heart: for they shall see God"; but the wicked only see what they think to be God, and that, alas, is an image as unlike to God as possible! They say, for instance, that God is unmerciful, whereas he delighteth in mercy. The unfaithful servant in the parable was quite sure about it, and said most positively, "I knew that thou wast an austere man:" whereas the nature of God is as opposite to overbearing and exaction as light is from darkness.
 

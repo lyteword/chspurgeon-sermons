@@ -3,7 +3,8 @@
 > They are a very froward generation, children in whom is no faith.  
 > Deuteronomy 32:20  
 
-"Blessed is that man that makes the Lord his trust." Psalm 40:4.
+> Blessed is that man that makes the Lord his trust.  
+> Psalm 40:4  
 
 THESE two texts will serve to show the different estimate which God has of unbelief and of faith. He says of unbelievers, in my text taken from Deuteronomy, "They are a very froward generation, children in whom is no faith", as much as to say that the absence of faith proves them to be froward, presumptuous, willful, disobedient, a people at cross-purposes with God. He says not only that they are perverse and froward, but He adds an emphatic word: "they are a very froward generation, children in whom is no faith." The second text most clearly shows us that God has a high approbation for faith, for He, Himself, by the Holy Spirit, says, "Blessed is that man that makes the Lord His trust." Here, then, we have set before us a great evil to which we are sadly inclined, and a great Grace which we greatly need. May God the Holy Spirit work faith in us by His own gracious power! Alas, it is still true that "all men have not faith." Even when an Apostle preached, we read of the congregation, that some believed the things which were spoken, and some believed not. There is that division among you at this time. Oh, that unbelievers may become Believers before this service ends!
 

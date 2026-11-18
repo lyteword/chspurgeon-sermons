@@ -3,7 +3,8 @@
 > I was a stranger, and you took Me in.  
 > Matthew 25:35  
 
-"But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name." John 1:12.
+> But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name.  
+> John 1:12  
 
 I lately received a New Year's card which suggested to me the topic on which I am about to speak to you. The designer of the card has, with holy insight, seen the relation of the two texts to each other and rendered both of them eminently suggestive by placing them together. There is freshness in the thought that, by receiving Jesus as a stranger, our believing hospitality works in us a Divine capacity and we thereby receive power to become the sons of God. The connection suggested between the two Inspired words is really existent and by no means strained or fanciful, as you will see by reading the context of the passage in John: "He was in the world, and the world was made by Him, and the world knew Him not." So He was a stranger in the world which He Himself had made! "He came unto His own, and His own received Him not." So He was a stranger among the people whom He had set apart for His own by many deeds of mercy! "But as many as received Him," that is to say, gave entertainment to this blessed Stranger, "to them gave He power to become the sons of God, even to them that believe on His name."
 
