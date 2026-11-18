@@ -1,7 +1,7 @@
 # Sermon 1970 | Loving Persuasion
 
-> "Persuading them concerning Jesus."  
-> Acts 28:23.  
+> Persuading them concerning Jesus.  
+> Acts 28:23  
 
 Wherever Paul is, he has but one errand and whenever Paul preaches, he has but one subject. Once at Athens, when he addressed the Areopagus, he seemed to wander a little from his main point and no special good followed, but this experience bound him all the faster to the Cross, for he afterwards said to the Corinthians, "I determined not to know anything among you, save Jesus Christ and Him crucified." The Cross of Christ was his one theme. He henceforth hammered on the head of this one nail. Whatever faculty, ability and power he had, he turned its whole current into this one channel and cried, "God forbid that I should glory, save in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me and I unto the world." Brethren, we have not strength enough for a dozen things. We have not even strength enough for two. What little vigor we have, let us use it all in one direction, let us say, "For me to live is Christ." You could not have dropped into Paul's lodging at any time during the two years that he was at Rome before the emperor liberated him, without hearing him preach of the "things which concern the Lord Jesus Christ. Every arrow in his quiver was aimed at the one target and he knew how to hit the white of it each time. "This one thing I do," he said. His motto was, All for Jesus, and for Jesus only.
 

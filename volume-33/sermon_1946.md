@@ -1,9 +1,10 @@
 # Sermon 1946 | Eternal Life Within Present Grasp
 
-> "Lay hold on eternal life."  
-> 1 Timothy 6:12.  
+> Lay hold on eternal life.  
+> 1 Timothy 6:12  
 
-"Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life." 1 Timothy 6:19.
+> Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life.  
+> 1 Timothy 6:19  
 
 "Lay hold on eternal life." Observe that this precept is preceded by another, "Fight the good fight of faith." Those who lay hold on eternal life will have to fight for it. The way of the spiritual life is no easy one; we shall have to contest every step of the way along which it leads us. "Contest the good contest of the faith" would be an accurate rendering of the passage and a contest it is against the world, the flesh and the devil! If we live unto God, we shall need to war a daily warfare and tread down the powers of death and Hell.
 

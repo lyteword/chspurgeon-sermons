@@ -1,7 +1,7 @@
 # Sermon 1957 | The Lord's Own View of His Church and People
 
-> "A garden enclosed is My sister, My spouse; a spring shut up, a fountain sealed."  
-> Song of Solomon 4:12.  
+> A garden enclosed is My sister, My spouse; a spring shut up, a fountain sealed.  
+> Song of Solomon 4:12  
 
 We understand this sacred love song to be a Canticle of Communion between the Lord Jesus Christ and His Church. He is the Bridegroom and she the bride. Solomon furnishes the figure, as some think, and his Solyma is with him, but the type is dimly seen, it is the antitype which shines forth as the sun to the view of all spiritual minds.
 

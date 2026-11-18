@@ -1,7 +1,7 @@
 # Sermon 1973 | God's Nearness To Us
 
-> "Though He is not far from each one of us."  
-> Acts 17:27.  
+> Though He is not far from each one of us.  
+> Acts 17:27  
 
 When man disobeyed his God he died spiritually and that death consisted in the separation of his soul from God. From that moment man began to think that God was far away and this has since been his religion in all ages. Either he has said, "There is no God," or he has believed the visible creation to be God, which is much the same as having no God. Or else he has thought God to be some far-away, mysterious Being who takes no notice of man. Even after obtaining a better conception of God, he has thought Him hard to find and hard to be entreated of. Because his own heart is far from God, he imagines that God's heart is far from him. But it is not so. The living God is not far from any one of us, for, "In Him we live, and move, and have our being."
 

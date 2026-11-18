@@ -1,7 +1,7 @@
 # Sermon 1998 | Not Bound Yet
 
-> "Wherein I suffer trouble, as an evil doer, even unto bonds; but the Word of God is not bound."  
-> 2 Timothy 2:9.  
+> Wherein I suffer trouble, as an evil doer, even unto bonds; but the Word of God is not bound.  
+> 2 Timothy 2:9  
 
 You will observe, if you read the preceding verse, which, indeed, it would be wrong to sever from the text, that the doctrine of the Resurrection of our Lord Jesus Christ was the sheet anchor of Paul's comfort, as it was the great substance of his preaching. "Remember that Jesus Christ, of the seed of David, was raised from the dead according to my Gospel: wherein I suffer trouble, as an evildoer, even unto bonds; but the Word of God is not bound." Perhaps we do not give sufficient prominence to the doctrine of the Resurrection of Jesus Christ from the dead. Possibly, also, for this reason we do not fully grasp the idea of "the power of His Resurrection." Our Lord's death was not the close of His career, He still passed onward. From the Cross to the sepulcher was still forward. With weeping and mourning they laid Him in the tomb, surely that was the finis of His course. Ah, no, He passed into the grave, it is true, but He also passed through it! The grave had hitherto seemed a cul-de-sac, a blind alley from which there was no exit. All the footsteps pointed to entrance, but none to return. It looked like a dread abyss swallowing all and offering passageway to none.
 

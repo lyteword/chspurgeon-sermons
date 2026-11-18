@@ -1,7 +1,7 @@
 # Sermon 1984 | Man, Whose Breath Is In His Nostrils
 
-> "Cease you from man, whose breath is in his nostrils: for of what account is he?"  
-> Isaiah 2:22.  
+> Cease you from man, whose breath is in his nostrils: for of what account is he?  
+> Isaiah 2:22  
 
 Man, especially since the Fall, is a very unspiritual creature. His disposition is animal. He is made up, as the old writers used to say, of soul and soil. Alas, the soil terribly soils his soul! "My soul cleaves to the dust" might be the confession of every man in one sense or another. We bear the image of the first Adam, who was of the earth, earthy, and earthy enough are we.
 

@@ -1,7 +1,7 @@
 # Sermon 1942 | Salt For Sacrifice
 
-> "And every oblation of your meat offering shall you season with salt; neither shall you suffer the salt of the Covenant of your God to be lacking from your meat offering: with all your offerings you shall offer salt."  
-> Leviticus 2:13.  
+> And every oblation of your meat offering shall you season with salt; neither shall you suffer the salt of the Covenant of your God to be lacking from your meat offering: with all your offerings you shall offer salt.  
+> Leviticus 2:13  
 
 It is taken for granted that all true Israelites would bring many oblations and offerings of different kinds to God. And so they did who were truly devout and really grateful. I am sure that if the Lord has set our hearts on fire with His own love, we, also, shall be frequently saying, "What shall I render unto the Lord for all His benefits toward me?" It will be the habit of the Christian, as it was the habit of the devout Israelite, to be continually bringing oblations to his God.
 

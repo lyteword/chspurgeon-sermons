@@ -1,7 +1,7 @@
 # Sermon 1999 | Small Rain for Tender Herbs
 
-> "As the small rain upon the tender herb."  
-> Deuteronomy 32:2.  
+> As the small rain upon the tender herb.  
+> Deuteronomy 32:2  
 
 This is the language of the great Prophet, Moses, "My doctrine shall drop as the rain, my speech shall distil as the dew, as the small rain upon the tender herb, and as the showers upon the grass." We read of Moses that he was a Prophet mighty in word and deed, he combined with his incomparable teaching an unequalled degree of marvelous miracle-working. He was equally great as a law-giver and as an administrator. This double power was found in no other Prophet till our Lord Jesus Christ, Himself, came. The other Prophets were, many of them, mighty in deed, but not in word. And others were mighty in word, but not in deed. Samuel spoke mightily in the name of the Lord, but his miracles were few. Elijah was a great doer, but few of his words remain. The combination of the two was peculiar to Moses and, afterwards, to Him of whom Moses had said, "The Lord your God will raise up unto you a Prophet from the midst of you, of your brethren, like unto me; unto Him you shall hearken."
 

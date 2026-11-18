@@ -1,7 +1,7 @@
 # Sermon 1953 | A Testimony To Free and Sovereign Grace
 
-> "But the salvation of the righteous is of the Lord."  
-> Psalm 37: 39.  
+> But the salvation of the righteous is of the Lord.  
+> Psalm 37:39  
 
 Salvation is a blessing peculiar to the righteous. The ungodly do not, as a rule, believe that they have any need of salvation and, therefore, they do not desire it, or seek after it. The righteous know that they are born in a fallen state; they acknowledge that they have destroyed themselves by personal sin; and they are conscious of a thousand dangers which surround them. Hence they need salvation, seek it and find it. It is to them that salvation has come to make them righteous, for until they are saved, they are unrighteous, even as others. But now that salvation has come to their house, they bring forth the fruits of righteousness to the glory of God their Savior.
 

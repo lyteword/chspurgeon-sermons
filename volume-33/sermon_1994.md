@@ -1,7 +1,7 @@
 # Sermon 1994 | Sweet Peace For Tried Believers
 
-> "These things I have spoken to you, that in Me you might have peace. In the world you will have tribulation: but be of good cheer; I have overcome the world."  
-> John 16:33.  
+> These things I have spoken to you, that in Me you might have peace. In the world you will have tribulation: but be of good cheer; I have overcome the world.  
+> John 16:33  
 
 This most delightful passage occurs at the close of the last of our Savior's sermons before He went to the Father. Let us treasure it as we lay up a man's last words. Wonderfully full is that sermon, it is of a piece with His last prayer, and that rises above all other pleadings of men! This farewell discourse may occupy but a short space in Scripture, but the thoughts suggested by it are so many that I suppose that the world itself might hardly contain the books that might fairly be written upon it. It took our Lord but a moment to speak some of its sentences, it will take us a lifetime to fully understand them! Perhaps we never shall understand some of these gracious sayings till we have put away all childish things and shall have come to the fullness of the stature of men in Christ Jesus. We shall never see all the richness of the Grace of this sermon till we have risen beyond these mists and clouds into the clearer atmosphere of the unclouded skies. In that Happy Country, being ourselves raised to a nobler condition, we shall be better able to comprehend the deep things of God, concerning which our Savior spoke in His supreme discourse. Meanwhile, let us apply our heart and mind to the consideration of these last Words of the greatest of all Preachers, the dearest of all Teachers and, may the Spirit of our God open them up to us!
 

@@ -1,7 +1,7 @@
 # Sermon 1948 | The Hedge of Thorns and the Plain Way
 
-> "The way of the slothful man is as a hedge of thorns: but the way of the righteous is made plain."  
-> Proverbs 15:19.  
+> The way of the slothful man is as a hedge of thorns: but the way of the righteous is made plain.  
+> Proverbs 15:19  
 
 You must have noticed how frequently godly people almost wear out their Bibles in certain places. The Psalms, the Gospel of John and parts of the Epistles are favorite portions and are thumbed in many an old Believer's Bible till the fact is very noticeable. There are certain sheep-tracks up the slopes of Scripture which are much more trodden than the rest of the holy fields. I suppose it has always been so and I will not quarrel with the instincts of the saints.
 

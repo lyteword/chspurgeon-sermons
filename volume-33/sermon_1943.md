@@ -1,7 +1,7 @@
 # Sermon 1943 | Love Joying In Love
 
-> "I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice; I have eaten My honeycomb with My honey; I have drunk My wine with My milk: eat, O friends; drink, yes, drink abundantly, O Beloved."  
-> Song of Solomon 5:1.  
+> I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice; I have eaten My honeycomb with My honey; I have drunk My wine with My milk: eat, O friends; drink, yes, drink abundantly, O Beloved.  
+> Song of Solomon 5:1  
 
 No sooner does the spouse say, "Let my Beloved come into His garden," than her Lord answers, "I am come into My garden." "Before they call, I will answer; and while they are yet speaking, I will hear." When we desire our Lord Jesus to come to us, He has already come, in a measure, our desire is the result of His coming! He meets us in all our desires, for He waits to be gracious. Our, "Come," is no sooner uttered than it is lost in His, "Behold, I come quickly!"
 
