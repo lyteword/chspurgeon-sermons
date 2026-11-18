@@ -3,7 +3,8 @@
 > It is good for me that I have been afflicted; that I might learn Your statutes.  
 > Psalm 119:71  
 
-"It is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works." Psalm 73:28.
+> It is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works.  
+> Psalm 73:28  
 
 There is an old proverb which says, "When a man is 40 he is either a fool or a physician," that is to say, he either does not know anything or else be begins to know what is good for him! Some of us who are beyond that age think that we know, in some measure, what is good for us. We are not inclined to be very positive as to what is good for other people, but there are one or two things in reference to ourselves of which we say very dogmatically, "They are good for me." We have undergone such a sufficient investigation, experiment and personal trial that we are not in any fear of being contradicted, or, if we should be, we put our foot down and defy the contradiction!
 
