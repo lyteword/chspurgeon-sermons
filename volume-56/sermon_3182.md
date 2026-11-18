@@ -1,6 +1,7 @@
 # Sermon 3182 | Boldness at the Throne
 
-"Let us therefore come boldly unto the Throne of Grace." Hebrews 4:16.
+> "Let us therefore come boldly unto the Throne of Grace."  
+> Hebrews 4:16  
 
 Prayer occupies a most important place in the life of the Christian. "Behold, he prays," was one of the first and also one of the surest indications of the conversion of Saul of Tarsus. No one begins to live the life of faith who has not also begun to pray, and as prayer is necessary at the commencement of the Christian career, so is it necessary all through. A Christian's vigor, happiness, growth and usefulness all depend upon prayer. It is: "His watchword at the gates of death, He enters Heaven with prayer." I suppose that even there we shall continue to pray. At all events, we read of the souls under the altar crying with a loud voice and saying, "How long, O Lord, holy and true, do You not judge and avenge our blood on them that dwell on the earth?" I imagine that in Heaven we shall still lift up our hearts in prayer for the spread of Christ's Kingdom, though our principal occupation there will be that of praise. But prayer is always needed here, every day, every hour, every moment we have cause for crying unto the Most High: "Long as they live should Christians pray," for only while they pray do they truly live!
 
