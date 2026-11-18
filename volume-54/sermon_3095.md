@@ -1,6 +1,6 @@
 # Sermon 3095 | Faith in Christ
 
-> "Believe on the Lord Jesus Christ, and you shall be saved."  
+> Believe on the Lord Jesus Christ, and you shall be saved.  
 > Acts 16:31  
 
 The subject which I have chosen for this morning and which may God the Holy Spirit bless to us, is faith in the Lord Jesus Christ as the way of salvation. Nothing can be of more importance than this subject and, therefore, nothing will more thoroughly interest a company of practical businessmen.
