@@ -1,6 +1,7 @@
 # Sermon 3181 | A Sermon for a Winter's Evening
 
-"And the servants and officers stood there, who had made a fire of coals, for it was cold: and they warmed themselves: and Peter stood with them, and warmed himself." John 18:18.
+> "And the servants and officers stood there, who had made a fire of coals, for it was cold: and they warmed themselves: and Peter stood with them, and warmed himself."  
+> John 18:18  
 
 We note from this incident that it was a cold night in which our Redeemer agonized in the Garden of Gethsemane. A cold night, and yet He sweat! A cold night, and yet there fell from Him, not the sweat of a man who earns the staff of life, but the sweat of One who was earning life, itself. "His sweat was, as it were, great drops of blood falling down to the ground." No natural heat of the sun, or of a sultry evening caused this! The heat within His soul distilled those sacred drops! His heart's throbs were so mighty that it seemed to empty itself and His life-floods rushed with such awful force that the veins, like overfilled rivers, burst their banks and covered His blessed Person with gory drops! On such a wintry night as this, while you wrap your garments about you, I would ask you to remember the olive garden and the lone Sufferer, all unsheltered, entering into the dread anguish by which He won our souls from death and Hell! The sharp frost may be a useful monitor to us if it makes us think of Him and remember that dark, that doleful night when all the powers of evil met and, even unto blood, He strove with them for our sakes!
 
