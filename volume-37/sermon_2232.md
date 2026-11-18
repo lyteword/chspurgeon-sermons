@@ -3,7 +3,8 @@
 > For your sakes.  
 > 2 Corinthians 8:9  
 
-"For His sake." Philippians 1:29.
+> For His sake.  
+> Philippians 1:29  
 
 The true test of any action lies in its motive. Many a deed which seems to be glorious is really mean and ignoble because it is done with a base intention. While other actions which appear to be poor and paltry, if we truly understood them, would be seen to be full of the glory and beauty of a noble purpose. The mainspring of a watch is the most important part of it. The spring of an action is everything. My sermon from these two texts will be on the motive which inspired Christ's redeeming work and the motive which should inspire our service for Him. He did all for our sakes; we should do all for His sake. Fix your attention, then, chiefly, not on the deed, but on the motive which is its root.
 
