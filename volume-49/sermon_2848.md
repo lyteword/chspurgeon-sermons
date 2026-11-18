@@ -3,7 +3,8 @@
 > I will be your King.  
 > Psalm 44:4  
 
-"You are my King, O God." Hosea 13:10.
+> You are my King, O God.  
+> Hosea 13:10  
 
 Those of you who were present, this morning, will remember that I preached upon the Kingship of the Lord Jesus Christ and that I earnestly entreated my hearers to submit themselves to His Kingly authority. I hope that many who were with us felt that an Almighty force was operating upon them, making them willing to surrender themselves to the control of the great King of kings. I dwelt, then, mainly upon the need of decision for Christ and upon our duty to yield ourselves up wholly to Him. That is the human side of the question and is, by no means, to be kept in the background, but, on this occasion I want to speak to you upon the privilege of having Christ for our King and upon the graciousness of Christ in allowing Himself to be our King and permitting us to become His subjects. My purpose, at this time, is rather to set forth what God does for us in this matter than what He demands of us. To me it seems inexpressibly beautiful that while we are, in one place, bid to "kiss the Son" and accept Him as our King, we have, in another portion of Scripture, such a delightful declaration as this, "I will be your King." It is always interesting to trace great rivers to their sources. You usually find that their springs lie far up among the mountains and, if you trace back to their springs certain practical subjects that you find in the Word of God, you get to the eternal hills of Everlasting Love!
 

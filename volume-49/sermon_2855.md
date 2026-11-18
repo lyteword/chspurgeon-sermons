@@ -3,13 +3,11 @@
 > And David and all Israel played before God with all their might, and with singing and with harps and with psalteries, and with timbrels, and with cymbals, and with trumpets.  
 > 1 Chronicles 13:8  
 
-"And David was afraid of God that day, saying, How shall I bring the Ark of God home to me?"
+> And David was afraid of God that day, saying, How shall I bring the Ark of God home to me?  
+> 1 Chronicles 13:12  
 
-1 Chronicles 13:12.
-
-"So David, and the elders of Israel, and the captains over thousands, went to bring up the Ark of the Covenant of the Lord out of the house of Obed-Edom with joy."
-
-1 Chronicles 15:25.
+> So David, and the elders of Israel, and the captains over thousands, went to bring up the Ark of the Covenant of the Lord out of the house of Obed-Edom with joy.  
+> 1 Chronicles 15:25  
 
 David had, in his heart, an intense love to God. During Saul's reign, God had been well-nigh forgotten in the land. The ordinances of His house had been almost, if not entirely, neglected, and when David found himself firmly seated upon his throne, one of his first thoughts was concerning the revival of religion, the reestablishment of that form of worship which God had ordained in the wilderness by the mouth of His servant Moses. So he looked about him to see where the Ark of the Covenant, that most sacred of all the ancient symbols, was, and he wrote, "We heard of it at Ephratah: we found it in the fields of the wood." Out of pure love and reverence to God, he called the people together, consulting with them so that the thing might not be done by himself, but by the nation. It was agreed that the Ark should be brought up and placed upon Mount Zion, near the palace of the king, in a conspicuous position where it should be the center of religious worship for the entire nation. It was to be placed near that sacred spot where Abraham had, of old, offered up his son, Isaac, that, in the great days of assembly, the Israelites might wend their way there and worship God as He had commanded them.
 

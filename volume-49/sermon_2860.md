@@ -3,9 +3,8 @@
 > I am like an owl of the desert.  
 > Psalm 102:6  
 
-"Who satisfies your mouth with good things; so that your youth is renewed like the eagle's."
-
-Psalm 103:5.
+> Who satisfies your mouth with good things; so that your youth is renewed like the eagle's.  
+> Psalm 103:5  
 
 In the one hundred and second Psalm, the Believer likens himself to an owl, and in the one hundred and third Psalm, in almost the parallel verse, he is compared to an eagle. What a blessing it is that the saints of God, in the olden times, were moved by the Holy Spirit to write down their experiences. And what a mercy it is that they wrote them out so fully! They have not given us miniatures so much as full-length portraits. Especially was this the case with David, again and again he draws himself to the very life. Possibly, if left to himself, he would have omitted from his autobiography some of his faults and failings, as well as the grosser sins of his life, but he was under the guidance of the Spirit of God and, therefore, he has shown us his true self, infirmities, iniquities and all that he was! It is related of Oliver Cromwell that when his portrait was about to be painted by an eminent artist, the painter desired to conceal the wart upon the Protector's face, but the true hero said, "Paint me just as I am, wart and all." In a similar style, David, the champion and hero of Israel, in the portrait of himself, painted by himself, shows us his scars and warts, his blemishes and imperfections.
 
