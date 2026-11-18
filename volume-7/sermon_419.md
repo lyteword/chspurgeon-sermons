@@ -1,6 +1,6 @@
 # Sermon 419 | The Roaring Lion
 
-> "Be sober, be vigilant, because your adversary the devil, as a roaring lion, walks about, seeking whom he may devour: whom resist steadfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world."  
+> Be sober, be vigilant, because your adversary the devil, as a roaring lion, walks about, seeking whom he may devour: whom resist steadfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world.  
 > 1 Peter 5:8, 9  
 
 Satan, who is called by various names in the Scriptures, all descriptive of his bad qualities, was once an angel of God, perhaps one of the chief among the fiery ones:

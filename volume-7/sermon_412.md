@@ -1,6 +1,6 @@
 # Sermon 412 | God's First Words To The First Sinner
 
-> "The Lord God called to Adam and said unto him, Where are you?"  
+> The Lord God called to Adam and said unto him, Where are you?  
 > Genesis 3:9  
 
 It will be interesting to the members of this Church to know that it was under a sermon delivered by Mr. William Wallin from this very text, that my honored and venerable predecessor, Dr. Gill, was converted to a knowledge of the Truth of God as it is in Jesus. I looked with some degree of curiosity to his interpretation of this passage. I had half hoped to find there some allusion to his own conversion, but I did not, although I was edified by his clear and methodical comment upon it, to which I am under obligations for suggesting the present discourse. May I hope that, as this text has been the means in the hands of God of conferring upon the Church of Christ a man who valiantly defended the Truth of God, and was the means of expounding the Doctrine of Grace with great clearness, that there may be here present today someone at least who like John Gill may hear the Word with power, and may receive it in its quickening influence into his soul! No, let us pray that not one alone, but that many may hear the enquiry of God as it rings through the multitude, and while it reaches the ear, may it reach the heart, too, and may some be brought before God in answer to the question, "Where are you?" and receive the assurance of pardon, and go on their way in peace!

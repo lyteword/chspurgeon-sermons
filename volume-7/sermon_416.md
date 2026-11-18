@@ -1,6 +1,6 @@
 # Sermon 416 | The Shield Of Faith
 
-> "Above all, taking the shield of faith, wherewith you shall be able to quench all the fiery darts of the wicked."  
+> Above all, taking the shield of faith, wherewith you shall be able to quench all the fiery darts of the wicked.  
 > Ephesians 6:16  
 
 Like the Spartans, every Christian is born a warrior. It is his destiny to be assaulted. It is his duty to attack. Part of his life will be occupied with defensive warfare. He will have to defend earnestly the faith once delivered to the saints. He will have to resist the devil, he will have to stand against all his wiles, and having done all, still to stand. He will, however, be but a sorry Christian if he acts only on the defensive. He must be one who goes against his foes as well as stands still to receive their advance. He must be able to say with David, "I come against you in the name of the Lord of Hosts, the God of the armies of Israel whom you have defied."

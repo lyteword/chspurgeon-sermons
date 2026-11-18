@@ -1,6 +1,6 @@
 # Sermon 370 | Evangelical Congratulations
 
-> "Christ is preached, and I therein do rejoice, yes, and will rejoice."  
+> Christ is preached, and I therein do rejoice, yes, and will rejoice.  
 > Philippians 1:18  
 
 Rev. W. Brock.

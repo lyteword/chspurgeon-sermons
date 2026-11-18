@@ -1,6 +1,6 @@
 # Sermon 418 | Bread For The Hungry
 
-> "And He humbled you and suffered you to hunger and fed you with manna, which you knew not neither did your fathers know; that He might make you know that man does not live by bread only but by every Word that proceeds out of the mouth of the Lord does man live."  
+> And He humbled you and suffered you to hunger and fed you with manna, which you knew not neither did your fathers know; that He might make you know that man does not live by bread only but by every Word that proceeds out of the mouth of the Lord does man live.  
 > Deuteronomy 8:3  
 
 This notable text shall teach us two lessons this morning. Its first utterance shall be concerning Providence and its second, concerning the life of grace in the heart. Our blessed Lord once used this text with regard to Providence and therefore, we shall be justified in so interpreting it. When the foul fiend suggested to the hungry Savior that He should work a "preposterous miracle" to supply His needs, saying, "If you are the Son of God, command that these stones be made bread," the Master met him, not with the wooden sword of human reason, but with this true Jerusalem blade, the sword of the Spirit, which is the Word of God, replying to him, "It is written, man shall not live by bread alone, but by every Word that proceeds out of the mouth of God."
