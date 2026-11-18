@@ -1,7 +1,7 @@
 # Sermon 542 | Paul: His Cloak And His Books
 
-> "The cloak that I left at Troas with Carpus, when you come, bring with you, and the books, but especially the parchments."  
-> 2 Timothy 4:13.  
+> The cloak that I left at Troas with Carpus, when you come, bring with you, and the books, but especially the parchments.  
+> 2 Timothy 4:13  
 
 Foolish persons have made remarks upon the trifles of Scripture. They have marveled why so little a matter as a cloak should be mentioned in an Inspired Book. But they ought to know that this is one of the many indications that the Book is by the same Author as the Book of Nature. Are there not things which our short-sightedness would call trifles in the volume of Creation around us? What is the peculiar value of the daisy upon the lawn, or the buttercup in the meadow? Compared with the rolling sea, or the eternal hills, how inconsiderable they seem!
 

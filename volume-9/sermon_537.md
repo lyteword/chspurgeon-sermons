@@ -1,7 +1,7 @@
 # Sermon 537 | Encourage Your Minister!
 
-> "Encourage him."  
-> Deuteronomy 1:38.  
+> Encourage him.  
+> Deuteronomy 1:38  
 
 Moses could not conduct the people into the promised land. Nor can the Law bring any man to Heaven. The Law may lead a man out of the Egypt of his sin, and it may bring him into the wilderness of conviction. There it may provide him with food and nourish him with some little comfort, but the Law can never give rest to the spirit into Canaan. Moses can never conduct the Israel of God. This was left for Joshua, whose name, you know, is but another form of the name, Jesus. As Joshua, alone, could drive the Canaanites out of the land, and give a portion to all the seed of Israel, so Jesus, alone, can give rest unto the heirs of Heaven.
 

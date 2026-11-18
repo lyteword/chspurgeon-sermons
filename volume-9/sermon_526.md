@@ -1,7 +1,7 @@
 # Sermon 526 | No Illusion
 
-> "And did not know that what was done by the angel was real, but thought he was seeing a vision."  
-> Acts 12:9.  
+> And did not know that what was done by the angel was real, but thought he was seeing a vision.  
+> Acts 12:9  
 
 Fancy, not fact! A dream! A delusion! That would be the world's estimate of the most blessed Christian experience. "Fanaticism" is the name by which they call it. But call it by whatever name you please, the Divine Grace that interposes and rescues a sinner from the Law's threats, from Satan's tyranny, from the malice of men, and the fears of one's own heart is matter of abundant joy. Then let it be witnessed by a life of undeviating principle and devoted service of God; sneer who may, suspect it who will, it is a noble triumph.
 

@@ -1,7 +1,7 @@
 # Sermon 541 | Direction In Dilemma
 
-> "Stand still and see the salvation of the Lord."  
-> Exodus 14:13.  
+> Stand still and see the salvation of the Lord.  
+> Exodus 14:13  
 
 God's great design in all His works is the manifestation of His Glory. Any aim less than this were unworthy of Himself. He cannot act for the good of His creatures as an ultimate aim, for that were for God to be impelled by a motive less great than His own Nature. Since there can be nothing greater than the Infinite and there can be but one Infinite, if the infinite God is moved by an infinite motive which is the only one worthy of Him, that motive must be found in His own Glory. It is, then, the Lord's will to manifest His Glory to the sons of men. But how shall the Glory of God be manifested to such fallen creatures as we are?
 

@@ -1,7 +1,7 @@
 # Sermon 546 | Alpha And Omega
 
-> "I am Alpha and Omega, the Beginning and the End, the First and the Last."  
-> Revelation 22:13.  
+> I am Alpha and Omega, the Beginning and the End, the First and the Last.  
+> Revelation 22:13  
 
 Every Sunday school child knows that there is no great mystery hidden in the words, "Alpha and Omega." We have here the names of the first and last letters of the Greek alphabet, so that the sense would be, "I am a and great O," in the Greek, or in plain English, "I am a and Z." "Jesus is the Alpha and Omega: A and Z: the Beginning and the End, the First and the Last."
 

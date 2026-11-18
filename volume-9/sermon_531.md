@@ -1,7 +1,7 @@
 # Sermon 531 | The Warrant of Faith
 
-> "And this is his commandment, That we should believe on the name of his Son Jesus Christ."  
-> 1 John 3:23.  
+> And this is his commandment, That we should believe on the name of his Son Jesus Christ.  
+> 1 John 3:23  
 
 The old law shines in terrible glory with its ten commandments. There are some who love that law so much, that they cannot pass over a Sabbath without its being read in their hearing, accompanied by the mournful petition, "Lord, have mercy upon us, and incline our hearts to keep this law." Nay, some are so foolish as to enter into a covenant for their children, that "they shall keep all God's holy commandments, and walk in the same all the days of their life." Thus they early wear a yoke which neither they nor their fathers can bear, and daily groaning under its awful weight, they labour after righteousness where it never can be found. Over the tables of the law in every Church, I would have conspicuously printed these gospel words, "By the deeds of the law shall no flesh living be justified." The true believer has learned to look away from the killing ordinances of the old law. He understands that "as many as are of the works of the law are under the curse, for it is written: Cursed is everyone that continueth not in all things which are written in the book of the law to do them." He therefore turns with loathing from all trust in his own obedience to the ten commands, and lays hold with joy upon the hope set before him in the one commandment contained in my text, "This is his commandment, that we should believe on the name of his Son Jesus Christ."
 

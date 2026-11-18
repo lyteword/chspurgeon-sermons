@@ -1,7 +1,7 @@
 # Sermon 545 | The Holy Child, Jesus
 
-> "That signs and wonders may be done by the name of Your holy Child, Jesus."  
-> Acts 4:30.  
+> That signs and wonders may be done by the name of Your holy Child, Jesus.  
+> Acts 4:30  
 
 The opposition of the world is often a very great blessing to the Church. If it is met by holy boldness, it is sure to yield a glorious triumph for the servants of God. Sanctified by the Holy Spirit, out of the eater comes forth honey, for it becomes an incentive to greater zeal. Now that the enemy is determined to conquer, the Church will be resolved to hold its own. Pressure from without drives the members of the Church together and so promotes holy love. And when love and zeal come together, then there is such a blessed unity of action and such a power in every effort that great success must follow. Woe unto the world when it persecutes the Church, for it kicks with its naked foot against the pricks! It stirs up a nest of hornets about its own ears! Yes, it provokes the Lion of the tribe of Judah to spring upon His enemies.
 

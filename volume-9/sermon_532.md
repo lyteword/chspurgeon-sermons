@@ -1,7 +1,7 @@
 # Sermon 532 | Thanksgiving And Prayer
 
-> "You crown the year with Your goodness. And your paths drop fatness."  
-> Psalm 65:11.  
+> You crown the year with Your goodness. And your paths drop fatness.  
+> Psalm 65:11  
 
 Possibly objections might have been raised to a day of thanksgiving for the abundant harvest if it had been ordered or suggested by Government. Certain Brothers and Sisters are so exceedingly tender in their consciences upon the point of connection between Church and State that they would have thought it almost a reason for not being thankful at all if the Government had recommended them to celebrate a day of public thanksgiving.
 

@@ -1,7 +1,7 @@
 # Sermon 490 | Gracious Renewal
 
-> "Renew a right spirit within me."  
-> Psalm 51:10.  
+> Renew a right spirit within me.  
+> Psalm 51:10  
 
 We had a joyful meeting last Wednesday evening. As a Church we all met together as a loving family, and it was a sight of the most encouraging kind to see a great host, like the host of God, of Brothers and Sisters, all dwelling together in unity. That solemnly joyful sight suggested to my heart the propriety of addressing you today upon the subject of the renewal of your consecration to Christ. I thought that the season, the annual season when we all meet together, would be but a fit and proper opportunity for our giving ourselves over again to Him whose we are, and whom we serve. In an honored sanctuary in the neighborhood, it is the custom at the early part of the year to have a solemn form of covenant read at communion, when the Church members all give their verbal assent with a solemn "Amen." There must be something very solemn, and at the same time something very delightful, in the uttered consent of a multitude of persons to the will and law of Christ. Days of annual celebration should be days of solemn dedication. Dear Friends, there are other occasions when you might very rightly, I think, renew your Covenant with God. After recovery from sickness, when, like Hezekiah, you have had a new term of years added to your life, and have risen from the bed of languishing to tread the greensward, and breathe the fresh air. Then should you sing:
 

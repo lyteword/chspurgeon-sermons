@@ -1,7 +1,7 @@
 # Sermon 504 | I Know That My Redeemer Liveth
 
-> "For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth: and though after my skin worms destroy this body, yet in my flesh shall I see God; whom I shall see for myself, and mine eyes shall behold, and not another; though my reins be consumed within me."  
-> Job 19:25-27.  
+> For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth: and though after my skin worms destroy this body, yet in my flesh shall I see God; whom I shall see for myself, and mine eyes shall behold, and not another; though my reins be consumed within me.  
+> Job 19:25-27  
 
 The hand of God has been upon us heavily this week. An aged deacon, who has been for more than fifty years a member of this Church, has been removed from our midst; and a sister, the beloved wife of another of our Church-officers, a member for nearly the same term of years, has fallen asleep. It is not often that a Church is called to sorrow over the departure of two such venerable members; let not our ears be deaf to such a double admonition to prepare to meet our God. That they were preserved so long, and upheld so mercifully for so many years, was not only a reason for gratitude to them, but to us also. I am, however, so averse to the preaching of what are called funeral sermons, that I forbear, lest I appear to eulogize the creature, when my only aim should be to magnify the grace of God.
 

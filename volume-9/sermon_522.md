@@ -1,7 +1,7 @@
 # Sermon 522 | Mealtime In The Corn Fields
 
-> "And Boaz said unto her, At mealtime come you here and eat of the bread and dip your morsel in the vinegar. And she sat beside the reapers: and he reached her parched corn and she did eat and was sufficed and left."  
-> Ruth 2:14.  
+> And Boaz said unto her, At mealtime come you here and eat of the bread and dip your morsel in the vinegar. And she sat beside the reapers: and he reached her parched corn and she did eat and was sufficed and left.  
+> Ruth 2:14  
 
 If we lived in the country it would not be necessary for me to remind you that the time of harvest has again happily come upon us. I saw, one day last week, a fine sample of the new wheat, part of a considerable quantity which had just been sold. And in many places I have observed the fields yielding their sheaves to the reapers' sickle. Let us loudly lift our praises to God for the abundance which loads the land. An unusually heavy crop has been given in many quarters and scarcely anywhere is there any deficiency.
 

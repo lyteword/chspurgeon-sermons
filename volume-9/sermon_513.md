@@ -1,7 +1,7 @@
 # Sermon 513 | The Young Man's Prayer
 
-> "O satisfy us early with Your mercy, that we may rejoice and be glad all our days."  
-> Psalm 90:14.  
+> O satisfy us early with Your mercy, that we may rejoice and be glad all our days.  
+> Psalm 90:14  
 
 Israel had suffered a long night of affliction. Dense was the darkness while they abode in Egypt, and cheerless was the glimmering twilight of that wilderness which was covered with their graves. Amidst a thousand miracles of mercy, what must have been the sorrows of a camp in which every stop was marked with many burials, until the whole trail was a long cemetery? I suppose that the deaths in the camp of Israel was never less than fifty each day, if not three times that number, so that they learned experimentally that verse of the Psalm, "For we are consumed by Your anger, and by Your wrath are we troubled."
 

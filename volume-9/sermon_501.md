@@ -1,7 +1,7 @@
 # Sermon 501 | Grace Abounding
 
-> "I will love them freely."  
-> Hosea 14:4.  
+> I will love them freely.  
+> Hosea 14:4  
 
 This sentence is a body of divinity in miniature. He who understands its meaning is a theologian, and he who can dive into its fullness is a true Master in divinity. "I will love them freely," is a condensation of the glorious message of salvation which was delivered to us in Christ Jesus our Redeemer. The sense hinges upon the word "freely." "I will love them freely." Here is the glorious, the suitable, the divine way by which love streams from heaven to earth. It is, indeed, the only way in which God can love such as we are. It may be that he can love angels because of their goodness; but he could not love us for that reason; the only manner in which love can come from God to fallen creatures is expressed in the word "freely." Here we have spontaneous love flowing forth to those who neither deserved it, purchased it, nor sought after it.
 

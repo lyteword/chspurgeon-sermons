@@ -1,7 +1,7 @@
 # Sermon 534 | The Mighty Power Which Creates And Sustains Faith
 
-> "The exceeding greatness of His power to us-ward who believe, according to the working of His mighty power, which He worked in Christ, when He raised Him from the dead and set Him at His own right hand in the heavenly places, far above all principality and power and might and dominion and every name that is named, not only in this world, but also in that which is to come. And has put all things under His feet and gave Him to be the head over all things to the Church, which is His body, the fullness of Him that fills all in all."  
-> Ephesians 1:19-23.  
+> The exceeding greatness of His power to us-ward who believe, according to the working of His mighty power, which He worked in Christ, when He raised Him from the dead and set Him at His own right hand in the heavenly places, far above all principality and power and might and dominion and every name that is named, not only in this world, but also in that which is to come. And has put all things under His feet and gave Him to be the head over all things to the Church, which is His body, the fullness of Him that fills all in all.  
+> Ephesians 1:19-23  
 
 To believe on the Lord Jesus Christ with all our heart is one of the simplest things imaginable. To trust Christ, to depend upon His power and faithfulness is such a childlike act that one sees no extraordinary difficulty in it. Yet, to bring the human mind to exercise simple faith in Jesus is a work of the most astounding power. To bring down the pride of man, to subjugate his will and to captivate his passions so that he shall cheerfully accept that which God presents to him in the Person of Christ Jesus, is a labor worthy of God.
 

@@ -1,7 +1,7 @@
 # Sermon 507 | The Power Of Prayer And The Pleasure Of Praise
 
-> "You also helping together by prayer for us, that for the gift bestowed upon us by the means of many persons thanks may be given by many on our behalf. For our rejoicing in this, the testimony of our conscience, that in simplicity and godly sincerity, not with fleshly wisdom, but by the Grace of God, we have had our conversation in the world and more abundantly to you."  
-> 2 Corinthians 1:11, 12.  
+> You also helping together by prayer for us, that for the gift bestowed upon us by the means of many persons thanks may be given by many on our behalf. For our rejoicing in this, the testimony of our conscience, that in simplicity and godly sincerity, not with fleshly wisdom, but by the Grace of God, we have had our conversation in the world and more abundantly to you.  
+> 2 Corinthians 1:11, 12  
 
 The Apostle Paul had, by singular Providences, been delivered from imminent peril in Asia. During the great riot at Ephesus, when Demetrius and his fellow shrine-makers raised a great tumult against him, because they saw that their craft was in danger, Paul's life was greatly in jeopardy. Consequently he writes, "We were pressed out of measure, above strength, insomuch that we despaired even of life." The Apostle attributes to God, alone, his singular preservation. And if he referred also to the occasion when he was stoned and left for dead, there is much appropriateness in his blessing "God which raised the dead."
 

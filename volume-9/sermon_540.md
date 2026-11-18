@@ -1,7 +1,7 @@
 # Sermon 540 | The Lambs And Their Shepherd
 
-> "He shall gather the lambs with His arm and carry them in His bosom."  
-> Isaiah 40:11.  
+> He shall gather the lambs with His arm and carry them in His bosom.  
+> Isaiah 40:11  
 
 The people of God are most fitly compared to sheep. The excellencies of their moral and spiritual character furnish one side of the picture, for like sheep they are gentle in their lives and are well accepted, whether living or dying, as a sacrifice unto God. Their frailties and weaknesses complete the likeness, for they are prone to wander, full of wants, powerless in self-defense, and not able to escape from their enemies by rapid flight. No creature has less power to take care of itself than sheep. Even the tiny ant with its foresight can provide for the evil day, but this poor creature must be tended by man or else perish. Such are the people of God: timid, weak, defenseless, unable to provide for themselves and compelled to depend for everything upon Him whose name is, "That great Shepherd of the sheep."
 

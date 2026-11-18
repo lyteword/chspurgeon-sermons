@@ -1,7 +1,7 @@
 # Sermon 515 | The Sinner's Advocate
 
-> "My little children, these things write I unto you, that you sin not. And if any man sins, we have an Advocate with the Father, Jesus Christ the righteous."  
-> 1 John 2:1.  
+> My little children, these things write I unto you, that you sin not. And if any man sins, we have an Advocate with the Father, Jesus Christ the righteous.  
+> 1 John 2:1  
 
 The Apostle John presents us with a very clear and emphatic testimony to the doctrine of full and free forgiveness of sin. He declares that the blood of Jesus Christ, God's dear Son, cleans us from all sin, and that if any man sins, we have an Advocate. It is most evident that he is not afraid of doing mischief by stating this Truth of God too broadly. On the contrary, he makes this statement with the view of promoting the sanctity of his "little children." The object of this bold declaration of the love of the Father to His sinning children is, "that you sin not." This is a triumphant answer to that grossly untruthful objection which is so often urged by the adversaries of the Gospel against the doctrines of Free Grace, that they lead men to licentiousness.
 

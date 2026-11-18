@@ -1,7 +1,7 @@
 # Sermon 516 | The Minister's Stock-Taking
 
-> "And some believed the things which were spoken and some believed not."  
-> Acts 28:24.  
+> And some believed the things which were spoken and some believed not.  
+> Acts 28:24  
 
 This is the only proper way to calculate the results of our ministry. We just want the account book ruled with two columns. On one side we must put down the long list of the some that believe not. And on the brighter side we may enter what is, too often, the far less number of the some that believe. This is the only true method, I repeat it, by which we can hold a stock-taking so as to ascertain the net profit of the preaching of the Gospel. We must not estimate the good that is done by the number of those who listen. It is a very pleasant thing to see the House of Prayer filled to overflowing.
 

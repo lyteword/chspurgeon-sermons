@@ -1,7 +1,7 @@
 # Sermon 509 | Lead Us Not Into Temptation
 
-> "Lead us not into temptation, but deliver us from evil."  
-> Matthew 6:13.  
+> Lead us not into temptation, but deliver us from evil.  
+> Matthew 6:13  
 
 Psalms are entitled "Songs of Degrees." Certainly the prayer before us might be called a Prayer of Degrees. It begins where all true prayer must commence, with the spirit of adoption, "Our Father." There is no acceptable prayer until we can say with the prodigal, "I will arise and go unto my Father." This child-like spirit soon perceives the grandeur of the Father "in Heaven," and ascends to devout adoration, "Hallowed be Your name." The child who lisps, "Abba Father," grows into the cherub, crying, "Holy, Holy, Holy."
 

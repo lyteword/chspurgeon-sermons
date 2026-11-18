@@ -1,7 +1,7 @@
 # Sermon 488 | The Voice From Heaven
 
-> "And they heard a great voice from Heaven, saying unto them, Come up here."  
-> Revelation 11:12.  
+> And they heard a great voice from Heaven, saying unto them, Come up here.  
+> Revelation 11:12  
 
 What may be the particular meaning of the prophecy concerning the witnesses clothed in sackcloth, their death, their resurrection, and their subsequent entrance into Heaven, I am unable to guess. Nor am I clear that anybody else has hit upon it. Although I do not despise prophesying, I entertain a very intense disgust of those who know nothing about them, and yet pretend to be their interpreters. I am free to confess that I have not the key to the Book of Revelation and dare not set up to be its expositor.
 

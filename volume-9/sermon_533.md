@@ -1,7 +1,7 @@
 # Sermon 533 | The Queen Of The South, Or The Earnest Enquirer
 
-> "The queen of the south shall rise up in the judgment with this generation and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here."  
-> Matthew 12:42.  
+> The queen of the south shall rise up in the judgment with this generation and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here.  
+> Matthew 12:42  
 
 Our Savior, in this chapter, administered a rebuke to two sorts of people. He reproved those who hear the Gospel, but who are not brought to humiliation and repentance. He rebuked them by the example of the Ninevites, who, having but one short and terrible warning from the Prophet Jonah, clothed themselves in sackcloth, turned unto God in penitence and so preserved their city. He then rebukes another class: those who have not curiosity enough to care to hear the Gospel, or who, if they hear it, give it no attention, as though it were not worthy of human thought.
 

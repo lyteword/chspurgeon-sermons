@@ -1,7 +1,7 @@
 # Sermon 538 | Caleb: The Man For The Times
 
-> "But My servant Caleb, because he had another spirit in him and has followed Me fully, him will I bring into the land he went. And his seed shall possess it."  
-> Numbers 14:24.  
+> But My servant Caleb, because he had another spirit in him and has followed Me fully, him will I bring into the land he went. And his seed shall possess it.  
+> Numbers 14:24  
 
 It is a rough name that, "Caleb." Most translators say it signifies "a dog." But what matters a man's name? Possibly the man himself was somewhat rough; many of the heartiest of men are so. As the unpolished oyster yet bears within itself the priceless pearl, so oftentimes ruggedness of exterior covers worth. A dog, moreover, is not all badness, though, "Without are dogs and sorcerers." It has this virtue, that it follows its master. And therein this Caleb was well-named. For never dog so followed his master as Caleb followed his God.
 

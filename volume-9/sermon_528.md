@@ -1,7 +1,7 @@
 # Sermon 528 | Chastisement: Now And Afterward
 
-> "Now no chastening for the present seems to be joyous, but grievous: nevertheless afterward it yields the peaceable fruit of righteousness unto them which are exercised thereby."  
-> Hebrews 12:11.  
+> Now no chastening for the present seems to be joyous, but grievous: nevertheless afterward it yields the peaceable fruit of righteousness unto them which are exercised thereby.  
+> Hebrews 12:11  
 
 Last Sunday morning we tried to show you how the uncleanness of sin is removed. By the application of the blood of Christ the guilt of sin is cleansed; by the water which flowed with the blood from the side of Jesus defilement is taken away forever. Our work this morning is to consider the destruction of the power of sin. This is a work which rests in the hands of God the Holy Spirit and is not comprehended under the head of justification, but of sanctification. Beware, my Brothers and Sisters, lest you mix these two different things. It is in the sense of sanctification that the trials and afflictions of this life have the blessed influence of purging us from sin.
 
