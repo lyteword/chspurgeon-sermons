@@ -3,7 +3,8 @@
 > For it pleased the Father that in Him should all fullness dwell.  
 > Colossians 1:19  
 
-"And of His fullness we have all received, and Grace for Grace." John 1:16.
+> And of His fullness we have all received, and Grace for Grace.  
+> John 1:16  
 
 These two texts make up a very beautiful sketch of the plan of salvation. Put before your mind's eye the sinner, empty of all holiness, of all hope, despairing and ready to die. Put, also, before your mind, God, full of mercy, willing to come and fill the sinner's emptiness, to bring all His communicable attributes, dwell in that sinner and give him, first, the mercy which can blot out his sin, and then the holiness which can lift him up from his ruined condition. Next note the difficulty in the way, God cannot come as half a God, all His attributes must come together. And should the just God come into this guilty sinner to fill his emptiness, the flame of Justice would destroy him. It is not possible for God, even our God, who is "a consuming fire," to come into contact with that which is sinful without destroying it. What then? Shall the sinner remain empty and shall God's fullness remain uncommunicated?
 
