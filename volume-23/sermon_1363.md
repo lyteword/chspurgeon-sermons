@@ -3,7 +3,8 @@
 > Suddenly are my tents spoiled, and my curtains in a moment.  
 > Jeremiah 4:20  
 
-"And when you are spoiled, what will you do?" Jeremiah 4:30.
+> And when you are spoiled, what will you do?  
+> Jeremiah 4:30  
 
 Jeremiah was describing the havoc of war, a war which was devastating his country and bringing untold miseries upon the people. He says of it, "My soul, my soul! I am pained at my very heart; my heart makes a noise in me; I cannot hold my peace, because you have heard, O my soul, the sound of the trumpet, the alarm of war. Destruction upon destruction is cried; for the whole land is spoiled; suddenly are my tents spoiled, and my curtains in a moment. How long shall I see the standard, and hear the sound of the trumpet?"
 
