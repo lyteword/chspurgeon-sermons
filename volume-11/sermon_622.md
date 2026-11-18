@@ -1,7 +1,7 @@
 # Sermon 622 | Traveling Expenses On The Two Great Roads
 
 > So he paid the fare.  
-> Jonah 1:3.  
+> Jonah 1:3  
 
 As a general rule, wherever we go, whatever we do, we must "pay the fare." Expenditure is connected with every act, work and operation. The sun does not constantly flood this world and all its sister spheres with light and heat without some kind of consumption within itself. Nor does the earth yield her fruits of harvest except at the cost of the matter of which it is composed. By the force of wind and frost, the very "Mountain falling comes to nothing and the rock is removed out of his place" (Job 14:18). The rivers do not reach the sea without wearing away their banks and cutting channels in the earth through which their floods may flow. The raindrops, the generous gifts of Heaven, have first been loaned from the treasury of the great deep. The air itself is constantly in process of consumption, and were it not that a fresh supply is daily being produced, even the atmosphere would become exhausted.
 

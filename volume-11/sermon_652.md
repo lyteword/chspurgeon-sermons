@@ -1,7 +1,7 @@
 # Sermon 652 | Jesus The Shepherd
 
 > He shall feed His flock like a shepherd.  
-> Isaiah 40:11.  
+> Isaiah 40:11  
 
 Our Lord Jesus is very frequently described as the Shepherd of His people. The figure is inexhaustible, but it has been so often handled that I suppose it would be difficult to say anything fresh upon it. We all know and are very glad and comforted in the knowledge that the Lord Jesus Christ, as our Shepherd, exercises towards us all the kind and necessary offices which a shepherd performs towards his sheep. With gentle sway He rules us for our good: "Let us worship and bow down; let us kneel before the Lord our Maker; for He is our God and we are the people of His pasture and the sheep of His hand."
 

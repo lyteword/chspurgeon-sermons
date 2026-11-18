@@ -1,7 +1,7 @@
 # Sermon 641 | Confession Of Sin Illustrated by the Cases of Dr. Pritchard and Constance Kent
 
 > I acknowledged my sin unto thee, and mine iniquity have I not hid. I said, I will confess my transgressions unto the Lord; and thou forgavest the iniquity of my sin.  
-> Psalm 32:5.  
+> Psalm 32:5  
 
 David's grief for sin was long and terrible. Its effects were visible upon his outward frame; "his bones waxed old;" "his moisture was turned into the drought of summer." No remedy could he find, until he made a full confession before the throne of the heavenly grace. He tells us, that for a time he kept silence, and then his heart became more and more filled with grief: like some mountain tarn whose outlet is blocked up, his soul was swollen with torrents of sorrow. He dreaded to confront his sin. He fashioned excuses; he endeavoured to divert his thoughts, by giving his mind to the cares of his kingdom or the pleasures of his court, but it was all to no purpose; the rankling arrow made the wound bleed anew, and made the gash more wide and deep every day. Like a festering sore his anguish gathered and increased, and as he would not use the lancet of confession, his spirits became more and more full of torment, and there was no rest in his bones because of sin.
 

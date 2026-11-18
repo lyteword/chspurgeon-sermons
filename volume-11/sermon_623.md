@@ -1,7 +1,7 @@
 # Sermon 623 | Satan Considering the Saints
 
 > And the Lord said unto Satan, Hast thou considered my servant Job.  
-> Job 1:8.  
+> Job 1:8  
 
 How very uncertain are all terrestrial things! How foolish would that believer be who should lay up his treasure anywhere, except in heaven! Job's prosperity promised as much stability as anything can do beneath the moon. The man had round about him a large household of, doubtless, devoted and attached servants. He had accumulated wealth of a kind which does not suddenly depreciate in value. He had oxen, and asses, and cattle. He had not to go to markets, and fairs, and trade with his goods to procure food and clothing, for he carried on the processes of agriculture on a very large scale round about his own homestead, and probably grew within his own territory everything that his establishment required. His children were numerous enough to promise a long line of descendants. His prosperity wanted nothing for its consolidation. It had come to its flood-tide: where was the cause which could make it ebb?
 

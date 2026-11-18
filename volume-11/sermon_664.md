@@ -1,7 +1,7 @@
 # Sermon 664 | Early And Late
 
 > For the kingdom of Heaven is like a landowner who went out early in the morning to hire laborers for his vineyard... And he went out about the third hour and saw others standing idle in the marketplace... Again he went out about the sixth and the ninth hour and did likewise. And about the eleventh hour he went out and found others standing idle, and said to them, 'Why have you been standing here idle all day?'  
-> Matthew 20:1, 3, 5, 6.  
+> Matthew 20:1, 3, 5, 6  
 
 We have frequently observed that we do not think it right to neglect the context of Scripture. We have no right to tear passages of Scripture from their context and make them to mean what they were not intended to teach. And therefore I have, in the reading given you, according to my ability, what I think to be the immediate design of the present parable. It is a rebuke to those who fall into a legal spirit and begin calculating as to what their reward ought to be in a kingdom where the legal spirit is entirely out of place since its reward is not of debt, but of Divine Grace. I think I may now, without any violation of propriety, dwell upon one very distinct fact in connection with the parable. It is not right to violate the drift of the parable, but having already observed it and made it as clear as we can, we believe that we are now authorized to make use of one of the main circumstances mentioned in it.
 

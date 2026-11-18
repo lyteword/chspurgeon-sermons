@@ -1,7 +1,7 @@
 # Sermon 638 | Who Are The Elect?
 
 > And the Lord said, Arise, anoint him, for this is he.  
-> 1 Samuel 16:12.  
+> 1 Samuel 16:12  
 
 Samuel was sent to Bethlehem to discover the object of God's election. This would have been a very difficult task if the God who sent him had not accompanied him and spoken with the sure voice of Inspiration within him so soon as the chosen object stood before him. Brethren, it is neither your task nor mine to guess who are God's elect apart from marks and evidences. What was done in the councils of eternity before the world was made is hidden in the mind of God and we must not curiously intrude where the door is closed by the hand of Wisdom.
 

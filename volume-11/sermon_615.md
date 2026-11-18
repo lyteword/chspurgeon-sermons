@@ -1,7 +1,7 @@
 # Sermon 615 | Human Depravity And Divine Mercy
 
 > And the Lord smelled a sweet savor. And the Lord said in His heart, I will not again curse the ground anymore for man's sake; for the imagination of man's heart is evil from his youth; neither will I again destroy anymore every thing living as I have done.  
-> Genesis 8:21.  
+> Genesis 8:21  
 
 Peter tells us that Noah's ark and Baptism are figures of salvation. He puts the two together as pictures of the way by which we are saved. Noah was not saved by the world's being gradually reformed and restored to its primitive innocence, but a sentence of condemnation was pronounced and death, burial and resurrection ensued. Noah must go into the ark and become dead to the world. The floods must descend from Heaven and rise upward from their secret fountains beneath the earth. The ark must be submerged with many waters; here was burial. And then after a time Noah and his family must come out into a totally new world of resurrection life.
 

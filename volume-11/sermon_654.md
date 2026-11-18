@@ -1,7 +1,7 @@
 # Sermon 654 | Memory: The Handmaid Of Hope
 
 > This I recall to my mind, therefore have I hope.  
-> Lamentations 3:21.  
+> Lamentations 3:21  
 
 Memory is very often the servant of despondency. Despairing minds call to remembrance every dark foreboding in the past and every gloomy feature in the present. Memory stands like a handmaiden clothed in sackcloth, presenting to her master a cup of mingled gall and wormwood. Like Mercury, she hastens with winged heel to gather fresh thorns with which to fill the uneasy pillow and to bind fresh rods with which to scourge the already bleeding heart. There is, however, no necessity for this. Wisdom will transform Memory into an angel of comfort.
 

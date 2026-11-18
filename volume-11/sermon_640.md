@@ -1,7 +1,7 @@
 # Sermon 640 | The Gospel's Power In a Christian's Life
 
 > Only let your conversation be as it becomes the Gospel of Christ  
-> Philippians 1:27.  
+> Philippians 1:27  
 
 The word "conversation" does not merely mean our talk, one with another, but the whole course of our life and behavior in the world. The Greek word signifies the actions and the privileges of citizenship and we are to let our whole citizenship, our actions as citizens of the new Jerusalem, be such as becomes the Gospel of Christ. Observe, dear Friends, the difference between the exhortations of the legalists and those of the Gospel. He who would have you perfect in the flesh exhorts you to work that you may be saved, that you may accomplish a meritorious righteousness of your own and so may be accepted before God.
 

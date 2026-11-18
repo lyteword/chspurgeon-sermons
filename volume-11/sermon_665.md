@@ -1,7 +1,7 @@
 # Sermon 665 | Open House For All Comers
 
 > This Man receives sinners and eats with them.  
-> Luke 15:2.  
+> Luke 15:2  
 
 It is not very unusual that the Pharisees could not understand the Savior's mode of action, not only because self-righteousness and bigotry had blinded their eyes and callousness of heart to the interest of others and had bound them up in the darkness of self-righteousness, but also because the Savior's mode of acting was contrary to the general current of the dispensation to which the Pharisee had been accustomed. The dispensation of the old Covenant was that of distance. When God appeared to His servant Moses, it was, "Draw not near here: put off your shoes from off your feet." And when He manifested Himself upon Mount Sinai to His own chosen and separated people, one of the first commands was, "You shall set bounds about the mount and if so much as a beast touches the mountain it shall be stoned or thrust through with a dart."
 
