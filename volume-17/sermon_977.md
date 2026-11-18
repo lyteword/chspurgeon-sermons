@@ -1,8 +1,7 @@
 # Sermon 977 | The Master's Profession—The Disciples' Pursuit
 
 > I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart, I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth from the great congregation.  
->  
-> Psalm 40:9, 10  
+> Psalm 40:9-10  
 
 Who is the speaker that gives utterance to these marvelous words? In the first instance, they must be understood to proceed from our Lord Jesus Christ. By the Spirit of prophecy in the Old Testament, they were spoken of Him, and by the Spirit of interpretation in the New Testament, they have been applied to Him. Mark, then, how vehemently He here declares that He has fully discharged the work which He was sent to accomplish. When, in the days of His flesh, He was crying to His Father for preservation in a season of dire distress, He might well ask that He should then be helped, since all the previous strength He possessed had been laid out in His Father's service.
 
