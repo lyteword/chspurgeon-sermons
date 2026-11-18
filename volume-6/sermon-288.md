@@ -1,7 +1,7 @@
 # Sermon 288 | "Let Us Pray"
 
 > But it is good for me to draw near to God.    
-> Psalm 73:23.    
+> Psalm 73:28  
 
 There are many ways by which the true believer draws near to God. The gates of the king's palace are many; and through the love of Jesus, and the rich grace of his Spirit, it is our delight to enter and approach our heavenly Father. First and foremost among these is communion, that sweet converse which man holds with God, that state of nearness to God, in which our mutual secrets are revealed&mdash;our hearts being open unto him, his heart being manifested to us. Here it is we see the invisible, and hear the unutterable. The outward symbol of fellowship is the sacred Supper of the Lord at which, by means of simple emblems, we are divinely enabled to feed, after a spiritual sort, upon the flesh and blood of the Redeemer. This is a pearly gate of fellowship, a royal road which our feet delight to tread. Moreover, we draw near to God even in our sighs and tears, when our desolate spirits long for his sacred presence, crying, "Whom have I in heaven but thee, and there is none upon earth that I desire beside thee!" And as often as we read the promise written in the Word, and are enabled to receive it and rest upon it as the very words of a Covenant God, we do ready "Draw near to him."
 
