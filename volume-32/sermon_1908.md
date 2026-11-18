@@ -1,7 +1,7 @@
 # Sermon 1908 | Washed to Greater Foulness
 
-> "If I wash myself with snow water, and make my hands never so clean; yet shalt thou plunge me in the ditch, and mine own clothes shall abhor me."  
-> Job 9:30, 31.  
+> If I wash myself with snow water, and make my hands never so clean; yet shalt thou plunge me in the ditch, and mine own clothes shall abhor me.  
+> Job 9:30, 31  
 
 I feel certain that I am sent on a special errand at this time. Before my mind's eye I see a soul whose awful reflections are hurrying him to despair. He refuses counsel, and will not listen to direction, for dread has made him desperate. I would have a word in the ear of that worried and wearied one. See ye not the man? He has battled long against a dark temptation, but at last he is beaten. He feels that he can hold out no longer. He can scarcely take breath; the air grows hot and stifling around him, as he faces the question: what next? Accustomed as I am to look down on these crowded aisles and up at these closely packed galleries, I feel a strange curiosity as I gaze into the mass; for I know that there is one man among all of you to whom I have a private message. I carry despatches from the King of kings to one who is grievously troubled, and is become as a woman forsaken and despised. My Lord and Master described himself in parable as leaving the ninety-and-nine to seek for one lost sheep: I must now copy his example. You will not grudge me for this service, I am sure. I quit the throng that I may find the bewildered one, and bring him safe and sound to the fold.
 

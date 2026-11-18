@@ -1,7 +1,7 @@
 # Sermon 1889 | The Blood of Sprinkling (Second Sermon.)
 
-> "Ye are come ... to Jesus the mediator of the new covenant, and to the blood of sprinkling, that speaketh better things than that of Abel. See that ye refuse not him that speaketh."  
-> Hebrews 12:24, 25.  
+> Ye are come ... to Jesus the mediator of the new covenant, and to the blood of sprinkling, that speaketh better things than that of Abel. See that ye refuse not him that speaketh.  
+> Hebrews 12:24, 25  
 
 In the former part of this sermon the text grew upon me so largely that it was quite impossible to express all its meaning. In as condensed a manner as possible I explained what was meant by "the blood of sprinkling," and I also enlarged upon the high position which this precious blood occupies in the gospel dispensation; but I was obliged to leave for this second occasion two practical questions which the text is sure to raise if it be carefully thought upon.
 
