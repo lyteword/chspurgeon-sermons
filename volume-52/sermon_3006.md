@@ -1,6 +1,6 @@
 # Sermon 3006 | "The Lord Is My Shepherd"
 
-> "The Lord is my shepherd."  
+> The Lord is my shepherd.  
 > Psalm 23:1  
 
 I cannot say anything that is new upon this text. I have not even the desire to do so, but if I can remind you of old and precious Truths of God and also put you in remembrance of sweet experiences which are past, this will not be an unprofitable topic for our meditation.

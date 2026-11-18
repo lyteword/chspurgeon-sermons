@@ -3,7 +3,8 @@
 > And every man went unto his own house.  
 > John 7:53  
 
-"Jesus went unto the Mount of Olives." John 8:1.
+> Jesus went unto the Mount of Olives.  
+> John 8:1  
 
 These verses furnish a striking illustration of the unwise way in which, in certain cases, the Bible has been divided into chapters. The meaning of many portions of Scripture would be much more manifest if Gospels, Epistles and even Prophecies were left in their undivided state. The two sentences which I have selected for my text ought never to have been separated, and we may rightly say of them, "What God has joined together, let no man put asunder." So we will consider them together as they should be considered: "Every man went unto his own house. Jesus went unto the Mount of Olives."
 

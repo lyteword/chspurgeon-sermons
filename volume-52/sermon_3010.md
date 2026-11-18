@@ -1,6 +1,6 @@
 # Sermon 3010 | Jacob's Model Prayer
 
-> "And Jacob said, O God of my father Abraham, and God of my father Isaac, the Lord who said unto me, Return unto your country, and to your kindred, and I will deal well with you: I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan, and now I am become two bands. Deliver me, I pray You, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, and the mother with the children. And You said, I will surely do you good, and make your seed as the sand of the sea, which cannot be numbered for multitude."  
+> And Jacob said, O God of my father Abraham, and God of my father Isaac, the Lord who said unto me, Return unto your country, and to your kindred, and I will deal well with you: I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan, and now I am become two bands. Deliver me, I pray You, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, and the mother with the children. And You said, I will surely do you good, and make your seed as the sand of the sea, which cannot be numbered for multitude.  
 > Genesis 32:9-12  
 
 You must have noticed, dear Friends, how very frequently God makes the life of a man to be the reflection of his character. There is an echo in the outward experience, to the inward character of the man.

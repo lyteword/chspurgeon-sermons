@@ -1,6 +1,6 @@
 # Sermon 3007 | Gadding About
 
-> "Why do you gad about so much to change your way?"  
+> Why do you gad about so much to change your way?  
 > Jeremiah 2:36  
 
 God's ancient people were very prone to forget Him and to worship the false deities of the neighboring heathen. Other nations were faithful to their blocks of wood and stone, and adhered as closely to their graven images as though they really had helped them, or could in future deliver them. Only the nation which avowed its belief in the true God forsook its God and left the fountain of Living Water, to hew out for itself broken cisterns which could hold no water!
