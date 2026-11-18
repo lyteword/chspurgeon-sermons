@@ -1,7 +1,7 @@
 # Sermon 2025 | The Tender Enquiry of a Friend
 
-> "How long will you cut yourself?"  
-> Jeremiah 47:5.  
+> How long will you cut yourself?  
+> Jeremiah 47:5  
 
 Travelers in the East tell us that among the most melancholy scenes they witness is the following: Men inflict upon themselves very grievous voluntary wounds and then exhibit themselves in public. They even disfigure themselves with gashes and cuts in the presence of excited throngs. I am speaking of what has occurred even within the last few years among the Muslims. When some great Prophet or emir is coming that way, a certain number of fanatical Mahometans take swords, spears and other sharp instruments and gash themselves terribly, cutting their breasts, their faces, their heads and all parts of their bodies.
 

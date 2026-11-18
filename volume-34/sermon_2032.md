@@ -1,7 +1,7 @@
 # Sermon 2032 | The Charge of the Angel
 
-> "But the angel of the Lord by night opened the prison doors, and brought them forth, and said, Go, stand and speak in the temple to the people all the words of this life."  
-> Acts 5:19,20.  
+> But the angel of the Lord by night opened the prison doors, and brought them forth, and said, Go, stand and speak in the temple to the people all the words of this life.  
+> Acts 5:19,20  
 
 The second persecution of the Church, in which all the Apostles were put into the common prison, was mainly brought about by the sect of the Sadducees. These, as you know, were the Broad School, the liberals, the advanced thinkers, the modern-thought people of the day. If you want a bitter sneer, a biting sarcasm, or a cruel action, I commend you to these large-minded gentlemen. They are liberal to everybody, except to those who hold the Truth of God, and for those they have a reserve of concentrated bitterness which far excels wormwood and gall.
 

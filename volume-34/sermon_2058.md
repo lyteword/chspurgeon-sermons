@@ -1,7 +1,7 @@
 # Sermon 2058 | Eyes Right
 
-> "Let your eyes look right on and let your eyelids look straight before you."  
-> Proverbs 4:25.  
+> Let your eyes look right on and let your eyelids look straight before you.  
+> Proverbs 4:25  
 
 These words occur in a passage wherein the wise man exhorts us to take care of all parts of our nature which he indicates by members of the body. "Keep your heart," says he, "with all diligence. For out of it are the issues of life. Put away from you a disobedient mouth, and perverse lips put far from you. Let your eyes look right on and let your eyelids look straight before you. Ponder the path of your feet and let all your ways be established. Turn not to the right hand nor to the left: remove your foot from evil."
 

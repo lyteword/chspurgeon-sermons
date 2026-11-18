@@ -1,7 +1,7 @@
 # Sermon 2051 | Setting Jesus at Nothing. Treating Him with Contempt
 
-> "And Herod with his men of war set Him at nothing."  
-> Luke 23:11.  
+> And Herod with his men of war set Him at nothing.  
+> Luke 23:11  
 
 It is your Lord whom Herod set at nothing! Once worshipped of angels and all the heavenly host, He is treated with contempt by a ribald regiment. In Himself "the brightness of His Father's glory and the express image of His Person." But now set at nothing by men not worthy of the name. Soon to reassume all His former glory with the Father and to descend in infinite splendor to judge the earth in righteousness and reign as King of kings, and yet here He is set at nothing! It is a sight of horror and of shame. How could angels bear to see it? This paltry prince and his rough retinue made nothing of Him who is All in All. They treated Him as beneath their contempt.
 

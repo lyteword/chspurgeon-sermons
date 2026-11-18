@@ -1,7 +1,7 @@
 # Sermon 2054 | Judgments and No Repentance; Repentance and No Salvation
 
-> "They repented not to give Him glory."  
-> Revelation 16:9.  
+> They repented not to give Him glory.  
+> Revelation 16:9  
 
 In reading this chapter, dear Friends, this very terrible chapter, you must have been struck, I think, with the forces of God. How great are the armies of the Lord of Hosts! As the mighty Jehovah smote Pharaoh with overwhelming plagues, so does the Lord in this awful portion of the Apocalypse deal with the ungodly. Seven angels stood forth, each one with his vial full of the wrath of God, to be poured out upon the earth. Seven executioners were needed and seven were present, a perfect number for the accomplishment of the Divine purpose.
 

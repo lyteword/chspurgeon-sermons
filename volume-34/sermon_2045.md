@@ -1,7 +1,7 @@
 # Sermon 2045 | Further Afield
 
-> "Then Paul and Barnabas waxed bold and said, It was necessary that the Word of God should first have been spoken to you: but seeing you put it from you and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles. For so has the Lord commanded us, saying, I have set you to be a light of the Gentiles, that you should be for salvation unto the ends of the earth. And when the Gentiles heard this, they were glad and glorified the Word of the Lord: and as many as were ordained to eternal life believed."  
-> Acts 13:46-48.  
+> Then Paul and Barnabas waxed bold and said, It was necessary that the Word of God should first have been spoken to you: but seeing you put it from you and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles. For so has the Lord commanded us, saying, I have set you to be a light of the Gentiles, that you should be for salvation unto the ends of the earth. And when the Gentiles heard this, they were glad and glorified the Word of the Lord: and as many as were ordained to eternal life believed.  
+> Acts 13:46-48  
 
 Dear friends, last Sabbath morning I tried to stir you up to sacred activity. I heard from many that they felt thoroughly motivated and I know of some who at once commenced to speak for Christ. I wish I could hope that our whole company kept step together in this. If what is said on the Sabbath were really carried out, what splendid advances we should make! But if not, it is as though a commanding officer spoke to his troops and the men did not march according to orders. However, I am thankful for what was done and for the many of you who did keep step together in an earnest march to conquer the powers of sin by making known the Gospel of Jesus Christ.
 

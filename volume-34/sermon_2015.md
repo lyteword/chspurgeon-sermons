@@ -1,8 +1,9 @@
 # Sermon 2015 | The Rent Veil
 
-> "Jesus, when he had cried again with a loud voice, yielded up the ghost. And, behold, the veil of the temple was rent in twain from the top to the bottom."  
+> Jesus, when he had cried again with a loud voice, yielded up the ghost. And, behold, the veil of the temple was rent in twain from the top to the bottom.  
 > Matthew 27:50-51  
-> "Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh."  
+
+> Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh.  
 > Hebrews 10:19-20  
 
 The death of our Lord Jesus Christ was fitly surrounded by miracles; yet it is itself so much greater a wonder than all besides, that it as far exceeds them as the sun outshines the planets which surround it. It seems natural enough that the earth should quake, that tombs should be opened, and that the veil of the temple should be rent, when He who only hath immortality gives up the ghost. The more you think of the death of the Son of God, the more will you be amazed at it. As much as a miracle excels a common fact, so doth this wonders of wonders rise above all miracles of power. That the divine Lord, even though veiled in mortal flesh, should condescend to be subject to the power of death, so as to bow His head on the cross, and submit to be laid in the tomb, is among mysteries the greatest. The death of Jesus is the marvel of time and eternity, which, as Aaron's rod swallowed up all the rest, takes up into itself all lesser marvels.

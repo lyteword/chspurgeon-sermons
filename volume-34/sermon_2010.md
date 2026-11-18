@@ -1,7 +1,7 @@
 # Sermon 2010 | The Word a Sword
 
-> "For the Word of God is quick and powerful and sharper than any two-edged sword, piercing even to the dividing asunder of soul and spirit and of the joints and marrow and is a discerner of the thoughts and intents of the heart."  
-> Hebrews 4:12.  
+> For the Word of God is quick and powerful and sharper than any two-edged sword, piercing even to the dividing asunder of soul and spirit and of the joints and marrow and is a discerner of the thoughts and intents of the heart.  
+> Hebrews 4:12  
 
 Those who are fond of a labyrinth of exposition will find a maze perplexing to the last degree if they will read the various commentators and expositors upon this verse. This is the question: By the Word of God, are we here to understand the Incarnate Word, the Divine Logos, who was in the beginning with God? Or does the passage relate to this inspired Book, and to the Gospel, which is the kernel of it, as it is set forth in the preaching of the Truth in the power of the Holy Spirit?
 

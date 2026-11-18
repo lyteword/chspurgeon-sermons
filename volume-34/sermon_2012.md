@@ -1,7 +1,7 @@
 # Sermon 2012 | Grace Abounding Over Abounding Sin
 
-> "Moreover the Law entered, that the offense might abound. But where sin abounded, grace did much more abound."  
-> Romans 5:20.  
+> Moreover the Law entered, that the offense might abound. But where sin abounded, grace did much more abound.  
+> Romans 5:20  
 
 The first sentence will serve as a preface. The second sentence will be the actual text. "Moreover the Law entered, that the offense might abound." Man was a sinner before the Law of Ten Commandments had been given. He was a sinner through the offense of his first father, Adam. And he was, also, practically a sinner by his own personal offenses. For he rebelled against the light of nature and the inner light of conscience. Men, from Adam downward, transgressed against that memory of better days which had been handed down from father to son and had never been quite forgotten.
 

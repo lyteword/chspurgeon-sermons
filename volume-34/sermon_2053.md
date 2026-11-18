@@ -1,7 +1,7 @@
 # Sermon 2053 | Concerning Prayer
 
-> "Give ear, O Lord, unto my prayer and attend to the voice of my supplications. In the day of my trouble I will call upon You: for You will answer me."  
-> Psalm 86:6, 7.  
+> Give ear, O Lord, unto my prayer and attend to the voice of my supplications. In the day of my trouble I will call upon You: for You will answer me.  
+> Psalm 86:6, 7  
 
 When I was reading this eighty-sixth Psalm, I reminded you that the title of it is "A prayer of David." It is rightly named "A prayer," for it is very especially filled with supplication. There are four other Psalms each called by the name Tephillah, or "prayer," but this deserves to be distinguished from the rest and known as "the prayer of David," even as the ninetieth Psalm is known as "the prayer of Moses." It savors of David. The man of sincerity, of ardor, of trials, of faults and of great heart, pleads, sobs and trusts through all the verses of this Psalm.
 

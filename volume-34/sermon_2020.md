@@ -1,7 +1,7 @@
 # Sermon 2020 | Is Anything Too Hard for the Lord?
 
-> "Then came the word of the Lord unto Jeremiah, saying, Behold, I am the Lord, the God of all flesh: is there anything too hard for Me?"  
-> Jeremiah 32:26,27.  
+> Then came the word of the Lord unto Jeremiah, saying, Behold, I am the Lord, the God of all flesh: is there anything too hard for Me?  
+> Jeremiah 32:26,27  
 
 This method of questioning the person to be instructed is known to teachers as the Socratic method. Socrates was likely, not so much to state a fact as to ask a question and draw out thoughts from those whom he taught. His method had long before been used by a far greater teacher. Putting questions is Jehovah's frequent method of instruction. When the Lord answered Job out of the whirlwind it was with a series of questions. "Know you the ordinances of Heaven? Can you set the dominion thereof in the earth? Can you lift up your voice to the clouds, that abundance of waters may cover you? Can you send lightning, that they may go and say unto you, Here we are?" and so forth.
 

@@ -1,7 +1,7 @@
 # Sermon 2004 | The Lover of God's Law Filled With Peace
 
-> "Great peace have they which love Your Law: and nothing shall offend them."  
-> Psalm 119:165.  
+> Great peace have they which love Your Law: and nothing shall offend them.  
+> Psalm 119:165  
 
 This forms part of a devotional passage. It is not merely a statement that great peace comes to those who love the Law of God, but it is uttered as part of a hymn of praise unto the Lord. We cannot praise God better than by stating facts concerning Him and His Word. If you desire to praise God, you must speak of Him as He is. If you would pour out an acceptable libation before Him, you must fill the vessel from Himself, as the wellhead of all excellence. Our Te Deums are simply declarations of what God is; there can be no higher praise. His praises can only be the reflection of His own light. All glory is already in Him, none can be added to Him.
 

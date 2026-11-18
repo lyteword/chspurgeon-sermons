@@ -1,7 +1,7 @@
 # Sermon 2005 | The Hairs of Your Head Numbered
 
-> "But the very hairs of your head are all numbered."  
-> Matthew 10:30.  
+> But the very hairs of your head are all numbered.  
+> Matthew 10:30  
 
 It is most delightful to see how familiarly our Lord Jesus talked with His disciples. He was very great and yet He was among them as one that serves. He was very wise but He was gentle as a nurse with her children. He was very holy and far above their sinful infirmities but He condescended to men of low estate. He was their Master and Lord and yet their friend and servant. He talked with them, not as a superior who domineers but as a brother full of tenderness and sympathy.
 

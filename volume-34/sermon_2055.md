@@ -1,7 +1,7 @@
 # Sermon 2055 | The Trial of Your Faith
 
-> "The trial of your faith."  
-> 1 Peter 1:7.  
+> The trial of your faith.  
+> 1 Peter 1:7  
 
 It is a great thing if any man can truthfully speak to you, my Brothers and Sisters, about "your faith," for all men have not faith and wherever faith is found, it is the token of Divine favor. True faith is, in every case, the operation of the Spirit of God. Its nature is purifying, elevating, heavenly. It is, of all things that can be cultivated in the human breast, one of the most precious. It is called, "like precious faith," and it is styled "the faith of God's elect." Wherever faith is found, it is the sure mark of eternal election, the sign of a blessed condition, the forecast of a heavenly destiny. It is the eye of the renewed soul, the hand of the regenerated mind, the mouth of the newborn spirit. It is the evidence of spiritual life, it is the mainspring of holiness, it is the foundation of delight, it is the prophecy of glory; it is the dawn of endless knowledge.
 
