@@ -3,7 +3,8 @@
 > And Zacharias said unto the angel, How shall I know this?  
 > Luke 1:18  
 
-"Then said Mary unto the angel, How shall this be?" Luke 1:34.
+> Then said Mary unto the angel, How shall this be?  
+> Luke 1:34  
 
 Zacharias and the Virgin Mary were both very dear to God and, therefore, highly honored and greatly favored. The points of likeness between them are many. They were both persons of eminent character, for Zacharias walked blameless in all the ordinances and commandments of the Lord and Mary was equally gracious and devout. They were both visited by an angel and were both favored with the prediction of a marvelous birth. Their answers to the angel are our two texts and, at first sight, they seem to be alike. One does not see much less of faith or of unbelief in the one than in the other at first reading them and, yet, Zacharias was blamed and chastened by being made dumb for a season. On the other hand, the Virgin was indulged with an explanation and was afterwards praised by the Holy Spirit who spoke through her cousin Elizabeth and said, "Blessed is she that believed: for there shall be a performance of those things which were told her from the Lord."
 

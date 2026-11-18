@@ -3,7 +3,8 @@
 > Where is the God of Judgment?  
 > Malachi 2:17  
 
-"Then shall you return, and discern between the righteous and the wicked, between him that serves God and him that serves Him not." Malachi 3:18.
+> Then shall you return, and discern between the righteous and the wicked, between him that serves God and him that serves Him not.  
+> Malachi 3:18  
 
 You were not here, I am thankful to say, last lord's-day evening, for it was your duty and privilege to stay away to give others an opportunity of hearing. My subject, then, was our heavenly Father who makes His sun to rise upon the evil and upon the good and sends rain upon the just and upon the unjust. Then I set forth the universal benevolence of God and the way in which He stays the operations of justice to give space for forbearance and long-suffering. Now this fact, this gracious fact, which ought to lead man to repentance, has, through the perversity of human nature, been used for quite another purpose. Men have said, "He blesses the evil as well as the good. The sun shines on all alike. The rain indiscriminately enriches the field of the tyrant and the pasture of the generous heart. Where is the God of judgment? Is there such a God? Is it not one and the same whether we fear Him or disregard Him?"
 
