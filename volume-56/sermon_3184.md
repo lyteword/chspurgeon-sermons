@@ -1,6 +1,7 @@
 # Sermon 3184 | Maroth, or, the Disappointed
 
-"For the inhabitant of Maroth waited carefully for good: but evil came down from the Lord unto the gate of Jerusalem." Micah 1:12.
+> "For the inhabitant of Maroth waited carefully for good: but evil came down from the Lord unto the gate of Jerusalem."  
+> Micah 1:12  
 
 The village of the bitter spring, for that is probably the meaning of this name, Maroth, experienced a bitter disappointment. At the time when the Assyrians invaded the land, the inhabitants expected that deliverance would come to them from some quarter or other. From the context, I judge that they placed some sort of reliance upon the Philistines. They possibly had some hope that the king of Egypt would come up to attack Sennacherib. Evidently they looked for help everywhere except to God and, consequently, as no good came to them from the men upon whom they had relied, trial and overwhelming distress came to them from the hand of God. He was angry at their trust in men and their lack of trust in Himself and, therefore, He punished their unbelief by their total overthrow! The Assyrian swept over them and stopped not till he reached the gate of Jerusalem, where Hezekiah's faith in God made the enemy pause and retreat.
 
