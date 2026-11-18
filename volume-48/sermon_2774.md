@@ -1,8 +1,9 @@
 # Sermon 2774 | Love Pledging Fidelity
 
-> Then Jonathan and David made a covenant, because he loved him as his own soul."  
+> Then Jonathan and David made a covenant, because he loved him as his own soul.  
 > 1 Samuel 18:3  
-> "And Jonathan caused David to swear again, because he loved him: for he loved him as he loved his own soul."  
+
+> And Jonathan caused David to swear again, because he loved him: for he loved him as he loved his own soul.  
 > 1 Samuel 20:17  
 
 Many books have been written concerning that surly old Prophet Jonah, yet here is a man with a name somewhat similar, Jonathan, but scarcely anybody has had much to say about him. Yet there was more sweetness in the little finger of Jonathan than in the whole body of Jonah! A wonderfully noble, lovable, magnanimous man was that heir apparent to the throne of Israel. I admire, beyond measure, the disinterested, unselfish affection which he had for the young shepherd-hero. It must have been perfectly clear to Jonathan that David had supplanted him. Jonathan himself had been the bravest of the brave, accompanied only by his armor bearer, he had gained a notable victory over the Philistines and now, here comes another young man who becomes even more distinguished than he and who takes his place as commander-in-chief of the army. Most young men in such a position as that would have been very jealous of the newcomer, and something of the envy of Saul, the father, might very naturally have been begotten in the heart of Jonathan the son. But it was not so, for Jonathan loved David as he loved his own soul.

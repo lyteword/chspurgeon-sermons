@@ -3,9 +3,14 @@
 > The just shall live by his faith.  
 > Habakkuk 2:4  
 
-"The just shall live by faith." Romans 1:17. "The just shall live by faith" "Now the just shall live by faith."
+> The just shall live by faith.  
+> Romans 1:17  
 
-Galatians 3:11. Hebrews 10:38.
+> The just shall live by faith.  
+> Galatians 3:11  
+
+> Now the just shall live by faith.  
+> Hebrews 10:38  
 
 The fact that these words are so frequently found in the Word of God is a sufficient justification for often preaching from them. There seems to be, among certain preachers and hearers, some sort of question about preaching more than once from the same text, yet it would appear that this is by no means a wrong practice, but a most proper one. Indeed, our Lord Jesus Christ may be thought to have preached the same sermon more than once, for the Sermon on the Mount contains many passages similar to those uttered by Him on other occasions. The Apostle Paul imitated his Master's example when he wrote to the Philippians, "To write the same things to you, to me, indeed, is not grievous, but for you it is safe." We need not hesitate to follow such leaders as these!
 
