@@ -1,6 +1,6 @@
 # Sermon 471 | Accepted In The Beloved
 
-> "He has made us accepted in the Beloved."  
+> He has made us accepted in the Beloved.  
 > Ephesians 1:6  
 
 "The Beloved!" This was a golden name which the ancient Church in her most joyous moments was likely to give to the Anointed of the Lord. When the time of the singing of birds was come, and the voice of the turtle was heard in her land, her love note was sweeter than either bird or turtle, as she sung, "My Beloved is mine and I am His. He feeds among the lilies." Ever in her song of songs does she call Him by that delightful name, "My Beloved!"

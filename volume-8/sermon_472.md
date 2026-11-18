@@ -1,6 +1,6 @@
 # Sermon 472 | Believers: Lights In The World
 
-> "Do all things without murmurings and disputing, that you may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom you shine as lights in the world; holding forth the Word of Life, that I may rejoice in the day of Christ, that I have not run in vain, neither labored in vain."  
+> Do all things without murmurings and disputing, that you may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom you shine as lights in the world; holding forth the Word of Life, that I may rejoice in the day of Christ, that I have not run in vain, neither labored in vain.  
 > Philippians 2:14-16  
 
 We shall be very far from the truth if we suppose that Christian precepts have suffered any degeneration of meaning. If we imagine that the precepts of the Gospel were more stern in Apostolic times than in these later ages, we labor under a very gross and dangerous delusion. Fresh from the abominations of heathenism the early converts would naturally be placed under the mildest rules, rather than the more severe. If the Gospel could have known a change, the Apostle would have given its easiest precepts at the first, and then in these better days the whole Revelation would have been brought out and more stringent precepts would have been proclaimed.

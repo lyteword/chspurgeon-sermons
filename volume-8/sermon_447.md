@@ -1,6 +1,6 @@
 # Sermon 447 | God's Estimate Of Time
 
-> "But, Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years and a thousand years as one day."  
+> But, Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years and a thousand years as one day.  
 > 2 Peter 3:8  
 
 From this text certain persons, more desirous to find arguments for their theories, than a truthful exposition of the Apostle's meaning, have drawn the inference that a day in Scripture is typical of a thousand years; that is to say, that inasmuch as God was six days in creating the heavens and the earth and then rested on the seventh day, so we must expect to have a thousand years for every day. A thousand years in which the new heavens and the new earth will be in preparation, and then we shall enjoy in the seventh thousand a period of perfect peace and holiness.

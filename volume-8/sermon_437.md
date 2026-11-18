@@ -1,6 +1,6 @@
 # Sermon 437 | A Sight Of Self
 
-> "But we are all as an unclean thing and all our righteousnesses are as filthy rags. And we all do fade as a leaf. And our iniquities, like the wind, have taken us away. And there is none that calls upon Your name, that stirs up himself to take hold of You: for You have hid Your face from us and have consumed us, because of our iniquities. But now, O Lord, You are our Father. We are the clay, and You our Potter. And we all are the work of Your hand."  
+> But we are all as an unclean thing and all our righteousnesses are as filthy rags. And we all do fade as a leaf. And our iniquities, like the wind, have taken us away. And there is none that calls upon Your name, that stirs up himself to take hold of You: for You have hid Your face from us and have consumed us, because of our iniquities. But now, O Lord, You are our Father. We are the clay, and You our Potter. And we all are the work of Your hand.  
 > Isaiah 64:6, 7, 8  
 
 It is easy to commit sin but hard to confess it. Man will transgress without a tempter. But even when urged by the most earnest pleader, he will not acknowledge his guilt. If we could but bring men into such a state of heart that they felt themselves to be guilty, there would be hope for them. But this is one of the most hopeless signs concerning our race, that it is so hardened and so perverse, that even when sin stares it in the face, it still pleads innocence and proudly lifts up its head and challenges the accuser.

@@ -1,6 +1,6 @@
 # Sermon 453 | Compassion For The Multitude
 
-> "And they say unto Him, We have here but five loaves and two fishes. He said, Bring them here to Me."  
+> And they say unto Him, We have here but five loaves and two fishes. He said, Bring them here to Me.  
 > Matthew 14:17,18  
 
 As was Christ, my Brethren, when in this world, so are we also. Such, indeed, is our calling of God. As Jesus was "the true light which lights every man that comes into the world," so He says to His disciples, "You are the light of the world." How memorable are those words of our Lord: "As You, Father, have sent Me into the world, even so have I also sent them into the world!" And how weighty are those expressions of the Apostle: "We pray you in Christ's place." "We then, as workers together with Him!"

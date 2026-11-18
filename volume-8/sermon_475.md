@@ -1,6 +1,6 @@
 # Sermon 475 | Self-Delusion
 
-> "Many, I say unto you, will seek to enter in and shall not be able."  
+> Many, I say unto you, will seek to enter in and shall not be able.  
 > Luke 13:24  
 
 Every wise merchant will occasionally hold a stock-taking, when he will cast up his accounts, examine what he has on hand, and ascertain decisively whether his trade is prosperous or declining. Every man who is wise in the kingdom of Heaven, will do the same by himself. He will cry, "Search me, O God and try me." And he will frequently set apart special seasons for self-examination, to discover whether things are right between God and his soul. The God whom we worship is a great heart-searcher. Of old His servants knew Him as, "the Lord which searches the heart and tries the reins of the children of men."

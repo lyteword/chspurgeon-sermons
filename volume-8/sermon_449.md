@@ -1,6 +1,6 @@
 # Sermon 449 | Joseph And His Brothers
 
-> "And Joseph said unto his brothers, I am Joseph; does my father yet live? And his brothers could not answer him. For they were trembled at his presence. And Joseph said unto his brothers, Come near to me, I pray you. And they came near. And he said, I am Joseph your brother, whom you sold into Egypt. Now therefore be not grieved, nor angry with yourselves, that you sold me here: for God did send me before you to preserve life."  
+> And Joseph said unto his brothers, I am Joseph; does my father yet live? And his brothers could not answer him. For they were trembled at his presence. And Joseph said unto his brothers, Come near to me, I pray you. And they came near. And he said, I am Joseph your brother, whom you sold into Egypt. Now therefore be not grieved, nor angry with yourselves, that you sold me here: for God did send me before you to preserve life.  
 > Genesis 45:3-5  
 
 Joseph is a very eminent type of Christ. When he was hated of his brothers because he protested against their sins, and when they sold him for twenty pieces of silver, he was doubtlessly a portrait of the despised and rejected of men whom His disciple betrayed. Afterwards in his temptations in the house of Potiphar, in the slander and consequent imprisonment in the round house of Pharaoh's prison, in his after advancement, till he became lord over all the land of Egypt, we clearly see our blessed Lord right well portrayed.

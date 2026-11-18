@@ -1,6 +1,6 @@
 # Sermon 440 | Cheer For The Faint-Hearted
 
-> "But his wife said unto him, If the Lord were pleased to kill us, He would not have received a burnt offering and a meat offering at our hands, neither would He have showed us all these things, nor would as at this time have told us such things as these."  
+> But his wife said unto him, If the Lord were pleased to kill us, He would not have received a burnt offering and a meat offering at our hands, neither would He have showed us all these things, nor would as at this time have told us such things as these.  
 > Judges 13:23  
 
 Faith is not only the door by which we enter into the way of salvation, as it is written, "He has opened the door of faith unto the gentiles," but it likewise describes the entire path of Christian pilgrimage, "that we also walk in the steps of that faith." We are not only quickened by faith at the outset of our spiritual career, but we are supported and sustained thereby in all our subsequent experience: "the just shall live by faith." As it is by faith that we come out from the world and begin to tread the heavenly road, so it must be by faith that we walk all the journey through.

@@ -1,6 +1,6 @@
 # Sermon 430 | Two Advents Of Christ
 
-> "And as is appointed unto men once to die but after this the judgment: So Christ was once offered to bear the sins of many, and unto them that look for Him shall He appear the second time without sin unto salvation."  
+> And as is appointed unto men once to die but after this the judgment: So Christ was once offered to bear the sins of many, and unto them that look for Him shall He appear the second time without sin unto salvation.  
 > Hebrews 9:27, 28  
 
 We must begin by noticing the parallel which the Apostle here draws. The words "as" and "so" suggest a comparison between two Truths of God, the correspondence of which he designed to set forth. The one a fact generally allowed, the other a fact he was anxious to inculcate. Now you will note that he says, "It is appointed unto men once to die," and only once. This is a truism. The rule is universal. The exceptions are inconsiderable. One or two persons may have died twice. As, for instance, Lazarus, and those others who were raised from the dead by Christ. These, we cannot doubt, after living for a little while, returned again to the tomb.

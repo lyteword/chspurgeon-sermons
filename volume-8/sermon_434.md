@@ -1,7 +1,7 @@
 # Sermon 434 | Threefold Sanctification
 
-> "Sanctified by God the Father ... Sanctified in Christ Jesus."  
-> Jude 1:1 & 1 Corinthians 1:2  
+> Sanctified by God the Father ... Sanctified in Christ Jesus.  
+> Jude 1:1 and 1 Corinthians 1:2  
 
 "Through sanctification of the Spirit" 1 Peter 1:2. Mark, Beloved, the union of the Three Divine Persons in all their gracious acts. We believe that there is one God, and although we rejoice to recognize the Trinity, yet it is ever most distinctly a Trinity in Unity. Our watch-word still is: "Hear O Israel, the Lord our God is one Lord." How unwisely do those young Believers talk, who make preferences in the Persons of the Trinity, who think of Christ as if He were the embodiment of everything that is lovely and gracious, while the Father they regard as severely just but destitute of kindness. And how foolish are those who magnify the decree of the Father, or the atonement of the Son, so as to depreciate the work of the Spirit. In deeds of Divine Grace none of the Persons of the Trinity act apart from the rest. They are as united in their deeds as in their essence. In their love towards the chosen they are One, and in the actions which flow from that great central source they are still undivided. Especially I would have you notice this in the case of sanctification. While we may, without the slightest mistake, speak of sanctification as the work of the Spirit, yet we must take heed that we do not view it as if the Father and the Son had no part in it. It is correct to speak of sanctification as the work of the Father, of the Spirit, and of the Son. Still does Jehovah say, "Let Us make man in our own image after Our likeness," and thus we are "His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them."
 

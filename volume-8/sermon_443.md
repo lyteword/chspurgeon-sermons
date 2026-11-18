@@ -1,9 +1,10 @@
 # Sermon 443 | The Two Draughts Of Fishes
 
-> "Now when He had left speaking, He said unto Simon, Launch out into the deep and let down your nets for a draught."  
+> Now when He had left speaking, He said unto Simon, Launch out into the deep and let down your nets for a draught.  
 > Luke 5:4  
 
-"And He said unto them, Cast the net on the right side of the ship, and you shall find some. They cast therefore and now they were not able to draw it for the multitude of fishes." John 21:6.
+> And He said unto them, Cast the net on the right side of the ship, and you shall find some. They cast therefore and now they were not able to draw it for the multitude of fishes.  
+> John 21:6  
 
 The whole life of Christ was a sermon. He was a Prophet mighty in word and deed. And by His deeds as well as His words He taught the people. It is perfectly true that the miracles of Christ attest His mission. To those who saw them they must have been evident proof that He was sent of God. But we ought not to overlook that probably a higher reason for the miracles is to be found in the instruction which they convey. To the world without, at the present time, the miracles of Christ are more hard to believe than the doctrine which He taught. Skeptics turn them into stones of stumbling and when they cannot object at the marvelous teaching of Jesus, they attack the miracles as monstrous and incredible.
 

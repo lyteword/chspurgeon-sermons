@@ -1,6 +1,6 @@
 # Sermon 436 | A Sermon For Spring
 
-> "My Beloved spoke and said unto me, Rise up, my love, my fair one and come away. For, lo, the winter is past, the rain is over and gone, the flowers appear on the earth, the time of the singing of birds is come and the voice of the turtle is heard in our land. The fig tree puts forth her green figs and the vines with the tender grape give a good smell. Arise, my love, my fair one and come away."  
+> My Beloved spoke and said unto me, Rise up, my love, my fair one and come away. For, lo, the winter is past, the rain is over and gone, the flowers appear on the earth, the time of the singing of birds is come and the voice of the turtle is heard in our land. The fig tree puts forth her green figs and the vines with the tender grape give a good smell. Arise, my love, my fair one and come away.  
 > Song of Solomon 2:10-13  
 
 The things which are seen are types of the things which are not seen. The works of creation are pictures to the children of God of the secret mysteries of Divine Grace. God's Truths are the apples of gold and the visible creatures are the baskets of silver. The very seasons of the year find their parallel in the little world of man within. We have our winter, dreary howling winter, when the north wind of the Law rushes forth against us, when every hope is nipped, when all the seeds of joy lie buried beneath the dark clods of despair, when our soul is fast fettered like a river bound with ice, without waves of joy, or flowings of thanksgiving.

@@ -1,6 +1,6 @@
 # Sermon 461 | Am I Clear Of His Blood?
 
-> "The voice of your brother's blood cries out to Me from the ground."  
+> The voice of your brother's blood cries out to Me from the ground.  
 > Genesis 4:10  
 
 Cain was of the Wicked One and slew his brother. "The way of Cain" is not hard to describe. He is too proud to offer atonement for his sin. He prefers his own way of sacrifice. He presents a bloodless oblation. He hates the obedience of faith. He smites the faithful Abel. Beware of the way of Cain, O proud self-righteous ones, lest you run therein, for the steps are few from self-righteous pride to hatred of true believers and murder is not far thereafter. There is the seed of every infamy in the proud spirit of self-justification, and it is a great mercy that it does not more often show itself in all its terrific ripeness.

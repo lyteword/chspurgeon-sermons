@@ -1,6 +1,6 @@
 # Sermon 474 | Faith Omnipotent
 
-> "Jesus said unto him, If you can believe, all things are possible to him that believes."  
+> Jesus said unto him, If you can believe, all things are possible to him that believes.  
 > Mark 9:23  
 
 I must take your minds back to the scene in the midst of which Christ uttered these memorable words. Christ had been upon the mountaintop, transfigured in the presence of His three disciples. During His absence the disciples remaining had been put to a nonplus. They found themselves, for lack of faith, unable to work a miracle. And the Pharisees triumphed. Christ came down just at the very moment and turned the scale.

@@ -1,6 +1,6 @@
 # Sermon 445 | Resurrection: Christ The First Fruits
 
-> "But now is Christ risen from the dead and become the first fruits of them that slept."  
+> But now is Christ risen from the dead and become the first fruits of them that slept.  
 > 1 Corinthians 15:20  
 
 The fact of Christ's resurrection is exceedingly well attested. It was necessary that it should be beyond dispute, since it lies at the very basis of our holy faith. It is consoling to think that it is so. For thus our foundation stands most secure. Our Lord was careful to show Himself after His resurrection to those who, having known Him before His decease, would be able to answer for the identity of His Person. Had He merely showed Himself to strangers who had not known Him before, they might have been able to say that they had seen such an one, but they could not have affirmed that He was the same person who had been buried.

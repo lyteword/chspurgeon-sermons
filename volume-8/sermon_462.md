@@ -1,6 +1,6 @@
 # Sermon 462 | Creation: An Argument For Faith
 
-> "Ah Lord God, behold, You have made the Heaven and the earth by Your great power and stretched out arm, and there is nothing too hard for You."  
+> Ah Lord God, behold, You have made the Heaven and the earth by Your great power and stretched out arm, and there is nothing too hard for You.  
 > Jeremiah 32:17  
 
 At the very time when the Chaldeans had cast up mounds round about the city of Jerusalem, and when the sword and famine and pestilence had desolated the whole land, Jeremiah, while in prison, was commanded by his God to purchase a field of Hanamel, his uncle's son at Anathoth. He was to subscribe the evidence of purchase by the usual witnesses, to seal the deed of transfer according to law and custom, and to do this publicly in the presence of all the Jews that sat in the court of the prison.
