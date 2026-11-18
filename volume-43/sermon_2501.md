@@ -3,7 +3,8 @@
 > Christ is all, and in all.  
 > Colossians 3:11  
 
-"That God may be all in all." 1 Corinthians 15:28.
+> That God may be all in all.  
+> 1 Corinthians 15:28  
 
 In our two texts there are three "alls" rising, one out of the other, the first leading to the second and the second conducting to the third. You will notice at once that the first two are in the present tense. "Christ is all" and, "Christ is in all." The third one refers to the future; it is yet to be fulfilled. When the great consummation shall come, then shall God be, "all in all." I shall not detain you with any sort of preface, for my sole endeavor at this time will be to impress these texts upon your memory, in the hope that the Spirit of God may make them a living and abiding influence upon your hearts and lives, that to you, Christ may be all, that Christ may be in you all, and that so, in all that you do, and say, and are, God may be all in all.
 
