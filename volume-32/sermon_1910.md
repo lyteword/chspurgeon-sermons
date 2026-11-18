@@ -1,7 +1,7 @@
 # Sermon 1910 | The Heart of The Gospel
 
 > "Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him."  
-> 2 Corinthians v 20,21.  
+> 2 Corinthians 5:20-21  
 
 The heart of the gospel is redemption, and the essence of redemption is the substitutionary sacrifice of Christ. They who preach this truth preach the gospel in whatever else they may be mistaken; but they who preach not the atonement, whatever else they declare, have missed the soul and substance of the divine message. In these days I feel bound to go over again the elementary truths of the Gospel. In peaceful times we may feel free to make excursions into interesting districts of truth which lie far afield; but now we must stay at home, and guard the hearths and homes of the church by defending the first principles of the faith. In this age there have risen up in the church itself men who speak perverse things. There be many that trouble us with their philosophies and novel interpretations, whereby they deny the doctrines they profess to teach, and undermine the faith they are pledged to maintain. It is well that some of us, who know what we believe, and have no secret meanings for our words, should just put our foot down and maintain our standing, holding forth the word of life, and plainly declaring the foundation truths of the gospel of Jesus Christ.
 
