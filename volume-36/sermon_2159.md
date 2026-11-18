@@ -3,7 +3,8 @@
 > Who is the father of us all, (as it is written, I have made you a father of many nations,) before Him whom he believed, even God, who quickens the dead, and calls those things which are not as though they were.  
 > Romans 4:16,17  
 
-The preacher begs the reader, before perusing the sermon, to read the two portions of Scripture which were used in the public service; Genesis 15:1-6 and Romans 4.
+> The preacher begs the reader, before perusing the sermon, to read the two portions of Scripture which were used in the public service; Genesis 15:1-6 and  
+> Romans 4  
 
 Abraham had received an assurance from the Lord that he was to be the father of many nations. His faith in this promise underwent great trials. Where there is the sweet honey of promise, there the wasps of doubt will be gathered together. A promise calls for faith, but through our natural depravity it awakens unbelief and there is a struggle around the sacred promise such as that represented in the prayer, "Lord, I believe: help You my unbelief." Satan, with slimy flattery, decoys men into a belief of his lie, but the God of Truth gives us His bare promise and bids us believe it, and when questions suggest themselves He does not relax His claim but bids us still believe.
 

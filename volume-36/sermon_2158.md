@@ -1,7 +1,7 @@
 # Sermon 2158 | Christ's Testimony Received
 
-> "He that has received His testimony has set to his seal that God is true."  
-> John 3:33.  
+> He that has received His testimony has set to his seal that God is true.  
+> John 3:33  
 
 In opening this discourse I would call your attention to the different statistics given by John's disciples and by John himself. In the twenty-sixth verse, the disciples say, "All men come to Him"; that is their judgment of how the ministry of Jesus was succeeding. John, in the thirty-second verse, said, "And no man receives His testimony." If we view them as both correct, then the disciples looked at outward appearances and in their view the cause of Jesus seemed to be prospering to an overwhelming degree: "All men come to Him." But John looked below the surface, at the true spiritual results and his verdict was, "And no man receives His testimony."
 

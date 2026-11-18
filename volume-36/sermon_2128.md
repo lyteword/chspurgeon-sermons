@@ -1,10 +1,10 @@
 # Sermon 2128 | Heaven Above and Heaven Below
 
-> "They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them and shall lead them unto living fountains of waters."  
-> Revelation 7:16,17.  
+> They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them and shall lead them unto living fountains of waters.  
+> Revelation 7:16,17  
 
-> "They shall not hunger nor thirst, neither shall the heat nor sun smite them: for He that has mercy on them shall lead them, even by the springs of water shall He guide them."  
-> Isaiah 49:10.  
+> They shall not hunger nor thirst, neither shall the heat nor sun smite them: for He that has mercy on them shall lead them, even by the springs of water shall He guide them.  
+> Isaiah 49:10  
 
 Jordan is a very narrow stream. It made a sort of boundary for Canaan but it hardly sufficed to divide it from the rest of the world since a part of the possessions of Israel was on the eastern side of it. Those who saw the Red Sea divided and all Israel marching through its depths must have thought it no small thing for the Jordan to be dried up and for the people to pass through it to Canaan. The greatest barrier between Believers and Heaven has been safely passed. In the day when we believed in the Lord Jesus Christ we passed through our Red Sea and the Egyptians of our sins were drowned. Great was the marvel of mercy! To enter fully into our eternal inheritance we have only to cross the narrow stream of Death, and scarcely that; for the kingdom of Heaven is on this side of the river as well as on the other.
 

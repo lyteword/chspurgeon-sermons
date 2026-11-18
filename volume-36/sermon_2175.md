@@ -1,7 +1,7 @@
 # Sermon 2175 | "So It Is"
 
-> "Lo this, we have searched it, so it is; hear it, and know you it for your good."  
-> Job 5:27.  
+> Lo this, we have searched it, so it is; hear it, and know you it for your good.  
+> Job 5:27  
 
 Thus closed a forcible speech by Eliphaz the Temanite; it may be called his "summing up." He virtually says, "What I have testified in the name of my friends is no dream of theirs. Upon this matter we are specialists and bear witness to truth which we have made the subject of research and experience. Lo this, we have searched it, so it is; hear it, and know you it for your good." By this declaration he sets forth his teaching with authority and presses it home. He persuades Job to consider what he had said, for it was no hasty opinion, but the ripe fruit of experience. When we speak what we know we expect to be heard.
 

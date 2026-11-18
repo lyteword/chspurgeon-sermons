@@ -1,7 +1,7 @@
 # Sermon 2135 | The Warnings and the Rewards of the Word of God
 
-> "Moreover by them is Your servant warned: and in keeping of them there is great reward."  
-> Psalm 19:11.  
+> Moreover by them is Your servant warned: and in keeping of them there is great reward.  
+> Psalm 19:11  
 
 This is the declaration of one of God's servants: "by them is Your servant warned." Only for men made obedient by Divine Grace is this passage written. My Hearer, are you God's servant? Let us begin with that question. Remember that if you are not God's servant you are the bond-slave of sin and the wages of sin is death. The Psalmist, in this Psalm, has compared the Word of God to the sun. The sun in the heavens is everything to the natural world, and the Word of God in the heart is everything in the spiritual world. The world would be dark, dead and fruitless without the sun, and what would the mind of the Christian be without the illuminating influence of the Word of God?
 

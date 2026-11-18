@@ -1,7 +1,7 @@
 # Sermon 2178 | Zedekiah, or, the Man Who Cannot Say, "No"
 
-> "Then Zedekiah the king said, Behold, he is in your hands: for the king is not he that can do anything against you."  
-> Jeremiah 38:5.  
+> Then Zedekiah the king said, Behold, he is in your hands: for the king is not he that can do anything against you.  
+> Jeremiah 38:5  
 
 "put not your trust in princes." Zedekiah professed to be a friend to Jeremiah, but when the princes sought permission to put the Prophet to death, Zedekiah's friendship was not worth much. He said, "He is in your hands: for the king is not he that can do anything against you." Instead of protecting his friend and adviser, he gave him over at once and left him as a lamb at the mercy of wolves. It seems very natural for men to trust in men and yet the Scripture warns us that, "Cursed is the man that trusts in man, and makes flesh his arm." He that makes a mortal man his confidence will find that his anchor has no grip. Even good men are but broken reeds and cannot bear the strain of the day of trouble; while the bad are like sharp spears that prick the man who dares to lean upon them.
 

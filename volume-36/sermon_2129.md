@@ -1,7 +1,7 @@
 # Sermon 2129 | Pleading, Not Contradicting
 
-> "She said, Truth, Lord: yet."  
-> Matthew 15:27.  
+> She said, Truth, Lord: yet.  
+> Matthew 15:27  
 
 Did you notice, in the reading of this narrative of the Syro-Phoenician woman, the two facts mentioned in the twenty-first and twenty-second verses? "Then Jesus went from there and departed into the coasts of Tyre and Sidon. And, behold, a woman of Canaan came from that region." See, Jesus goes towards the coast of Sidon on the land side and the woman of Canaan comes from the seashore to meet Him and so they come to the same town. May we find that case repeated this morning in this Tabernacle! May our Lord Jesus come into this congregation with power to cast out the devil and may someone; no, may many; have come to this place on purpose to seek Divine Grace at His hands!
 

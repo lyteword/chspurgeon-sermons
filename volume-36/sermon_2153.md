@@ -1,7 +1,7 @@
 # Sermon 2153 | The Iniquity of Our Holy Things
 
-> "And you shall make a plate of pure gold, and engrave upon it, like the engravings of a signet, holiness to the Lord. And you shall put it on a blue lace, that it may be upon the miter; upon the forefront of the miter it shall be. And it shall be upon Aaron's forehead that Aaron may bear the iniquity of the holy things, which the children of Israel shall hallow in all their holy gifts; and it shall be always upon his forehead, that they may be accepted before the Lord."  
-> Exodus 28:36-38.  
+> And you shall make a plate of pure gold, and engrave upon it, like the engravings of a signet, holiness to the Lord. And you shall put it on a blue lace, that it may be upon the miter; upon the forefront of the miter it shall be. And it shall be upon Aaron's forehead that Aaron may bear the iniquity of the holy things, which the children of Israel shall hallow in all their holy gifts; and it shall be always upon his forehead, that they may be accepted before the Lord.  
+> Exodus 28:36-38  
 
 Dear Friends, I must begin by reminding you that we are not in this place dealing with unconverted men in their sins but with God's people Israel in their holy things. I say this because we must never forget that "without shedding of blood there is no remission of sin." And when we are dealing with certain types it must be understood that the blood has done its essential work. Even a high priest, with all his "glory and beauty," could not put away sin as before God without reference to the shedding of blood. The atonement is supposed to have been offered; these people have been purified and brought near by the appointed offerings.
 

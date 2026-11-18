@@ -1,10 +1,10 @@
 # Sermon 2157 | The Peace of the Devil and the Peace of God
 
-> "When a strong man armed keeps his palace, his goods are in peace."  
-> Luke 11:21.  
+> When a strong man armed keeps his palace, his goods are in peace.  
+> Luke 11:21  
 
-> "The Lord will give strength unto His people, the Lord will bless His people with peace."  
-> Psalm 29:11.  
+> The Lord will give strength unto His people, the Lord will bless His people with peace.  
+> Psalm 29:11  
 
 Peace is a condition of things greatly to be desired. To dread no outward disturbance and to feel no inward storm; who does not desire such a state? Peace has been called a pearl and rightly, for it is precious and smiles with soft, mild radiance bedecking the heart that wears it. It is, indeed, a pearl of great price; he that has it has more than riches. If his peace is, in very deed, the true pearl, he who wears it in his breast is one of the favored sons of God. There may be some few people in the world who do not love peace, but we love not their spirit. Certain stormy natures delight in tempest and, like sea birds, ride on the crests of raging billows. Men of the Byron type are restless and an atmosphere of peace suits them not. Their spirits, like thunderbolts, rush onward, finding pleasure in the crash with which they force their willful way.
 

@@ -1,7 +1,7 @@
 # Sermon 2176 | The Lord No More Angry with His People
 
-> "For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you."  
-> Isaiah 54:9.  
+> For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you.  
+> Isaiah 54:9  
 
 Before any person could feel himself safe in applying such a word as this to himself, he would naturally read the chapter and study the connection in which it stands to see whether it would be a wresting of Scripture for any private Believer to understand it as being spoken by God to himself. Doing this, you will very soon be satisfied that every true Believer has his just portion here. Observe the closing words of the chapter: "This is the heritage of the servants of the Lord"; not of Jews or Gentiles as such, but of the servants of the Lord, be they of what race they may. It is not written that this was their heritage in some past dispensation, or shall be their heritage in some brighter era yet to come, but "This is the heritage of the servants of the Lord."
 

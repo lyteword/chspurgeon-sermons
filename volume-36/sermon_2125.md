@@ -1,7 +1,8 @@
 # Sermon 2125 | Hope for Your Future
 
-> I am forgiven! I am forgiven!  
-> We wanted to tell the angels this strange wonder of almighty love.  
+I am forgiven! I am forgiven!
+
+We wanted to tell the angels this strange wonder of almighty love.
 
 That was one of the good things of our beginning. We recollect very well, too, that we had, then, a delicious enjoyment of the good things of the Covenant of Grace. We did not know a tenth of what we know now, but we intensely enjoyed what we did know
 

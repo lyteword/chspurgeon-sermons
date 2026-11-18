@@ -1,7 +1,7 @@
 # Sermon 2172 | Patient Job and the Baffled Enemy
 
-> "In all this Job sinned not, nor charged God foolishly."  
-> Job 1:22.  
+> In all this Job sinned not, nor charged God foolishly.  
+> Job 1:22  
 
 That is to say, in all this trial and under all this temptation, Job kept right with God. During all the losses of his estate and the deaths of his children he did not speak in an unworthy manner. The text speaks admiringly of "all this." And a great "all" it was! Some of you have many troubles, but what are they compared with those of Job? Your afflictions are mole-hills contrasted with the Alps of the Patriarch's grief. "All this"! He was suddenly reduced from a peer to a pauper; from a man of great wealth to a person in absolute poverty; from a happy father to a childless mourner! Who can measure or fathom "all this?" Yet, "In all this Job sinned not." Here was the triumph of a gracious spirit. Ah, dear Friends, if God could uphold Job in all this, you may be sure that He can support you! Look to Him for this Divine support.
 

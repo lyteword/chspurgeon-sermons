@@ -1,7 +1,7 @@
 # Sermon 2179 | God Fighting Sin
 
-> "But they rebelled, and vexed His Holy Spirit; therefore He was turned to be their enemy, and He fought against them."  
-> Isaiah 63:10.  
+> But they rebelled, and vexed His Holy Spirit; therefore He was turned to be their enemy, and He fought against them.  
+> Isaiah 63:10  
 
 This is a terrible case. When God is turned to be a man's enemy and fights against him, he is in a desperate plight. With other enemies we may contend with some hope of success, but not with the Omnipotent. The enmity of others is an affliction, but the enmity of God is destruction. If He turns to be our enemy, then everything is turned against us. The stars in their courses fight against us and the stones in the fields are in league for our stumbling. "If God is for us, who can be against us?" But if God is against us, who can be for us? The words read like a funeral knell: "He was turned to be their enemy, and He fought against them."
 

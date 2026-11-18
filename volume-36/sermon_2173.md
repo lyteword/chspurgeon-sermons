@@ -1,10 +1,10 @@
 # Sermon 2173 | Little Faith and Great Faith
 
-> "O you of little faith, why did you doubt?"  
-> Matthew 14:31.  
+> O you of little faith, why did you doubt?  
+> Matthew 14:31  
 
-> "O woman, great is your faith: be it unto you even as you will."  
-> Matthew 15:28.  
+> O woman, great is your faith: be it unto you even as you will.  
+> Matthew 15:28  
 
 Between the very lowest degree of faith and a state of unbelief there is a great gulf. An immeasurable abyss yawns between the man who has even the smallest faith in Christ and the man who has none. One is a living man, though feeble, the other is "dead in trespasses and sins"; the one is a justified man, the other is "condemned already; because he has not believed in the name of the only begotten Son of God." The weakest Believer is on the road to Heaven. The other, having no faith, is going the downward road and he will find his portion at last among the unbelievers; a terrible portion, indeed!
 

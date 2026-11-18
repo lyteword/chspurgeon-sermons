@@ -1,7 +1,7 @@
 # Sermon 2156 | Robbers of God
 
-> "Will a man rob God? Yet you have robbed Me!"  
-> Malachi 3:8.  
+> Will a man rob God? Yet you have robbed Me!  
+> Malachi 3:8  
 
 These Prophets would have made poor royal chaplains if those who dwell in kings' houses have to use smooth speech. Malachi here charges the people with robbery and with the very worst form of it, namely, sacrilege. He speaks for the Lord and says, "Will a man rob God? Yet you have robbed Me." It ill becomes the messengers of Heaven to be the flatterers of rebels. If they should descend to such baseness, they might well expect that their Maker would take them away. The Lord sends His servants to speak the Truth in all its plainness, to denounce sin with all fidelity and to publish God's sentence of condemnation against those who continue in their iniquity. Men's souls are to be dealt with honestly and, if need be, sternly. God's Truth is to be handled with vigorous plainness, for the Lord has said, "He that has My Word, let him speak My Word faithfully."
 

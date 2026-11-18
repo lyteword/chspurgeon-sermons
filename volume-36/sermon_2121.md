@@ -1,7 +1,7 @@
 # Sermon 2121 | The Keynote of the Year
 
-> "Bless the Lord, O my Soul: and all that is within me, bless His holy name."  
-> Psalm 103:1.  
+> Bless the Lord, O my Soul: and all that is within me, bless His holy name.  
+> Psalm 103:1  
 
 Before our friend who leads us in singing begins, we sometimes hear his tuning fork. He is getting the keynote into his ear. When he comes forward he often sounds out that keynote before he begins to sing. This is what David does in this wonderful Psalm. He sounds the tuning fork with this clear note: "Bless the Lord, O my Soul." It is well for all to be ready to sing harmoniously; it is a pity when those who gather to worship do not know what they are doing. I wish I could always have you spiritually in tune and keep in tune myself. Alas, I fear we are often half a note too flat.
 

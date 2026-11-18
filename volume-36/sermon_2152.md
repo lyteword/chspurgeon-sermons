@@ -1,7 +1,7 @@
 # Sermon 2152 | Three Important Precepts
 
-> "Hear you, my son, and be wise, and guide your heart in the way."  
-> Proverbs 23:19.  
+> Hear you, my son, and be wise, and guide your heart in the way.  
+> Proverbs 23:19  
 
 The words are very direct and personal, and that is what I wish my sermon to be. My soul is more and more set upon immediate conversions. I have no voice with which to play the orator; I have only enough strength to be an earnest pleader with your souls. I want to come to close quarters with you and to plead with each man and woman here as if there were but one. Specially would I press my entreaties upon the young, that they may immediately begin that blessed walk which will lead them to the right hand of God. Here and now I desire your salvation! I may never preach again and you may never hear me again. "Now is the accepted time."
 

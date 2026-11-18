@@ -1,9 +1,10 @@
 # Sermon 2163 | Immanuel: The Light of Life
 
-> "Nevertheless the dimness shall not be such us was in her vexation, when at the first He highly afflicted the land of Zebulun and the land of Naphtali, and afterward did more grievously afflict her by the way of the sea, beyond Jordan, in Galilee of the nations. The people that walked in darkness have seen a great light: they that dwell in the land of the shadow of death, upon them has the light shined."  
-> Isaiah 9:1,2.  
+> Nevertheless the dimness shall not be such us was in her vexation, when at the first He highly afflicted the land of Zebulun and the land of Naphtali, and afterward did more grievously afflict her by the way of the sea, beyond Jordan, in Galilee of the nations. The people that walked in darkness have seen a great light: they that dwell in the land of the shadow of death, upon them has the light shined.  
+> Isaiah 9:1,2  
 
-As in this case the Revised Version is much to be preferred, we will now read it: "But there shall be no gloom to her that was in anguish. In the former time He brought into contempt the land of Zebulun and the land of Naphtali, but in the latter time has He made it glorious, by the way of the sea, beyond Jordan, Galilee of the nations. The people that walked in darkness have seen a great light: they that dwelt in the land of the shadow of death, upon them has the light shined." Isaiah 9:1,2.
+> As in this case the Revised Version is much to be preferred, we will now read it: "But there shall be no gloom to her that was in anguish. In the former time He brought into contempt the land of Zebulun and the land of Naphtali, but in the latter time has He made it glorious, by the way of the sea, beyond Jordan, Galilee of the nations. The people that walked in darkness have seen a great light: they that dwelt in the land of the shadow of death, upon them has the light shined."  
+> Isaiah 9:1,2  
 
 When Judah was in sore distress, the sign that she should be delivered was Immanuel. "Behold, a virgin shall conceive and bear a Son, and shall call His name Immanuel" (Isa. 7:14). When no other ray of comfort could be found, light came from the promise of the wondrous birth of Him whose name is "God with us." God alone would be the Deliverer of Judah when overmatched by her two enemies. God would be with them and He gave them as a pledge a vision of that time when, in very deed, God would dwell among men and wear their Nature in the Person of The Virgin-Born.
 

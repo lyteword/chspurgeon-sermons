@@ -1,7 +1,7 @@
 # Sermon 2162 | And Why Not Me?
 
-> "Behold, there came a leper and worshipped Him, saying, Lord, if You will, You can make me clean. And Jesus put forth His hand and touched him, saying, I will, be you clean. And immediately his leprosy was cleansed."  
-> Matthew 8:2,3.  
+> Behold, there came a leper and worshipped Him, saying, Lord, if You will, You can make me clean. And Jesus put forth His hand and touched him, saying, I will, be you clean. And immediately his leprosy was cleansed.  
+> Matthew 8:2,3  
 
 Matthew has placed this miracle immediately after the sermon on the mount. In all probability some little time intervened in which our Lord had preached at Capernaum and had also healed the people in the street, as we read just now in the first chapter of Mark. It was not the object of Matthew to arrange his facts precisely in the order of time; he had another end in view. After the sermon on the mount he gives us remarkable miracles, as if to teach us that our Lord's Words were confirmed by His works. Our Lord was mighty both in word and deed. His kingdom comes not only with truth, but with power. He worked miracles that men might see with their eyes that the power of God was upon Him and might know that He spoke with Divine authority.
 

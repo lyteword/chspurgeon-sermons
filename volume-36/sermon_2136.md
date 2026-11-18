@@ -1,7 +1,7 @@
 # Sermon 2136 | Possessing Possessions
 
-> "But upon Mount Zion shall be deliverance, and there shall be holiness; and the house of Jacob shall possess their possessions."  
-> Obadiah 1:17.  
+> But upon Mount Zion shall be deliverance, and there shall be holiness; and the house of Jacob shall possess their possessions.  
+> Obadiah 1:17  
 
 This is a remarkable passage. Its wording is singular. It begins with a, "but," because the previous verses have been denouncing judgments upon Edom. When God comes forth to punish His enemies He also comes forth to bless His friends. When Pharaoh is overthrown in the Red Sea, it is that Israel may pass onward to Canaan. When Amalek is overcome, it is that Israel may be at peace. There is a black cloud as well as the silvery rain. The acceptable year of the Lord is the day of vengeance of our God. This combination so constantly occurs that the Psalmist said, "I will sing of mercy and judgment."
 

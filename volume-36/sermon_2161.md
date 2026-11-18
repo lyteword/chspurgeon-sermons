@@ -1,7 +1,7 @@
 # Sermon 2161 | Self Low, But Christ High
 
-> "The centurion answered and said, Lord, I am not worthy that You should come under my roof: but speak the word only, and my servant shall be healed."  
-> Matthew 8:8.  
+> The centurion answered and said, Lord, I am not worthy that You should come under my roof: but speak the word only, and my servant shall be healed.  
+> Matthew 8:8  
 
 This centurion was a worthy man from the human point of view, but he called himself unworthy when he turned towards our Lord. He was so excellent a man that the elders of the Jews, who were by no means partial to Roman soldiers, pleaded with Jesus that he was worthy. Had he been personally there, he would have repudiated their plea and he did so by the second party of friends whom he sent to our Lord. As one set of friends had said, "He is worthy," another set of friends was bid to say, in his name, "Lord, I am not worthy." The worthiest men in the world do not think themselves worthy; while the most unworthy people are generally those who boast of their own worthiness and, possibly, of their own perfection.
 
