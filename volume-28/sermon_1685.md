@@ -3,11 +3,14 @@
 > I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins.  
 > Isaiah 43:25  
 
-> "For I will forgive their iniquity, and I will remember their sin no more."  
+> For I will forgive their iniquity, and I will remember their sin no more.  
+> Jeremiah 31:31  
 
-> Jeremiah 31:31.  
+> For I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more.  
+> Hebrews 8:12  
 
-> "For I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more." Hebrews 8:12. "And their sins and iniquities will I remember no more." Hebrews 10:17.  
+> And their sins and iniquities will I remember no more.  
+> Hebrews 10:17  
 
 You see these texts are all alike in their declaration that the Lord will not remember His people's sins. I have taken four of them to make the basis of my sermon firm as adamant. It is written, "In the mouth of two or three witnesses every word shall be established." Here then, you have Isaiah and Jeremiah, two Old Testament saints, affirming the same thing, is this not enough? Added to these, you have the author of the Epistle to the Hebrews, who, in all probability, was Paul, and these three agree in one. Their united testimony is that Jehovah, the Lord God, will forgive the sins of His people, and do it in so complete a way that He will remember their iniquities no more. Now, if I did not preach at all, but merely gave you these four texts to consider, I think the service ought to be full of comfort to all who know their guiltiness and are anxious to obtain mercy.
 

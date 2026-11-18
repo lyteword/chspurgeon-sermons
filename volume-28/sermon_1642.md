@@ -3,7 +3,8 @@
 > Verily, verily, I say unto you, he that hears My Word, and believes on Him that sent Me, has everlasting life, and shall not come into condemnation but is passed from death unto life.  
 > John 5:24  
 
-"Verily, verily, I say unto you, he that believes on Me has everlasting life."John 6:47.
+> Verily, verily, I say unto you, he that believes on Me has everlasting life.  
+> John 6:47  
 
 The words "Verily, verily," as they were solemnly used by our divine Lord, indicate an utterance of special importance. If Jesus says, "Verily, verily," there is something coming to which we should attend with all our hearts! The subject which He thus introduces is our possession of eternal life and our being delivered from condemnation by faith in Himself. Can any theme be more important? Many questions may be asked, but they can all afford to wait till we get the answer to that first enquiry, "What must I do to be saved?" What shall it profit a man if he gains the whole world of knowledge and knows not the way of life? If he wins a world in this life, what will that matter to him if he misses life everlasting?
 

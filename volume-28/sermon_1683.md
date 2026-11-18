@@ -3,11 +3,11 @@
 > And when they had mocked Him, they took off the purple from Him, and put His own clothes on Him, and led Him out to crucify Him.  
 > Mark 15:20  
 
-> "And He, bearing His Cross, went forth."  
-> John 19:17.  
+> And He, bearing His Cross, went forth.  
+> John 19:17  
 
-> "And they compelled one Simon, a Cyrenian who passed by, coming out of the country, the father of Alexander and Rufus, to bear the Cross."  
-> Mark 15:21.  
+> And they compelled one Simon, a Cyrenian who passed by, coming out of the country, the father of Alexander and Rufus, to bear the Cross.  
+> Mark 15:21  
 
 When our Lord had been condemned to die, the execution of His sentence was hurried. The Jews were in great haste to shed His blood. So intense was the enmity of the chief priests and Pharisees, that every moment of delay was wearisome to them. Besides, it was the day of the Passover and they wished to have this matter finished before they went, with hypocritical piety, to celebrate the festival of Israel's deliverance! We do not wonder at their eagerness, for they could not bear themselves while He lived, since His very presence reproved them for their falsehood and hypocrisy.
 

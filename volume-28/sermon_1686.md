@@ -3,8 +3,8 @@
 > The men marveled, saying, What manner of Man is this, that even the winds and the sea obey Him!  
 > Matthew 8:27  
 
-> "And they feared exceedingly, and said one to another, What manner of Man is this, that even the wind and the sea obey Him?"  
-> Mark 4:41.  
+> And they feared exceedingly, and said one to another, What manner of Man is this, that even the wind and the sea obey Him?  
+> Mark 4:41  
 
 This story of the storm upon the lake is wonderfully full of spiritual interest. Not only does it, literally, show to us the divine power of our blessed Master in lulling the storm, rendered the more conspicuous by being placed, side by side, with the human weakness which made Him sleep in the ship upon a pillow, but, spiritually, it is a kind of ecclesiastical history, a miniature outline of the story of the church in all ages. No, the teaching ends not when you have read the incident in that light, it also contains a suggestive forecast of the story of every man who is making the spiritual voyage in company with Jesus.
 

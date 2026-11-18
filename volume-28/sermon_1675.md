@@ -3,8 +3,8 @@
 > When he arose, he took the young Child and His mother by night, and departed into Egypt: and was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the Prophet, saying, Out of Egypt have I called My Son.  
 > Matthew 2:14,15  
 
-> "When Israel was a Child, then I loved Him, and called My Son out of Egypt."  
-> Hosea 11:1.  
+> When Israel was a Child, then I loved Him, and called My Son out of Egypt.  
+> Hosea 11:1  
 
 Egypt occupies a very singular position towards Israel. It was often the shelter of the seed of Abraham. Abraham, himself, went there when there was a famine in the land of his sojourn. To Egypt, Joseph was taken that he might escape from the death intended for him by his envious brothers and become the stepfather of the house of Israel. Into Egypt, as we all right well know, went the whole family of Jacob, and there they sojourned in a strange land. There Moses acquired the learning which was so useful to him. It was out of the spoils of Egypt that the furniture of the Tabernacle was made, as if to show that God intended to take out of heathen hands an offering to His own glory, just as, afterwards, the timber of the temple was hewn by Hiram, the Phoenician, that the Gentiles might have a share in building the temple in token that they would, one day, be made fellow heirs with Israel.
 
