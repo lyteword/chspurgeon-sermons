@@ -3,9 +3,8 @@
 > Then the disciples came to Jesus privately, and said, Why could we not cast it out? So Jesus said to them, Because of your unbelief: for verily I say unto you, If you have faith as a grain of mustard seed, you shall say unto this mountain, Move from here to there and it shall move; and nothing will be impossible for you. However, this kind does not go out except by prayer and fasting.  
 > Matthew 17:19-21  
 
-"And when He had come into the house, His disciples asked Him privately, Why could we not cast it out? So He said to them, This kind can come out by nothing but prayer and fasting."
-
-Mark9:28,29.
+> And when He had come into the house, His disciples asked Him privately, Why could we not cast it out? So He said to them, This kind can come out by nothing but prayer and fasting.  
+> Mark 9:28,29  
 
 I put these two texts together for this reason. Those of you who are acquainted with the Revised Version know that the twenty-first verse in the seventeenth chapter of Matthew is left out. There seems to be little doubt that it was inserted in certain copies by persons who thought that it ought to be there because it was in Mark's narrative. It is put in the margin of the Revised Version, but it is left out of the text. It is, therefore, very satisfactory to find that the omission from Matthew's account makes no real difference because we have the words in the twenty-ninth verse of the ninth of Mark, "This kind can come forth by nothing but by prayer and fasting." Only there is this fact to be noticed, in the Revised Version this verse runs, according to Mark, "This kind can come out by nothing, save by prayer." Whether the fasting was originally there, or not, I cannot tell, but putting together the two accounts in Matthew and Mark, we believe we have a full and true report of what the Master did actually say on this occasion.
 
