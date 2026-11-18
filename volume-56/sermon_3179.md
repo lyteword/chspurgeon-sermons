@@ -1,6 +1,7 @@
 # Sermon 3179 | A Comprehensive Benediction
 
-"Now our Lord Jesus Christ Himself, and God, even our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts, and establish you in every good word and work." 2 Thessalonians 2:16,17.
+> "Now our Lord Jesus Christ Himself, and God, even our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts, and establish you in every good word and work."  
+> 2 Thessalonians 2:16-17  
 
 All through his Epistles, Paul is continually expressing his best wishes for the friends to whom he writes. The Christian should be a well-wisher to all men. No cursing should ever come out of his mouth, but his lips should always distil blessings even upon his enemies, and much more upon his friends. Brothers and Sisters in Christ Jesus, it should be a part of our religion to be desiring the best of blessings for our fellow men. As the high priest of old blessed the people, so should those whom God has made to be priests and kings unto Himself, a privilege that pertains to all saints, exercise the function of blessing the people by desiring good things for them!
 
