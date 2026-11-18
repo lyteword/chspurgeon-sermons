@@ -4,7 +4,7 @@
 > Hebrews 11:31  
 
 > Likewise also was not Rahab the harlot justified by works, when she had received the messengers, and had sent them out another way?  
-> James 2:25
+> James 2:25  
 
 These are two New Testament summaries of the life of Rahab and they are equally honorable to her. Paul puts her among the great worthies who, by faith, worked wonders. The eleventh chapter of Hebrews is a triumphal arch to the soldiers of faith and among the illustrious names inscribed there are the name of this harlot of Jericho. We are not, however, so much surprised at that, for she was evidently an instance of great faith; but we are somewhat surprised, I think, to find her name recorded by James because he is an eminently practical writer; and was writing of good works rather than of faith. His object is to show that the faith which justifies the soul is a faith which produces good works, and therefore he looks for instances of holy service of God.
 

@@ -3,7 +3,8 @@
 > Jesus said, Take away the stone.  
 > John 11:39  
 
-"Jesus said to them, Loose him, and let him go." John 11:44.
+> Jesus said to them, Loose him, and let him go.  
+> John 11:44  
 
 There lay Lazarus in the grave, dead. His restoration to life was utterly hopeless upon any ordinary principles. Certainly Lazarus could not raise himself! His affectionate sisters could not, with all their weeping, give him a resurrection nor could the disciples call back the departed spirit and reanimate the decaying corpse. It was a hopeless case, for who could revive a dead man who had lain in the grave so long that he had begun to stink?
 
