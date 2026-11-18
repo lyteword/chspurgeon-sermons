@@ -1,7 +1,8 @@
 # Sermon 1864 | First Things First
 
-> You had better have a lion. I have been painting lions so long that they are more in my line than angels." My host answered that there were three or four lions of different colors in the street, already, and that he must have an angel. "Well," said our artist, "if you must have an angel, you shall have an angel, but it will be dreadfully like a lion.  
-> Thus it comes to pass that when I am compelled to give an address, it is extremely like a sermon! I pray you have patience with me now that I have confessed my weakness  
+"You had better have a lion. I have been painting lions so long that they are more in my line than angels." My host answered that there were three or four lions of different colors in the street, already, and that he must have an angel. "Well," said our artist, "if you must have an angel, you shall have an angel, but it will be dreadfully like a lion."
+
+Thus it comes to pass that when I am compelled to give an address, it is extremely like a sermon! I pray you have patience with me now that I have confessed my weakness
 
 A philosopher has remarked that if a man knew that he had 30 years of life before him, it would not be an unwise thing to spend 20 of those years in mapping out a plan of living and putting himself under rule, for he would do more with the 10 well-arranged years than with the whole 30 if he spent them at random, There is much truth in that saying. A man will do little by firing off his gun if he has not learned to take aim.
 

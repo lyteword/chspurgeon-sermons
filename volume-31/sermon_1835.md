@@ -1,7 +1,7 @@
 # Sermon 1835 | The Man Christ Jesus
 
-> "Now consider how great this man was."  
-> Hebrews 7:4.  
+> Now consider how great this man was.  
+> Hebrews 7:4  
 
 Consider how great Melchizedek was. There is something majestic about every movement of that dimly revealed figure. His one and only appearance is thus fitly described in the Book of Genesis, "And Melchizedek king of Salem brought forth bread and wine: and he was the priest of the most high God. And he blessed him, and said, Blessed be Abram of the most high God, which hath delivered thine enemies into thy hand. And he gave him tithes of all." We see but little of him, yet we see nothing little in him. He is here and gone, as far as the historic page is concerned, yet is he "a priest for ever," and "it is witnessed that he liveth." Everything about him is on a scale majestic and sublime.
 

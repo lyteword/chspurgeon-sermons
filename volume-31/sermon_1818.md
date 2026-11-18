@@ -1,6 +1,6 @@
 # Sermon 1818 | The Song of a City, and the Pearl of Peace
 
-> "Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee."  
+> Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.  
 > Isaiah 26:3  
 
 This is no dry, didactic statement, but a verse from a song. We are among the poets of revelation, who did not compose ballads for the passing hour, but made sonnets for the people of God to sing in after days. I quote to you a stanza from the song of a city. Judah has not aforetime thus chanted before her God, but she has much to learn, and one day she shall learn this psalm also: "We have a strong city; salvation will God appoint for walls and bulwarks." Into the open country the adversary easily advances, but walled cities are a check upon the invading foe. Those people who had been hurried to and from as captives, and had frequently been robbed of their property by invaders, were glad when they saw builded among them a city, a well-defended city, which should be the centre of their race, and the shield of their nation.
