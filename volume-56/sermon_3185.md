@@ -1,6 +1,7 @@
 # Sermon 3185 | "A Song of My Beloved"
 
-"My Beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether." Song of Solomon 2:16,17.
+> "My Beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."  
+> Song of Solomon 2:16-17  
 
 It has been well said that if there is a happy verse in the Bible, it is this one: "My Beloved is mine, and I am His: He feeds among the lilies." So peaceful, so full of assurance, so bursting with happiness and contentment is it, that it might well have been written by the same hand which penned the twenty-third Psalm: "The Lord is my shepherd; I shall not want. He makes me to lie down in green pastures: He leads me beside the still waters." The verse savors of Him who, just before He went to Gethsemane, said to His disciples, "Peace I leave with you, My peace I give unto you: not as the world gives, give I unto you...In the world you shall have tribulation: but be of good cheer; I have overcome the world." Let us ring the silver bell of this verse again, for its notes are exquisitely sweet! "My Beloved is mine, and I am His: He feeds among the lilies."
 
