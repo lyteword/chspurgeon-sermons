@@ -1,10 +1,10 @@
 # Sermon 708 | The Blood Of Abel And The Blood Of Jesus
 
-> "And He said, 'What have you done? The voice of your brother's blood cries unto Me from the ground.'"  
-> Genesis 4:10.  
+> And He said, 'What have you done? The voice of your brother's blood cries unto Me from the ground.'  
+> Genesis 4:10  
 
-> "And to Jesus the Mediator of the New Covenant, and to the blood of sprinkling, that speaks better things than that of Abel."  
-> Hebrews 12:24.  
+> And to Jesus the Mediator of the New Covenant, and to the blood of sprinkling, that speaks better things than that of Abel.  
+> Hebrews 12:24  
 
 The first shedding of human blood was a very terrible experiment. Whether Cain's murderous blow was premeditated or not, the sight of a bleeding human corpse must have been a terrible novelty to him. He had not been hardened by reading details of warfare, or listening to tales of murder. Killing and slaying were new terrors to mankind, and he who was the ringleader in such violence must have been filled with mingled astonishment at the result of his blow, and apprehension as to its consequences.
 

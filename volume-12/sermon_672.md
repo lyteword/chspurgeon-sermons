@@ -1,7 +1,7 @@
 # Sermon 672 | The Ravens' Cry
 
-> "He gives to the beast his food, and to the young ravens which cry."  
-> Psalm 147:9.  
+> He gives to the beast his food, and to the young ravens which cry.  
+> Psalm 147:9  
 
 I shall open this sermon with a quotation. I must give you, in Caryl's own words his note upon ravens. "Naturalists tell us that when the raven has fed his young in the nest till they are well fledged and able to fly abroad, he thrusts them out of the nest and will not let them abide there, but puts them out to get their own living. Now when these young ones are upon their first flight from their nest and are little acquainted with means how to help themselves with food, then the Lord provides food for them.
 

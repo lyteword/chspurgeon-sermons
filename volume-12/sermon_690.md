@@ -1,7 +1,7 @@
 # Sermon 690 | A Lesson From The Great Panic
 
-> "The removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain."  
-> Hebrews 12:27.  
+> The removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain.  
+> Hebrews 12:27  
 
 It is a most popular error that the world stands still and is fixed and immovable. This has been touted as an astronomical theory, but as a matter of practical principle it still reigns in men's minds. Galileo said, "No, the world is not a fixed body, it moves." Peter had long before declared that all these things should be dissolved. At last men believed the astronomer, but they still doubt the Apostle, or at least forget his doctrine. Though it is clear as noonday in Scripture and in experience that stability is not to be found beneath the moon, yet men are forever building upon earth's quicksand as if it were substantial rock, and heaping up its dust as though it would not all be blown away.
 

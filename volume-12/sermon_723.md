@@ -1,7 +1,7 @@
 # Sermon 723 | The Root That Bears Wormwood
 
-> "Lest there should be among you a root that bears gall and wormwood."  
-> Deuteronomy 29:18.  
+> Lest there should be among you a root that bears gall and wormwood.  
+> Deuteronomy 29:18  
 
 The people of Israel, after all the wonderful things which God had done for them, should have felt themselves bound forever to their father's God. They had received the clearest possible proof that Jehovah alone was the living and true God. How could they debase themselves to worship graven images when they had seen such signs and wonders worked by their great I AM? Surely idolatry after such a history as theirs must have been sinful to the worst degree.
 

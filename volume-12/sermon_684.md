@@ -1,10 +1,10 @@
 # Sermon 684 | Hope, Yet No Hope; No Hope, Yet Hope
 
-> "You are wearied in the length of your way; yet you did not say, There is no Hope."  
-> Isaiah 57:10.  
+> You are wearied in the length of your way; yet you did not say, There is no Hope.  
+> Isaiah 57:10  
 
-> "And they said, There is no hope: but we will walk after our own devices, and we will everyone do the imagination of his evil heart."  
-> Jeremiah 18:12.  
+> And they said, There is no hope: but we will walk after our own devices, and we will everyone do the imagination of his evil heart.  
+> Jeremiah 18:12  
 
 Who can understand the subtlety of the human heart? Well said the Prophet, "The heart is deceitful above all things and desperately wicked." The physician of the body had need be skillful to track disease to its secret origin and to follow it through all its mysterious pathways in the mazes of the human body. But he who has to deal with souls has a task far harder, inasmuch as sin is more subtle than the virus of the most incurable disease, and the way in which it intertwines itself with every power of humanity is even more marvelous than the strange influences of plague and pest upon the human body.
 

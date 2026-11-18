@@ -1,7 +1,7 @@
 # Sermon 716 | The Church Awakened
 
-> "Therefore He says: Awake, you who sleep, Arise from the dead, And Christ will give you light."  
-> Ephesians 5:14.  
+> Therefore He says: Awake, you who sleep, Arise from the dead, And Christ will give you light.  
+> Ephesians 5:14  
 
 We have not time this evening to enter into the question as to where this quotation came from. There does not appear to be one exactly like it in the compass of the Old Testament, but we must remember that the Apostle very frequently quotes the spirit of texts rather than the words of them. In the eighth and in the tenth chapters of the Epistle to the Hebrews we find him quoting the same passage, but not in the same words, showing us that he, as an inspired man, felt himself able to deal rather with the spirit of a passage than with the precise words of it. There may, therefore, be no such passage in the Old Testament verbally, but as there are several which have the spirit of the exhortation, Paul was justified in saying, "God has said so-and-so."
 

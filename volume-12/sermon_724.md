@@ -1,7 +1,7 @@
 # Sermon 724 | His Name: The Everlasting Father
 
-> "The Everlasting Father."  
-> Isaiah 9:6.  
+> The Everlasting Father.  
+> Isaiah 9:6  
 
 How complex is the Person of our Lord Jesus Christ! Almost in the same breath the Prophet calls Him a "Child," and a "Counselor," a "Son," and "the Everlasting Father." This is no contradiction, and to us scarcely a paradox, but it is a mighty marvel that He who was an Infant should at the same time be Infinite, He who was the Man of Sorrows should also be God over all, blessed forever, and that He who is in the Divine Trinity always called the Son, should nevertheless be correctly called "the Everlasting Father."
 

@@ -1,7 +1,7 @@
 # Sermon 680 | Have You Forgotten Him?
 
-> "I do remember my faults this day."  
-> Genesis 41:9.  
+> I do remember my faults this day.  
+> Genesis 41:9  
 
 No single power or faculty of man escaped damage at the Fall; while the affections were polluted, the will was made perverse, the judgment was shifted from its proper balance, and the memory lost much of its power and more of its integrity. Every observing mind will have noticed that naturally we have a greater power for remembering evil than good. Very plain is this in your children. If you mention anything good in their hearing you had need to say it many times and very plainly before they are likely to remember it. But if one ill word shall casually meet their ear in the street, it will not be long before you have the pain of hearing them repeat it.
 

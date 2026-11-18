@@ -1,7 +1,7 @@
 # Sermon 695 | The Axe at the Root: A Testimony Against Puseyite Idolatry
 
-> "But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth, for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth."  
-> John 4:23-24.  
+> But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth, for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth.  
+> John 4:23-24  
 
 The woman's conscience had been aroused by Christ's declaration of her sin. He was touching upon matters of the most vital importance, and her depraved heart naturally shrunk from the lancet. From the truth which was becoming inconveniently personal she flew to that natural resort of the carnal mind, namely, to religious discourse upon points of outward observance. Instead of confessing her sin, and asking how it may be forgiven, she must needs say, "Our fathers worshipped in this mountain; and ye say, that in Jerusalem is the place where men ought to worship." The carnal heart dreads the contact of spiritual truth, and finds a most convenient way of avoiding it by running to questions of holy places, holy times, and holy customs. Jesus, to her astonishment, informs her that the question which she had asked was of only temporary importance. There had been a time when it was well to know that salvation was of the Jews, and that the rival temple of the Samaritans was an imposture; but he says in effect to her, "Woman, believe me that question is of no importance now, for the hour cometh, yea and now is, when the external is to be abolished and the ritualistic is to be put away, and a purer, simpler, and more spiritual worship, is to take its place."
 

@@ -1,7 +1,7 @@
 # Sermon 717 | Pray For Jesus
 
-> "Prayer also shall be made for Him continually."  
-> Psalm 72:15.  
+> Prayer also shall be made for Him continually.  
+> Psalm 72:15  
 
 Having on one or two occasions made use of the phrase, "praying for King Jesus," I have been somewhat surprised to find that it was not understood, and I have been rather astonished at receiving several notes asking for an explanation of what I supposed to be a matter of common knowledge. It seemed to hearers and readers of my sermons as if the phrase must be a mistake, as if it could not really be a correct thing to do, to pray for the Lord Jesus Christ. And yet one moment's reflection would have shown them that the expression is Scriptural, that you have it here if you have it nowhere else, "prayer also shall be made for Him continually."
 

@@ -1,7 +1,7 @@
 # Sermon 675 | Spring In The Heart
 
-> "You water the ridges abundantly: You settle the furrows: You make it soft with showers: You bless its growth."  
-> Psalm 65:10.  
+> You water the ridges abundantly: You settle the furrows: You make it soft with showers: You bless its growth.  
+> Psalm 65:10  
 
 Though other seasons excel in fullness, spring must always bear the palm for freshness and beauty. We thank God when the harvest hours draw near and the golden grain invites the sickle, but we ought equally to thank Him for the rougher days of spring, for these prepare the harvest. April showers are mothers of the sweet May flowers, and the wet and cold of winter are the parents of the splendor of summer. God blesses its growth, or else it could not be said, "You crown the year with Your goodness." There is as much necessity for Divine benediction in spring as for heavenly bounty in summer, and therefore we should praise God all the year round.
 

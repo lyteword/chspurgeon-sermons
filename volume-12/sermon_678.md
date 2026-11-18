@@ -1,7 +1,7 @@
 # Sermon 678 | Praise Your God, O Zion!
 
-> "And when He was come near, even now at the descent of the Mount of Olives, the whole multitude of the disciples began to rejoice and praise God with a loud voice for all the mighty works that they had seen, saying, Blessed is the King that comes in the name of the Lord! Peace in Heaven, and glory in the highest! And some of the Pharisees from among the multitude said unto Him, Master, rebuke Your disciples. But He answered and said unto them, I tell you that if these should hold their peace, the stones would immediately cry out."  
-> Luke 19:37-40.  
+> And when He was come near, even now at the descent of the Mount of Olives, the whole multitude of the disciples began to rejoice and praise God with a loud voice for all the mighty works that they had seen, saying, Blessed is the King that comes in the name of the Lord! Peace in Heaven, and glory in the highest! And some of the Pharisees from among the multitude said unto Him, Master, rebuke Your disciples. But He answered and said unto them, I tell you that if these should hold their peace, the stones would immediately cry out.  
+> Luke 19:37-40  
 
 The Savior was "a man of sorrows," but every thoughtful mind has discovered the fact that down deep in His innermost soul He must have carried an inexhaustible treasury of refined and heavenly joy. I suppose that of all the human race there was never a man who had a deeper, purer, or more abiding peace than our Lord Jesus Christ. "He was anointed with the oil of gladness above His fellows." Benevolence is joy. The highest benevolence must, from the very nature of things, have afforded the deepest possible delight.
 

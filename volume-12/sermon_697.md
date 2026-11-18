@@ -1,7 +1,7 @@
 # Sermon 697 | God's Cure For Man's Weakness
 
-> "Out of weakness were made strong."  
-> Hebrews 11:34.  
+> Out of weakness were made strong.  
+> Hebrews 11:34  
 
 Some kinds of weakness are of God's appointment and necessarily incident to manhood. They are not sinful, and therefore we may continue to be subject to them without regret. In reference to such weaknesses it may be that after beseeching the Lord even thrice to remove them it may be for our good that they should remain. Then will our gracious God give us, in place of removing the weakness, this reply, "My grace shall be sufficient for you." This is a case of in weakness being made strong, and there are many of God's saints who daily experience so blessed a privilege. They are weak, and continue weak. They have infirmities which they once wished to have removed but which now they are content to bear, for now they are of the same mind with the Apostle: they glory in their infirmity because when they are weak they are strong.
 

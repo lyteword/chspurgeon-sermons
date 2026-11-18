@@ -1,7 +1,7 @@
 # Sermon 713 | Soul Murder: Who Is Guilty?
 
-> "Deliver me from the guilt of bloodshed, O God, The God of my salvation, And my tongue shall sing aloud of Your righteousness."  
-> Psalm 51:14.  
+> Deliver me from the guilt of bloodshed, O God, The God of my salvation, And my tongue shall sing aloud of Your righteousness.  
+> Psalm 51:14  
 
 David had been grossly guilty towards his faithful and veteran friend Uriah. He had given instructions that Uriah should be led into the hottest part of the fight and then suddenly deserted so that he might be struck by the sword of the Syrians, and might appear to have died in the natural order of battle. Whereas, of course, his death was a cowardly murder, planned and devised by the very man who ought to have been his protector.
 

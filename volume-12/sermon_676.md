@@ -1,7 +1,7 @@
 # Sermon 676 | Man's Thoughts And God's Thoughts
 
 > "For My thoughts are not your thoughts, nor are your ways My ways," says the Lord. "For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts."  
-> Isaiah 55:8,9.  
+> Isaiah 55:8,9  
 
 The text speaks of thoughts. It mentions the thoughts of man and the thoughts of God. The power of thought is one point in which man is made in the image of God. Other animated creatures which are put in subjection to the thinking, intelligent creature, man, have no fellowship with God in thought; into His world of pure spirit they cannot enter. To the majestic lion or to the monstrous leviathan, no speech could be addressed by God involving the terms, "My thoughts," and "your thoughts."
 

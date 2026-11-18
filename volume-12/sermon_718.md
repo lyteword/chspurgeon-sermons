@@ -1,7 +1,7 @@
 # Sermon 718 | The Standard Uplifted In The Face Of The Foe
 
-> "When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him."  
-> Isaiah 59:19.  
+> When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him.  
+> Isaiah 59:19  
 
 The Hebrew seems to be very difficult to interpret in this verse and there have been as many translations given it as there are days in the month. Upon the whole, one is most satisfied with the translation of our authorized version. And without troubling your minds with a host of various renderings, we will keep to the one before us, which, even if it should not happen to be the precise truth taught in the passage, it is, nevertheless, a great Scriptural Truth, and one which it is important for us just now to remember.
 

@@ -1,7 +1,7 @@
 # Sermon 705 | The Voice Of Cholera
 
-> "Can two walk together, except they are agreed? Will a lion roar in the forest, when he has no prey? Will a young lion cry out of his den, if he has caught nothing? Will a bird fall in a snare on the earth, where there is no trap for it? Will a snare spring up from the earth, if it has caught nothing at all? If a trumpet is blown in a city, will not the people be afraid? If there is evil in a city, will not the Lord have done it."  
-> Amos 3:3-6.  
+> Can two walk together, except they are agreed? Will a lion roar in the forest, when he has no prey? Will a young lion cry out of his den, if he has caught nothing? Will a bird fall in a snare on the earth, where there is no trap for it? Will a snare spring up from the earth, if it has caught nothing at all? If a trumpet is blown in a city, will not the people be afraid? If there is evil in a city, will not the Lord have done it.  
+> Amos 3:3-6  
 
 We have all felt grieved when reading our bills of mortality to observe the mysterious spread of cholera in our great city. It is high time that it should be made the subject of special prayer, and that the nation should seek unto the Lord for its removal. While as yet there has been but comparatively little of the evil, we should be humbled under it, that we may be spared a greater outbreak. There are different ways of looking at this disease. Men viewing it from one point of view have frequently despised those who have regarded it under another aspect.
 

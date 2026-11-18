@@ -1,7 +1,7 @@
 # Sermon 727 | God Incarnate, The End Of Fear
 
-> "And the angel said unto them, Fear not."  
-> Luke 2:10.  
+> And the angel said unto them, Fear not.  
+> Luke 2:10  
 
 No sooner did the angel of the Lord appear to the shepherds, and the glory of the Lord shone round about them, than they were sorely afraid. It had come to this, that man was afraid of his God, and when God sent down His loving messengers with tidings of great joy, men were filled with as much fright as though the angel of Death had appeared with uplifted sword. The silence of night and its dreary gloom caused no fear in the shepherds' hearts, but the joyful herald of the skies, robed in mildest glories of Divine Grace, made them afraid.
 

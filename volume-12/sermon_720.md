@@ -1,7 +1,7 @@
 # Sermon 720 | The Gospel's Healing Power
 
-> "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the law sitting by, which were come out of every town of Galilee, and Judea, and Jerusalem: and the power of the Lord was present to heal them."  
-> Luke 5:17.  
+> And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the law sitting by, which were come out of every town of Galilee, and Judea, and Jerusalem: and the power of the Lord was present to heal them.  
+> Luke 5:17  
 
 Luke, the writer of this Gospel, was a physician and therefore had a quick eye for cases of disease and instances of cure. You can trace throughout the whole of his Gospel the hand of one who was skilled in surgery and medicine. I gather from this that whatever may be our calling, or in whatever art or science we may have attained proficiency, we should take care to use our knowledge for Christ. And that if we are called being physicians we may understand the work of the Lord Jesus all the better by what we see in our own work, and we may also do much for our Lord in real substantial usefulness among our patients.
 

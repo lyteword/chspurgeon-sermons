@@ -1,7 +1,7 @@
 # Sermon 669 | Open Heart For The Great Savior
 
-> "But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name: who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God."  
-> John 1:12.  
+> But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name: who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.  
+> John 1:12  
 
 Divine Truth is one, but it is many-sided. When you have looked at it from one point of view you may reverse your position, and, though the Truth at which you look will be the same, you will marvel at its freshness as seen from another aspect. This morning we sought to show you how Jesus Christ received sinners. Tonight it shall be our endeavor, as the Holy Spirit may enable us, to set forth how sinners receive Christ.
 

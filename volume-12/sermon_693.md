@@ -1,7 +1,7 @@
 # Sermon 693 | The Garden Of The Soul
 
-> "A place called Gethsemane."  
-> Matthew 26:36.  
+> A place called Gethsemane.  
+> Matthew 26:36  
 
 Though I have taken only these few words for my text, I shall endeavor to bring the whole narrative before your mind's eyes. It is a part of the teaching of Holy Writ that man is a composite being, his nature being divisible into three parts: "spirit," "soul," and "body." I am not going to draw any nice distinctions tonight between the spirit and the soul, or to analyze the connecting link between our immaterial life and consciousness and the physical condition of our nature and the materialism of the world around us. Suffice it to say that whenever our vital organization is mentioned, this triple constitution is pretty sure to be referred to.
 

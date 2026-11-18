@@ -1,7 +1,7 @@
 # Sermon 683 | Divine Gentleness Acknowledged
 
-> "Your gentleness has made me great."  
-> Psalm 18:35.  
+> Your gentleness has made me great.  
+> Psalm 18:35  
 
 There are several interpretations of this text. A moment will suffice to give them to you. The word is capable of being translated, "Your goodness has made me great." David saw much of benevolence in God's action towards him and he gratefully ascribed all his greatness not to his own goodness, but to the goodness of God. "Your Providence" is another reading, which is, indeed, nothing more than goodness in action. Goodness is Providence in embryo; Providence is goodness fully developed. Goodness is the bud of which Providence is the flower, or goodness is the seed of which Providence is the harvest.
 
