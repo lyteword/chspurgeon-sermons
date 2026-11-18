@@ -2,8 +2,7 @@
 
 > Now Annas had sent Him bound unto Caiaphas the high priest.  
 > (The Revised Version says, "Annas therefore sent Him bound unto Caiaphas the high priest")  
-
-John 18:24.
+> John 18:24  
 
 Our only subject, on this occasion, is Christ in bonds, the Son of God as an Ambassador in bonds, a King in chains, the God-Man sent, bound, to take His trial in the court of the high priest, Caiaphas.
 
