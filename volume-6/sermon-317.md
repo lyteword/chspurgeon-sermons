@@ -1,7 +1,7 @@
 # Sermon 317 | Characteristics of Faith
 
-> Then said Jesus unto him, Except ye see signs and wonders, ye will not believe.    
-> John 4:48.    
+> Then said Jesus unto him, Except ye see signs and wonders, ye will not believe.  
+> John 4:48  
 
 Ou will remember that Luke, in his letter to Theophilus, speaks of things which Jesus began both to do and to teach, as if there was a connection between his doings and his teachings. In fact, there was a relation of the most intimate kind. His teachings were the explanation of his doings&mdash;his doings confirmations of his teachings. Jesus Christ had never occasion to any, "Do as I say, but not as I do." His words and his actions were in perfect harmony with one another. You might be sure that he was honest in what he said, because what he did forced that conviction upon your mind. Moreover, you were led to see that what he taught you must be true, because he spoke with authority,&mdash;an authority proved and demonstrated by the miracles he wrought. Oh my brethren in Christ! when our biographies shall come to be written at last, God grant that they may not be all sayings, but that they may be a history of our sayings and doings! And may the good Spirit so dwell in us, that at the last it may be seen that our doings did not clash with our sayings! It is one thing to preach, but another thing to practice; and unless preaching and practice go together, the preacher is himself condemned, and his ill practice may be the means of condemning multitudes through his leading them astray. If you make a profession of being God's servant, live up to that profession, and if you think it necessary to exhort others to virtue, take care that you set the example. You can have no right to teach, if you have not yourself learned the lesson which you would teach to others.
 

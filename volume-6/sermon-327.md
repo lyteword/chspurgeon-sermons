@@ -1,7 +1,7 @@
 # Sermon 326 | Vessels Of Mercy&mdash;a Sermon Of Self-Examination
 
-> And that He might make known the riches of His Glory on the vessels of mercy, which He had prepared beforehand for glory, even us, whom He called, not of the Jews only, but also of the Gentiles.    
-> Romans 9:23,24.    
+> And that He might make known the riches of His Glory on the vessels of mercy, which He had prepared beforehand for glory, even us, whom He called, not of the Jews only, but also of the Gentiles.  
+> Romans 9:23,24  
 
 It is with no view to controversy that I have selected this text, but for a far higher and more practical purpose, namely, that by this Truth of God, many of us may search ourselves, and that we may be able to discover whether we have any of the marks of the vessels of mercy which God has prepared beforehand for glory. We must take the next verse to complete our text&mdash;"even us, whom He called, not of the Jews only, but also of the Gentiles."
 

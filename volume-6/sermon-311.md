@@ -1,7 +1,7 @@
 # Sermon 311 | The Beginning, Increase, and End of the Divine Life
 
-> Though thy beginning was small, yet thy latter end should greatly increase.    
-> Job 8:7.    
+> Though thy beginning was small, yet thy latter end should greatly increase.  
+> Job 8:7  
 
 This was the reasoning of Bildad the Shuhite. He wished to prove that Job could not possibly be an upright man, for if he were so, he here affirms that his prosperity would increase continually, or that if he fell into any trouble, God would awake for him, and make the habitation of his righteousness prosperous; and though his family were now all destroyed, and his wealth scattered to the winds, yet if he were an upright man, God would surely appear for him, and his latter end would greatly increase.
 

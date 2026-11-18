@@ -2,7 +2,8 @@
 
 On behalf of the London missionary society.
 
-"He maketh peace in thy borders, and filleth thee with the finest of the wheat He sendeth forth his commandment upon earth: his word runneth very swiftly."&mdash;Psalm 147:14.-15.
+> He maketh peace in thy borders, and filleth thee with the finest of the wheat He sendeth forth his commandment upon earth: his word runneth very swiftly.  
+> Psalm 147:14-15  
 
 Pardon me, my brethren, if I attempt no exposition whatever of the text, but simply endeavor to address you upon what I think is an inference from it, or at least a reflection to which it might readily give rise. The Psalmist is here describing the prosperity of Jerusalem, and he connects that prosperity with the progress and diffusion of the Word of God. He is teaching us I think just this great truth, that there is an intimate connection between the establishment and the building of our Zion at home, and the going forth and the spread of God's Word abroad, both in the provinces of our own land, and throughout the regions of the world. Our own churches must be in a prosperous state. As the second verse hath it&mdash;"the Lord doth build up Jerusalem," we may then rest assured that "he will gather together the outcasts of Israel." If there be in the churches of our own highly favored land a healthiness of spirit and an abundance of the grace of God, we need not fear but that all our operations will be carried on with success. God shall greatly crown our endeavors, and give us to see our heart's desire. If this be not precisely the critical meaning of the text, then let me just say I shall use it in this sense as a motto. The subject of this evening's discourse will be the connection between a healthy church at home, and the increase of the kingdom of our Lord and Savior Jesus Christ.
 

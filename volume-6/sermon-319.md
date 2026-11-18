@@ -9,7 +9,8 @@ Baden-Baden, June fifteenth, 1860
 
 H. Spurgeon.
 
-"Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light: who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son."&mdash;Colossians 1:12, 13.
+> Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light: who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son.  
+> Colossians 1:12, 13  
 
 This passage is a mine of riches. I can anticipate the difficulty in preaching and the regret in concluding we shall experience this evening because we are not able to dig out all the gold which lies in this precious vein. We lack the power to grasp and the time to expatiate upon that volume of truths which is here condensed into a few short sentences.
 

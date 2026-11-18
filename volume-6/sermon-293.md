@@ -1,7 +1,7 @@
 # Sermon 293 | The King's Highway Opened and Cleared
 
-> And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.    
-> Acts. 16:31.    
+> And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.  
+> Acts 16:31  
 
 You will remember that when the children of Israel were settled in Canaan, God ordained that they should set apart certain cities to be called the Cities of Refuge, that to these the man-slayer might flee for security. If he killed another unawares, and had no malice aforethought, he might flee at once to the City of Refuge; and if he could enter its gates before the avenger of blood should overtake him, he would be secure. We are told by the rabbis that once in the year, or oftener, the magistrates of the district were accustomed to survey the high roads which led to these cities. they carefully gathered up all the stones, and took the greatest possible precautions that there should be no stumbling-blocks in the way which might cause the poor fugitive to fall, or might by any means impede him in his hasty course. We hear, moreover, and we believe the tradition to be grounded in fact, that all along the road there were hand-posts with the word "Refuge" written very legibly upon them, so that when the fugitive came to a crossroad, he might not need to question for a single moment which was the way of escape; but seeing the well-known word "Refuge," he kept on his breathless and headlong course until he had entered the suburb of the City of Refuge, and he was then at once completely safe.
 

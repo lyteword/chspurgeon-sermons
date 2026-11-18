@@ -1,7 +1,7 @@
 # Sermon 335 | A Single Eye And Simple Faith
 
-> The light of the body is the eye: if therefore your eye is good, your whole body will be full of light. But if your eye is evil, your whole body shall be full of darkness.    
-> Matthew 6:22,23.    
+> The light of the body is the eye: if therefore your eye is good, your whole body will be full of light. But if your eye is evil, your whole body shall be full of darkness.  
+> Matthew 6:22,23  
 
 This sentence has in it the nature of a Proverb. It is well worthy of frequent quotation, as it is applicable to such various circumstances. It is one of the most pithy, terse utterances of our Savior. So full of meaning is, it that it would be utterly impossible for us to draw out all its analogies. It is capable of adaptation to so many different things that the ablest commentators despair of being able to give you the whole of its fullness. But mark&mdash;very much of the meaning is to be discovered by the use&mdash;as the varieties of our personal experience furnish varieties of practical reflection. For example, we may interpret the passage of conscience as the eye of the soul&mdash;conscience must be clear and simple. If the conscience, which is the candle of the Lord, and which searches the secret parts of the belly, is not light but darkness, how great must be the darkness! If a man has not enough conscience to know darkness from light, and light from darkness, then he puts bitter for sweet, and sweet for bitter; if that only power, on which seems to tremble some rays of the ancient light of manhood, is darkened&mdash;if the lighthouse is quenched, if the windows are sealed up&mdash;how great, indeed, must be the darkness of man! We cannot wonder, when once a man has a depraved, and seared conscience, that he willingly runs into iniquity, commits sin with both hands, and goes from step to step till he obtains the highest seat in the scale of sin!
 

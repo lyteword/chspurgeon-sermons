@@ -1,7 +1,7 @@
 # Sermon 334 | Man's Weakness&mdash;God's Anointing
 
-> I am this day weak, though anointed king; and these men, the sons of Zeruiah, are too hard for me.    
-> 2 Samuel 3:39.    
+> I am this day weak, though anointed king; and these men, the sons of Zeruiah, are too hard for me.  
+> 2 Samuel 3:39  
 
 You will remember that David was secretly anointed king over Israel by Samuel, but he waited many a weary year before the crown actually rested upon his head. For a long time he was an exile from the very country of which he was afterwards to be the sovereign. He was hunted about by the remorseless cruelty of Saul till he became like a partridge upon the mountains, and the feet of the wild roe were not more used to flight than those of David. A band of men gradually gathered round him, over whom he became the captain, and he lived the life of an adventurer, the leader of heroic soldiers, who at once protected their country from its foreign foes, and sheltered its disaffected subjects. At last Saul fell in battle upon Mount Gilboa, and Jonathan, the heir-at-law to the throne, also fell upon that dewless mountain. David was assured of the death of Saul by the fact that the head of the king was brought to him by an Amalekite, whose crime he punished with death, though the rogue hoped to have been rewarded with abundance of treasure.
 

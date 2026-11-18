@@ -1,7 +1,7 @@
 # Sermon 339 | The Sons of God
 
-> The Spirit itself beareth witness with our spirit, that we are the children of God; and if children, then heirs; heirs of God, and joint heirs with Christ; if so be that we suffer with him, that we may be also glorified together.    
-> Romans 8:16, 17.    
+> The Spirit itself beareth witness with our spirit, that we are the children of God; and if children, then heirs; heirs of God, and joint heirs with Christ; if so be that we suffer with him, that we may be also glorified together.  
+> Romans 8:16, 17  
 
 My brethren, what a contrast there is between the present and future estate of the child of God! The believer is here the brother to the worm; in heaven he shall be next of kin to the angels. Here he is covered with the sweat and dust which he acquired by Adam's fall; there his brow shall be bright with the immortality which is conferred upon him by the resurrection of Christ. Here the heir of heaven is unknown; he is in disguise, full often clad in the habiliments of poverty, but there his princely character shall be discerned and acknowledged, he shall be waited upon by angels, and shall share in the admiration which the universe shall pour upon the glorified Redeemer. Well said our poet just now,
 

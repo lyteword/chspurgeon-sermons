@@ -1,7 +1,7 @@
 # Sermon 300 | Spiritual Peace
 
-> Peace I leave with you, my peace I give unto you.    
-> John 14:27.    
+> Peace I leave with you, my peace I give unto you.  
+> John 14:27  
 
 Our Lord was now about to die, to depart from this world, and to ascend to his Father; he therefore makes his will; and this is the blessed legacy which he leaves to the faithful&mdash;"Peace I leave with you, my peace I give unto you."
 

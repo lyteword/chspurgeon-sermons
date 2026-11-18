@@ -1,7 +1,7 @@
 # Sermon 292 | A New Year's Benediction
 
-> But the God of all grace who hath called us unto his eternal glory by Christ Jesus after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.    
-> 1 Peter 5:10.    
+> But the God of all grace who hath called us unto his eternal glory by Christ Jesus after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.  
+> 1 Peter 5:10  
 
 The Apostle Peter turns from exhortation to prayer. He knew that if praying be the end of preaching in the hearer, preaching should always be accompanied by prayer in the minister. Having exhorted believers to walk stedfastly, he bends his knee and commends them to the guardian care of heaven, imploring upon them one of the largest blessings for which the most affectionate heart ever made supplication. The minister of Christ is intended to execute two offices for the people of his charge. He is to speak for God to them, and for them to God. The pastor hath not fulfilled the whole of his sacred commission when he hath declared the whole counsel of God. He hath then done but half. The other part is that which is to be performed in secret, when he carrieth upon his breast, like the priest of old, the wants, the sins, the trials of his people, and pleads with God for them. The daily duty of the Christian pastor is as much to pray for his people, as to exhort, instruct, and console. There are, however, special seasons when the minister of Christ finds himself constrained to pronounce an unusual benediction over his people. When one year of trial has gone and another year of mercy has commenced, we may be allowed to express our sincere congratulations that God has spared us, and our earnest invocations of a thousand blessings upon the heads of those whom God has committed to our pastoral charge.
 

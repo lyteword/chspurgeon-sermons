@@ -2,7 +2,8 @@
 
 Upon the last occasion of his preaching in that place.
 
-"Wherefore I take you to record this day, that I am pure from the blood of all men. For I have not shunned to declare unto you all the counsel of God."&mdash;Acts 20:26-27.
+> Wherefore I take you to record this day, that I am pure from the blood of all men. For I have not shunned to declare unto you all the counsel of God.  
+> Acts 20:26-27  
 
 When Paul was parting from his Ephesian friends, who had come to bid him farewell at Miletus, he did not request of them a commendation of his ability; he did not request of them a recommendation for his fervid eloquence, his profound learning, his comprehensive thought, or his penetrating judgment. He knew right well that he might have credit for all these, and yet be found a castaway at last. He required a witness which would be valid in the court of heaven, and of value in a dying hour. His one most solemn adjuration is: "I take you to record this day, that I am pure from the blood of all men. For I have not shunned to declare unto you all the counsel of God." In the apostle this utterance was no egotism; it was a fact that he had, without courting the smiles or fearing the frowns of any, preached the truth, the whole truth, and nothing but the truth, as it had been taught to him by the Holy Spirit, and as he had received it in his own heart. O that all ministers of Christ could honestly challenge the like witness!
 
