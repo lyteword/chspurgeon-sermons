@@ -1,8 +1,7 @@
 # Sermon 1467A | The Oil and the Vessels
 
-"And it came to pass, when the vessels were full, that she said unto her son, Bring me another vessel. And he said unto her, There is not a vessel more. And the oil ceased."
-
-2 Kings 4:6.
+> "And it came to pass, when the vessels were full, that she said unto her son, Bring me another vessel. And he said unto her, There is not a vessel more. And the oil ceased."  
+> 2 Kings 4:6  
 
 So long as there were vessels to be filled, the miraculous flow of oil continued and it only ceased when there were no more jars to contain it. The Prophet spoke no word to stop the multiplying process and the Lord did not set any boundary to the bountiful marvel; the poor widow was not lacking faith in God, but in her supply of empty vessels! Nothing else in the universe restrained the flow of oil, but the need of vessels to receive the oil stopped it at once. The vessels failed before the oil; our powers of receiving will give out long before God's power of bestowing! This is true in reference to our providential circumstances. So long as we have needs, we shall have supplies, and we shall find our necessities exhausted far sooner than the Divine bounty.
 
