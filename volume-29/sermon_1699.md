@@ -1,7 +1,7 @@
 # Sermon 1699 | Supposing Him to be the Gardener
 
-> "Supposing him to be the gardener."  
-> John 20:15.  
+> Supposing him to be the gardener.  
+> John 20:15  
 
 I was sitting about a fortnight ago in a very lovely garden, in the midst of all kinds of flowers which were blooming in delightful abundance all around. Screening myself from the heat of the sun under the overhanging boughs of an olive, I cast my eyes upon palms and bananas, roses and camellias, oranges and aloes, lavender and heliotrope. The garden was full of color and beauty, perfume and fruitfulness. Surely the gardener, whoever he might be, who had framed, and fashioned, and kept in order that lovely spot, deserved great commendation. So I thought, and then it came to me to meditate upon the church of God as a garden, and to suppose the Lord Jesus to be the gardener, and then to think of what would most assuredly happen if it were so. "Supposing him to be the gardener," my mind conceived of a paradise where all sweet things flourish and all evil things are rooted up. If an ordinary worker had produced such beauty as I then saw and enjoyed on earth, what beauty and glory must surely be brought forth "supposing him to be the gardener"! You know the "him" to whom we refer, the ever-blessed Son of God, whom Mary Magdalene in our text mistook for the gardener. We will for once follow a saint in her mistaken track; and yet we shall find ourselves going in a right way. She was mistaken when she fell into "supposing him to be the gardener"; but if we are under his Spirit's teaching we shall not make a mistake if now we indulge ourselves in a quiet meditation upon our ever-blessed Lord, "supposing him to be the gardener."
 

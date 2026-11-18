@@ -1,7 +1,7 @@
 # Sermon 1732 | In Him: Like Him
 
-> "He that saith he abideth in him ought himself also so to walk, even as he walked."  
-> 1 John 2:6.  
+> He that saith he abideth in him ought himself also so to walk, even as he walked.  
+> 1 John 2:6  
 
 He that saith he abideth in him: that is exactly what every Christian does say. He cannot be a Christian unless this be true of him, and he cannot fully enjoy his religion unless he assuredly knows that he is in Christ, and can boldly say as much. We must be in Christ, and abidingly in Christ, or else We are not saved in the Lord. It is our union with the Christ that makes us Christians: by union with him as our life we truly live, live in the favour of God. We are in Christ, dear brethren, as the manslayer was in the city of refuge: I hope that we can say we abide in him as our sanctuary and shelter. We have fled for refuge to him who is the hope set before us in the gospel; even as David and his men sheltered themselves in the eaves of En-gedi, so we hide ourselves in Christ. We each one sing, and our heart goes with the words:
 > Rock of ages, cleft for me,  
