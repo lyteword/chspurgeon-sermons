@@ -1,5 +1,10 @@
 # Sermon 1816 | Sermon for New Year's-Day
 
+> And he that sat upon the throne said, Behold, I make all things new.  
+> Revelation 21:5  
+
+How pleased we are with that which is new! Our children's eyes sparkle when we talk of giving them a toy or a book which is called new, for our short-lived human nature loves that which has lately come, and is therefore like our own fleeting selves. In this respect, we are all children, for we eagerly demand the news of the day, and are all too apt to rush after the "many inventions" of the hour.
+
 The Athenians, who spent their time in telling and hearing some new thing, were by no means singular persons: novelty still fascinates the crowd. As the world's poet says, "All with one consent praise new-born gawds."
 
 I should not wonder, therefore, if the mere words of my text should sound like a pleasant song in your ears; but I am thankful that their deeper meaning is even more joyful. The newness which Jesus brings is bright, clear, heavenly, enduring. We are at this moment specially ready for a new year. The most of men have grown weary with the old cry of depression of trade and hard times; we are glad to escape from what has been to many a twelve-months of great trial. The last year had become wheezy, croaking, and decrepit, in its old age; and we lay it asleep with a psalm of judgment and mercy. We hope that this newborn year will not be worse than its predecessor, and we pray that it may be a great deal better. At any rate, it is new, and we are encouraged to couple with it the idea of happiness, as we say one to another, "I wish you a happy New Year."
