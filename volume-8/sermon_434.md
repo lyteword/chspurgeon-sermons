@@ -1,7 +1,7 @@
 # Sermon 434 | Threefold Sanctification
 
 > Sanctified by God the Father  
-> Jude 1:1 
+> Jude 1:1  
 
 > Sanctified in Christ Jesus  
 > 1 Corinthians 1:2  
@@ -43,7 +43,7 @@ This explains a text in John 10:36, "Say you of Him whom the Father has sanctifi
 
 He could say, "It is My meat and My drink to do the will of Him that sent Me and to finish His work." Brethren, you understand, now, the text in Jude, "Sanctified by God the Father." Surely it means that God the Father has especially set apart His people or sanctified them. Not that God the Father works operatively in the Believer's heart, although Paul tells us it is God that works in us to will and to do, that belongs immediately and effectively to the Holy Spirit, but He in the decree of election separated unto Himself a people who were to be sanctified to Himself forever and ever.
 
-He, by the gift of His Son, redeemed for them, them from among men that they might be holy. And He by continually sending forth the Spirit fulfils His Divine purpose that they should be a separate people sanctified from all the rest of mankind. In this sense every Christian is perfectly sanctified already. We may speak of Believers as those who are sanctified by God the Father, that is to say, they are set apart. They were set apart before they were created, they were legally set apart by the purchase of Christ, they are manifestly and visibly set apart by the effectual calling of the Spirit of Divine Grace. They are, I say, in this sense, at all periods sanctified. And speaking of the work as it concerns God the Father, they are completely sanctified unto the Lord forever.
+He, by the gift of His Son, redeemed them from among men that they might be holy. And He by continually sending forth the Spirit fulfils His Divine purpose that they should be a separate people sanctified from all the rest of mankind. In this sense every Christian is perfectly sanctified already. We may speak of Believers as those who are sanctified by God the Father, that is to say, they are set apart. They were set apart before they were created, they were legally set apart by the purchase of Christ, they are manifestly and visibly set apart by the effectual calling of the Spirit of Divine Grace. They are, I say, in this sense, at all periods sanctified. And speaking of the work as it concerns God the Father, they are completely sanctified unto the Lord forever.
 
 Is not this doctrine clear enough to you all? Leave the doctrine a moment, and let us look at it practically. Brothers and Sisters, have we ever realized this Truth of God as we ought to do? When a vessel, cup, altar, or instrument was set apart for Divine worship, it was never used for common purposes again. No man but the priest might drink out of the golden cup. The altar might not be trifled with. God's brazen laver was not for ordinary washing. Even the tongs upon the altar and the snuffers for the lamps were never to be profaned for any common purpose whatever.
 
