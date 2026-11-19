@@ -81,7 +81,7 @@ Read "Rutherford's Letters," and you get glimpse of what it is to dine with Chri
 > I cannot nearer be;  
 > For in the Person of His Son  
 > I am as near as He!  
->
+>  
 > So dear, so very dear to God,  
 > I cannot dearer be;  
 > The love wherewith He loves His Son  
@@ -102,7 +102,7 @@ Can you comprehend it?
 > Though earth's old columns bow,  
 > The strong, the feeble and the weak  
 > Are one in Jesus now.  
->
+>  
 > Oh, sacred union, firm and strong,  
 > How great the Grace, how sweet the song,  
 > That worms of earth should ever be  
