@@ -1,16 +1,7 @@
 # Sermon 319 | Special Thanksgiving to the Father
 
-
-My dear brethren,
-
-I have journeyed happily to the borders of Switzerland, and already feel that the removing of the yoke from the shoulder is one of the readiest means of restoring the metal powers. Much of Popish superstition and idolatry has passed under my observation, and if nothing else could make me a Protestant, what I have seen would do so. One thing I have learned anew, which I would have all my brethren learn, the power of a personal Christ. We Protestants are too apt to make doctrine everything, and the person of Christ is not held in sufficient remembrance; with the Roman Catholic doctrine is nothing, but the person is ever kept in view. The evil is, that the image of Christ before the eye of the Papist is carnal and not spiritual; but could we always keep o'er Lord before our eyes, his spiritual sense, we should be better men than any set of doctrines can ever make us. The Lord give to us to abide in him and so to bring forth much fruit.
-
-Baden-Baden, June fifteenth, 1860
-
-H. Spurgeon.
-
 > Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light: who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son.  
-> Colossians 1:12, 13  
+> Colossians 1:12,13  
 
 This passage is a mine of riches. I can anticipate the difficulty in preaching and the regret in concluding we shall experience this evening because we are not able to dig out all the gold which lies in this precious vein. We lack the power to grasp and the time to expatiate upon that volume of truths which is here condensed into a few short sentences.
 
