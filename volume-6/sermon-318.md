@@ -1,17 +1,5 @@
 # Sermon 318 | High Doctrine
 
-To the readers of the Park Street pulpit
-
-My dear brethren,
-
-Incessant labour has so completely wearied me, that I am compelled to retire for a few weeks from active service. The great Master bade his disciples to "go into the desert and rest awhile," and I feel that I should be acting in opposition to the warnings of Providence in my mental and physical frame if I did not seek repose. During my absence I shall continue to address you through the evening sermons, which are richer and more full of doctrinal truth than those of the morning. If the sermons addressed to the mixed assemblies of Exeter Hall have been in any measure profitable to you, I am full well assured that the evening sermons to the church of God will not fail, under the divine blessing, to edify you far more.
-
-I shall hope to write a few lines to you, which will be appended to my weekly sermon, that the links of our communion may not be broken, and that I may have the opportunity of begging your daily prayers. The Lord bless you and preserve you until the day of His appearing.
-
-I am, yours in Jesus, Clapham, Monday, June fourth, 1860
-
-H. Spurgeon.
-
 > And all things are of God.  
 > 2 Corinthians 5:18  
 
