@@ -1,7 +1,5 @@
 # Sermon 76 | Gospel Missions
 
-On behalf of the Baptist Missionary Society.
-
 > And the word of the Lord was published throughout all the region.  
 > Acts 13:49  
 
