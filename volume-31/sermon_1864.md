@@ -1,5 +1,8 @@
 # Sermon 1864 | First Things First
 
+> Seek you first the Kingdom of God, and His righteousness; and all these things shall be added unto you.  
+> Matthew 6:33  
+
 My Lord Mayor and Gentlemen; I was asked to give an address to the members of the Banks' Prayer Union, and to others occupied in banking, but I beg to warn you all that an address from me is very like a sermon. I am so in the habit of preaching that almost of necessity my talk drops into sermon form.
 
 I have heard a story of a painter of signboards in Harp Alley in the olden times which illustrates the force of habit. An innkeeper selected an angel as the sign of his house, and asked this knight of the brush to produce one. But the painter replied, "You had better have a lion. I have been painting lions so long that they are more in my line than angels." My host answered that there were three or four lions of different colors in the street, already, and that he must have an angel. "Well," said our artist, "if you must have an angel, you shall have an angel, but it will be dreadfully like a lion."
@@ -19,7 +22,7 @@ Alas for life if this were all and there were not a higher and better state of e
 
 What position should religion occupy in your life and mine? The answer must depend very much upon another question: What is religion and what does religion, itself, demand? What are the requirements of the great God and of the soul and of eternity? This question has suggested to me the text upon which I shall speak this afternoon:
 
-"Seek you first the Kingdom of God, and His righteousness; and all these things shall be added unto you." Matthew 6:33.
+> Seek you first the Kingdom of God, and His righteousness; and all these things shall be added unto you.
 
 I shall not trespass beyond the appointed time. However prosy I may be during the time allotted to me, I shall stop when the hour is complete.
 
