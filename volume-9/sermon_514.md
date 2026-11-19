@@ -1,7 +1,7 @@
 # Sermon 514 | Tell It All
 
-> "But the woman fearing and trembling, knowing what was done in her, came and fell down before Him and told Him all the truth."  
-> Mark 5:33.  
+> But the woman fearing and trembling, knowing what was done in her, came and fell down before Him and told Him all the truth.  
+> Mark 5:33  
 
 Jesus was pressing through the throng to the house of Jairus to raise the ruler's dead daughter. But He is so profuse in goodness that He works another miracle while upon the road. While yet this rod of Aaron bears the blossom of an unaccomplished wonder, it yields the ripe almonds of a perfect work of mercy. It is enough for us, if we have some purpose, straightway to go and accomplish it. It were imprudent to expend our energies by the way. Hastening to the rescue of a drowning friend, we cannot afford to exhaust our strength upon another in like danger.
 

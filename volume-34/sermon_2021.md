@@ -1,7 +1,7 @@
 # Sermon 2021 | Nathanael; or, the Ready Believer and His Reward
 
-> "Jesus answered and said unto him, Because I said unto you, I saw you under the fig tree, you believe? You shall see greater things than these."  
-> John 1:50.  
+> Jesus answered and said unto him, Because I said unto you, I saw you under the fig tree, you believe? You shall see greater things than these.  
+> John 1:50  
 
 Nathanael was by nature a man free from cunning and deceit. He was a specimen of that "honest and good ground" of which our Savior speaks in the parable, upon which, when the seed fell, a hundred-fold harvest was produced. We have some such men about us, thank God, in this country; regular John Blunts, as we say, clear as crystal, true as the sun in the heavens. Many men are well known to us who are upright, downright, truthful, honest, candid and open-hearted. You might trust them anywhere. Yes, trust them to repeat a conversation without misrepresenting it and that is saying a good deal in these times.
 

@@ -1,6 +1,6 @@
 # Sermon 1000 | Number One Thousand; Or, "Bread Enough and To Spare"
 
-> "And when he came to himself, he said, How many hired servants of my father's have bread enough and to spare, and I perish with hunger!"  
+> And when he came to himself, he said, How many hired servants of my father's have bread enough and to spare, and I perish with hunger!  
 > Luke 15:17  
 
 "He came to himself." The word may be applied to one waking out of a deep swoon. He had been unconscious of his true condition, and he had lost all power to deliver himself from it. But now he was coming round again, returning to consciousness and action. The voice which shall awaken the dead aroused him. The visions of his sinful trance all disappeared, his foul but fascinating dreams were gone. He came to himself. Or the word may be applied to one recovering from insanity. The prodigal son had played the madman, for sin is madness of the worst kind. He had been demented, he had put bitter for sweet and sweet for bitter, darkness for light, and light for darkness. He had injured himself, and had done for his soul what those possessed of devils in our Savior's time did for their bodies, when they wounded themselves with stones, and cut themselves with knives. The insane man does not know himself to be insane. But as soon as he comes to himself he painfully perceives the state from which he is escaping. Returning then to true reason and sound judgment, the prodigal came to himself.

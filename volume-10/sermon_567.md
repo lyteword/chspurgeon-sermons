@@ -1,7 +1,7 @@
 # Sermon 567 | Labor In Vain
 
-> "Jonah said unto them, Take me up and cast me forth into the sea; so shall the sea be calm unto you: for I know that for my sake this great tempest is upon you. Nevertheless the men rowed hard to bring it to the land. But they could not: for the sea worked and was tempestuous against them."  
-> Jonah 1:12,13.  
+> Jonah said unto them, Take me up and cast me forth into the sea; so shall the sea be calm unto you: for I know that for my sake this great tempest is upon you. Nevertheless the men rowed hard to bring it to the land. But they could not: for the sea worked and was tempestuous against them.  
+> Jonah 1:12,13  
 
 These mariners manifested most commendable humanity. They were not willing, even though it were to preserve their own lives, to cast overboard an innocent man. Therefore they first used their best endeavors. And when these failed they made a solemn appeal to God, entreating Him not to lay upon them innocent blood, and then, since necessity has no law, Jonah, as a last resource was given up to the boisterous element, but not till every effort had been made to save him. We should be very careful of human life, doing nothing which even indirectly may destroy or injure it.
 

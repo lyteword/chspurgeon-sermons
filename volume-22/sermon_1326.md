@@ -1,6 +1,6 @@
 # Sermon 1326 | Christ the Conqueror of Satan
 
-> "And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel."  
+> And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel.  
 > Genesis 3:16  
 
 This is the first gospel sermon that was ever delivered upon the surface of this earth. It was memorable discourse indeed, with Jehovah himself for the preacher, and the whole human race and the prince of darkness for the audience. It must be worthy of our heartiest attention.

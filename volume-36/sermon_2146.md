@@ -1,7 +1,7 @@
 # Sermon 2146 | Joy, Joy Forever
 
-> "But let all those that put their trust in You rejoice: let them always shout for joy, because You defend them: let those also that love Your name be joyful in You."  
-> Psalm 5:11.  
+> But let all those that put their trust in You rejoice: let them always shout for joy, because You defend them: let those also that love Your name be joyful in You.  
+> Psalm 5:11  
 
 "the Lord does put a difference between the Egyptians and Israel." There is an ancient difference which He has made in His eternal purpose and this is seen in every item of the Covenant of Grace. "The Lord has set apart him that is godly for Himself." But it is also written, "The foolish shall not stand in Your sight: You hate all workers of iniquity." You that have believed are of the house of Israel and heirs according to promise, for they that are of faith are the true seed of faithful Abraham. See that you make manifest this difference by the holiness of your lives. "Come out from among them and be you separate, says the Lord, and touch not the unclean thing."
 

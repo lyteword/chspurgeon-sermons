@@ -1,7 +1,7 @@
 # Sermon 2060 | The Messages of Our Lord's Love
 
-> "Go your way, tell His disciples and Peter that He goes before you into Galilee: there shall you see Him, as He said unto you."  
-> Mark 16:7.  
+> Go your way, tell His disciples and Peter that He goes before you into Galilee: there shall you see Him, as He said unto you.  
+> Mark 16:7  
 
 See, Brethren! Jesus delights to meet His people. He is no sooner risen from the dead than He sends a message by an angel to say that He will meet His disciples. His delight is in them. He loves them with a very tender love and He is happiest when He is in their midst. Do not think that you will have to entreat and persuade your Lord to come to you. He delights in near and dear fellowship. The heavenly Bbridegroom finds solace in your company if you are indeed espoused to Him. Oh, that you were more anxious to be with Him!
 

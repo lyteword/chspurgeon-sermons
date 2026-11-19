@@ -1,7 +1,7 @@
 # Sermon 2141 | The Question of Questions
 
-> "Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God?"  
-> John 9:35.  
+> Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God?  
+> John 9:35  
 
 The eyes of the Lord Jesus are always on His chosen and He knows every circumstance which occurs to them. "Jesus heard that they had cast him out." Our Lord had done too much for this man to forget him. Where Divine Grace has worked a great work its memory lingers. As it is written, "You will have a desire to the work of your hands." In this let us take comfort; if anything has happened to grieve us; Jesus has heard of it and will act accordingly. Our Lord sought for the outcast one. Unasked, He had opened his eyes. Unsought, He looks after him in his hour of trouble. He was not easy to find but our Lord is great at searching out His lost sheep and He persevered until He found him. If we, at any time, should seem cast off from Christ as well as cast out by proud religionists, He will find us when we cannot find Him. Blessed be His name!
 

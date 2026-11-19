@@ -1,7 +1,7 @@
 # Sermon 153 | The Mysteries of the Brazen Serpent
 
-> And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: That whosoever believeth in him should not perish, but have eternal life.    
-> John 3:14.    
+> And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: That whosoever believeth in him should not perish, but have eternal life.  
+> John 3:14  
 
 We are told by wise men that all languages are based upon figures, that the speech of men who are uncivilized is mainly composed of figures; and that indeed the language of the most civilized, when cleaved so as to bring it to its natural foundation, is based upon a set of metaphors perceived by the mind, and then used in language. This much I know, that when we would teach children to speak, we are accustomed to call things, not exactly by the names by which they are known to us, but by some name which represents, for instance, the kind of noise which is uttered by some animal; but which in some way or other, by a species of figure, is easily understood by the child to represent the things. But certain it is that among savage nations, the speech is almost entirely composed of metaphors. Hear an Indian warrior addressing the chiefs, and inflaming them for war; he gathers together all the metaphors of heaven and earth to make his speech. And you will note the same thing is true even in the names which the Indian warriors bear. Those of you who are acquainted with their nomenclature will remember, that the strangest names are given to their great men, by way of figure and metaphor to set forth the qualities of their mind.
 

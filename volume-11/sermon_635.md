@@ -1,7 +1,7 @@
 # Sermon 635 | Are You Prepared To Die?
 
 > How will you do in the swelling of Jordan?  
-> Jeremiah 12:5.  
+> Jeremiah 12:5  
 
 Canaan may be considered as a type of two states or conditions in the Christian's life. It was the land of rest to the children of Israel after a weary pilgrimage in the wilderness. Now it is written that "we who believe do enter into rest." A true Christian possessed of strong faith will not have a wilderness state on earth so much as a land flowing with milk and honey because his faith will give him the substance of things hoped for and be the evidence of things not seen. Many disciples live a life of depression, wretchedness, and discomfort which would be completely changed if they had faith in God and lived a higher life of devotedness and love.
 

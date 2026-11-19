@@ -1,7 +1,7 @@
 # Sermon 555 | Nothing But Leaves
 
-> "He found nothing but leaves."  
-> Mark 11:13.  
+> He found nothing but leaves.  
+> Mark 11:13  
 
 Most of the miracles of Moses were grand displays of divine justice. What were the first ten wonders but ten plagues? The same may be said of the prophets, especially of Elijah and Elisha. Was it not significant both of the character and mission of Elias when he called fire from heaven upon the captains of fifties; nor was he upon whom his mantle descended less terrible when the she-bears avenged him upon the mockers. It remained for our incarnate Lord to reveal the heart of God. The only begotten was full of grace and truth, and in his miracles pre-eminently God is set forth to us as love. With the exception of the miracle before us, and perhaps, a part of another, all the miracles of Jesus were entirely benevolent in their character; indeed this one is no exception in reality, but only in appearance. The raising of the dead, the feeding of the multitude, the stilling of the tempest, the healing of diseases, what were all these but displays of the lovingkindness of God? What was this to teach us but that Jesus Christ came forth from his Father on an errand of pure grace?
 

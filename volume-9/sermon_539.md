@@ -1,7 +1,7 @@
 # Sermon 539 | Heavenly Lovesickness!
 
-> "I charge you, O daughters of Jerusalem, if you find my Beloved, that you tell Him that I am sick of love."  
-> Song of Solomon 5:8.  
+> I charge you, O daughters of Jerusalem, if you find my Beloved, that you tell Him that I am sick of love.  
+> Song of Solomon 5:8  
 
 Sick! That is a sad thing. It moves your pity. Sick of love, lovesick! That stirs up other emotions which we shall presently attempt to explain. No doubt certain sicknesses are peculiar to the saints; the ungodly are never visited with them. Strange to say, these sicknesses, to which the refined sensibilities of the children of God render them peculiarly liable, are signs of vigorous health. Who but the Beloved of the Lord ever experience that sin sickness in which the soul loathes the very name of transgression, is unmoved by the enchantments of the Tempter, finds no sweetness in its besetting sins, and turns with detestation and abhorrence from the very thought of iniquity?
 

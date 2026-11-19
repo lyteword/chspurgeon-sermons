@@ -1,7 +1,7 @@
 # Sermon 2104 | The Inner Side of Conversion
 
-> "I have surely heard Ephraim bemoaning himself thus: You have chastised me and I was chastised, as a bullock unaccustomed to the yoke: turn You me and I shall be turned. For You are the Lord my God. Surely after that I was turned, I repented; and after that I was instructed, I smote upon my thigh: I was ashamed, yes, even confounded, because I did bear the reproach of my youth. Is Ephraim My dear son? Is he a pleasant child? For since I spoke against him, I do earnestly remember him still: therefore My heart is troubled for him. I will surely have mercy upon him, says the Lord."  
-> Jeremiah 31:18-20.  
+> I have surely heard Ephraim bemoaning himself thus: You have chastised me and I was chastised, as a bullock unaccustomed to the yoke: turn You me and I shall be turned. For You are the Lord my God. Surely after that I was turned, I repented; and after that I was instructed, I smote upon my thigh: I was ashamed, yes, even confounded, because I did bear the reproach of my youth. Is Ephraim My dear son? Is he a pleasant child? For since I spoke against him, I do earnestly remember him still: therefore My heart is troubled for him. I will surely have mercy upon him, says the Lord.  
+> Jeremiah 31:18-20  
 
 There are turning points in most lives. We go on in a straight line for a certain distance but suddenly we come to a place where we must make a choice of roads. All the rest of our journey may depend upon what we do at those particular points. Character often hinges on a day's resolve. Every now and then we meet with a man who has seemed hopeful enough till he has taken a wrong turn. And ever since then we have heard it said of him that "he has gone bad." That is a common and expressive phrase for going in the wrong direction openly and boldly. The man was not right before, but now he is wrong in conduct; heart and life rush together down a steep place into the sea of ruin.
 

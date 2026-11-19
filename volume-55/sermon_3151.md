@@ -1,6 +1,7 @@
 # Sermon 3151 | The Lord's Supper: Simple But Sublime!
 
-> "This do you, as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:25,26  
+> This do you, as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes.  
+> 1 Corinthians 11:25,26  
 
 It would be a waste of time and would tend to mar our fellowship with Christ, were I to attempt an enumeration of the errors and misapprehensions into which men have fallen concerning the objective of the Lord's Supper. There are some communities of men among us, and they seem to be multiplying, who turn the Communion Table into an altar and convert the bread and wine, which are but a memorial, into the semblance of a sacrifice. I will only say that into their secret may we never enter and with their confederacy may we never be united, for their table is the table of idolatry, and their altar is little better than a sacrifice unto devils! Such offerings cannot be acceptable unto God, for those who observe them turn aside altogether from the simplicity of the Truth of God unto the cabalistic devices of Antichrist.
 

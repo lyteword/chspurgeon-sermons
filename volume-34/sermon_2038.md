@@ -1,7 +1,7 @@
 # Sermon 2038 | The Lord's Supper: A Remembrance Of Jesus
 
-> "This do in remembrance of Me."  
-> Luke 22:19.  
+> This do in remembrance of Me.  
+> Luke 22:19  
 
 "This do," that is, take bread, give thanks, break it and eat it; take the cup, filled with the fruit of the vine, give thanks and drink you all of it. "This do." Take care that you do just what Jesus did; no more and no less. This act was done at a table where they had been eating the Passover. This act was performed at a common meal and was not a sacrifice, nor a celebration, nor a function, nor anything more than a significant eating of bread and drinking of wine after a devout fashion. This do, as often as you break the bread and as often as you drink of the cup; remember the Lord Jesus.
 

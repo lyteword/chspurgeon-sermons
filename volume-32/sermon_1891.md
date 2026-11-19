@@ -1,7 +1,7 @@
 # Sermon 1891 | The Sermon of the Seasons
 
-> "While the earth remaineth, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease."  
-> Genesis 8:22.  
+> While the earth remaineth, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease.  
+> Genesis 8:22  
 
 Our savior constantly taught the people by parables, and I think he would have his ministers do the same. The condition of things just now, both as to weather and business, furnishes a very plain and instructive parable which it would not be wise to pass over. Every morning when we wake we hope for a change of wind, a glimpse of the sun, and the end of the frost; but still we moan with the poet: 
 > Oh, the long and dreary Winter!  

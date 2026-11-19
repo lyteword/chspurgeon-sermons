@@ -1,7 +1,7 @@
 # Sermon 2034 | Peter's Restoration
 
-> "And immediately, while he yet spoke, the cock crowed. And the Lord turned and looked upon Peter. And Peter remembered the word of the Lord, how He had said unto him, Before the cock crowed, you shall deny Me thrice. And Peter went out and wept bitterly."  
-> Luke 22:60-62.  
+> And immediately, while he yet spoke, the cock crowed. And the Lord turned and looked upon Peter. And Peter remembered the word of the Lord, how He had said unto him, Before the cock crowed, you shall deny Me thrice. And Peter went out and wept bitterly.  
+> Luke 22:60-62  
 
 Peter had fallen terribly. He had denied his Master, denied Him repeatedly, denied Him with oaths, denied Him in His Presence, while His Master was being smitten and falsely charged. He denied Him, though he was an Apostle. Denied him, though he had declared that should all men forsake Him, yet he never would. It was a sad, sad sin. Remember what led up to it. It was, first, Peter's presumption and self-confidence. He reckoned that he could never stumble and for that very reason he speedily fell. A haughty spirit goes before a fall. Oh, that we might look to the roots of bitter flowers and destroy them!
 

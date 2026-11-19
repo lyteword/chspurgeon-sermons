@@ -1,7 +1,7 @@
 # Sermon 2127 | Love's Competition
 
-> "Tell Me therefore, which of them will love him most? Simon answered and said, I suppose that he, to whom he forgave most. And He said unto him, You have rightly judged."  
-> Luke 7:42, 43.  
+> Tell Me therefore, which of them will love him most? Simon answered and said, I suppose that he, to whom he forgave most. And He said unto him, You have rightly judged.  
+> Luke 7:42, 43  
 
 I remember seeing, somewhere or other, as a sign upon an inn, the words, "The First and Last." I do not know what that may happen to be among men, but I know that love is God's first and last. It is there that He begins with us in mercy: "We love Him, because He first loved us." His love at the first springs up like a fountain in the midst of a desert and freely flows along the wilderness to the unworthy sons of men. In the end, the result of that love is that men love Him; they cannot help it any more than the rock can prevent the echo when the voice falls upon it. Love is not a creature of law; it comes not on demand; it must be free or not at all.
 

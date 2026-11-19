@@ -1,7 +1,7 @@
 # Sermon 618 | The Great Physician And His Patients
 
 > They that are whole need not a physician, but they that are sick.  
-> Matthew 9:12.  
+> Matthew 9:12  
 
 This was Christ's apology for mingling with publicans and sinners when the Pharisees murmured against Him. He triumphantly cleared Himself by showing that according to the fitness of things He was perfectly in order. He was acting according to His official Character. A physician should be found where there is work for him to do and that it is where healing is required. There was evidently none among the Pharisees, if their own opinion of themselves were to hold good, for they were perfectly whole. There was much to do, according to their own admission, among the publicans and sinners, for they were sorely sick. Therefore our Lord was in His place and fittingly executing His office when He sought out those who needed Him.
 

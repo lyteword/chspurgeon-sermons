@@ -1,6 +1,6 @@
 # Sermon 415 | The Fullness of Christ, Received!
 
-> "And of His fullness have all we received."  
+> And of His fullness have all we received.  
 > John 1:16  
 
 There is no occasion to inform the Christian heart who the Person is to whom reference is here made. The name of Jesus is to you a household word. No, it is the word which will be found written upon your hearts when you die. That immortal word shall be the keynote of your eternal song when you shall enter into the immortality which remains for God's people. Jesus! How sweet is Your name to Your people. It is a sonnet of itself. It is the sum of all music summed up in two syllables. It is a hallelujah and the groundwork of an eternal hosanna in five letters. Jesus! We defy earth to equal it and Heaven itself to excel it. Jesus is Heaven's highest melody, as it is earth's sweetest delight. The text informs us that there is a fullness in Christ. There is a fullness of essential Deity, for "in Him dwells all the fullness of the Godhead." There is a fullness of perfect Manhood, for in Him bodily, that Godhead was revealed. Partaker of flesh and blood, made in all things like unto His brethren, there was nothing lacking that was necessary to the perfection of humankind in Him. There is a fullness of atoning efficacy in His blood, for "the blood of Jesus Christ, His Son, cleans us from all sin." There is a fullness of justifying righteousness in His life, for "there is therefore now no condemnation to them that are in Christ Jesus."

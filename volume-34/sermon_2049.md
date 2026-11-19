@@ -1,7 +1,7 @@
 # Sermon 2049 | Driving Out the Canaanites and Their Iron Chariots
 
-> "For you shall drive out the Canaanites, though they have iron chariots and though they are strong."  
-> Joshua 17:18.  
+> For you shall drive out the Canaanites, though they have iron chariots and though they are strong.  
+> Joshua 17:18  
 
 When the children of Israel had come to Canaan and by God's good care had entered into the land that flowed with milk and honey they were not immediately at rest. The Canaanites were there, there in possession, there in strong cities, which seemed to be walled up to Heaven. And they had to drive out these Canaanites before they could possibly possess the country. In fact, this was the reason why they were sent there. The Canaanites had been outlawed by God. They had been guilty of such horrible offenses that He had adjudged their race to destruction.
 

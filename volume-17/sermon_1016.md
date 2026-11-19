@@ -1,6 +1,6 @@
 # Sermon 1016 | Beauty for Ashes
 
-> "To appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord, that He might be glorified."  
+> To appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord, that He might be glorified.  
 > Isaiah 61:3  
 
 When soldiers are on the march, or advancing to the battle, military men think it wise to let the trumpet sound, that the warriors may be stimulated by the thrilling music. Many a weary soldier has tramped on with new vigor when the band has struck up a lively march or a soul-moving tune. In the midst of our present Christian service, my brethren, when, I trust, all of you have resolved to come to the help of the Lord, to the help of the Lord against the mighty, we would bid the silver trumpets of gospel promises sound aloud, that the hosts of God, as they march on in battle array, may feel their pulses quickened and their souls cheered.

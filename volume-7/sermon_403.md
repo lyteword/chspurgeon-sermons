@@ -1,6 +1,6 @@
 # Sermon 403 | The Broken Column
 
-> "And another also said, Lord, I will follow thee: but"  
+> And another also said, Lord, I will follow thee: but  
 > Luke 9:61  
 
 When you have walked through a cemetery, you have frequently seen over a grave a broken column, intended to memorialize the death of some one who was taken away in the prime of manhood, before as yet his life had come to its climax. I shall take that picture of the broken column to represent my text. It is a broken text. You expected me to go on and to conclude the sentence: I have broken it off abruptly. That broken column shall also represent the broken resolutions of full many who were once in a hopeful state. As if prepared to witness a good profession, they said, "Lord, I will follow thee," when there came a heavy blow from the withering hand of sin; and the column was broken short with a "but." So let my text stand. I will not finish it. But so let not your determination stand. The Lord grant by his effectual grace that while you mourn with sincere grief the grave of many a fair resolve which never attained the maturity of true discipleship, cut off with the fatal "but" of indecision, you may now be quickened to newness of life. Thus you shall come to the fullness of the stature of a man in Christ. Thus, as a building fitly framed together and growing to completeness, you shall be made meet for a habitation of God through the Spirit.

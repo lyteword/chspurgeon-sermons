@@ -3,7 +3,8 @@
 > Then they spat in His face.  
 > Matthew 26:67  
 
-"And I saw a great white throne, and Him that sat on it, from whose face the earth and the Heaven fled away." Revelation 20:11.
+> And I saw a great white throne, and Him that sat on it, from whose face the earth and the Heaven fled away.  
+> Revelation 20:11  
 
 Guided by our text in Matthew's Gospel, let us first go in thought to the palace of Caiaphas, the High Priest, and there let us, in deepest sorrow, realize the meaning of these terrible words: "Then they spat in His face." There is more of deep and awful thunder in them than in the bolt that bursts overhead. There is more of vivid terror in them than in the sharpest lightning flash: "Then they spat in His face."
 

@@ -1,7 +1,7 @@
 # Sermon 2016 | Jesus Affirmed To Be Alive
 
-> "Against whom when the accusers stood up, they brought none accusation of such things as I supposed: but had certain questions against him of their own superstition and of one Jesus, which was dead, whom Paul affirmed to be alive."  
-> Acts 25:18,19.  
+> Against whom when the accusers stood up, they brought none accusation of such things as I supposed: but had certain questions against him of their own superstition and of one Jesus, which was dead, whom Paul affirmed to be alive.  
+> Acts 25:18,19  
 
 Festus is giving to King Agrippa a brief account of the matter between Paul and the Jews. It may not be a very accurate account. For Festus did not profess to understand the business. He was a Roman governor newly come to Judea. He had no acquaintance whatever with Jewish Scriptures nor with Jewish laws. He is, therefore, merely giving to King Agrippa a rough and ready outline of the affair as it struck him. He had never thought it worth his special attention but he was a little puzzled how he should represent the matter to Caesar, to whom Paul had appealed.
 

@@ -1,6 +1,6 @@
 # Sermon 465 | The Holy Spirit Glorifying Christ
 
-> "He shall glorify Me: for He shall take of Mine, and shall show it unto you."  
+> He shall glorify Me: for He shall take of Mine, and shall show it unto you.  
 > John 16:14  
 
 We always need the Spirit of God in our preaching. But I think we more especially require His Divine direction and instruction when the subject is Himself, for the Holy Spirit is so mysterious in His varied attributes and operations, that unless He Himself shall reveal Himself to us and give us the words in which to speak of Him, we shall surely fail either to understand for ourselves, or to enlighten others. In His light we see light, but without Him we grope like blind men in the dark.

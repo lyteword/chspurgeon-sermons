@@ -1,7 +1,7 @@
 # Sermon 160 | Light at Evening Time
 
-> It shall come to pass that at evening time it shall be light.    
-> Zechariah 14:7.    
+> It shall come to pass that at evening time it shall be light.  
+> Zechariah 14:7  
 
 I shall not stay to notice the particular occasion upon which these words were uttered, or to discover the time to which they more especially refer; I shall rather take the sentence as a rule of the kingdom, as one of the great laws of God's dispensation of grace, "that at evening time it shall be light." Whenever philosophers wish to establish a general law, they think it necessary to collect a considerable number of individual instances; these being put together, they then infer from them a general rule. Happily, this need not be done with regard to God. We have no need, when we look abroad in providence, to collect a great number of incidents, and then from them infer the truth; for since God is immutable, one act of his grace is enough to teach us the rule of his conduct. Now, I find in this one place it is recorded that on a certain occasion, during a certain adverse condition of a nation, God promised that "at evening time it should be light." If I found that in any human writing, I should suppose that the thing might have occurred once, that a blessing was conferred in emergency on a certain occasion, but I could not from it deduce a rule; but when I find this written in the book of God, that on a certain occasion when it was evening time with his people God was pleased to give them light, I feel myself more than justified in deducing from it the rule, that always to his people at evening time there shall be light.
 

@@ -1,7 +1,7 @@
 # Sermon 286 | A Woman's Memorial
 
-> Verily I say unto you, Wheresoever this gospel shall be preached in the whole world, there shall also this, that this woman hath done, be told for a memorial of her.    
-> Matthew 26:13.    
+> Verily I say unto you, Wheresoever this gospel shall be preached in the whole world, there shall also this, that this woman hath done, be told for a memorial of her.  
+> Matthew 26:13  
 
 The evangelists are of course the historians of the time of Christ; but what strange historians they are! They leave out just that which worldly ones would write, and they record just that which the worldly would have passed over. What historian would have thought of recording the story of the widow and her two mites? Would a Hume or a Smollett have spared half a page for such an incident? Or think you that even a Macaulay could have found it in his pen to write down a story of an eccentric woman, who broke an alabaster box of precious ointment upon the head of Jesus? But so is it. Jesus values things, not by their glare and glitter, but by their intrinsic value. He bids his historians store up, not the things which shall dazzle men, but those which shall instruct and teach them in his spirit. Christ valueth a matter, not by its exterior, but by the motive which dictated it, by the love which shines from it. O singular historians! ye have passed by much that Herod did; ye tell us little of the glories of his temple; ye tell us little of Pilate, and that little not to his credit; ye treat with neglect the battles that are passing over the face of the earth; the grandeur of Caesar doth not entice you from your simple story. But ye continue to tell these little things, and wise are ye in so doing for verily these little things, when put into the scales of wisdom, weigh more than those monstrous bubbles of which the world delighteth to read.
 

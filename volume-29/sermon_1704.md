@@ -1,7 +1,7 @@
 # Sermon 1704 | All Joy in All Trials
 
-> "My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing."  
-> James 1:2-4.  
+> My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing.  
+> James 1:2-4  
 
 James calls the converted among the twelve tribes his brethren. Christianity has a great uniting power: it both discovers and creates relationships among the sons of men. It reminds us of the ties of nature, and binds us with the bonds of grace. Every one that is born of the Spirit of God is brother to every other that is born of the same Spirit. Well may we be called brethren, for we are redeemed by one blood; we are partakers of the same life; we feed upon the same heavenly food; we are united to the same living head; we seek the same ends; we love the same Father: we are heirs of the same promises; and we shall dwell for ever together in the same heaven. Wherefore, let brotherly love continue; let us love one another with a pure heart fervently, and manifest that love, not in word only, but in deed and in truth. Whatever brotherhood may be a sham, let the brotherhood of believers be the most real thing beneath the stars.
 

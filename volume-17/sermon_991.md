@@ -1,6 +1,6 @@
 # Sermon 991 | The Fourfold Treasure
 
-> "But of him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption: that, according as it is written, he that glories, let him glory in the lord."  
+> But of him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption: that, according as it is written, he that glories, let him glory in the lord.  
 > 1 Corinthians 1:30, 31  
 
 We meet somewhere in the old testament with the expression "salt without prescribing how much." Beyond all question the name, person, and work of Jesus are the salt and savor of every true gospel ministry, and we cannot have too much of them. Alas, that in so many ministries there is such a lack of this first dainty of the feast, this essence of all soul-satisfying doctrine. We may preach Christ without prescribing how much, only the more we extol him the better. It would be impossible to sin by excess in preaching Christ crucified. It was an ancient precept, "With all your offerings you shall offer salt." Let it stand as an ordinance of the sanctuary now, "With all your sermonizing and discoursing you shall ever mingle the name of Jesus Christ, you shall ever seek to magnify the alpha and omega of the plan of redemption."

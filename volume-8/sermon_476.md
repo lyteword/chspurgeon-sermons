@@ -1,6 +1,6 @@
 # Sermon 476 | Citizenship In Heaven
 
-> "For our conversation is in Heaven; from where also we look for the Savior, the Lord Jesus Christ."  
+> For our conversation is in Heaven; from where also we look for the Savior, the Lord Jesus Christ.  
 > Philippians 3:20  
 
 There can be no comparison between a soaring seraph and a crawling worm. Christian men ought so to live that it were idle to speak of a comparison between them and the men of the world. It should not be a comparison but a contrast. No scale of degrees should be possible. The Believer should be a direct and manifest contradiction to the unregenerate. The life of a saint should be altogether above and out of the same list as the life of a sinner.

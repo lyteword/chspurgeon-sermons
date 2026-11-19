@@ -1,7 +1,7 @@
 # Sermon 655 | The Great Itinerant
 
 > Who went about doing good.  
-> Acts 10:38.  
+> Acts 10:38  
 
 You will observe, if you read the chapter before us, that Peter's sermon was short and much to the point. He preached Jesus Christ to Cornelius immediately and unmistakably. He gave a very admirable sketch of the life of Jesus of which he affirmed himself to have been an eyewitness and he brought forward, in his closing sentence, just that simple Gospel which it is our joy to preach. "To Him all the Prophets witness, that through His name whoever believes in Him shall receive remission of sins."
 

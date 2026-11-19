@@ -1,6 +1,6 @@
 # Sermon 477 | Never! Never! Never! Never! Never!
 
-> "He hath said, I will never leave thee, nor forsake thee."  
+> He hath said, I will never leave thee, nor forsake thee.  
 > Hebrews 13:5  
 
 What power resides in "Thus saith the Lord!" The man who can grasp by faith, "He hath said," has an all-conquering weapon in his hand. What doubt will not be slain by this to two-edged sword? What fear is that which shall not fall smitten with a deadly wound before this arrow from the bow of God's covenant? Will not the distresses of life and the pangs of death, will not the corruptions within and the temptations without, will not the trials from above and the temptations from beneath all seem but light afflictions when we can hide ourselves behind the bulwark of "He hath said?" Whether for delight in our quietude, or for strength in our conflict, "He hath said" must be our daily resort.

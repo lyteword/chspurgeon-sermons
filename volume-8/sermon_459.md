@@ -1,6 +1,6 @@
 # Sermon 459 | A Sermon For Men Of Taste
 
-> "Therefore laying aside all malice and all guile and hypocrisies, and envies and all evil speaking, as newborn babes, desire the sincere milk of the Word, that you may grow thereby. If, indeed, you have tasted that the Lord is gracious."  
+> Therefore laying aside all malice and all guile and hypocrisies, and envies and all evil speaking, as newborn babes, desire the sincere milk of the Word, that you may grow thereby. If, indeed, you have tasted that the Lord is gracious.  
 > 1 Peter 2:1-3  
 
 "If, indeed, you have tasted that the Lord is gracious." "If." If, then, is not a thing to be taken for granted concerning all of the human race. "If," then there is a possibility, and a probability, that some may not have tasted that the Lord is gracious. "If," if, then this is not a general but a special mercy. And it becomes our business to enquire whether we are in that company, who know the Grace of God by inward experience.

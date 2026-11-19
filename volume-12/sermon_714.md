@@ -1,7 +1,7 @@
 # Sermon 714 | A Savior Such As You Need
 
-> "But the Holy Spirit also witnesses to us: for after He had said before, This is the covenant that I will make with them after those days, says the Lord, I will put My laws into their hearts, and in their minds will I write them, then He adds, Their sins and iniquities I will remember no more. Now where there is remission of these, there is no longer an offering for sin."  
-> Hebrews 10:15-18.  
+> But the Holy Spirit also witnesses to us: for after He had said before, This is the covenant that I will make with them after those days, says the Lord, I will put My laws into their hearts, and in their minds will I write them, then He adds, Their sins and iniquities I will remember no more. Now where there is remission of these, there is no longer an offering for sin.  
+> Hebrews 10:15-18  
 
 We have all heard of Utopia, that imaginary land where all things are such as one might desire. A man who should conceive a spiritual Utopia might well be supposed to say, "What a delightful thing it would be if a man could, in this life, be completely saved! What a priceless gift would be bestowed upon a man if he could know, by infallible authority, that his every sin was pardoned as to the past, and that, as to his sins in the future, there is provided the certainty of pardon! And what if such a man should also possess the invaluable blessing of another nature, a nature which would be prone to good, just as his present nature is inclined to sin? A nature which would prompt him to every holy thing, and spur him forward to the loftiest aims! What a thrice happy man would he be who could feel that death itself would be gain to him, and that the trials of life will cause him no real loss! He would be blest, indeed, who could rest secure at all times, because whenever the messenger of doom might come he was ready to meet him, prepared with the absolute certainty that he should enter into immortal glories!"
 

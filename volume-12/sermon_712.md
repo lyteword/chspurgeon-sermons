@@ -1,7 +1,7 @@
 # Sermon 712 | War With Amalek
 
-> "Then came Amalek, and fought with Israel in Rephidim."  
-> Exodus 17:8.  
+> Then came Amalek, and fought with Israel in Rephidim.  
+> Exodus 17:8  
 
 There were two great trials which the children of Israel had to endure in passing onward to the promised rest: their needs and their enemies. But I must add a third, which sprang out of these two by reason of the unbelief of their hearts. That third evil, far worse than the other two, was their sins. Probably, my Brothers and Sisters, you have found out by now that you could contentedly endure your needs, and could courageously contend with your foes if you were not weakened and hampered by your sins. A man's worst foes are those of his own household.
 

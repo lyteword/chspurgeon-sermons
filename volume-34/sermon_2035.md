@@ -1,7 +1,7 @@
 # Sermon 2035 | Peter After His Restoration
 
-> "When you are converted, strengthen your Brethren."  
-> Luke 22:32.  
+> When you are converted, strengthen your Brethren.  
+> Luke 22:32  
 
 Peter was to be sifted, so our Lord warned him. And Satan was to operate with the sieve. Satan had an intense desire to destroy Peter, indeed, he would like to destroy all the chosen of God, and therefore he desired to sift him as wheat, in the hope that he would be blown away with the husks and the chaff. To see a child of God perish would bring to the Evil One a malicious joy, for he would have wounded the heart of God. If ever the fallen spirit can be happy, he would derive happiness from defeating the Grace of God and robbing the Lord Jesus of those whom He bought with His blood.
 

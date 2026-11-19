@@ -1,7 +1,7 @@
 # Sermon 2039 | Crossing the Jordan
 
-> "Then Joshua commanded the officers of the people, saying, Pass through the host and command the people, saying, Prepare you victuals. For within three days you shall pass over this Jordan, to go in to possess the land, which the Lord your God gives you to possess it."  
-> Joshua 1:10,11.  
+> Then Joshua commanded the officers of the people, saying, Pass through the host and command the people, saying, Prepare you victuals. For within three days you shall pass over this Jordan, to go in to possess the land, which the Lord your God gives you to possess it.  
+> Joshua 1:10,11  
 
 The story of the passage of the Jordan might instructively be used in many ways. It was a very wonderful event. It occurred on the tenth day of the first month; on the same day of the year as the passage of the Red Sea. Of that glorious miracle it was the fortieth anniversary and you may very properly join the dividing of the Red Sea to that of the Jordan, for so the Holy Spirit has done in the one hundred and fourteenth Psalm: "The sea saw it and fled: Jordan was driven back."
 

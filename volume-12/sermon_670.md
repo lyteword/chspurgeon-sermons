@@ -1,7 +1,7 @@
 # Sermon 670 | Frost And Thaw
 
-> "He gives snow like wool; He scatters the frost like ashes; He casts out His hail like morsels. Who can stand before His cold? He sends out His word and melts them; He causes His wind to blow, and the waters flow."  
-> Psalm 147:16-18.  
+> He gives snow like wool; He scatters the frost like ashes; He casts out His hail like morsels. Who can stand before His cold? He sends out His word and melts them; He causes His wind to blow, and the waters flow.  
+> Psalm 147:16-18  
 
 Looking out of our window one morning we saw the earth robed in a white mantle; in a few short hours the earth had been covered to a considerable depth with snow. We looked out again in a few hours and saw the fields as green as ever and the plowed fields as bare as if no single flake had fallen! It is no uncommon thing for a heavy fall of snow to be followed by a rapid thaw. These interesting changes are worked by God, not only with a purpose toward the outward world, but with some design toward the spiritual realm. God is always a teacher. In every action that He performs He is instructing His own children and opening up to them the road to inner mysteries.
 

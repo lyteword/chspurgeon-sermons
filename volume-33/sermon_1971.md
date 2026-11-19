@@ -1,7 +1,7 @@
 # Sermon 1971 | The Blood Shed For Many
 
-> "For this is My blood of the new testament, which is shed for many for the remission of sins."  
-> Matthew 26:28.  
+> For this is My blood of the new testament, which is shed for many for the remission of sins.  
+> Matthew 26:28  
 
 The Lord Jesus Christ was then alive, sitting at the table and yet, pointing to the cup filled with red wine, He said, "This is My blood, which is shed for many." This proves that He could not have intended that the wine was literally His blood. Surely it is no longer necessary to refute the gross and carnal dogma of transubstantiation which is obviously absurd! There sat the living Lord at the supper, with His blood in His veins and, therefore, the wine could not literally be His blood! Value the symbol, but to confound it with the thing symbolized would draw into the idolatrous worship of a piece of bread!
 

@@ -1,7 +1,7 @@
 # Sermon 491 | Our Stronghold
 
-> "The name of the Lord is a strong tower: the righteous run into it, and are safe."  
-> Proverbs 18:10.  
+> The name of the Lord is a strong tower: the righteous run into it, and are safe.  
+> Proverbs 18:10  
 
 Strong towers were a greater security in a bygone age than they are now. Then when troops of marauders invaded the land, strong castles were set upon the various hilltops, and the inhabitants gathered up their little wealth and fled there at once. Castles were looked upon as being very difficult places to attack. And ancient troops would rather fight a hundred battles than endure a single siege. Towns which would be taken by modern artillery in twelve hours held out for twelve years against the most potent forces of the ancient times.
 

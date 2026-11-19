@@ -3,9 +3,8 @@
 > Behold, He that keeps Israel shall neither slumber nor sleep.  
 > Psalm 121:4  
 
-"Behold, as the eyes of servants look unto the hands of their masters, and as the eyes of a maiden unto the hands of her mistress; so our eyes wait upon the Lord our God, until He has mercy on us."
-
-Psalm 123:2.
+> Behold, as the eyes of servants look unto the hands of their masters, and as the eyes of a maiden unto the hands of her mistress; so our eyes wait upon the Lord our God, until He has mercy on us.  
+> Psalm 123:2  
 
 Notice, dear Friends, that both these texts begin with the word, "Behold." That word is meant to attract the readers' attention. In some books, which are intended to be sensational, you are asked to behold, and when you look, there is nothing to see! But when God's Word bids you behold what it has to say, you may be sure that the exclamation is not superfluous or misleading! It would be a marring of the Word of God to leave out even one of its smallest expressions and, therefore, when we see this word, "Behold," placed at the beginning of each of these texts, we may rest assured that there is, in both of them, something worth noting, worth examining and considering, and worth remembering and carrying away!
 

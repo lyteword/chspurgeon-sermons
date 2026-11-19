@@ -1,7 +1,7 @@
 # Sermon 2006 | Knowing the Lord Through Pardoned Sin
 
-> "And they shall teach no more every man his neighbor and every man his brother, saying, Know the Lord: for they shall all know Me, from the least of them unto the greatest of them, says the Lord; for I will forgive their iniquity and I will remember their sin no more."  
-> Jeremiah 31:34.  
+> And they shall teach no more every man his neighbor and every man his brother, saying, Know the Lord: for they shall all know Me, from the least of them unto the greatest of them, says the Lord; for I will forgive their iniquity and I will remember their sin no more.  
+> Jeremiah 31:34  
 
 True knowledge of God is a Covenant blessing. To know Jehovah as the only living and true God, to know Him personally and intimately, so as to say with David, "You are my God," this is one of the choice blessings of the Covenant of Grace which grace bestows upon all the chosen. In this prophecy Jehovah declares that He will yet give this knowledge to the house of Israel and to the house of Judah. And this is our hope for the long-wandering seed of Abraham, whom He will yet restore and save.
 

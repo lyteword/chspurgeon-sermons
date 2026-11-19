@@ -1,7 +1,7 @@
 # Sermon 2068 | Nathanael: the Man Needed for the Day
 
-> "Behold an Israelite indeed, in whom is no deceit!"  
-> John 1:47.  
+> Behold an Israelite indeed, in whom is no deceit!  
+> John 1:47  
 
 This morning we had a "behold," a behold about a new convert. "Behold, he prays!" It seemed to me most suitable to occupy the evening with another "behold," a behold about another new convert who is just having his eyes opened to see the Deity of the Lord Jesus Christ and to become His disciple. "Behold an Israelite indeed, in whom is no deceit!" When Jesus says "Behold!" we may be sure that there is something worth seeing. A man in whom is no deceit is so rare a person nowadays that we ought not to grudge an evening for such a sight. We are always beholden to a man who enables us to see an honest man; such a man is one of the noblest works of God and will reward our observation. Diogenes looks for an honest man with a lantern. But Jesus finds him.
 

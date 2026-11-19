@@ -1,14 +1,14 @@
-# Sermon 113 | Confession of Sin&mdash;a Sermon With Seven Texts
+# Sermon 113 | Confession of Sin: A Sermon With Seven Texts
 
 My sermon this morning will have seven texts, and yet I pledge myself that there shall be but three different words in the whole of them; for it so happens that the seven texts are all alike, occurring in seven different portions of God's holy Word. I shall require, however, to use the whole of them to exemplify different cases; and I must request those of you who have brought your Bibles with you to refer to the texts as I shall mention them.
 
 The subject of this morning's discourse will be this&mdash;confession of sin. We know that this is absolutely necessary to salvation. Unless there be a true and hearty confession of our sins to God, we have no promise that we shall find mercy through the blood of the Redeemer. "Whosoever confesseth his sins and forsaketh them shall find mercy." But there is no promise in the Bible to the man who will not confess his sins. Yet, as upon every point of Scripture there is a liability of being deceived, so more especially in the matter of confession of sin. There be many who make a confession, and a confession before God, who notwithstanding, receive no blessing, because their confession has not in it certain marks which are required by God to prove it genuine and sincere, and which demonstrate it to be the work of the Holy Spirit. My text this morning consists of three words, "I have sinned." And you will see how these words, in the lips of different men, indicate very different feelings. While one says, "I have sinned," and receives forgiveness; another we shall meet with says, "I have sinned," and goes his way to blacken himself with worse crimes than before, and dive into greater depths of sin than heretofore he had discovered.
 
-## The Hardened Sinner.
+## The Hardened Sinner
 
-> Pharaoh:    
-> "I have sinned."    
-> Exodus 9:27
+> Pharaoh:  
+> I have sinned.  
+> Exodus 9:27  
 
 The first case I shall bring before you is that of the hardened sinner, who, when under terror, says, "I have sinned." And you will find the text in the book of Exodus, the ninth chapter and twenty-seventh verse: "And Pharaoh sent, and called for Moses and Aaron, and said unto them, I have sinned this time: the Lord is righteous, and I and my people are wicked."
 
@@ -20,18 +20,18 @@ Have I any such here this morning? I doubt not I have hardened persons who would
 
 They were about to die, as they thought; they promised good behaviour if they might be spared, and they are here to-day on ticket-of-leave in this world: and how have they fulfilled their promise? Justice might raise the same outcry against them as they do against the burglars so constantly let loose upon us. The avenging angel might say, "O God, these men said, if they were spared they would be so much better; if anything they are worse. How have they violated their promise, and how have they brought down divine wrath upon their heads!" This is the first style of penitence; and it is a style I hope none of you will imitate, for it is utterly worthless. It is of no use for you to say, "I have sinned," merely under the influence of terror, and then to forget it afterwards.
 
-## The Double-minded Man.
+## The Double-minded Man
 
-> Balaam:    
-> "I have sinned."    
-> Numbers 22:34
+> Balaam:  
+> I have sinned.  
+> Numbers 22:34  
 
 Now for a second text. I beg to introduce to you another character&mdash;the double-minded man, who says, "I have sinned," and feels that he has, and feels it deeply too, but who is so worldly minded that he "loves the wages of unrighteousness." The character I have chosen to illustrate this, is that of Balaam. Turn to the book of Numbers, the twenty-second chapter and the thirty-fourth verse: "And Balaam said unto the angel of the Lord, I have sinned."
 
 "I have sinned," said Balaam; but yet he went on with his sin afterwards. One of the strangest characters of the whole world is Balaam. I have often marvelled at that man; he seems really in another sense to have come up to the lines of Ralph Erskine&mdash;
 
-> To good and evil equal bent,    
-> And both a devil and a saint.    
+> To good and evil equal bent,  
+> And both a devil and a saint.  
 
 For he did seem to be so. At times no man could speak more eloquently and more truthfully, and at other times he exhibited the most mean and sordid covetousness that could disgrace human nature. Think you see Balaam; he stands upon the brow of the hill, and there lie the multitudes of Israel at his feet; he is bidden to curse them, and he cries, "How shall I curse whom God hath not cursed?" And God opening his eyes, he begins to tell even about the coming of Christ, and he says, "I shall see him, but not now. I shall behold him, but not nigh." And then he winds up his oration by saying&mdash;"Let me die the death of the righteous, and let my last end be like his!" And ye will say of that man, he is a hopeful character. Wait till he has come off the brow of the hill, and ye will hear him give the most diabolical advice to the king of Moab which it was even possible for Satan himself to suggest. Said he to the king, " You cannot overthrow these people in battle, for God is with them; try and entice them from their God." And ye know how with wanton lusts they of Moab tried to entice the children of Israel from allegiance to Jehovah; so that this man seemed to have the voice of an angel at one time, and yet the very soul of a devil in his bowels. He was a terrible character; be was a man of two things, a man who went all the way with two things to a very great extent. I know the Scripture says, "No man can serve two masters." Now this is often misunderstood. Some read it, "No man can serve two masters." Yes he can; he can serve three or four. The way to read it is this: "No man can serve two masters," They cannot both be masters. He can serve two, but they cannot both be his master. A man can serve two who are not his masters, or twenty either; he may live for twenty different purposes, but he cannot live for more than one master purpose&mdash;there can only be one master purpose in his soul. 
 
@@ -39,11 +39,11 @@ But Balaam laboured to serve two; it was like the people of whom it was said, "T
 
 I dare say, like Balaam, they would overthrow everything in argument with their enchantments; they could work miracles; and yet at the same time there is something about them which betrays a horrid character of sin, as great as that which would appear to be their character for righteousness. Balaam, you know, offered sacrifices to God upon the altar of Baal: that was just the type of his character. So many do; they offer sacrifices to God on the shrine of Mammon; and whilst they will give to the building of a church, and distribute to the poor, they will at the other door of their counting-house grind the poor for bread, and press the very blood out of the widow, that they may enrich themselves. Ah! it is idle and useless for you to say, "I have sinned," unless you mean it from your heart. That double minded man's confession is of no avail.
 
-## The Insincere Man.
+## The Insincere Man
 
-> Saul:    
-> "I have sinned."    
-> 1 Samuel 15:24
+> Saul:  
+> I have sinned.  
+> 1 Samuel 15:24  
 
 And now a third character, and a third text. In the first book of Samuel, the fifteenth chapter and twenty-fourth verse: "And Saul said unto Samuel, I have sinned."
 
@@ -53,11 +53,11 @@ They have affectionate dispositions, very likely a tender conscience; but then t
 
 I have been brief upon this character; for it seemed to touch upon that of Balaam; though any thinking man will at once see there was a real contrast between Saul and Balaam, even though there is an affinity between the two. Balaam was the great bad man, great in all he did; Saul was little in everything except in stature, little in his good and little in his vice; and he was too much of a fool to be desperately bad, though too wicked to be at any time good: while Balaam was great in both: the man who could at one time defy Jehovah, and yet at another time could say, "If Balak would give me his house full of silver and gold, I cannot go beyond the word of the Lord my God, to do less or more."
 
-## The Doubtful Penitent.
+## The Doubtful Penitent
 
-> Achan:    
-> "I have sinned."    
-> Joshua 7:20   
+> Achan:  
+> I have sinned.  
+> Joshua 7:20  
 
 And now I have to introduce to you a very interesting case; it is the case of the doubtful penitent, the case of Achan, in the book of Joshua, the seventh chapter and the twentieth verse:&mdash;"And Achan answered Joshua, indeed I have sinned."
 
@@ -65,29 +65,29 @@ You know that Achan stole some of the prey from the city of Jericho&mdash;that h
 
 I have, therefore, selected his case, as being one of doubtful repentance. Ah! dear friends, it has been my lot to stand by many a death-bed, and to see many such a repentance as this; I have seen the man, when worn to a skeleton, sustained by pillows in his bed; and he has said, when I have talked to him of judgment to come, "Sir, I feel I have been guilty, but Christ is good; I trust in him." And I have said within myself, " I believe the man's soul is safe." But I have always come away with the melancholy reflection that I had no proof of it, beyond his own words; for it needs proof in acts and in future life, in order to sustain any firm conviction of a man's salvation. You know that great fact, that a physician once kept a record of a thousand persons who thought they were dying, and whom he thought were penitents; he wrote their names down in a book as those, who, if they had died, would go to heaven; they did not die, they lived; and he says that out of the whole thousand he had not three persons who turned out well afterwards, but they returned to their sins again, and were as bad as ever. Ah! dear friends, I hope none of you will have such a death-bed repentance as that; I hope your minister or your parents will not have to stand by your bedside, and then go away and say, "Poor fellow, I hope he is saved. But alas! death-bed repentances are such flimsy things; such poor, such trivial grounds of hope, that I am afraid, after all, his soul may be lost." Oh! to die with a full assurance; oh! to die with an abundant entrance, leaving a testimony behind that we have departed this life in peace! That is a far happier way than to die in a doubtful manner, lying sick, hovering between two worlds, and neither ourselves nor yet our friends knowing to which of the two worlds we are going. May God grant us grace to give in our lives evidences of true conversion, that our case may not be doubtful!
 
-## The Repentance of Despair.
+## The Repentance of Despair
 
-> Judas:    
-> "I have sinned."    
-> Matthew 27:4
+> Judas:  
+> I have sinned.  
+> Matthew 27:4  
 
 I shall not detain you too long, I trust, but I must now give you another bad case; the worst of all. It is the repentance of despair. Will you turn to the twenty-seventh chapter of Matthew, and the fourth verse? There you have a dreadful case of the repentance of despair. You will recognize the character the moment I read the verse: "And Judas said, I have sinned." Yes, Judas the traitor, who had betrayed his Master, when be saw that his Master was condemned, "repented, and brought again the thirty pieces of silver to the chief priests and elders, saying, I have sinned, in that I have betrayed innocent blood, and cast down the pieces in the temple, and went" and what?&mdash;" and hanged himself." Here is the worst kind of repentance of all; in fact, I know not that I am justified in calling it repentance; it must be called remorse of conscience. But Judas did confess his sin, and then went and hanged himself. Oh! that dreadful, that terrible, that hideous confession of despair. Have you never seen it? If you never have, then bless God that you never were called to see such a sight. I have seen it once in my life, I pray God I may never see it again,&mdash;the repentance of the man who sees death staring him in the face, and who says, "I have sinned." You tell him that Christ has died for sinners; and he answers, "There is no hope for me; I have cursed God to his face; I have defied him; my day of grace I know is past; my conscience is seared with a hot iron; I am dying, and I know I shall be lost!" Such a case as that happened long ago, you know, and is on record&mdash;the case of Francis Spira&mdash;the most dreadful ease, perhaps, except that of Judas, which is upon record in the memory of man. Oh! my hearers, will any of you have such a repentance? If you do, it will be a beacon to all persons who sin in future; if you have such a repentance as that, it will be a warning to generations yet to come. 
 
 In the life of Benjamin Keach&mdash;and he also was once of my predecessors&mdash;I find the case of a man who had been a professor of religion, but had departed from the profession, and had gone into awful sin. When he came to die, Keach, with many other friends, went to see him, but they could never stay with him above five minutes at a time; for he said, "Get ye gone; it is of no use your coming to me; I have sinned away the Holy Ghost; I am like Esau, I have sold my birthright, and though I seek it carefully with tears, I can never find it again." And then he would repeat dreadful words, like these: My mouth is filled with gravel stones, and I drink wormwood day and night. Tell me not tell me not of Christ! I know he is a Saviour, but I hate him and he hates me. I know I must die; I know I must perish!" And then followed doleful cries, and hideous noises, such as none could bear. They returned again in his placid moments only to stir him up once more, and make him cry out in his despair, "I am lost ! I am lost ! It is of no use your telling me anything about it!" Ah! I there may be a man here who may have such a death as that; let me warn him, ere he come to it ; and may God the Holy Spirit grant that that man may be turned unto God, and made a true penitent, and then he need not have any more fear; for he who has had his sins washed away in a Saviour's blood, need not have any remorse for his sins, for they are pardoned through the Redeemer.
 
-## The Repentance of the Saint.
+## The Repentance of the Saint
 
-> Job:    
-> "I have sinned."    
-> Job 7:20    
+> Job:  
+> I have sinned.  
+> Job 7:20  
 
 And now I come into daylight. I have been taking you through dark and dreary confessions; I shall detain you there no longer, but bring you out to the two good confessions which I have to read to you. The first is that of Job in seventh chapter, at the twentieth verse: "I have sinned; what shall I do unto thee, O thou preserver of men?" This is the repentance of the saint. Job was a saint, but he sinned. This is the repentance of the man who is a child of God already, an acceptable repentance before God. But as I intend to dwell upon this in the evening, I shall now leave it, for fear of wearying you. David was a specimen of this kind of repentance, and I would have you carefully study his penitential psalms, the language of which is ever full of weeping humility and earnest penitence.
 
-## The Blessed Confession.
+## The Blessed Confession
 
-> The Prodigal:    
-> "I have sinned."    
-> Luke 15:18
+> The Prodigal:  
+> I have sinned.  
+> Luke 15:18  
 
 I come now to the last instance, which I shall mention; it is the case of the prodigal. In Luke xv. 18, we find the prodigal says: "Father I have sinned." Oh, here is a blessed confession! Here is that which proves a man to be a regenerate character&mdash;" Father, I have sinned." Let me picture the scene. There is the prodigal; he has run away from a good home and a kind father, and he has spent all his money with harlots, and now he has none left. He goes to his old companions, and asks them for relief. They laugh him to scorn. "Oh," says he, "you have drunk my wine many a day; I have always stood paymaster to you in all our revelries; will you not help me?" "Get you gone" they say; and he is turned out of doors. He goes to all his friends with whom he had associated, but no man gives him anything. At last a certain citizen of the country said,&mdash;"You want something to do, do you? Well go and feed my swine." The poor prodigal, the son of a rich landowner, who had a great fortune of his own, has to go out to feed swine; and he a Jew too!&mdash;the worst employment (to his mind,) to which he could be put. See him there, in squalid rags, feeding swine; and what are his wages? Why, so little, that he "would fain have filled his belly with the husks the swine eat, but no man gave to him." Look, there he is, with the fellow commoners of the sty, in all his mire and filthiness. Suddenly a thought put there by the good Spirit, strikes his mind. "How is it," says he, "that in my father's house there is bread enough and to spare, and I perish with hunger? I will arise and go to my father, and will say unto him, Father, I have sinned against heaven and before thee, and am no more worthy to be called thy son: make me as one of thy hired servants." Off he goes. He begs his way from town to town. 
 

@@ -1,7 +1,7 @@
 # Sermon 706 | Fields White For Harvest
 
-> "Do you not say, 'There are yet four months, and then comes the harvest'? Behold, I say to you, Lift up your eyes and look at the fields for they are already white for harvest."  
-> John 4:35.  
+> Do you not say, 'There are yet four months, and then comes the harvest'? Behold, I say to you, Lift up your eyes and look at the fields for they are already white for harvest.  
+> John 4:35  
 
 Many unbelieving Christians have a very large stock of reasons for not expecting to see many conversions. They suppose that any present manifestation of the Divine power in connection with the Truth of God is not to be expected. They read the history of past ages and they wonder, and sometimes, when their eyes are sufficiently clear, they look forward with some sort of hope to the repetition of these scenes in future years, that is to say, when they, themselves, are dead and buried, and a new age shall have come upon the world.
 

@@ -1,6 +1,6 @@
 # Sermon 428 | A Cure For Care
 
-> "Casting all your care upon Him. For He cares for you."  
+> Casting all your care upon Him. For He cares for you.  
 > 1 Peter 5:7  
 
 No one precept contains the whole of a Believer's duty. But usually in Scripture the precepts rise one above the other, like those stone steps by which the traveler in Egypt ascends to the pinnacle of the pyramid. You must first plant your feet firmly upon the preceding duty, before you shall be able fully to climb to the next command. Let me, then, call your attention to the precept which precedes my text: "Humble yourselves, therefore, under the mighty hand of God, that He may exalt you in due time." You know, Beloved, that there are some selfish, carnal cares which we must not cast upon God. It were an insult to Him. It were an act of infamy on our part if we should venture to ask for His assistance in them. Those are cares which would never molest us at all if we were obedient to the precept: "Humble yourselves, therefore, under the mighty hand of God."

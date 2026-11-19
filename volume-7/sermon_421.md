@@ -1,6 +1,6 @@
 # Sermon 421 | It is finished!
 
-> "When Jesus therefore had received the vinegar, He said, It is finished: and He bowed His head and gave up the ghost."  
+> When Jesus therefore had received the vinegar, He said, It is finished: and He bowed His head and gave up the ghost.  
 > John 19:30  
 
 My Brethren, I would have you attentively observe the singular clearness, power and quickness of the Savior's mind in the last agonies of death. When pains and groans attend the last hour they frequently have the effect of discomposing the mind so that it is not possible for the dying man to collect his thoughts, or having collected them, to utter them so that they can be understood by others. In no case could we expect a remarkable exercise of memory or a profound judgment upon deep subjects from an expiring man. But the Redeemer's last acts were full of wisdom and prudence although His sufferings were beyond all measure excruciating.

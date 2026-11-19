@@ -3,7 +3,8 @@
 > But when he saw Jesus afar off, he ran and worshipped Him.  
 > Mark 5:6  
 
-"But when he wasyet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him." Luke 15:20.
+> But when he wasyet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him.  
+> Luke 15:20  
 
 These two texts have a measure of apparent likeness, the man runs to Jesus from afar and the father runs to the prodigal from afar. They both run, and when two run to meet each other, they soon meet. When a sinner is running to Christ and the Father is running to the sinner, there shall be a happy meeting before very long, and there shall be joy in heaven and joy on earth, too! I shall begin my discourse by noticing the case of the demoniac, whose story we read. "When he saw Jesus afar off, he ran and worshipped Him."
 

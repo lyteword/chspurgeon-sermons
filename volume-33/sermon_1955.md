@@ -1,7 +1,7 @@
 # Sermon 1955 | Jesus Declining the Legions
 
-> "Do you think that I cannot now pray to My Father, and He shall presently give me more than twelve legions of angels? But how, then, shall the Scriptures be fulfilled, that thus it must be?"  
-> Matthew 26: 53, 54.  
+> Do you think that I cannot now pray to My Father, and He shall presently give me more than twelve legions of angels? But how, then, shall the Scriptures be fulfilled, that thus it must be?  
+> Matthew 26:53, 54  
 
 It is the garden of Gethsemane. Here stands our Lord and yonder is the betrayer. He is foremost of the multitude. You know his face, the face of that son of perdition, even Judas Iscariot. He comes forward, leaving the men with the staves, the swords, the torches and lanterns. He proceeds to kiss his Master, it is the token by which the officers are to know their victim. You perceive at once that the disciples are excited. One of them cries, "Lord, shall we smite with the sword?" Their love to their Master has overcome their prudence! There are but 11 of them, a small band to fight against the mob sent by the authorities to arrest their Master, but love makes no reckoning of odds. Before an answer can be given, Peter has struck the first blow and the servant of the High Priest has narrowly escaped having his head split in two! As it is, his ear is cut off.
 

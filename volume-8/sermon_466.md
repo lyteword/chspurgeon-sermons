@@ -1,6 +1,6 @@
 # Sermon 466 | The Loaded Wagon
 
-> "Behold, I am pressed under you, as a cart is pressed that is full of sheaves."  
+> Behold, I am pressed under you, as a cart is pressed that is full of sheaves.  
 > Amos 2:13  
 
 The other Sunday morning we went into the corn fields to glean with Boaz and Ruth. And I trust that many of the timid and faint-hearted were encouraged to partake of the handfuls which are let fall on purpose for them by the order of our generous Lord. We go, today, to the gate of the harvest field with another object: to see the wagon piled up aloft with many sheaves, come creaking forth, making ruts as the toiling horses drag it from the field. We come with gratitude to God, thanking Him for the harvest, blessing Him for so much of favorable weather and praying Him to continue the same till the last shock of corn shall be brought in and the farmers everywhere shall shout the "Harvest Home."

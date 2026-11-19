@@ -1,7 +1,7 @@
 # Sermon 682 | Future Punishment a Fearful Thing
 
-> "It is a fearful thing to fall into the hands of the living God."  
-> Hebrews 10:31.  
+> It is a fearful thing to fall into the hands of the living God.  
+> Hebrews 10:31  
 
 You will most cheerfully bear me witness that my most frequent subjects are the mercy and abundant loving kindness of our God in Jesus Christ, and that it is my favorite employment to invite the very chief of sinners to come to Jesus Christ with the assurance that He will cast out none who come to Him, but will assuredly give to them eternal life. It is not to my honor to say so, but still you know how seldom I have forced upon your attention those terrible subjects which concern the state of the lost in Hell. I have felt more at home in using the drawing of mercy than the driving of terror, and I can most honestly plead innocence of any charge of delighting in declaring the torments of the finally impenitent, or of entering upon the discussion of the miseries of the lost with eagerness and enjoyment.
 

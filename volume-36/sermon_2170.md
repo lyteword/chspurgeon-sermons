@@ -1,7 +1,7 @@
 # Sermon 2170 | The Blessing of the High Priest
 
-> "And the Lord spoke unto Moses, saying, Speak unto Aaron and unto his sons saying, On this wise you shall bless the children of Israel, saying unto them, The Lord bless you, and keep you: the Lord make His face shine upon you, and be gracious unto you: the Lord lift up His Countenance upon you, and give you peace. And they shall put My name upon the children of Israel; and I will bless them."  
-> Numbers 6:22-27.  
+> And the Lord spoke unto Moses, saying, Speak unto Aaron and unto his sons saying, On this wise you shall bless the children of Israel, saying unto them, The Lord bless you, and keep you: the Lord make His face shine upon you, and be gracious unto you: the Lord lift up His Countenance upon you, and give you peace. And they shall put My name upon the children of Israel; and I will bless them.  
+> Numbers 6:22-27  
 
 The Lord has blessed His people and He would have them know it. He has blessed them with all spiritual blessings in heavenly places in Christ Jesus, and it is His wish that they should experience the fullness of this blessing. Are any of the Lord's people without a sense of His blessing? It is not the will of God that you should continue in this low condition! If you are cast down, He has said to His Prophets, "Comfort you, comfort you My people. Speak you comfortably to Jerusalem." Have you sinned and wandered into the darkness? The Lord bids you return and encourages you to pray, "Turn us again, O God, and cause Your face to shine and we shall be saved." The happy God would have you happy in the enjoyment of His blessing.
 

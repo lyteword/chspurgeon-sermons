@@ -1,7 +1,7 @@
 # Sermon 586 | The Child Samuel's Prayer
 
-> "Speak, Lord; for Your servant hears."  
-> 1 Samuel 3:9.  
+> Speak, Lord; for Your servant hears.  
+> 1 Samuel 3:9  
 
 In the days of Eli the Word of the Lord was precious and there was no open vision. It was well, when the Word did come, that one chosen individual had the hearing ear to receive it and the obedient heart to perform it. Eli failed to tutor his sons to be the willing servants and the attentive hearers of the Lord's Word. In this he was without the excuse of inability since he successfully trained the child Samuel in reverent attention to the Divine will. O that those who are diligent about the souls of others would look well to their own households!
 

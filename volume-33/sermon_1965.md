@@ -1,7 +1,7 @@
 # Sermon 1965 | God's Thoughts Of Peace and Our Expected End
 
-> "For I know the thoughts that I think toward you, says the Lord, thoughts of peace, and not of evil, to give you an expected end."  
-> Jeremiah 29:11.  
+> For I know the thoughts that I think toward you, says the Lord, thoughts of peace, and not of evil, to give you an expected end.  
+> Jeremiah 29:11  
 
 I have already explained to you, while expounding the twenty-fourth and twenty-ninth chapters of this Prophet, that these words were written by Jeremiah in a letter to the captives in Babylon. A considerable part of the people of Israel were carried away by Nebuchadnezzar into a far country. They were exhorted by the Prophet to build houses, form families and to abide peaceably there till the Lord should lead them back at the end of 70 years. But at that time there was a general uneasy feeling among the Jews and other subjected nations who did not rest quietly under the iron yoke of Babylon. They were plotting and planning continual rebellions and certain false prophets in Babylon worked with them, stirring up the spirit of revolt among the exiles. Jeremiah, on the other hand, assured them that they had been sent of God into the land of the Chaldeans for good, bade them seek the peace of the city wherein they now dwelt and promised them that, in due time, the Lord would again plant them in their own land.
 

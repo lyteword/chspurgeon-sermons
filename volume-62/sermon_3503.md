@@ -1,7 +1,7 @@
 # Sermon 3503 | Joy in Salvation
 
 > I will rejoice in thy salvation.  
-> Psalm 9:4  
+> Psalm 9:14  
 
 I desire to continue the topic of the morning, only we will look at another side of the same important matter.
 

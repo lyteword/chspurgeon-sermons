@@ -1,7 +1,7 @@
 # Sermon 2057 | The Lord's Own Salvation
 
-> "But I will have mercy upon the house of Judah and will save them by the Lord their God and will not save them by bow, nor by sword, nor by battle, by horses, nor by horsemen"  
-> Hosea 1:7.  
+> But I will have mercy upon the house of Judah and will save them by the Lord their God and will not save them by bow, nor by sword, nor by battle, by horses, nor by horsemen  
+> Hosea 1:7  
 
 God is very considerate towards the messengers by whom He delivers His Word to men. They are bound to deliver His Word faithfully, whatever the tidings may be. Sometimes the burden of the Lord is very heavy. The Prophets have to denounce woe upon woe, with terrible monotony of threat. And then it is that God hastens to relieve them by giving them a gracious Word, so that they may refresh their hearts and not be altogether crushed beneath their load. We have an instance here of the Lord's care for His heralds. Hosea was bound to say, in the name of the Lord, "I will no more have mercy upon the house of Israel. But I will utterly take them away."
 

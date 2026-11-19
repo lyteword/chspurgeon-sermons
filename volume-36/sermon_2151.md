@@ -1,7 +1,7 @@
 # Sermon 2151 | Holy Longings
 
-> "I opened my mouth, and panted: for I longed for Your commandments. Look You upon me, and be merciful unto me, as You used to do unto those that love Your name. Order my steps in Your Word: and let not any iniquity have dominion over me."  
-> Psalm 119:131,132,133.  
+> I opened my mouth, and panted: for I longed for Your commandments. Look You upon me, and be merciful unto me, as You used to do unto those that love Your name. Order my steps in Your Word: and let not any iniquity have dominion over me.  
+> Psalm 119:131,132,133  
 
 Last Lord's-Day we spoke about being in the fear of God all the day long and I am afraid some thought, "The pastor has set a very high standard before us; not too high, but still far above what we have been able to reach." I know that many desires after holiness were excited and many longings of heart went up to Heaven. It ought to be so as soon as the Truth of God is received into the mind. Note the context: "The entrance of Your Word gives light; it gives understanding unto the simple." And then the next step is intensity of desire: "I opened my mouth and panted: for I longed for Your commandments."
 

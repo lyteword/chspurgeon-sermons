@@ -1,6 +1,6 @@
 # Sermon 417 | Scourge For Slumbering Souls
 
-> "Woe to them that are at ease in Zion."  
+> Woe to them that are at ease in Zion.  
 > Amos 6:1  
 
 In itself considered it is no ill thing to be at ease. No, it is a great blessing to be at ease in Zion in the healthy sense and meaning of that word. Is it not one of the invitations of Christ: "Come unto Me all you that labor and are heavy laden and I will give you rest?" Is not this one of the promises made to the believer: "His soul shall dwell at ease and his seed shall inherit the earth?" (Psa. 25:13). Is not this the privilege which is accorded to the Church of God, in the words of Isaiah: "Your eyes shall see Jerusalem a quiet habitation?" (Isa. 33:20). And still more in the prophecy of Jeremiah 46:27, "Jacob shall return and be in rest and at ease and none shall make him afraid!"

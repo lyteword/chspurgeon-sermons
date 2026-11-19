@@ -1,7 +1,7 @@
 # Sermon 2075 | Our Lord's Entrance Within the Veil
 
-> "Not with the blood of goats and calves, but with His own blood He entered the Most Holy Place once and for all, having obtained eternal redemption for us."  
-> Hebrews 9:12.  
+> Not with the blood of goats and calves, but with His own blood He entered the Most Holy Place once and for all, having obtained eternal redemption for us.  
+> Hebrews 9:12  
 
 Under the old covenant the Lord was set forth to the people as dwelling apart, within the veil. A thick tapestry hung before the Most Holy Place and thus concealed the light which symbolized the Presence of God. Within the inner sanctuary Jehovah dwelt apart and none entered the sacred precincts except one man, and he, but once a year. The great teaching was that God is hidden from men; sin has made a division between man and God. The way of approach is not yet made manifest. Yet, even then, there was a hint given that an entrance would be made manifest eventually.
 

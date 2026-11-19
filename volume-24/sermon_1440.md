@@ -3,9 +3,8 @@
 > And you shall say unto Pharaoh, thus says the Lord, Israel is My son, even My firstborn: and I say unto you, Let My son go, that he may serve Me.  
 > Exodus 4:22,23  
 
-"Then the Lord said unto Moses, Now shall you see what I will do to Pharaoh."
-
-Exodus 6:1.
+> Then the Lord said unto Moses, Now shall you see what I will do to Pharaoh.  
+> Exodus 6:1  
 
 God had a people in Egypt. They were His own, the people of His choice. Although they had been grievously oppressed and had sunk into ignominious slavery, His interest in their welfare had in no degree lessened. The Lord's purpose in sending Moses down into Egypt was that He might fetch out that people from among the nations to make them a separate people to Himself that He might give them an inheritance, even the land which flowed with milk and honey and that they might dwell there as witnesses of His covenant and keep His Testimonies. Now precisely what God was doing towards His people, Israel, in the land of Ham, He is doing towards His own chosen ones throughout the whole world.
 

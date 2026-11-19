@@ -1,8 +1,7 @@
 # Sermon 2185 | Our Manifesto
 
-> "But I make known to you, Brethren, that the Gospel which was preached of me is not after man."  
-
-> Galatians 1:11.  
+> But I make known to you, Brethren, that the Gospel which was preached of me is not after man.  
+> Galatians 1:11  
 
 To me it is a pitiful sight to see Paul defending himself as an Apostle and, doing this, not against the gainsaying world, but against cold-hearted members of the Church! They said that he was not truly an Apostle, for he had not seen the Lord. And they uttered a great many other things derogatory to him. To maintain his claim to the Apostleship, he was driven to commence his Epistles with, "Paul, an Apostle of Jesus Christ," though his work was a self-evident proof of his call. If, after God has blessed us to the conversion of many, some of these should raise a question as to our call to the ministry, we may count it a fiery trial, but we shall not conclude that a strange thing has happened to us. There is much more room to question our call to the ministry than to cast a doubt upon Paul's Apostleship! This indignity, if it is put upon us, we can, by His Grace, cheerfully bear for our Master's sake. We need not wonder, dear Brothers, if our ministry should be the subject of attack, because this has been the lot of those who have gone before us, and we should lack one great seal of our acceptance with God if we did not receive the unconscious homage of enmity which is always paid to the faithful by the ungodly world! When the devil is not troubled by us, he does not trouble us. If his kingdom is not shaken, he will not care about us or our work, but will let us enjoy inglorious ease. Be comforted by the experience of the Apostle of the Gentiles, he is peculiarly our Apostle, and we may regard his experience as a type of what we may expect while we labor among the Gentiles of our own day.
 

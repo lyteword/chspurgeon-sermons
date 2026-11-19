@@ -1,7 +1,7 @@
 # Sermon 709 | Kicking Against The Pricks
 
-> "It is hard for you to kick against the pricks."  
-> Acts 9:5.  
+> It is hard for you to kick against the pricks.  
+> Acts 9:5  
 
 This expression is highly characteristic of the Savior from its figurative form. While He was on earth He spoke to the people in parables, and speaking out of Heaven, in this instance, He still adopts the parabolic style, as He did in Patmos, when He revealed Himself to John as walking among the golden candlesticks. Here is a parable wrapped up in a few words: the parable of the ox that was willful, and being stricken with the ox-goad, kicked against it and drove the ox-goad still deeper into its flesh, a very instructive simile, very natural and unstrained like the rest of the Savior's parables, and very full of meaning. It is plain, direct, appropriate, simple, and self-explaining, like the other parables of our Lord.
 

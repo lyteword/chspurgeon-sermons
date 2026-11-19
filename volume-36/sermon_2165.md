@@ -1,7 +1,7 @@
 # Sermon 2165 | The Serpent's Sentence
 
-> "And the Lord God said unto the serpent, Because you have done this, you are cursed above all cattle, and above every beast of the field. Upon your belly shall you go, and dust shall you eat all the days of your life: and I will put enmity between you and the woman, and between your seed and her Seed; it shall bruise your head, and you shall bruise His heel."  
-> Genesis 3:14,15.  
+> And the Lord God said unto the serpent, Because you have done this, you are cursed above all cattle, and above every beast of the field. Upon your belly shall you go, and dust shall you eat all the days of your life: and I will put enmity between you and the woman, and between your seed and her Seed; it shall bruise your head, and you shall bruise His heel.  
+> Genesis 3:14,15  
 
 Some master in Israel who wanted to help the memories of his hearers has said that the three things to be preached above everything else are the three R's; Ruin, Redemption and Regeneration. He spoke wisely and well. How will men seek salvation if they do not feel their ruin? Where is there salvation except in the atoning blood? What is salvation but being created anew unto holiness? It is a noteworthy fact that, in Holy Scripture there are three third chapters which deal with these things in the fullest manner. The third of Genesis reveals Ruin. The third of Romans teaches Redemption. The third of John sets forth Regeneration.
 

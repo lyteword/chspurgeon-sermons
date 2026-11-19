@@ -1,7 +1,7 @@
 # Sermon 603 | Now
 
-> "For He says, I have heard You in a time accepted and in the day of salvation have I succored You: behold, now is the accepted time; behold, now is the day of salvation."  
-> 2 Corinthians 6:2.  
+> For He says, I have heard You in a time accepted and in the day of salvation have I succored You: behold, now is the accepted time; behold, now is the day of salvation.  
+> 2 Corinthians 6:2  
 
 We frequently hear the question discussed as to which are the best times. Some are perpetually singing the praises of the "good old times," though, if one reads the pages of history it does not appear that the old times deserve any very special praise, unless oppression, ignorance, persecution and abundant suffering deserve to be the theme of song! It is the common habit of the fathers, with tears in their eyes, to say, "The former days were better than these." But we have the wisdom of Solomon on our side when we tell them they do not enquire wisely concerning this. "Do not say, Why were the former days better than these? For you do not enquire wisely concerning this" (Eccl. 7:10).
 

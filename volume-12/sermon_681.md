@@ -1,10 +1,10 @@
 # Sermon 681 | Eyes Opened
 
-> "And God opened her eyes, and she saw a well of water."  
-> Genesis 21:19.  
+> And God opened her eyes, and she saw a well of water.  
+> Genesis 21:19  
 
-> "And their eyes were opened, and they knew Him."  
-> Luke 24:31.  
+> And their eyes were opened, and they knew Him.  
+> Luke 24:31  
 
 The Fall of man was most disastrous in its results to our entire being. "In the day that you eat thereof you shall surely die," was no idle threat, for Adam did die the moment that he transgressed the command; he died the great spiritual death by which all his spiritual powers became then and evermore, until God should restore them, absolutely dead. I said all the spiritual powers, and if I divide them after the analogy of the senses of the body, my meaning will be still more clear.
 

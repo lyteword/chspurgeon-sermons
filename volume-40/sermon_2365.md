@@ -3,9 +3,8 @@
 > And Joash did that which was right in the sight of the Lord all the days of Jehoiada the priest.  
 > 2 Chronicles 24:2  
 
-"Now after the death of Jehoiada came the princes of Judah, and made obeisance to the king. Then the king listened to them. And they left the house of the Lord God of their fathers, and served groves and idols: and wrath came upon Judah and Jerusalem for this, their trespass."
-
-2 Chronicles 24:17,18.
+> Now after the death of Jehoiada came the princes of Judah, and made obeisance to the king. Then the king listened to them. And they left the house of the Lord God of their fathers, and served groves and idols: and wrath came upon Judah and Jerusalem for this, their trespass.  
+> 2 Chronicles 24:17,18  
 
 There is a book called The Museum of Natural History and the most amazing animal in that museum is man. It would be far more easy to understand any other creature than to understand a human being. He is worthy of very great study and the more he is studied, the more will he surprise you. There are certain characters that are great curiosities. Alas, there are, also, other characters that are great monstrosities! You can never tell, from what a man is, what he will be. The case before us is a very extraordinary one because here is a man with every possible advantage who, through a number of years, exhibited the brightest form of character. And, yet, in the end, he was not thought worthy to be laid in the sepulchers of his fathers with others of the kings of Judah. Neither was he worthy of any royal interment, for the latter part of his life blackened and defiled the whole of his career and he who began his reign like the dawning of the day, ended it like the middle of the night.
 

@@ -1,7 +1,7 @@
 # Sermon 338 | Love To Jesus
 
-> O You whom my soul loves.    
-> Song of Solomon 1:7.    
+> O You whom my soul loves.  
+> Song of Solomon 1:7  
 
 If the life of a Christian may be compared to a sacrifice, then humility digs the foundation for the altar; prayer brings the unhewn stones and piles them, one upon the other; penitence fills the trench round about the altar with water; obedience lays the wood in order&mdash;faithpleads the Jehovah-Jireh, and places the victim upon the altar. But the sacrifice, even then, is incomplete, for where is the fire? Love, love alone, can consummate the sacrifice by supplying the necessary fire from Heaven. Whatever we lack in our piety, as it is indispensable that we should have faith in Christ, so is it absolutely necessary that we should have love to Him. That heart which is devoid of an earnest love to Jesus is surely still dead in trespasses and sins. And if any man should venture to affirm that he had faith in Christ, but had no love to Him, we would at once also venture to affirm as positively that his religion was vain! Perhaps the great need of the religion of the times is love. Sometimes, as I look upon the world at large, and the Church which lies too much in its bosom, I am apt to think that the Church has light, but lacks fire. She has some degree of true faith, clear knowledge, and much besides which is precious, but she lacks to a great extent that flaming love with which she once, as a chaste virgin, walked with Christ through the fires of martyrdom; when she showed to Him her undefiled, unquenchable love in the catacombs of the city and the caves of the rocks&mdash;when the snows of the Alps might testify to the virgin purity of the love of the saints by the purple stain which marked the shedding of blood in defense of our bleeding Lord&mdash;blood which had been shed in defense of Him whom, though they had not seen His face, "unceasingly they adored."
 

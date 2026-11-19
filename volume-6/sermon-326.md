@@ -1,7 +1,7 @@
 # Sermon 326 | Everywhere And Yet Forgotten
 
-> Who knows not in all these that tie hand of the Lord has worked this? In whose hand is the soul of every living thing and the breath of all mankind.    
-> Job 12:9,10.    
+> Who knows not in all these that tie hand of the Lord has worked this? In whose hand is the soul of every living thing and the breath of all mankind.  
+> Job 12:9,10  
 
 These verses occur in Job's answer to Zophar the Naamathite. Job had his failings, but certainly he appears less faulty in this dialog than those three men who sought to reprove him and convict him of error. Zophar the Naamathite had the very highest opinion of his own personal wisdom. He addressed Job as though he had been an inferior. And all in the eleventh Chapter he used language which though extremely beautiful, must have been very grating upon the ears of such a sufferer as Job; for it is a lecture full of high-flown language, abounding in poetry, and noble images, but containing little solid sense and less sympathy. Job, being exceedingly irritated both with the style and with the matter of Zophar's speech, begins at once to pluck off his plumes and to pull to pieces his fine language. In biting irony Job cries from his dunghill&mdash;"No doubt but you are the people, and wisdom shall die with you. But I have understanding as well as you; I am not inferior to you; yes, who knows not such things as these?" You have put into flowery language things which an ordinary observer might discover! You have pointed to the Heaven above and to the depth beneath, to prove a truth which the creeping insects of the earth could tell you, and which the fishes of the sea might proclaim! "Ask now the beasts, and they shall teach you; and the fowls of the air, and they shall tell you&mdash;or speak to the earth and it shall teach you&mdash;and the fishes of the sea shall declare unto you. Who knows not in all these that the hand of the Lord has worked this?"
 

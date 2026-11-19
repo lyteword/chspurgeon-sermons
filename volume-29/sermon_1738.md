@@ -1,8 +1,7 @@
 # Sermon 1738 | "Glory Be Unto the Father"
 
-"Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenly places in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love."
-
-Ephesians 1:3, 4.
+> Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenly places in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love.  
+> Ephesians 1:3-4  
 
 Last Lord's Day I finished the morning services at Exeter Hall with a sermon upon John's choice doxology, "Unto Him that loved us and washed us from our sins in His own blood, to Him be glory and dominion forever and ever. Amen." I felt, therefore, that it would be most fitting to open this series of services with another doxology. And as the last was in praise of the Second Person of the Divine Unity, this is to the honor and glory of the adorable Person of the Father. May God, who gave His servants a praiseful spirit so that their Epistles abound with doxologies, give the same spirit of joyous thankfulness to us at this time, that we may all say from the very bottom of our hearts, "Amen," to our text, "Blessed be the God and Father of our Lord Jesus Christ."
 

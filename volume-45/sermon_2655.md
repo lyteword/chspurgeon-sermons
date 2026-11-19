@@ -1,7 +1,7 @@
 # Sermon 2655 | Decided Ungodliness
 
 > They have refused to return.  
-> Jeremiah 5:3.  
+> Jeremiah 5:3  
 
 There is, in the heart of every one of us, the primary evil of sin. We have all transgressed against the Lord. So far, so bad, but that natural sin of ours may be greatly increased by a refusal to turn from it. It is bad enough to have violated God's righteous Law, but to refuse to repent and to continue presumptuously in our iniquity must greatly increase our guilt in the sight of God. This guilt may be still further increased if we refuse to return unto the Lord when we are earnestly and affectionately invited to yield submission to Him. If gracious terms of peace are presented to us and matchless promises of blessing are made to us on condition that we return, and if we are often warned, often entreated, often threatened and yet we still refuse to return, then we continue to pile sin upon sin, till we make our first transgression to be incredibly great.
 

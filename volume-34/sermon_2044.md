@@ -1,9 +1,10 @@
 # Sermon 2044 | All At It
 
-> "Therefore they that were scattered abroad went everywhere preaching the Word. Then Philip went down to the city of Samaria, and preached Christ unto them."  
-> Acts 8:4,5.  
+> Therefore they that were scattered abroad went everywhere preaching the Word. Then Philip went down to the city of Samaria, and preached Christ unto them.  
+> Acts 8:4,5  
 
-"Then Philip opened his mouth and began at the same Scripture, and preached unto him Jesus."  Acts 8:35.
+> Then Philip opened his mouth and began at the same Scripture, and preached unto him Jesus.  
+> Acts 8:35  
 
 "They that were scattered abroad went everywhere preaching the Word." God intended that His Church should be scattered over the world. There was a tendency in our humanity at first to remain together. Hence the first gray fathers endeavored to build a central tower, around which the race should rally. But God confounded their language and scattered them from Babel, that they might people all the world. Jerusalem was at first the central point of Christianity. The Church there was highly favored with its twelve Apostles and a multitude of minor lights. And the tendency would have been to keep the center strong.
 

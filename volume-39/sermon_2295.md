@@ -1,10 +1,10 @@
 # Sermon 2295 | God's People, or Not God's People
 
 > I will have mercy upon her that had not obtained mercy; and I will say to them which were not My people, You are My people; and they shall say, You are my God.  
-
 > Hosea 2:23  
 
-"As He says also in Hosea, I will call them My people, which were not My people; and her beloved, which was not beloved." Romans 9:25.
+> As He says also in Hosea, I will call them My people, which were not My people; and her beloved, which was not beloved.  
+> Romans 9:25  
 
 To my mind, it is very instructive to notice how Paul quotes from the Prophets. The Revelation of the mind of God in the Old Testament helps us to understand the Gospel revealed in the New Testament. There is no authority that is so powerful over the minds of Christian men as that of the Word of God. Has God made known any Truth in His Word? Then it is invested with Divine authority! Paul, being himself Inspired by the Holy Spirit and, therefore, able to write fresh Revelations of the mind of God, here brings the authority of God's Word in the olden times to back up and support what he says: "As he says also in Hosea."
 

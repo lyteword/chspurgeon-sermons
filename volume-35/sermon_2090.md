@@ -1,7 +1,7 @@
 # Sermon 2090 | A Delicious Experience
 
-> "For we which have believed do enter into rest, as He said, As I have sworn in My wrath, if they shall enter into My rest."  
-> Hebrews 4:3.  
+> For we which have believed do enter into rest, as He said, As I have sworn in My wrath, if they shall enter into My rest.  
+> Hebrews 4:3  
 
 Last Sabbath we meditated upon the fact that those who came out of Egypt did not enter into the rest of God. "They could not enter in because of unbelief." Today I shall not seek so much to warn as to encourage, while we look at the way by which we can enter into the true rest. The faithful minister of God should be like the parent birds, who, when their young are old enough for flight, sometimes drive them from the nest to make them fly. And, at other times, go before them, twittering and stretching out their wings, to tempt their callow offspring to try the air.
 

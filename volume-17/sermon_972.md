@@ -1,6 +1,6 @@
 # Sermon 972 | New Uses for Old Trophies
 
-> "King David's spears and shields, that were in the temple of the Lord."  
+> King David's spears and shields, that were in the temple of the Lord.  
 > 2 Kings 11:10  
 
 When David had fought with an adversary, and overcome him, he took away his armor and his weapons, and as other victorious heroes were likely to do, he bore them home as mementoes of his prowess, the trophies of the battle. These were placed in the house of the Lord. Perhaps David, at the same time, dedicated in like manner the shield and the sword which he had himself used in battle. After Solomon had built the temple, these trophies, which seem to have been very numerous, were hung up there. So they adorned the walls. So they illustrated the valor of noble sires. So they served to kindle emulation, I doubt not, in the breasts of true-hearted sons.

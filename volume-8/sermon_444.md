@@ -1,6 +1,6 @@
 # Sermon 444 | The Portion Of The Ungodly
 
-> "Behold, they shall be as stubble. The fire shall burn them. They shall not deliver themselves from the power of the flame: it shall not be a coal to be warmed by, nor a fire to sit before."  
+> Behold, they shall be as stubble. The fire shall burn them. They shall not deliver themselves from the power of the flame: it shall not be a coal to be warmed by, nor a fire to sit before.  
 > Isaiah 47:14  
 
 This text is part of a terrible description of God's judgment upon Babylon and Chaldea. The Prophet had clearly written out the indictment of the Lord against that tyrannical people, and having proved their guilt he pronounces their sentence. He accused them of showing no mercy to the inheritance of the Lord which, in His wrath, He had given into their hands. He charges them with pride and boastfulness, for Chaldea had said in her heart, "I am and there is none beside me." And Babylon had boasted, "I shall be a lady forever. I shall see no sorrow."

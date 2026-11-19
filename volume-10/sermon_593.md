@@ -1,7 +1,7 @@
 # Sermon 593 | Inward Conflicts
 
-> "Return, return, O Shulamite; return, return, that we may look upon you. What will you see in the Shulamite? As it were the company of two armies."  
-> Song of Solomon 6:13.  
+> Return, return, O Shulamite; return, return, that we may look upon you. What will you see in the Shulamite? As it were the company of two armies.  
+> Song of Solomon 6:13  
 
 This verse is not addressed to the Church in her doubting state, nor while seeking her absent Lord, but it refers to her in her very best condition, when she has lately come from the enjoyment of fellowship with her Divine spouse and when her soul, in consequence is like the chariots of Amminadib. Read the context and you will perceive that Believers who are rejoicing in the Lord may look upon this text as their own. Observe the title of the person addressed: it is a marriage name. She has been espoused to Solomon and she has taken his name and become Solyma, for such is the best rendering of the word rendered Shulamite. This name is appropriate to souls who are united to Christ, to those whom Christ has betrothed unto Himself in righteousness, who live in union with their Lord.
 

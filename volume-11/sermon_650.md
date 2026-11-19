@@ -1,7 +1,7 @@
 # Sermon 650 | Judgment Threatening But Mercy Sparing
 
 > Cut it down; why does it use up the ground? But he answered and said to him, Lord, let it alone this year also.  
-> Luke 13:7,8.  
+> Luke 13:7,8  
 
 The comparison of a man to a tree and of human works to fruit is exceedingly common in Scripture because it is most suggestive, natural, and appropriate. As fruit is the production of the tree's life and the end for which the tree exists, so obedience to the Divine will and holiness unto the Lord should be the product of man's life and for it he was at first created. When men plant trees in a vineyard, they very naturally expect to find fruit on them. And if at the age and season of fruit bearing they find no produce, their natural and justifiable expectation is disappointed.
 

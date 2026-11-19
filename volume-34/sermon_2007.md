@@ -1,7 +1,7 @@
 # Sermon 2007 | Holding Fast the Faith
 
-> "And to the angel of the Church in Pergamos write: These things says He which has the sharp sword with two edges. I know your works and where you dwell, even where Satan's seat is: and you hold fast My name and have not denied My faith."  
-> Revelation 2:12,13.  
+> And to the angel of the Church in Pergamos write: These things says He which has the sharp sword with two edges. I know your works and where you dwell, even where Satan's seat is: and you hold fast My name and have not denied My faith.  
+> Revelation 2:12,13  
 
 Your attention will be principally asked to these words: "You hold fast My name and have not denied My faith."
 

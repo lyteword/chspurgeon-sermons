@@ -1,7 +1,7 @@
 # Sermon 719 | Praying In The Holy Spirit
 
-> "Praying in the Holy Spirit."  
-> Jude 1:20.  
+> Praying in the Holy Spirit.  
+> Jude 1:20  
 
 These words occur in a passage where the Apostle is indicating the contrast between the ungodly and the godly. The ungodly are mocking, speaking great swelling words and walking after their ungodly lusts, while the righteous are building themselves up in their most holy faith, and keeping themselves in the love of God. The ungodly are showing the venom of their hearts by mourning and complaining, while the righteous are manifesting the new principle within them by "praying in the Holy Spirit." The ungodly man bears wormwood in his mouth, while the Christian's lips drop with the virgin honey of devotion. As the spider is said to find poison in the very flowers from which the bees suck honey, so do the wicked abuse to sin the same mercies which the godly use to the glory of God.
 

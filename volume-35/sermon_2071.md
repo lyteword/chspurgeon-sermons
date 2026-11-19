@@ -1,7 +1,7 @@
 # Sermon 2071 | Trembling at the Word of the Lord
 
-> "To this man will I look, even to him that is poor and of a contrite spirit and trembles at My Word."  
-> Isaiah 66:2.  
+> To this man will I look, even to him that is poor and of a contrite spirit and trembles at My Word.  
+> Isaiah 66:2  
 
 Portrait painting is a great art. Many pretend to it but the masters of the art are few. In the Word of God we have a gallery of portraits so accurate, so striking, that only the hand of the Lord could have drawn them. Most of us have been startled to see our own portrait there. The best of all is that at the bottom of each likeness we have the Lord's judgment upon the character so that we are able to form an estimate of what our true condition is before the Lord. Here you have a man drawn; he is poor and of a contrite spirit and trembles at the Word of the Lord. Here, also, you have the Lord's estimate of him: "To this man will I look."
 

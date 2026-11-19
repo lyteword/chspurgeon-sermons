@@ -1,7 +1,7 @@
 # Sermon 299 | Sin Immeasurable
 
-> Who can understand his errors?    
-> Psalm 19:12.    
+> Who can understand his errors?  
+> Psalm 19:12  
 
 What we know is as nothing when compared with what we know not. The sea of wisdom has cast up a shell or two upon our shore, but its vast depths have never known the footstep of the searcher. Even in natural things we know but the surface of matters. He that has traveled the wide world over, and has descended into its deepest mines, must yet be aware that he has viewed but a part of the mere crust of this world; that as for its vast center, its mysterious fires and molten secrete, the mind of man hath not as yet conceived them. If you will turn your eyes above, the astronomer will tell you that the undiscovered stars, that the vast mass of worlds which form the milky way, and the abundant masses of nebulae&mdash;that those vast clusters of unknown worlds, as infinitely exceed the little that we can explore, as a mountain exceeds a grain of sand. All the knowledge which the wisest men can possibly attain in a whole life-time, is no more than what the child may take up from the sea with his tiny cup, compared with the boundless waters which fill their channels to the brim. Why, when we are at the wisest, we have but come to the threshold of knowledge, we have taken but one step in that race of discovery which we may have to pursue throughout all eternity. This is equally the case with regard to things of the heart, and the spiritual things which concerns this little world called man. We know nothing but the surface of things. Whether I talk to you of God, of his attributes, of Christ, of his atonement, or of ourselves and our sin, I must confess that as yet we know nothing but the exterior; that we cannot comprehend the length, the breadth, the height of any one of these matters.
 

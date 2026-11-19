@@ -3,7 +3,7 @@
 > And it shall come to pass, when you are multiplied and increased in the land, in those days, says the Lord, they shall say no more, The ark of the co venant of the Lord: neither shall it come to mind: neither shall they remember it; neither shall they visit it; neither shall that be done any more.  
 > Jeremiah 3:16  
 
-This text speaks concerning the material ark. I should like to append to that another which speaks of the ark spiritually and tells us where its antitype is to be found: "And the temple of God was opened in Heaven and there was seen in His temple the ark of His testament (or covenant) "Revelation 1119.
+This text speaks concerning the material ark. I should like to append to that another which speaks of the ark spiritually and tells us where its antitype is to be found: "And the temple of God was opened in Heaven and there was seen in His temple the ark of His testament (or covenant)" Revelation 11:19.  
 
 When inward piety is low, the externals of religion are frequently cried up. Those who know nothing of God are the very people to exclaim concerning themselves and their brethren, "The temple of the Lord, the temple of the Lord are these." The Pharisees, who were furthest from God, were the most bitter advocates of ritualism and formalism. They would not even have a man healed on the Sabbath, or allow the hungry to rub a few ears of corn out of the husks! It is not always so, but yet too often, "The nearer the Church the further from God." The more grown, the less Grace. The more phylactery, the less sanctity. The more of ecclesiasticism, the less of true godliness.
 

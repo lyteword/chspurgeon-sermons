@@ -1,7 +1,7 @@
 # Sermon 2100 | Faith Essential to Pleasing God
 
-> "But without faith it is impossible to please Him: for he that comes to God must believe that He is and that He is a Rewarder of them that diligently seek Him."  
-> Hebrews 11:6.  
+> But without faith it is impossible to please Him: for he that comes to God must believe that He is and that He is a Rewarder of them that diligently seek Him.  
+> Hebrews 11:6  
 
 Men have lived who have pleased God; Enoch was one of them but he was not the only one. In all ages certain persons have been well-pleasing to God, and their walk in life has been such as was His delight. It should be the aim of everyone of us to please God. The thing is possible, notwithstanding all our imperfections and infirmities; let us aim at it in the power of the Holy Spirit. What has been worked in one man may be worked in another. We, too, may be well-pleasing unto God. Therefore let us seek after it with hopefulness. If we so live as to please the Lord, we shall only be acting as we ought to act. For we ought to please Him who made us and sustains us in being. He is our God and Lord, and obedience to Him is the highest Law of our being.
 

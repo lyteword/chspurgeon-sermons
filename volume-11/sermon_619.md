@@ -1,7 +1,7 @@
 # Sermon 619 | The Golden Key Of Prayer
 
 > Call unto Me and I will answer you and show you great and mighty things, which you know not.  
-> Jeremiah 33:3.  
+> Jeremiah 33:3  
 
 Some of the most learned works in the world smell of midnight oil. But the most spiritual and most comforting books and sayings of men usually have a savor about them of prison dampness. I might quote many instances: John Bunyan's Pilgrim may suffice instead of a hundred others. And this good text of ours, all moldy and cold with the prison in which Jeremiah lay, has nevertheless a brightness and a beauty about it which it might never have had if it had not come as a cheering word to the prisoner of the Lord shut up in the court of the prison.
 

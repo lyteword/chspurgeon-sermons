@@ -1,7 +1,7 @@
 # Sermon 574 | The Superlative Excellence Of The Holy Spirit
 
-> "Nevertheless I tell you the truth. It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send Him unto you."  
-> John 16:7.  
+> Nevertheless I tell you the truth. It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send Him unto you.  
+> John 16:7  
 
 The saints of God may very justly reckon their losses among their greatest gains. The adversities of Believers minister much to their prosperity. Although we know this, through the infirmity of the flesh we tremble at soul-enriching afflictions and dread to see those black ships which bring us such freights of golden treasure. When the Holy Spirit sanctifies the furnace, the flame refines our gold and consumes our dross, yet the dull ore of our nature likes not the glowing coals and had rather lie quiet in the dark mines of earth. As silly children cry because they are called to drink the medicine which will heal their sicknesses, even so do we.
 

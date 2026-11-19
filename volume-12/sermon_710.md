@@ -1,7 +1,7 @@
 # Sermon 710 | The Great White Throne
 
-> "And I saw a great white throne, and Him that sat on it, from whose face the earth and the Heaven fled away. And there was found no place for them."  
-> Revelation 20:11.  
+> And I saw a great white throne, and Him that sat on it, from whose face the earth and the Heaven fled away. And there was found no place for them.  
+> Revelation 20:11  
 
 Many of the visions which John saw are very obscure, and although a man who is assured of his own salvation may possibly be justified in spending his days in endeavoring to interpret them, yet I am sure of this: it will not be a profitable task for unconverted persons. They have no time to spare for speculations, for they have not yet made sure of positive certainties. They need not dive into difficulties, for they have not yet laid a foundation of simplicities by faith in Christ Jesus. Better far to meditate upon the Atonement than to be guessing at the little horn. Better far to know the Lord Jesus in His power to save, than to fabricate an ingenious theory upon the number of the beast.
 

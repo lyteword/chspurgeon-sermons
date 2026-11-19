@@ -1,7 +1,7 @@
 # Sermon 506 | Strong Meat
 
-> "But strong meat belongs to them that are of full age, even those who by reason of use have their senses exercised to discern both good and evil."  
-> Hebrews 5:14.  
+> But strong meat belongs to them that are of full age, even those who by reason of use have their senses exercised to discern both good and evil.  
+> Hebrews 5:14  
 
 In most large houses we shall find humanity in all its stages. We shall see the infant in its cradle, children laughing in their play, young men working with vigor, and the old man resting in peace in such a mansion. If a careful Martha is in charge, provisions will be made for all the different ages. There will be milk provided for the babes, and the pantry will not be without solid meat for the full grown men.
 

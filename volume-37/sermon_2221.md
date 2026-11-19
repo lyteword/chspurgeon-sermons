@@ -3,7 +3,8 @@
 > But many who are first will be last, and the last, first.  
 > Matthew 19:30  
 
-"So the last will be first, and the first, last." Matthew20:16.
+> So the last will be first, and the first, last.  
+> Matthew 20:16  
 
 We must be saved if we would serve the Lord. We cannot serve God in an unsaved condition. "They that are in the flesh cannot please God." It is vain for them to attempt service while they are still at enmity against God. The Lord wants not enemies to wait upon Him, nor slaves to grace His Throne. We must first be saved, and salvation is all of Grace. "By Grace are you saved through faith." After we are saved and as the result of salvation, we serve. Saved; we serve! He that is saved becomes a child of God and then he renders a child-like service in his Father's house. That service is also all of Grace! He serves not under the Law of the old commandment, "This do, and you shall live," for he is not under the Law, but under Grace. Therefore, sin shall not have dominion over him, but Grace shall have dominion over him, and he shall seek to serve the Lord and please Him all the days of his life. When we are saved, we must never forget that we are saved that we may serve; made free from sin, that we may become servants of God. David says, "O Lord, truly I am Your servant; I am Your servant and the son of Your handmaid: You have loosed my bonds." Because our bonds are loosed, we are under new bonds, bonds of love which bind us to the service of the Most High.
 

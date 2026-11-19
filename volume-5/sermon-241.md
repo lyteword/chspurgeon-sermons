@@ -1,7 +1,7 @@
 # Sermon 241 | Predestination and Calling
 
-> Moreover whom he did predestinate, them he also called.    
-> Romans 8:30    
+> Moreover whom he did predestinate, them he also called.  
+> Romans 8:30  
 
 The great book of God's decrees is fast closed against the curiosity of man. Vain man would be wise; he would break the seven seals thereof, and read the mysteries of eternity. But this cannot be; the time has not yet come when the book shall be opened, and even then the seals shall not be broken by mortal hand, but it shall be said, "The lion of the tribe of Judah hath prevailed to open the book and break the seven seals thereof."
 

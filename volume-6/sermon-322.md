@@ -1,7 +1,7 @@
 # Sermon 322 | A Divine Challenge!
 
-> Thus says the Lord, let My people go, that they may serve Me.    
-> Exodus 8:1.    
+> Thus says the Lord, let My people go, that they may serve Me.  
+> Exodus 8:1  
 
 On two or three former occasions I have endeavored to insist upon the fact that God always puts a distinction between Israel and Egypt. He constantly speaks of the Israelites as "My people"&mdash;of the Egyptians, he speaks to Pharaoh as being "your people." There is a continual and eternal distinction observed in the Word of God between the chosen seed of promise and the world&mdash;the children of the Wicked One. The great objective of God's interference with Egypt was not the blessing of Egypt at large, but the gathering out of His Israel from the midst of the Egyptians. Beloved, I have the conviction that this is just what God is doing with the world now. Perhaps, for many a year to come, God will gather out His elect from the nations of the earth as He gathered His Israel from the midst of the Egyptians. You and I may not live to see that universal reign, of which we so joyously sang this morning; but the wheat will be gathered into the garner, sheaf by sheaf, if not ear by ear. The tares will be left to ripen here, perhaps, until the great and terrible day the Lord comes. At any rate, looking at the signs of the times, we do not see any considerable progress made in the evangelization of the world. Egypt is still Egypt&mdash;the world is still the world&mdash;and as worldly as it ever was, and God's purpose seems to be, through the ministry which He now exercises, to bring His chosen ones out. In fact, the Word which Jehovah is now speaking to the entire world with the solemn authority of an imperial mandate is this&mdash;"Thus says the Lord, let My people go, that they may serve Me."
 

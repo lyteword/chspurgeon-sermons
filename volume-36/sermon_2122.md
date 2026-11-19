@@ -1,7 +1,7 @@
 # Sermon 2122 | A Straight Talk
 
-> "I cannot come."  
-> Luke 14:20.  
+> I cannot come.  
+> Luke 14:20  
 
 There are different ways of replying to the invitation of the Gospel when you mean to refuse it. They are all, at best, bad, and they may all be classed under one head, for, "they all with one consent began to make excuses." But yet some are more decently worded than others and have a greater show of reason about them. The first two sets of people who were invited to the supper said to the servant, apologetically, with some appearance of courtesy, "I pray you have me excused." But the third man did not beat about the bush at all, or pray to be excused; he said tersely, bluntly, sharply: "I cannot come." This was a final reply. He did not intend, nor wish to come to the supper. "I cannot come," was a snappish reply but as he had married a wife, he thought the idea of his coming was utterly unreasonable and he needed no sort of excuse.
 

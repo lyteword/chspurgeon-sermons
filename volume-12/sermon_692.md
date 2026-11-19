@@ -1,7 +1,7 @@
 # Sermon 692 | Joy And Peace In Believing
 
-> "Joy and peace in believing."  
-> Romans 15:13.  
+> Joy and peace in believing.  
+> Romans 15:13  
 
 I would address myself, this morning, to a special class and if there should be no spiritual instruction for others, I trust that they will follow what is said with their prayers, that the word may be useful to those for whom it is mainly intended. There are a large number of persons who profess to have believed in the Lord Jesus Christ but who assert that they have no joy and peace in believing. They do not make this profession by union with the Christian Church or in any open manner, but when they are pushed upon the matter of personal salvation, they will sometimes tell us, "I do believe in Christ, but still I am so unhappy, I am so miserable, that I cannot believe that I am saved."
 

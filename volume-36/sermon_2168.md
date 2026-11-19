@@ -1,7 +1,7 @@
 # Sermon 2168 | The Test of Taste
 
-> "If so be you have tasted that the Lord is gracious."  
-> 1 Peter 2:3.  
+> If so be you have tasted that the Lord is gracious.  
+> 1 Peter 2:3  
 
 I think there can be very little doubt that Peter is here quoting from Psalm 34:8: "O taste and see that the Lord is good." As I read you the chapter just now, I could not help observing the constant traces of Old Testament language. It endears Peter to us when we see how he prizes the ancient Word of the Lord and, at the same time, it puts honor upon the Old Testament itself when we see the Holy Spirit in the New thus quoting from the Old. It is noteworthy that in Psalm 34:8 the Lord God is spoken of. The passage actually runs: "O taste and see that Jehovah is good" and Peter does not hesitate for a moment to apply the passage to the Lord Jesus. The word, "Lord," is here used in its utmost fullness of meaning as the equivalent for Jehovah and it is applied to our Savior Jesus Christ.
 

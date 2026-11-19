@@ -1,7 +1,7 @@
 # Sermon 689 | Temptations On The Pinnacle
 
-> "Then the devil took Him up into the holy city, set Him on the pinnacle of the temple, and said to Him, If You are the Son of God, throw Yourself down, for it is written, 'He shall give His angels charge over You,' and, 'in their hands they shall bear You up, lest at any time You dash Your foot against a stone.' Jesus said to him, 'It is written again, You shall not tempt the Lord your God.'"  
-> Matthew 4:5-7.  
+> Then the devil took Him up into the holy city, set Him on the pinnacle of the temple, and said to Him, If You are the Son of God, throw Yourself down, for it is written, 'He shall give His angels charge over You,' and, 'in their hands they shall bear You up, lest at any time You dash Your foot against a stone.' Jesus said to him, 'It is written again, You shall not tempt the Lord your God.'  
+> Matthew 4:5-7  
 
 The clearest and most important exposition of the Revelation of God in the inspired Book is the Revelation of God in the renewed man. Every Christian will discover, in proportion to his advances in Divine knowledge, that the very things which are written in these hallowed pages are written in his own experience. We never fully understand Divine Truth until we have experienced it. The diamond of Divine promise never glistens so brightly as when it is placed in the setting of personal trial and experience. And the gold of sacred Truth is not valued until it has been tried "so as by fire." Holy Scripture is full of narratives of temptations. Expect, therefore, Christian, that your life will be as abundantly garnished with them as is a rose with thorns.
 

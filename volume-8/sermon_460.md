@@ -1,6 +1,6 @@
 # Sermon 460 | Faith and Repentance Inseparable
 
-> "Repent ye, and believe the gospel."  
+> Repent ye, and believe the gospel.  
 > Mark 1:15  
 
 Our Lord Jesus Christ commences his ministry by announcing its leading commands. He cometh up from the wilderness newly anointed, like the bridegroom from his chamber; his love notes are repentance and faith. He cometh forth fully prepared for his office, having been in the desert, "tempted in all points as we are, yet without sin"; his loins are girded like a strong man to run a race. He preacheth with all the earnestness of a new zeal, combined with all the wisdom of a long preparation; in the beauty of holiness from the womb of morning he glittereth with the dew of his youth. Hear, O heavens, and give ear, O earth, for Messias speaketh in the greatness of his strength. He crieth unto the sons of men, "Repent ye, and believe the gospel." Let us give our ears to these words which, like their author, are full of grace and truth. Before us we have the sum and substance of Jesus Christ's whole teaching, the Alpha and Omega of his entire ministry; and coming from the lips of such an one, at such a time, with such peculiar power, let us give the most earnest heed, and may God help us to obey them from our inmost hearts.

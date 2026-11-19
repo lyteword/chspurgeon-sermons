@@ -1,7 +1,7 @@
 # Sermon 1993 | Driving the Vultures Away from the Sacrifice
 
-> "And when the fowls came do wn upon the carcasses, Abram drove them away."  
-> Genesis 15:11.  
+> And when the fowls came do wn upon the carcasses, Abram drove them away.  
+> Genesis 15:11  
 
 Abraham, when he was childless, received the amazing promise that his seed should be as the stars of Heaven for number. This he believed and his faith in Jehovah "was counted unto him for righteousness." Surely there is more righteousness in trusting the Lord than in all the works of the flesh! Those who speak lightly of faith are of a different mind from the Lord, whose judgment is according to truth.
 

@@ -1,7 +1,7 @@
 # Sermon 595 | Barabbas Preferred To Jesus
 
-> "Then cried they all again, saying, Not this man, but Barabbas. Now Barabbas was a robber."  
-> John 18:40.  
+> Then cried they all again, saying, Not this man, but Barabbas. Now Barabbas was a robber.  
+> John 18:40  
 
 The custom of delivering a prisoner upon the day of the Passover was intended, no doubt, as an act of grace on the part of the Roman authorities towards the Jews. And by the Jews it may have been accepted as a significant compliment to their Passover. Since on that day they, themselves, were delivered out of the land of Egypt, they may have thought it to be most fitting that some imprisoned person should obtain his liberty. There was no warrant, however, in Scripture for this, it was never commanded by God, and it must have had a very injurious effect upon public justice. The ruling authority would discharge a criminal, quite irrespective of his crimes or of his repentance, letting him loose upon society, simply and only because a certain day must be celebrated in a peculiar manner.
 

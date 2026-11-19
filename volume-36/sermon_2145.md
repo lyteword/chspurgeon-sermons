@@ -1,7 +1,7 @@
 # Sermon 2145 | Scriptural Salvation
 
-> "For the Scripture says, Whoever believes on Him shall not be ashamed."  
-> Romans 10:11.  
+> For the Scripture says, Whoever believes on Him shall not be ashamed.  
+> Romans 10:11  
 
 The shepherd on the hill is most of all anxious about his sheep; he cares for his cottage, he trains the woodbine around his porch, sows flowers before his door and digs his little plot of garden ground, but, since he is a shepherd, his chief thought follows his flock and especially any of the sheep that are wandering, or the lambs that are tender. Even so I feel that my main business is the saving of souls. I may fitly preach to you upon any Scriptural subject and I may minister to the delight of the family of the redeemed. I may lead them into the deep things of God, but my principal business must always be watching for souls. This one thing I do.
 

@@ -1,7 +1,7 @@
 # Sermon 609 | Knowledge Commended
 
 > But the people that know their God shall be strong and do exploits. And they that understand among the people shall instruct many.  
-> Daniel 11:32,33.  
+> Daniel 11:32,33  
 
 The uninspired book of the Maccabees is perhaps the best interpreter of this passage in Daniel. The Prophet, we think, refers to the great persecution under Antiochus, when the followers of Judas Maccabees, knowing their God and keeping close to Him amidst general defection, refused to bow before the idols of Syria. These were strong, by God's Divine Grace, and did great exploits: wonders of valor we read of in the history of Judas and his brethren, and wonders of heroic suffering never surpassed are recounted of the mother and sons and those other martyrs who, under tortures of the most amazing kind, held fast their faith even to the end. In that age there were some who were stoned, who were sawn asunder, who felt the violence of fire and yet were not separated from their God by all that the foe could do.
 

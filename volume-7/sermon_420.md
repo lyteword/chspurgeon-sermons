@@ -1,6 +1,6 @@
 # Sermon 420 | Abram And The Ravenous Birds
 
-> "But when the fowls came down upon the carcasses, Abram drove them away."  
+> But when the fowls came down upon the carcasses, Abram drove them away.  
 > Genesis 15:11  
 
 We might use this text, if we chose, as a picture of the ease with which faith repels all attacks that are made upon Christ, the great sacrifice of the new Covenant. Ainsworth tells us that the original word which we translate "drove" has in it the force of "puffed" them away. As if with a very puff of breath these kites and vultures and eagles, were at once driven away from the bodies of the victims. Faith knows how, when skeptical kites when blaspheming vultures, when speculative eagles come down to attack the sacrifice of Christ, to chase them away with but a puff of her breath. "We know whom we have believed."

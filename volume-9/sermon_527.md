@@ -1,7 +1,7 @@
 # Sermon 527 | The Red Heifer
 
-> "This is the ordinance of the law, which the Lord has commanded, saying, Speak unto the children of Israel, that they bring you a red heifer without spot, wherein is no blemish and upon which never came yoke: and you shall give her unto Eleazar the priest, that he may bring her forth without the camp and one shall slay her before his face."  
-> Numbers 19:2, 3.  
+> This is the ordinance of the law, which the Lord has commanded, saying, Speak unto the children of Israel, that they bring you a red heifer without spot, wherein is no blemish and upon which never came yoke: and you shall give her unto Eleazar the priest, that he may bring her forth without the camp and one shall slay her before his face.  
+> Numbers 19:2, 3  
 
 The true heading of all the books of Moses is to be found in the words of Jesus, "Moses wrote of Me." Take the Lord Jesus Christ with you as a key, and however difficult the riddles of Leviticus or Numbers may at first sight appear, there is not one enigma in the whole collection which will not speedily open and yield instruction. To the Israelites themselves, these rites and ceremonies must have been rather an exercise of faith, than a means of instruction. "I cannot perfectly understand why this heifer is slain, or why yonder lamb is offered," said the pious Israelite, "but though I cannot understand, I believe there is virtue in it all and I reverently do, even to the smallest particular, that which God, through His servant Moses, has commanded me to do."
 

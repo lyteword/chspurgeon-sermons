@@ -1,7 +1,7 @@
 # Sermon 530 | The Chief Of Sinners
 
-> "Sinners; of whom I am chief."  
-> 1 Timothy 1:15.  
+> Sinners; of whom I am chief.  
+> 1 Timothy 1:15  
 
 Who among all the Scriptural writers can compare with Paul in the fullness of his testimony to the Grace of God? Upon the Doctrines of Grace, upon the experience of Divine Grace, upon everything that has to do with the exceeding abundant Grace of God through our Lord Jesus Christ, Paul is the mighty master and the great teacher. If it were right to look at him from an exclusively human point of view and speak of his genius rather than his inspiration, I might say of him that so mighty, so clear, so eloquent a teacher of the Truth of God has never existed since the days of our Lord Jesus Christ.
 

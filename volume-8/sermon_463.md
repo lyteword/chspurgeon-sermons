@@ -1,6 +1,6 @@
 # Sermon 463 | Christ's Servant: His Duty And Reward
 
-> "If any man serve Me, let him follow Me. And where I am, there shall also My servant be: if any man serve Me, him will My Father honor."  
+> If any man serve Me, let him follow Me. And where I am, there shall also My servant be: if any man serve Me, him will My Father honor.  
 > John 12:26  
 
 How many persons are of the religion of the Greeks who are mentioned in this chapter! They would see Jesus, but they would not serve Him. Impelled by curiosity they would know somewhat of this matter. They would investigate the claims of Christ to the Messiahship, and they would consider the special truths by which He professes to illuminate the world, but beyond this they would not venture. They give their minds to criticize. They are not indifferent to the Gospel, but they regard it with the same interest as that with which a naturalist would look upon a newly discovered insect, or a geologist would study a section of the earth's crust.

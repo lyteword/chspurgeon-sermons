@@ -1,7 +1,7 @@
 # Sermon 2087 | Grace For Grace
 
-> "Now we have received, not the spirit of the world but the spirit which is of God, that we might know the things that are freely given to us of God."  
-> 1 Corinthians 2:12.  
+> Now we have received, not the spirit of the world but the spirit which is of God, that we might know the things that are freely given to us of God.  
+> 1 Corinthians 2:12  
 
 The course of our fallen race has been a succession of failures. Whenever there has been an apparent rise, it has been followed by a real fall. Into ever-increasing darkness the human mind seems resolved to plunge itself in its struggles after a false light. When men have been fools, they have danced in a delirium of sin. When they have been sober, they have given themselves up to a phantom wisdom of their own, which has revealed their folly more than ever. It is a sad story, the story of mankind! Read it in the light of God's Word and it will bring tears from your very heart.
 

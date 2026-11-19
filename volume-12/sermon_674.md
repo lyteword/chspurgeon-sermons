@@ -1,7 +1,7 @@
 # Sermon 674 | The Mighty Arm
 
-> "You have a mighty arm: strong is Your hand, and high is Your right hand."  
-> Psalm 89:13.  
+> You have a mighty arm: strong is Your hand, and high is Your right hand.  
+> Psalm 89:13  
 
 We are, during the coming week humbly but earnestly to beseech of God for days of refreshing and seasons of revival. It is well for us at the outset distinctly to remind ourselves of the source from where all the strength must come. No genuine revival can ever arise from the flesh. "That which is born of the flesh is flesh." Human excitement at the utmost, and carnal zeal at its extremity, can do nothing towards the real conversion of souls. Here we are taught the lesson, "not by might nor by power."
 

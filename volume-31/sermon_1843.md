@@ -1,7 +1,7 @@
 # Sermon 1843 | A Question for a Questioner
 
-> "Hath God forgotten to be gracious?"  
-> Psalm 77:9.  
+> Hath God forgotten to be gracious?  
+> Psalm 77:9  
 
 Asaph was very grievously troubled in spirit. The deep waters were not only around his barque, but they had come in even unto his soul. When the spirit of a man is wounded, then is he wounded indeed; and such was the case with this man of God. In the time of his trouble he was attacked with doubts and fears; so that he was made to question the very foundations of things. Had he not taken to continual prayer he had perished in his affliction; but he cried unto God with his voice, and the Lord gave ear unto him. Nor did he only pray, but he used the fittest means for escaping from his despondency. Very wisely this good man argued with himself, and sought to cure his unbelief. He treated himself homoeopathically, meeting like with like. As he was attacked by the disease of questioning, he gave himself questions as a medicine. Observe how he kills one question with another, as men fight fire with fire. Here we have six questions, one after another, each one striking at the very heart of unbelief. "Will the Lord cast off for over? Will he be favourable no more? Is his mercy clean gone for ever? Doth his promise fail for evermore? Hath God forgotten to be gracious? Hath he in anger shut up his tender mercies?" If questions are raised at all let us go through with them; and as the Saviour answered one question of his opponents by another, so may we also silence the questions of unbelief by further questions which shall strip our doubt of all disguises.
 

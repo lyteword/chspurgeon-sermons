@@ -1,7 +1,7 @@
 # Sermon 606 | Mary's Song
 
-> "And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savior."  
-> Luke 1:46, 47.  
+> And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savior.  
+> Luke 1:46, 47  
 
 Mary was on a visit when she expressed her joy in the language of this noble song. It were well if all our social communion were as useful to our hearts as this visit was to Mary. "Iron sharpens iron, so a man sharpens the countenance of his friend." Mary, full of faith, goes to see Elizabeth, who is also full of holy confidence and the two are not long together before their faith mounts to full assurance and their full assurance bursts forth in a torrent of sacred praise!
 

@@ -1,12 +1,13 @@
 # Sermon 2335 | Three Texts, But One Subject: Faith
 
 > In the shadow of Your wings will I make my refuge.  
-
 > Psalm 57:1  
 
-"Cast your burden upon the Lord, and He shall sustain you." Psalm 55:22.
+> Cast your burden upon the Lord, and He shall sustain you.  
+> Psalm 55:22  
 
-"Let him trust in the name of the Lord, and stay upon his God." Isaiah 50:10.
+> Let him trust in the name of the Lord, and stay upon his God.  
+> Isaiah 50:10  
 
 It is the preacher's business to endeavor to make plain to the people the meaning of the word, faith. Inasmuch as salvation comes by believing, it is most important that men should know what believing is, and though we have to preach upon many topics and take the whole range of the Word of God, yet it often behooves the minister of Christ to dwell especially upon the way whereby men are saved and to explain what is that step by which they enter into eternal life. You may think that it is very easy to explain faith and so it is, but it is still easier to confuse people with your explanation. There is nothing simpler in the world than to believe in Christ Jesus, yet probably there is nothing more difficult than to explain to a man what it is to believe in the Lord Jesus, not that the thing, itself, is difficult, but the explaining of it is not so easy.
 

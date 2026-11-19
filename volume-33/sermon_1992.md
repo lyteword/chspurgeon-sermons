@@ -1,7 +1,7 @@
 # Sermon 1992 | Song for the Free, Hope for the Bound
 
-> "He brought them out of darkness and the shadow of death, and broke their chains in pieces. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! For He has broken the gates of brass and cut the bars of iron in two."  
-> Psalm 107:14-16.  
+> He brought them out of darkness and the shadow of death, and broke their chains in pieces. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! For He has broken the gates of brass and cut the bars of iron in two.  
+> Psalm 107:14-16  
 
 My anxious, prayerful desire this morning is that some who have been in the condition described in the text may come out of it into full redemption. They have been too long in prison and now the silver trumpet sounds, liberty to the captives! Jesus has come into the world to break the gate of brass and to cut the bars of iron in two. Oh, that my prayer might be heard for those who are in bondage! I trust that some of those who are now immured in the dungeon of despondency will say, "Amen," to my prayer and, if they are praying inside and we are praying outside, and the Lord Jesus Christ, Himself, comes to open the prison doors, then there will be a Jubilee before long.
 

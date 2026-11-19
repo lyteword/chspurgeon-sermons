@@ -1,6 +1,6 @@
 # Sermon 994 | The Prayer of Jabez
 
-> "Oh that thou wouldest bless me indeed!"  
+> Oh that thou wouldest bless me indeed!  
 > 1 Chronicles 4:10  
 
 We know very little about Jabez, except that he was more honorable than his brethren, and that he was called Jabez because his mother bare him with sorrow. It will sometimes happen that where there is the most sorrow in the antecedents, there will be the most pleasure in the sequel. As the furious storm gives place to the clear sunshine, so the night of weeping precedes the morning of joy. Sorrow the harbinger; gladness the prince it ushers in. Cowper says:—

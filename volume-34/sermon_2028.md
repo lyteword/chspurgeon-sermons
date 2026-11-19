@@ -1,7 +1,7 @@
 # Sermon 2028 | The Love of God and the Patience of Christ
 
-> "And the Lord direct your hearts into the love of God, and into the patient waiting for Christ."  
-> 2 Thessalonians 3:5.  
+> And the Lord direct your hearts into the love of God, and into the patient waiting for Christ.  
+> 2 Thessalonians 3:5  
 
 For the moment, Paul in spirit is coasting the purple shores of the celestial country. With his Thessalonian friends he is making a joyful voyage within hail of Immanuel's land. The sail is bright with the sunlight and the keel is marking a silver track behind it. The Apostle's happy soul has left far in the stern the deceivableness of unrighteousness and the rocks of error. It comes into his heart that he would gladly steer his friends into certain of those lovely creeks which run up far into the inner recesses of the sacred fatherland. Shall he turn the helm that way? He pauses, for the navigation is difficult. One must be greatly expert to thread the streams which descend from the sunny fountains.
 

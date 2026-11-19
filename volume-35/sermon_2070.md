@@ -1,7 +1,7 @@
 # Sermon 2070 | Christ's Connection With Sinners the Source of His Glory
 
-> "Therefore will I divide Him a portion with the great. And He shall divide the spoil with the strong. Because He has poured out His soul unto death. And He was numbered with the transgressors. And He bore the sin of many and made intercession for the transgressors."  
-> Isaiah 53:12.  
+> Therefore will I divide Him a portion with the great. And He shall divide the spoil with the strong. Because He has poured out His soul unto death. And He was numbered with the transgressors. And He bore the sin of many and made intercession for the transgressors.  
+> Isaiah 53:12  
 
 We may regard this verse as a kind of Covenant made between the everlasting God, the infinite Jehovah on the one part, and our great Representative, Mediator and Redeemer, the Lord Jesus Christ, on the other part. The incarnate God is to be bruised and wounded. He is to pour out His soul unto death and by a travail of soul He is to bear the sin of many. And then His ultimate reward is to be that God will divide Him a portion with the great and He Himself shall divide the spoil with the strong.
 

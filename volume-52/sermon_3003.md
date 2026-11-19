@@ -3,7 +3,8 @@
 > And every man went unto his own house.  
 > John 7:53  
 
-"Jesus went unto the Mount of Olives." John 8:1.
+> Jesus went unto the Mount of Olives.  
+> John 8:1  
 
 These verses furnish a striking illustration of the unwise way in which, in certain cases, the Bible has been divided into chapters. The meaning of many portions of Scripture would be much more manifest if Gospels, Epistles and even Prophecies were left in their undivided state. The two sentences which I have selected for my text ought never to have been separated, and we may rightly say of them, "What God has joined together, let no man put asunder." So we will consider them together as they should be considered: "Every man went unto his own house. Jesus went unto the Mount of Olives."
 
@@ -59,7 +60,7 @@ I might enlarge upon this fruitful theme, but I will not do so. And so I close b
 
 Let us, therefore, go to our houses remembering that thought of Jesus retiring in secret to pray for His people, and before we close our eyes, let us go again to the Mercy Seat where Christ has often met with us. And as we close this service, let us for a few moments go in spirit to the Mount of Olives in prayer.
 
-## Exposition by C. H. Spurgeon: John 7:30-63; 8:1
+## Exposition by C. H. Spurgeon: John 7:30-53; 8:1
 
 Then they sought to take Him: but no man laid hands on Him, because His hour was not yet come. And many of the people believed on Him, and said, When Christ comes, will He do more miracles than these which this Man has done? Well might they ask that question, for Jesus had worked such marvelous miracles that they could not
 

@@ -1,9 +1,10 @@
 # Sermon 2160 | Not Sufficient and Yet Sufficient
 
-> "Not that we are sufficient of ourselves to think anything as of ourselves; but our sufficiency is of God, who also has made us able ministers of the new testament, not of the letter, but of the Spirit: for the letter kills, but the Spirit gives life."  
-> 2 Corinthians 3:5, 6.  
+> Not that we are sufficient of ourselves to think anything as of ourselves; but our sufficiency is of God, who also has made us able ministers of the new testament, not of the letter, but of the Spirit: for the letter kills, but the Spirit gives life.  
+> 2 Corinthians 3:5, 6  
 
-Read also the Revised Version of the same text, for it will be often used in this discourse: "Not that we are sufficient of ourselves, to account anything as from ourselves; but our sufficiency is from God; who also made us sufficient as ministers of a new covenant, not of the letter, but of the Spirit: for the letter kills, but the Spirit gives life." 2 Corinthians 3:5, 6.
+> Read also the Revised Version of the same text, for it will be often used in this discourse: "Not that we are sufficient of ourselves, to account anything as from ourselves; but our sufficiency is from God; who also made us sufficient as ministers of a new covenant, not of the letter, but of the Spirit: for the letter kills, but the Spirit gives life."  
+> 2 Corinthians 3:5, 6  
 
 Paul had given some account of what God had done by him and had described the work in these words: "You are manifestly declared to be the epistle of Christ ministered by us, written not with ink, but with the Spirit of the living God; not in tables of stone, but in fleshy tables of the heart." Before he had worked out that charming figure, he had asked the question in the sixteenth verse of the second chapter: "Who is sufficient for these things?" I seem to hear that question repeated as he finishes the description. The more wonderful the work, the more intense the inquiry: "Who is sufficient for these things?"
 

@@ -1,6 +1,6 @@
 # Sermon 993 | The Northern Iron and the Steel
 
-> "Shall iron break the northern iron and the steel?"  
+> Shall iron break the northern iron and the steel?  
 > Jeremiah 15:12  
 
 The prophet Jeremiah was, as we saw upon a former occasion, a man of exquisitely sensitive character. Not a prophet of iron, like Elijah, but nearer akin to him who was a man of sorrows and acquainted with grief. He lived in times which were peculiarly trying to him, and in addition was called to exercise an office which involved him in perpetual sorrow. He loved the people among whom he dwelt, yet he was commissioned by God to pronounce judgments upon them. This in itself was a hard task to such a nature as his. As a loving father, fearful of Eli's doom, uses the rod upon his child, but feels each stroke in his own heart far more acutely than the child does upon his back, so every threat which the prophet uttered lashed his own soul and cost his heart the direst pains.

@@ -3,7 +3,8 @@
 > I write unto you, little children, because your sins are forgiven you for His name's sake.  
 > 1 John 2:12  
 
-"I write to you, little children, because you know the Father." 1 John 2:13. (Revised Version).
+> I write to you, little children, because you know the Father.  
+> 1 John 2:13 (Revised Version)  
 
 Probably you ask, "Why does John say, first, 'I write,' and then, in verse 14, 'I have written'?" There is a beautiful touch of nature in this speedy change of tense. John was an extremely old man and, therefore, while he says, "I write," he adds, "I have written," as if he felt that it might be the last time that he should take his pen in hand. Very soon with him, the present tense would change into the past, and he indicates the fact by changing his mode of speech. Perhaps he even felt that, possibly, before the letter reached the Brethren to whom he addressed it, he would be no more among the sons of men. Therefore he says, "I write," indicating that while he was still with them, with warm and loving heart he solemnly exhorted them. And then he adds, "I have written," as if he had recorded his dying testimony and left it as his last legacy of love.
 

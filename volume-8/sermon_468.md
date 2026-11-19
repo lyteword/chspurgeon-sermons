@@ -1,6 +1,6 @@
 # Sermon 468 | Ezekiel's Deserted Infant
 
-> "None eye pitied you, to do any of these unto you, to have compassion upon you. But you were cast out into the open field to the loathing of your person, in the day that you were born. And when I passed by you and saw you polluted in your own blood, I said unto you when you were in your blood, Live; yes, I said unto you when you were in your blood, Live."  
+> None eye pitied you, to do any of these unto you, to have compassion upon you. But you were cast out into the open field to the loathing of your person, in the day that you were born. And when I passed by you and saw you polluted in your own blood, I said unto you when you were in your blood, Live; yes, I said unto you when you were in your blood, Live.  
 > Ezekiel 16:5, 6  
 
 Doubtless the Lord here describes the Jewish people when they began to multiply in the land of Egypt and were grievously oppressed by Pharaoh. Pharaoh had commanded them to cast out the male children that they might perish. Hence, the figure of an infant deserted, cast out into the open field to perish by wild beasts, by starvation, or exposure, was a very apt portrait of the youthful state of Israel, when God looked upon her in love, and brought her out of Egypt to set her in a goodly land.

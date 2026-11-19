@@ -1,7 +1,7 @@
 # Sermon 660 | Light: Natural And Spiritual
 
 > In the beginning God created the heavens and the earth. And the earth was without form, and void. And darkness was upon the face of the deep. And the Spirit of God moved upon the face of the waters. And God said, Let there be light and there was light. And God saw the light, that it was good: and God divided the light from the darkness. And God called the light Day and the darkness He called Night. And the evening and the morning were the first day.  
-> Genesis 1:1-5.  
+> Genesis 1:1-5  
 
 This is, no doubt, a literal and accurate account of God's first day's work in the creation of the world, but the first creation is not the subject of this morning's discourse; we would rather direct your minds to the second creation of God. Every man who is saved by Divine Grace is a new creation. The great work which Jesus Christ is accomplishing in the world, by the Holy Spirit through the Word, is the making all things new. We believe the old creation to have been typical of the new and we shall so use it. May we all be taught of the Lord while so doing.
 

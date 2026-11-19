@@ -1,7 +1,7 @@
 # Sermon 3405 | Confession of Christ
 
 > Whoever, therefore, shall confess Me before men, him will I confess before My Father who is in Heaven. But whoever shall deny Me before men, him will I also deny before My Father who is in Heaven.  
-> Matthew 10:32,33.  
+> Matthew 10:32,33  
 
 Incessantly do we preach, and do you hear, that salvation is by faith in Jesus Christ, that whoever trusts in Him shall be saved. This is the great and master-duty, the believing, the trusting. It is here that salvation hinges and hangs: "Whoever believes that Jesus is the Christ, is born of God." "He that believes and is baptized shall be saved." "Believe in the Lord Jesus Christ, and you shall be saved." We conceive that it is never possible to preach that Truth of God too often, that this ought to be in some sense the burden of every sermon, that it is the message, above all others, which every minister of Christ is sent to deliver! There is salvation in Him and in no other. We are to insist upon it perpetually and constantly, and never are we to forget it, that Jesus came into the world to save sinners, even the very chief, and that, by Him, everyone that believes is justified from those things from which he could not be justified by the Law of Moses.
 

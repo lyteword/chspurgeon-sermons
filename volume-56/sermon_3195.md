@@ -1,6 +1,7 @@
 # Sermon 3195 | Christ Loosens From Infirmities
 
-"And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bent over, and could in no wise lift herself up. And when Jesus saw her, He called her to Him and said unto her, Woman, you are loosened from your infirmity And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:11-13.
+> And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bent over, and could in no wise lift herself up. And when Jesus saw her, He called her to Him and said unto her, Woman, you are loosened from your infirmity And He laid His hands on her: and immediately she was made straight, and glorified God.  
+> Luke 13:11-13  
 
 Our text commences with a "behold": "behold, there was a woman." And as it was often remarked by the Puritan writers, whenever we see the word, "behold," in Scripture, we are to regard it as a nota bene, as a mark in the margin calling our particular attention to what follows. Where Christ worked wonders, we should have attentive eyes and ears. When Jesus is dispensing blessings, whether to ourselves or to others, we should never be in a state of indifference!
 

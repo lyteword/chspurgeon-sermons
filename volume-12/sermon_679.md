@@ -1,7 +1,7 @@
 # Sermon 679 | The Amen
 
-> "The Amen."  
-> Revelation 3:14.  
+> The Amen.  
+> Revelation 3:14  
 
 The word "Amen" is much more full of meaning than may be supposed, and as a title of our Lord Jesus Christ it is eminently suggestive. As you know the word is a Hebrew one which has been very properly conveyed not only into our language, but into most, if not all the languages of Christendom. It is a happy circumstance that some of these words should have had vitality enough in them to be transplanted into other tongues and still flourish. It gives some faint foreshadowing of the united worship of celestial spirits, and it indicates the Lord's will that the Hebrew race shall not be forgotten by His Church, and that the language of His well-beloved Israel still sounds sweetly in His ear.
 

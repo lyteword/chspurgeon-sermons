@@ -1,7 +1,7 @@
 # Sermon 510 | Peace By Believing
 
-> "Therefore, being justified by faith, we have peace with God through our Lord Jesus Christ."  
-> Romans 5:1.  
+> Therefore, being justified by faith, we have peace with God through our Lord Jesus Christ.  
+> Romans 5:1  
 
 A moment's contemplation would suffice to arouse any man to the terror of the position involved in being at war with God. For a subject to be in a state of sedition against a powerful monarch is to commit treason, and to incur the forfeiture of his life. But for a creature to be in arms against its Creator! For a thing that depends for its existence upon the will of God, to be at enmity with the God in whose hand its breath is! For a soul to know that God, who is terrible in His power, and Almighty to protect or to destroy, is his foe! That He whose anger endures forever, and His wrath burns even unto the lowest Hell, is his chief and grand Enemy: this is an appalling thing, indeed!
 

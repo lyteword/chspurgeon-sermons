@@ -1,7 +1,7 @@
 # Sermon 2149 | Everlasting Love Revealed
 
-> "The Lord has appeared of old unto me, saying, Yes, I have loved you with an everlasting love: therefore with loving kindness have I drawn you."  
-> Jeremiah 31:3.  
+> The Lord has appeared of old unto me, saying, Yes, I have loved you with an everlasting love: therefore with loving kindness have I drawn you.  
+> Jeremiah 31:3  
 
 Thus speaks the Israel of God. She seems to wake up as if she had long been asleep and had forgotten a grand fact; a fact which she ought to have treasured up in her fondest memory. Suddenly startling into recollection, she cries, "The Lord has appeared of old unto me." How strange that she should have forgotten it! Her spiritual lethargy had dimmed her memory and caused her to feel and act as if it were not true, as if her God had never revealed Himself to her. Then she saw with amazement that notwithstanding all the heavy chastisement which the Lord had sent her and notwithstanding all her backslidings, there was still a hope of mercy, no, there was the certainty of it, for the unchanging God had said, "Yes, I have loved you with an everlasting love."
 

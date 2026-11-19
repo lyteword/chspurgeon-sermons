@@ -1,7 +1,7 @@
 # Sermon 536 | Jehovah-Shammah
 
-> "Whereas the Lord was there."  
-> Ezekiel 35:10.  
+> Whereas the Lord was there.  
+> Ezekiel 35:10  
 
 Herein lay the special security of the chosen land. The Edomites saw the whole country of Israel and Judah left desolate. Babylonians and Chaldeans had carried away the people and ravaged the land, therefore the proud inhabitants of the city in the rock said, "These two nations and these two countries shall be mine and we will possess it." The dukes of Edom counted upon an easy conquest and such, indeed, the Holy Land would have proved, had there not been one great difficulty, quite unknown to them: "The Lord was there."
 

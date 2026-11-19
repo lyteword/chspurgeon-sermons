@@ -1,7 +1,7 @@
 # Sermon 1409 | The Shortest of the Seven Cries
 
-> "After this, Jesus knowing that all things were now accomplished, that the scripture might be fulfilled, saith, I thirst."  
-> John 19:28.  
+> After this, Jesus knowing that all things were now accomplished, that the scripture might be fulfilled, saith, I thirst.  
+> John 19:28  
 
 It was most fitting that every word of our Lord upon the cross should be gathered up and preserved. As not a bone of him shall be broken, so not a word shall be lost. The Holy Spirit took special care that each of the sacred utterances should be fittingly recorded. There were, as you know, seven of those last words, and seven is the number of perfection and fulness; the number which blends the three of the infinite God with the four of complete creation. Our Lord in his death-cries, as in all else, was perfection itself. There is a fulness of meaning in each utterance which no man shall be able fully to bring forth, and when combined they make up a vast deep of thought, which no human line can fathom. Here, as everywhere else, we are constrained to say of our Lord, "Never man spake like this man." Amid all the anguish of his spirit his last words prove him to have remained fully self-possessed, true to his forgiving nature, true to his kingly office, true to his filial relationship, true to his God, true to his love of the written word, true to his glorious work, and true to his faith in his Father.
 

@@ -1,7 +1,7 @@
 # Sermon 2024 | What Is the Wedding Garment?
 
-> "And when the king came in to see the guests he saw there a man which had not on a wedding garment: and he said unto him, Friend, how came you in here not having a wedding garment? And he was speechless. Then said the king to the servants, Bind him hand and foot and take him away and cast him into outer darkness; there shall be weeping and gnashing of teeth."  
-> Matthew 22:11-13.  
+> And when the king came in to see the guests he saw there a man which had not on a wedding garment: and he said unto him, Friend, how came you in here not having a wedding garment? And he was speechless. Then said the king to the servants, Bind him hand and foot and take him away and cast him into outer darkness; there shall be weeping and gnashing of teeth.  
+> Matthew 22:11-13  
 
 Two Sabbath mornings ago I preached from this parable and I trust many were encouraged by it. But I noticed among enquirers who came to see me afterwards, a desire to know about the wedding garment. For they feared lest, in coming to join the Church, they should come like the man of whom I shall now speak. Many true hearts are extremely sensitive to the impression of fear and they seem to be on the watch for reasons for anxiety. I do not condemn them; on the contrary I wish there were more of such holy tremblers. It is much better to be afraid of being wrong than to be indifferent as to what you are. I perceive among the very best of the saints a considerable number who are deeply anxious as to their state before God.
 

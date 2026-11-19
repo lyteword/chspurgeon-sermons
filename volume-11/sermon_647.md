@@ -1,7 +1,7 @@
 # Sermon 647 | Heart's Ease
 
 > He shall not be afraid of evil tidings: his heart is fixed, trusting in the Lord.  
-> Psalm 112:7.  
+> Psalm 112:7  
 
 The last month has been a peculiarly gloomy season. Evil tidings have followed on one another's heels like Job's messengers. Epidemics have been rampant among our families and many are the early graves which have been filled by contagious diseases. It is greatly to be feared that the cholera is stretching its wings of death and hastening to find its prey in our crowded lanes and alleys. The disease among the cattle is cutting off the herd from the stall and polluting the most substantial food of man. And it is much to be feared that the continual showers must be spoiling much of the uncarted corn and causing serious loss to farmers in the more northern counties.
 

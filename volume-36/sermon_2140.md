@@ -1,7 +1,7 @@
 # Sermon 2140 | A Homily for Humble Folks
 
-> "Surely I am more stupid than any man, and have not the understanding of a man."  
-> Proverbs 30:2.  
+> Surely I am more stupid than any man, and have not the understanding of a man.  
+> Proverbs 30:2  
 
 Sometimes it is necessary for a speaker to refer to himself and he may feel it necessary to do so in a way peculiar to the occasion. When Elihu addressed himself to Job and the three wise men, he commended himself to them saying, "I am full of matter, the spirit within me constrains me." But when Agur instructed his two disciples, Ithiel and Ucal, he spoke in the lowliest terms of himself and declared that he was "more stupid than any man."
 

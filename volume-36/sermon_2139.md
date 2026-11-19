@@ -1,7 +1,7 @@
 # Sermon 2139 | The Prince of Life
 
-> "And killed the Prince of Life, whom God has raised from the dead, of which we are witnesses."  
-> Acts 3:15.  
+> And killed the Prince of Life, whom God has raised from the dead, of which we are witnesses.  
+> Acts 3:15  
 
 Peter does not conceal the death of Christ; he is not ashamed of the fact that his Lord was crucified. God forbid that any of us should be ashamed of the Cross; may we speak of it without a blush! Peter does not flatter his hearers but he declares that they "killed the Prince of Life." This was literally true and it was necessary that they should know and feel it. There is no Gospel without the Cross and no useful preaching which does not appeal to the conscience; yes, there must be the Cross for doctrine and honest rebuke as the trumpet to awaken men's hearts. You ministers take note of this! Mark well that in the same sentence in which he testified to the Lord's death, Peter bears witness to His Resurrection. The verse is very short and yet contains the two greatest events of human history: "You killed the Prince of Life, whom God raised from the dead."
 

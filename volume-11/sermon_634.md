@@ -1,7 +1,7 @@
 # Sermon 634 | Christians Kept In Time And Glorified In Eternity
 
 > Now unto Him that is able to keep you from falling and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and ever. Amen.  
-> Jude 24,25.  
+> Jude 24,25  
 
 Omitting all preface it will be well to observe in what state of mind Jude was when he penned this doxology, what had been his previous meditations, and when we have done so we will endeavor to come directly to the text and observe what mercies he sums up in it and what praise is due from us to Him of whom he thus speaks.
 

@@ -3,9 +3,8 @@
 > The slothful man says, There is a lion outside, I shall be slain in the streets.  
 > Proverbs 22:13  
 
-> "The slothful man says, There is a lion in the way; a lion is in the streets."  
-
-> Proverbs 26:13.  
+> The slothful man says, There is a lion in the way; a lion is in the streets.  
+> Proverbs 26:13  
 
 This slothful man seems to cherish that one dread of his about lions as if it were his favorite aversion and he felt it to be too much trouble to invent another excuse. Perhaps he hugs it to his soul all the more because it is a home-born fear, conjured up by his own imagination, and as mothers are said to love their weakest children best, so is he fondest of this most imbecile of excuses! At any rate, it serves him for a passable excuse for laziness, and that is what he wants. If you can get the king of beasts to apologize for your idleness, there is a sort of royalty about your pretences! He hopes his sloth will appear the less disgraceful if he can paint a lion rampant upon its shield. I am not about to speak of slothful men in general, albeit that when a man does not diligently attend to his business, he is committing great wrong to himself and to others. When a man is slothful as a servant, he is unjust to his employers, and when he is in business on his own account, idleness is usually a wrong to his wife and family.
 

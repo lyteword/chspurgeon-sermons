@@ -1,7 +1,7 @@
 # Sermon 2148 | The Tenderness of Jesus
 
-> "We have not a High Priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin."  
-> Hebrews 4:15.  
+> We have not a High Priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.  
+> Hebrews 4:15  
 
 Beloved, we have a High Priest. All that Israel had under the Law we still retain, only we have the substance of which they had only the shadow. "We have an Altar, of which they have no right to eat which serve the tabernacle." We have a Sacrifice, which, being once offered, forever avails. We have "One greater than the temple," and He is to us the Mercy Seat and the High Priest. Take it for granted that all the blessings of the Law remain under the Gospel. Christ has restored that which He took not away, but He has not taken away one single possible blessing of the Law; on the contrary, He has secured all to His people.
 

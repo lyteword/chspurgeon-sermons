@@ -1,7 +1,7 @@
 # Sermon 549 | A Desperate Case: How to Meet It
 
-> "Then came the disciples to Jesus apart, and said, Why could not we cast him out? And Jesus said unto them, Because of your unbelief: for verily I say unto you, If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove: and nothing shall be impossible unto you. Howbeit this kind goeth not out but by prayer and fasting."  
-> Matthew 17:19-21.  
+> Then came the disciples to Jesus apart, and said, Why could not we cast him out? And Jesus said unto them, Because of your unbelief: for verily I say unto you, If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove: and nothing shall be impossible unto you. Howbeit this kind goeth not out but by prayer and fasting.  
+> Matthew 17:19-21  
 
 The narrative, of which our text forms a part, describes a scene which took place immediately after the transfiguration of our Lord. Not to divorce it therefore from its connection, let us glance at the antecedents of the case, that nothing may be lost by negligence, or that peradventure we may gain something by meditation.
 

@@ -1,7 +1,7 @@
 # Sermon 543 | Once a Curse But Now a Blessing
 
-> "And it shall come to pass, that as you were a curse among the heathen, O house of Judah and house of Israel, so will I save you and you shall be a blessing: fear not, but let your hands be strong."  
-> Zechariah 8:13.  
+> And it shall come to pass, that as you were a curse among the heathen, O house of Judah and house of Israel, so will I save you and you shall be a blessing: fear not, but let your hands be strong.  
+> Zechariah 8:13  
 
 As these words came from the lips of Zechariah, doubtless they referred to the seed of Abraham, including the two tribes of Judah and the ten tribes of Israel. They have already received a minor fulfillment. But their most glorious accomplishment is yet to come. The Jews have for many a generation been cursed by all people. For ages no one had a good word or a kind look for the Jew. In every nation they have been persecuted and hunted like beasts of prey. The followers of the fierce Mohammed have not been their only enemies, for the children of the Babylonian harlot have equally thirsted for their blood in our own country.
 

@@ -1,7 +1,7 @@
 # Sermon 2169 | The Man Who Shall Never See Death
 
-> "Verily, verily, I say unto you, If a man keep My saying, he shall never see death. Then said the Jews unto Him, Now we know that You have a devil. Abraham is dead, and the Prophets, and You say, If a man keep My saying, he shall never taste of death. Are You greater than our father Abraham, which is dead? and the Prophets are dead: whom make You Yourself"  
-> John 8:51-53.  
+> Verily, verily, I say unto you, If a man keep My saying, he shall never see death. Then said the Jews unto Him, Now we know that You have a devil. Abraham is dead, and the Prophets, and You say, If a man keep My saying, he shall never taste of death. Are You greater than our father Abraham, which is dead? and the Prophets are dead: whom make You Yourself  
+> John 8:51-53  
 
 In the previous part of this chapter we hear the Jews, with malicious voices, assailing our blessed Lord with this bitter question, "Say we not well that You are a Samaritan, and have a devil?" How very quietly the Savior answered them! He did answer them because He judged it necessary to do so, but He did so with great patience and with sound argument: "I have not a devil; but I honor My Father." Clear proof, this! No man can be said to have a devil who honors God, for the evil spirit from the beginning has been the enemy of all that glorifies the Father! Paul, who had not read this passage; for the Gospel of John was not written then; was nevertheless so filled with his Master's spirit that he answered after a like manner when Festus said, "Paul, you are beside yourself; much learning does make you mad." He calmly replied, "I am not mad, most noble Festus; but speak forth the words of truth and soberness."
 

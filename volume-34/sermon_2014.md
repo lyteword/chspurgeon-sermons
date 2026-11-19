@@ -1,7 +1,7 @@
 # Sermon 2014 | As We Have Heard, So Have We Seen
 
-> "As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God: God will establish it forever."  
-> Psalm 48:8.  
+> As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God: God will establish it forever.  
+> Psalm 48:8  
 
 "As we have heard, so have we seen," this is seldom true. In many places we see what we have not heard and what we have heard we do not see. Time was when many simpletons believed that the streets of London were paved with gold. I am sure I do not know any part of London in which a single lump of that metal can be found in the footway. Ten thousand idle tales there are in every country of mines where fortunes may be dug out of the earth and plains where wealth forces itself on the immigrant. But how seldom do we hear the good news, "As we have heard, so have we seen."
 

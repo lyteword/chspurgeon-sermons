@@ -1,7 +1,7 @@
 # Sermon 2101 | Life and Pardon
 
-> "And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven you all trespasses."  
-> Colossians 2:13.  
+> And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven you all trespasses.  
+> Colossians 2:13  
 
 The teaching of this verse is much the same as that in preceding verses, but the Apostle does not hesitate to dwell again and again upon the important matters of quickening and forgiveness. These lie in the foundation. Ministers of Christ cannot too often go over the essential points; their hearers cannot too often hear vital Truths of God. Our frail memories and dull understandings require line upon line, precept upon precept, in reference to fundamental Truths, our apprehension of them is far too feeble, and can never be too vivid.
 

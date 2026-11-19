@@ -1,7 +1,7 @@
 # Sermon 316 | A Sense of Pardoned Sin
 
-> Thou hast cast all my sins behind thy back    
-> Isaiah 38:17,    
+> Thou hast cast all my sins behind thy back  
+> Isaiah 38:17,  
 
 Hezekiah here speaks positively on a matter concerning which he had not the remotest shadow of n doubt. He kind trusted his God, he had cast himself upon the merit of the promised Messiah, and as the result of that faith, assurance had been granted to him, and he now sings with unfaltering tongue, "Thou," even thou, O God, Most High and Most Just, "thou hast cast all my sins," great and innumerable though they be, thou hast east them all "behind thy back." Oh, what a joyous thing it is to have a ray of heavenly sunlight in the soul, and to hear the very voice of God as he walks in the garden of our souls in the cool of the day, saying to us, "Son thy sins which are many, are all forgiven thee." The whisper of that heavenly voice may raise our heart to bliss almost divine it confers a joy that is not to be squalled by all the corn and the wine, and all the pleasures which the riches and the-enjoyments of this world can afford. To have the divine kiss of acceptance to be robed in the best robe, to have the ring on the hand and the shoes on the feet to hear the heavenly music and dancing with which the returning prodigals are returned to their Father's house,&mdash;this, indeed, is a bliss worth worlds.
 

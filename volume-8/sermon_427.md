@@ -1,6 +1,6 @@
 # Sermon 427 | A Psalm For The New Year
 
-> "But grow in grace and in the knowledge of our Lord and Savior Jesus Christ. To Him be glory both now and forever. Amen."  
+> But grow in grace and in the knowledge of our Lord and Savior Jesus Christ. To Him be glory both now and forever. Amen.  
 > 2 Peter 3:18  
 
 Behold, Beloved, our perpetual dangers. Where can we go to escape from peril? Where shall we fly to avoid temptation? If we venture into business, worldliness is there. If we retire to our homes, trials are there. One would have imagined that in the green pastures of the Word of God there would have been perfect security for God's sheep. Surely no lion shall be there and no ravenous beast shall go up from there! Alas, it is not so. For even while we are reading the Bible we are still exposed to peril. Not that the Truth of God is dangerous, but that our corrupt hearts can find poison in the very flowers of Paradise.

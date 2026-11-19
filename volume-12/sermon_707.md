@@ -1,7 +1,7 @@
 # Sermon 707 | Heavenly Geometry
 
-> "That He would grant you, according to the riches of His glory, to be strengthened with might by His Spirit in the inner man; that Christ may dwell in your hearts by faith; that you, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passes knowledge, that you might be filled with all the fullness of God."  
-> Ephesians 3:16-19.  
+> That He would grant you, according to the riches of His glory, to be strengthened with might by His Spirit in the inner man; that Christ may dwell in your hearts by faith; that you, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passes knowledge, that you might be filled with all the fullness of God.  
+> Ephesians 3:16-19  
 
 This Divine measurement is an art of the most desirable kind, as appears from its being the object of most earnest Apostolic prayers. Paul was not content to travail in birth for souls and to become their spiritual parent, but he afterwards exercised the functions of a nursing father, tenderly caring for the souls to whom he had been blessed, and desiring to see them growing up in the faith to the ripeness of spiritual maturity. He was parent, nurse, and tutor; in fact he became all things, as far as lay within his power, to his spiritual children.
 

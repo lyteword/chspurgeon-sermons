@@ -1,7 +1,7 @@
 # Sermon 2065 | Our Great Shepherd Finding the Sheep
 
-> "Until he finds it. And when he has found it. And when he comes home."  
-> Luke 15:4,5, 6.  
+> Until he finds it. And when he has found it. And when he comes home.  
+> Luke 15:4,5, 6  
 
 The love of Jesus, the Great Shepherd, is very practical and active. There is a sheep lost and the Lord regrets it. But His love does not spend itself in regrets. He arises and goes forth to seek and to save that which was lost. The love of Jesus Christ is love not in word only but in deed and in truth. The love of Jesus is prudent. He does not wait until the sheep is willing to return, or until it makes some attempt to come back. But no sooner is its lost estate known to the Shepherd than He starts off, that He may find that which was lost. The love of Jesus to the lost sheep is pre-eminent. He leaves the ninety-nine in their pasturage. And for a while forgets them, that all His heart, His eyes, His strength may be given to the one that has gone astray. O sweet love of Christ, so practical, so prudent, so pre-eminent! Let us ask for Divine Grace that we may imitate it, especially those of us who are called to be shepherds of men.
 

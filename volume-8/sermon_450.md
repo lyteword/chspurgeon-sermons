@@ -1,6 +1,6 @@
 # Sermon 450 | An Exhortation
 
-> "And it came to pass, after the year was expired, at the time when kings go forth to battle, that David sent Joab and his servants with him and all Israel. And they destroyed the children of Ammon and besieged Rabbah. But David tarried still at Jerusalem."  
+> And it came to pass, after the year was expired, at the time when kings go forth to battle, that David sent Joab and his servants with him and all Israel. And they destroyed the children of Ammon and besieged Rabbah. But David tarried still at Jerusalem.  
 > 2 Samuel 11:1  
 
 The last sentence informs us of a circumstance so significant that the Holy Spirit has recorded it twice. In the parallel passage in the Chronicles, you will find a repetition of the statement that, "David tarried at Jerusalem." It had, up to now, been his custom to march at the head of his troops. The king of Israel was the commander-in-chief of the Lord's hosts, and by personal deeds of prowess excited the national spirit. But on this occasion, you perceive, he delegates his power to Joab and seeks inglorious ease.

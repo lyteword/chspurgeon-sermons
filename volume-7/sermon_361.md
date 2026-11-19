@@ -1,6 +1,6 @@
 # Sermon 361 | None But Jesus
 
-> "He that believeth on him is not condemned"  
+> He that believeth on him is not condemned  
 > John 3:18  
 
 The way of salvation is stated in Scripture in the very plainest terms, and yet, perhaps, there is no truth about which more errors have been uttered, than concerning the faith which saves the soul. Well has it been proved by experience, that all doctrines of Christ are mysteries, mysteries, not so much in themselves, but because they are hid to them that are lost, in whom the God of this world hath blinded their eyes. So plain is Scripture, that one would have said, "He that runs may read"; but so dim is man's eye, and so marred is his understanding, that the very simplest truth of Scripture he distorts and misrepresents. And indeed, my brethren, even those who know what faith is, personally and experimentally, do not always find it easy to give a good definition of it. They think they have hit the mark, and then afterwards they lament that they have failed. Straining themselves to describe some one part of faith, they find they have forgotten another, and in the excess of their earnestness to clear the poor sinner out of one mistake, they often lead him into a worse error. So that I think I may say that, while faith is the simplest thing in all the world, yet it is one of the most difficult upon which to preach, because from its very importance, our soul begins to tremble while speaking of it, and then we are not able to describe it so clearly as we would.

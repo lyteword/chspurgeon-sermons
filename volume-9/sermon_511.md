@@ -1,7 +1,7 @@
 # Sermon 511 | Pentecost
 
-> "When the day of Pentecost was fully come, they were all with one accord in one place. And suddenly there came a sound from Heaven as of a rushing mighty wind, and it filled all the house where they were sitting. And there appeared unto them cloven tongues like as of fire, and it sat upon each of them. And they were all filled with the Holy Spirit and began to speak with other tongues, as the Spirit gave them utterance."  
-> Acts 2:1-4.  
+> When the day of Pentecost was fully come, they were all with one accord in one place. And suddenly there came a sound from Heaven as of a rushing mighty wind, and it filled all the house where they were sitting. And there appeared unto them cloven tongues like as of fire, and it sat upon each of them. And they were all filled with the Holy Spirit and began to speak with other tongues, as the Spirit gave them utterance.  
+> Acts 2:1-4  
 
 How absolutely necessary is the Presence and power of the Holy Spirit! It is not possible for us to promote the glory of God, or to bless the souls of men, unless the Holy Spirit shall be in us and with us. Those who were assembled on that memorable day of Pentecost were all men of prayer and faith. But even these precious gifts are only available when the celestial fire sets them on a blaze. They were all men of experience; most of them had been preachers of the Word, and workers of miracles. They had endured trials and troubles in company with their Lord, and had been with Him in His temptation.
 

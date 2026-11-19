@@ -1,6 +1,6 @@
 # Sermon 983 | Moab Is My Wash Pot
 
-> "Moab is my wash pot."  
+> Moab is my wash pot.  
 > Psalm 60:8  
 
 Moab, which had threatened Israel, was to be so completely subdued, and become so utterly contemptible as to be likened to a wash pot or basin in which men wash their feet. More than this, however, may have been intended; no, we feel sure was intended by the expression. Let us explain exactly what the language literally means. In the East the general mode of washing the hands and the feet is with a basin and ewer. Water is poured upon the hands or feet from the ewer, and it falls into the basin.

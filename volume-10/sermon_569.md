@@ -1,7 +1,7 @@
 # Sermon 569 | The Arrows Of The Lord's Deliverance
 
-> "You should have struck five or six times. Then had you struck Syria till you had consumed it: whereas now you shall strike Syria but thrice."  
-> 2 Kings 13:19.  
+> You should have struck five or six times. Then had you struck Syria till you had consumed it: whereas now you shall strike Syria but thrice.  
+> 2 Kings 13:19  
 
 That deathbed scene speaks volumes for the power of holiness. Elisha was the Prophet of God, a man of no honorable station except that he is always honorable whom God calls to serve Him. Joash the king of Israel, who has often rejected Elisha's admonitions and continued to worship in the groves of Baal though Elisha had denounced them and had proclaimed that Jehovah, alone, was their God. Now the Prophet is about to die at the good old age of ninety and Joash comes to weep at his bedside. It was something remarkable for the king to come there at all. Kings do not often visit deathbed scenes, especially the deathbeds of God's servants!
 

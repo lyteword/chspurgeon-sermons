@@ -3,9 +3,11 @@
 > And Enoch lived sixty and five years, and begat Methuselah: and Enoch walked with God, after he begat Methuselah, three hundred years, and begat sons and daughters: and all the days of Enoch were three hundred sixty and five years: and Enoch walked with God: and he was not; for God took him.  
 > Genesis 5:21-24  
 
-"By faith Enoch was translated that he should not see death, and was not found because God had translated him: for before his translation he had this testimony, that he pleased God. But without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him." Hebrews 11:5, 6.
+> By faith Enoch was translated that he should not see death, and was not found because God had translated him: for before his translation he had this testimony, that he pleased God. But without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him.  
+> Hebrews 11:5, 6  
 
-"And Enoch also, the seventh from Adam, prophesied of these, saying, Behold, the Lord comes with ten thousands of His saints, to execute judgment upon all, and to convince all that are ungodly among them of all their ungodly deeds which they have ungodly committed, and of all their hard speeches which ungodly sinners ha ve spoken against Him." Jude 1:14,15.
+> And Enoch also, the seventh from Adam, prophesied of these, saying, Behold, the Lord comes with ten thousands of His saints, to execute judgment upon all, and to convince all that are ungodly among them of all their ungodly deeds which they have ungodly committed, and of all their hard speeches which ungodly sinners ha ve spoken against Him.  
+> Jude 1:14,15  
 
 The three passages of Scripture which I have read are all the authentic information we have concerning Enoch. It would be idle to supplement it with the fictions of ancient commentators. Enoch is called the seventh from Adam, to distinguish him from the other Enoch of the line of Cain, who was the third from Adam. In the first Patriarchs God was pleased to manifest to men portions of His Truth in reference to true religion. These men of the olden times were not only, themselves, taught of God, but they were also teachers of their age and types in whom great Truths of God were exhibited. Abel taught the need of approaching the Lord with sacrifice, the need of the Atonement by blood; he laid the lamb upon the altar and sealed his testimony with his own blood. Atonement is so precious a Truth of God that to die for its defense is a worthy deed and from the very first it is a doctrine which has secured its martyrs, who being dead yet speak.
 

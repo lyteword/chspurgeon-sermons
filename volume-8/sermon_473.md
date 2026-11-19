@@ -1,6 +1,6 @@
 # Sermon 473 | Good News For You
 
-> "But a certain Samaritan, as he journeyed, came where he was."  
+> But a certain Samaritan, as he journeyed, came where he was.  
 > Luke 10:33  
 
 The good Samaritan is a masterly picture of true benevolence. The Samaritan had no kinship with the Jew, he was purely of foreign origin, yet he pities his poor neighbor. The Jews cursed the Cuthites and would have no dealings with them, for they were intruders in their land. There was nothing, therefore, in the object of the Samaritan's pity that could excite his national sympathies, but everything to arouse his prejudices, hence the grandeur of his benevolence. It is not my intention, this morning, to indicate the delightful points of excellence which Christ brings out in order to illustrate what true charity will perform. I want you only to notice this one fact, that the benevolence which the Samaritan exhibited towards this poor wounded and half-dead man, was available benevolence. He did not say to him, "If you will walk to Jericho, then I will bind up your wounds, pouring in the oil and wine." Or, "If you will journey with me as far as Jerusalem, I will then attend to your wants."

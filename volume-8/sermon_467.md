@@ -1,6 +1,6 @@
 # Sermon 467 | Flesh And Spirit: A Riddle
 
-> "So foolish was I and ignorant: I was as a beast before You. Nevertheless I am continually with You: You have held me by my right hand. You shall guide me with Your counsel and afterward receive me to glory. Whom have I in Heaven but You? And there is none upon earth that I desire besides You."  
+> So foolish was I and ignorant: I was as a beast before You. Nevertheless I am continually with You: You have held me by my right hand. You shall guide me with Your counsel and afterward receive me to glory. Whom have I in Heaven but You? And there is none upon earth that I desire besides You.  
 > Psalm 73:22-25  
 
 Our Lord Jesus was tempted in all points like we are. With some reserve we might almost say the same of David. Of all the worthies whose lives are written out at length in Holy Writ, David possesses an experience of the most striking, varied and instructive character. In his history we meet with temptations, and complications of temptations not to be discovered, at least as a connected whole, in other saints of ancient times. Trials which stand out in the lives of other men as isolated hills form whole chains and ranges of mountains in the case of the son of Jesse. David knew the trials of all ranks and conditions of men.

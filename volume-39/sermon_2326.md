@@ -1,12 +1,10 @@
 # Sermon 2326 | Satan Departing, Angels Ministering
 
 > And when the devil had ended all the temptation, he departed from Him for a season.  
-
 > Luke 4:13  
 
-"Then the devil left Him, and behold, angels came and ministered unto Him."
-
-Matthew 4:11.
+> Then the devil left Him, and behold, angels came and ministered unto Him.  
+> Matthew 4:11  
 
 Beloved Friends, we have very much to learn from our Lord's temptation. He was tempted in all points, like as we are. If you will study the temptation of Christ, you will not be ignorant of Satan's devices. If you see how He worsted the enemy, you will learn what weapons to use against your great adversary. If you see how our Lord conquers throughout the whole battle, you will learn that, as you keep close to Him, you will be more than conqueror through Him that loved you. From our Lord's temptation we learn, especially, to pray, "Lead us not into temptation." Let us never mistake the meaning of that petition! We are to pray that we may not be tempted, for we are poor flesh and blood and very frail. It is for us to cry to God, "Lead us not into temptation." But we also learn a great deal from the close of our Lord's great threefold trial. We find Him, afterwards, peaceful, ministered unto by angels, and rejoicing. That should teach us to pray, "But, if we must be tempted, deliver us from the evil," or, as some render it, and very correctly, too, "Deliver us from the Evil One." First, we pray that we may not be tempted at all and then, as a supplement to that prayer, yielding the whole matter to Divine Wisdom, "If it is necessary for our manhood, for our growth in Grace, for the verification of our Graces and for God's Glory, that we should be tempted, Lord, deliver us from the evil, and especially deliver us from the impersonation of evil, the Evil One!"
 

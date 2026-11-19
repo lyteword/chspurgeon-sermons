@@ -3,7 +3,8 @@
 > Through the power of the Holy Spirit.  
 > Romans 15:13  
 
-"By the power of the Spirit of God." Romans 15:19.
+> By the power of the Spirit of God.  
+> Romans 15:19  
 
 I desire to draw your attention, at this time, to the great necessity which exists for the continual manifestation of the power of the Holy Spirit in the Church of God if by her means the multitudes are to be gathered to the Lord Jesus. I did not know how I could much better do so than by first showing that the Spirit of God is necessary to the Church of God for its own internal growth in Grace. Hence my text in the thirteenth verse, "Now the God of hope fill you with all joy and peace in believing, that you may abound in hope, through the power of the Holy Spirit," where it is evident that the Apostle attributes the power to be filled with joy and peace in believing, and the power to abound in hope, to the Holy Spirit.
 

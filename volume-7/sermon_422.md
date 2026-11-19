@@ -1,6 +1,6 @@
 # Sermon 422 | The Peacemaker
 
-> "Blessed are the peacemakers: for they shall be called the children of God."  
+> Blessed are the peacemakers: for they shall be called the children of God.  
 > Matthew 5:9  
 
 This is the seventh of the beatitudes. There is a mystery always connected with the number seven. It was the number of perfection among the Hebrews and it seems as if the Savior had put the peacemaker there, as if He were nearly approaching to the perfect man in Christ Jesus. He who would have perfect blessedness, so far as it can be enjoyed on earth, must labor to attain to this seventh benediction and become a peacemaker. There is a significance also in the position of the text, if you regard the context. The verse which precedes it speaks of the blessedness of "the pure in heart, for they shall see God." It is well that we should understand this.

@@ -1,6 +1,6 @@
 # Sermon 413 | To Die Or Not To Die!
 
-> "Willing rather to be absent from the body and to be present with the Lord."  
+> Willing rather to be absent from the body and to be present with the Lord.  
 > 2 Corinthians 5:8  
 
 I once heard two good men holding a dialogue with one another. I should not like to have the task of saying which I thought the better man of the two. I believe them both to be sincere followers of the Savior and both of them, I think have a good hope through grace. One of them said he should be glad to go to Heaven. He wished that his time was come. He did not see anything here worth living for and he should be only too glad if now the summons should reach him that he should cross the river and arrive in the Promised Land. The other brother said he did not feel so. He thought he had many reasons why he would rather just then live than die.

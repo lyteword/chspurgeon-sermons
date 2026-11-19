@@ -1,7 +1,7 @@
 # Sermon 2144 | Believers Sent by Christ, As Christ Is Sent By the Father
 
-> "As You have sent Me into the world, even so have I also sent them into the world."  
-> John 17:18.  
+> As You have sent Me into the world, even so have I also sent them into the world.  
+> John 17:18  
 
 Here is a great fact mentioned, namely, that the Father sent the Son into the world. Our Lord's disciples believed this. Jesus says Himself, "They have believed that You did send me." It is one of the first essentials of saving faith to believe in Christ as the Sent One of God. They had proved, in their own experience, that Jesus was sent of God, for they had found Him to be sent to them. Especially they knew this because they had found in Him eternal life. To them it had been eternal life "to know the only true God and Jesus Christ, whom He had sent."
 

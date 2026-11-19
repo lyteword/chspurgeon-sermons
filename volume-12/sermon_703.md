@@ -1,7 +1,7 @@
 # Sermon 703 | Salvation Altogether By Grace
 
-> "Who has saved us, and called us with a holy calling, not according to our works, but according to His own purpose and grace which was given to us in Christ Jesus before the world began."  
-> 2 Timothy 1:9.  
+> Who has saved us, and called us with a holy calling, not according to our works, but according to His own purpose and grace which was given to us in Christ Jesus before the world began.  
+> 2 Timothy 1:9  
 
 If we would influence thoughtful persons it must be by solid arguments. Shallow minds may be worked upon by mere warmth of emotion and force of excitement, but the more valuable part of the community must be dealt with in quite another manner. When the Apostle Paul was desirous to influence his son in the faith, Timothy, who was a diligent and earnest student and a man of gifts as well as of Divine Grace, he did not attempt to affect him by mere appeals to his feelings. Paul felt that the most effectual way to act upon him was to remind him of solid doctrinal Truth of God which he knew Timothy believed.
 

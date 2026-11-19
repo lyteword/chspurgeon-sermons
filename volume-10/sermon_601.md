@@ -1,7 +1,7 @@
 # Sermon 601 | A Solemn Enquiry Concerning Our Families
 
-> "And the men said unto Lot, have you here any besides? Son-in-law and your sons, and your daughters and whatever you have in the city, bring them out of this place."  
-> Genesis 19:12.  
+> And the men said unto Lot, have you here any besides? Son-in-law and your sons, and your daughters and whatever you have in the city, bring them out of this place.  
+> Genesis 19:12  
 
 The angelic messengers of mercy were not only earnest to bring Lot out of the city, but in their great kindness they reminded him of an important matter which, in the alarm of the tumult without and in the surprise of their fearful tidings, he might possibly have forgotten. They suggested to his distracted heart a loving care for his relatives and friends. His wife and his two daughters were already with him in the house, but he had two sons-in-law to whom his daughters were espoused, if not married. And the angels suggest to him to make an effort to rescue these, also, from the destruction which awaited the filthy city.
 

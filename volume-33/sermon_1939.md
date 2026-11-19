@@ -1,7 +1,7 @@
 # Sermon 1939 | Shaved and Shorn, But Not Beyond Hope
 
-> "However, the hair of his head began to grow again after he was shaved."  
-> Judges 16:22.  
+> However, the hair of his head began to grow again after he was shaved.  
+> Judges 16:22  
 
 Let me introduce the text to you. Samson was set apart from his birth to be the champion of Israel, to break the power of the Philistines who lorded over God's people. Everything in his bringing up had reference to his peculiar calling as the hero of Israel, the hammer of Philistia. He was to be a Nazarite from his birth. Among other things which concerned the Nazarite, he never touched wine. No, nor grapes, nor husks of grapes, nor anything that came of the vine, which goes to show that the greatest physical strength is attainable without the use of wine or strong drink. Whatever else overcame Samson, he was never overcome with drunkenness, and yet he greatly sinned, which goes to show that total abstinence is not, of itself, enough to form a character. A Nazarite, in addition to abstinence from wine, also abstained from wearing the common appearance of men. He was not to have his hair at any time shaved or cut away, so that when Samson was grown up to manhood, he was covered with a shaggy mass of hair. He must have looked like the lion that he was. Those locks of his were the token of his consecration to God, the outward marks of his being set apart to be the servant of the God of Israel. Can you not see him with the terrible glory of his hair upon him?
 

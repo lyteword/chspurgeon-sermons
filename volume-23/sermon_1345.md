@@ -3,11 +3,14 @@
 > They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance.  
 > Mark 2:17  
 
-"Christ died for the ungodly." Romans 5:6.
+> Christ died for the ungodly.  
+> Romans 5:6  
 
-"God commends His love toward us, in that, while we were yet sinners, Christ died for us." Romans 5:8.
+> God commends His love toward us, in that, while we were yet sinners, Christ died for us.  
+> Romans 5:8  
 
-"This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." 1 Timothy 1:15.
+> This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners.  
+> 1 Timothy 1:15  
 
 Last Thursday evening, with considerable difficulty, I stood here to preach the Gospel of Jesus Christ, and I handled one of the simplest imaginable texts, full of nothing but the very plainest elements of the Gospel. Within a very few minutes I had a harvest for the sermon. The congregation was slender, for you know how ill a night it was, and how little you expected that your pastor would be able to preach, but three souls came forward uninvited to acknowledge that they had found peace with God. How many more there were I do not know, but these three sought out the Brethren and bore a good and hearty confession to the blessed fact that, for the first time in their lives they, had understood the plan of salvation.
 

@@ -1,6 +1,6 @@
 # Sermon 2117 | The Father's Love to His Dying Son
 
-> "Therefore does My Father love Me, because I lay down My life, that I might take it again."  
+> Therefore does My Father love Me, because I lay down My life, that I might take it again.  
 > John 10:17  
 
 Our Lord Jesus here speaks of Himself in His complex personality as God and Man, the Mediator between God and men. As such, He comes to us first at Bethlehem, "wrapped in swaddling clothes and lying in a manger." We behold Him a babe, a child, a man, a worker, a sufferer, a witness for the Truth of God and a victim condemned to die upon the tree. We behold Him dead in the grave and risen again as the Interposer between God and man.

@@ -1,7 +1,7 @@
 # Sermon 2103 | The Hunger and Thirst Which Are Blessed
 
-> "Blessed are they which do hunger and thirst after righteousness: for they shall be filled."  
-> Matthew 5:6.  
+> Blessed are they which do hunger and thirst after righteousness: for they shall be filled.  
+> Matthew 5:6  
 
 Because man had perfect righteousness before the Fall, he enjoyed perfect blessedness. If you and I shall, by Divine Grace, attain to blessedness hereafter, it will be because God has restored us to righteousness. As it was in the first Paradise, so must it be in the second; righteousness is essential to the blessedness of man. We cannot be truly happy and live in sin. Holiness is the natural element of blessedness. And it can no more live out of that element than a fish could live in the fire.
 

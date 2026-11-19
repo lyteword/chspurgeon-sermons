@@ -1,9 +1,10 @@
 # Sermon 1962 | The Friend of God
 
-> "You, Israel, are My servant, Jacob whom I have chosen, the seed of Abraham My friend."  
-> Isaiah 41:8.  
+> You, Israel, are My servant, Jacob whom I have chosen, the seed of Abraham My friend.  
+> Isaiah 41:8  
 
-"And he was called the Friend of God.", James 2:23.
+> And he was called the Friend of God.  
+> James 2:23  
 
 Abraham was called the Friend of God because he was so. The title only declares a fact. The Father of the faithful was, beyond all men, "the Friend of God," and the head of that chosen race of Believers whom Jesus calls His friends. The name is rightly given. We read that "whatever Adam called every living creature, that was the name thereof. And we may be much more sure that whatever name the Spirit of God has given to any man, that is his proper and right name.
 

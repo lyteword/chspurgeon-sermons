@@ -3,9 +3,8 @@
 > At that time, when David saw that the Lord had answered him on the threshing floor of Ornan, the Jebusite, he sacrificed there.  
 > 1 Chronicles 21:28  
 
-"Then David said, This is the house of the Lord God, and this is the altar of the burnt offering for Israel."
-
-1 Chronicles 22:1.
+> Then David said, This is the house of the Lord God, and this is the altar of the burnt offering for Israel.  
+> 1 Chronicles 22:1  
 
 DAVID was, for many years, searching for a site for the great temple which he purposed to build for Jehovah, his God. It had been ordained that the sacrifices offered to the one God should be offered by all Israel upon one altar, but as yet the Ark of the Lord was within curtains, near David's palace, and the altar of burnt offering was situated at Gibeon. Where should the one altar be erected? Where should the Ark find its permanent dwelling place? David said, "Surely I will not come into the tabernacle of my house, nor go up into my bed; I will not give sleep to my eyes, or slumber to my eyelids, until I find out a place for the Lord, an habitation for the mighty God of Jacob." Yet for a long time he received no indication as to the exact spot where the Lord's altar should be reared, save only that he was told that the Lord had chosen Zion and desired it for His habitation.
 

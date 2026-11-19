@@ -1,7 +1,7 @@
 # Sermon 2074 | Intimate Knowledge of the Holy Spirit
 
-> "The Spirit of Truth, whom the world cannot receive, because it sees Him not, neither knows Him; but you know Him, for He dwells with you and shall be in you."  
-> John 14:17.  
+> The Spirit of Truth, whom the world cannot receive, because it sees Him not, neither knows Him; but you know Him, for He dwells with you and shall be in you.  
+> John 14:17  
 
 The part of the text on which we shall meditate is this: "The Spirit of Truth, you know Him, for He dwells with you and shall be in you." Observe that the Holy Spirit is here called the Spirit of Truth. There is much meaning in this expression. He is the Teacher of the Truth of God, unalloyed Truth, practical, divinely effective Truth of God. He never teaches anything but the Truth of God. If it comes from the Spirit of God, we may receive it from Him without any hesitation. It is He that takes of the things of Christ and shows them unto us. And these things are true and He thus proves Himself to be the Spirit of Truth.
 

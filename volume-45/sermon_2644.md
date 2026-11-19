@@ -3,13 +3,11 @@
 > And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost  
 > Luke 23:46  
 
-"Into Your hands I commit my spirit: You have redeemed me, O Lord God of Truth."
+> Into Your hands I commit my spirit: You have redeemed me, O Lord God of Truth.  
+> Psalm 31:5  
 
-Psalm 31:5.
-
-"And they stoned Stephen, as he was calling upon God and asking, Lord Jesus, receive my spirit."
-
-Acts 7:59.
+> And they stoned Stephen, as he was calling upon God and asking, Lord Jesus, receive my spirit.  
+> Acts 7:59  
 
 This morning, dear Friends, I spoke upon the first recorded words of our Lord Jesus when He said to His mother and to Joseph, "How is it that you sought Me? Did you not know that I must be about My Father's business?" Now, by the help of the blessed Spirit, we will consider the last words of our Lord Jesus before He gave up the ghost. And with them we will examine two other passages in which similar expressions are used.
 

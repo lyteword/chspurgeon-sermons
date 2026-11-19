@@ -3,7 +3,8 @@
 > Jesus said unto him I will come and heal him.  
 > Matthew 8:7  
 
-"And Jesus said unto the centurion, Go your way; and as you have believed, so be it done unto you." Matthew 8:13.
+> And Jesus said unto the centurion, Go your way; and as you have believed, so be it done unto you.  
+> Matthew 8:13  
 
 The centurion of Capernaum is an example to us in a matter which bears upon the collection appointed for today, which, you know, is for hospitals. This good soldier feared for the sick and was anxious for the recovery of his palsied servant. Every employer should take a sympathetic interest in his domestics when they are ill, but in some cases this is not thought of. "If they cannot do their work, they must go", this is too often the language used about them, and they are driven out of the house as soon as possible. I do not say that masters and mistresses are often cruel, but I fear that some of them are none too kind.
 

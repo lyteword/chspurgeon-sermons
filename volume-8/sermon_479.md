@@ -1,6 +1,6 @@
 # Sermon 479 | Christian Sympathy
 
-> "Did not I weep for him that was in trouble? was not my soul grieved for the poor?"  
+> Did not I weep for him that was in trouble? was not my soul grieved for the poor?  
 > Job 30:25  
 
 In endeavoring to justify the ways of God, Job's three friends came to the harsh conclusion that he would not have been so severely afflicted if he had not been a very great sinner. Among other accusations against the afflicted patriarch, Eliphaz the Temanite had the cruelty to lay this at his door, "Thou hast not given water to the weary to drink, and thou hast withholden bread from the hungry." Such a slander we may describe as "speaking wickedly for God," for in his ignorance of the great laws of Providence towards the saints in this life, the Temanite had uttered falsehood in order to account for the divine procedure. God's own testimony of Job is that he was "a perfect and an upright man, one that feared God and eschewed evil;" and certainly he could never have earned the character of "perfect" if he had been devoid of pity for the poor. Richly did the three miserable comforters deserve the burning rebuke of their slandered friend, "Ye are forgers of lies, ye are physicians of no value. O that ye would altogether hold your peace and it shall be your wisdom."

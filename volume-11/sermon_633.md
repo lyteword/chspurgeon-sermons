@@ -1,7 +1,7 @@
 # Sermon 633 | Two Loving Invitations
 
-> Come and see.... Come and dine.  
-> John 1:39 & John 21:12.  
+> Come and see; Come and dine  
+> John 1:39 and John 21:12  
 
 The one text is in the beginning and the other at the end of John's Gospel. There is a mystery here. Here is typified a growth which it were well for us to understand. "Come and see," is for babes in Grace; "Come and dine," is for strong men in Christ Jesus. We must notice the order. "Come and see," is the beginning of spiritual life as it is the beginning of this Gospel. "Come and dine," is a high after-privilege of the spiritual life and a blessed result of it. "Come and see," is the Gospel's cry to those outside its pale; it has nothing to conceal, it wears no mask, it has no most holy place into which entrance is forbidden. It has a "sanctum sanctorum," but the way into it is open. Open and above-board in all its doings, the Truth as it is in Jesus bares its bosom secrets and cries to every passerby, "Come and see."
 
@@ -81,7 +81,7 @@ Read "Rutherford's Letters," and you get glimpse of what it is to dine with Chri
 > I cannot nearer be;  
 > For in the Person of His Son  
 > I am as near as He!  
->
+>  
 > So dear, so very dear to God,  
 > I cannot dearer be;  
 > The love wherewith He loves His Son  
@@ -102,7 +102,7 @@ Can you comprehend it?
 > Though earth's old columns bow,  
 > The strong, the feeble and the weak  
 > Are one in Jesus now.  
->
+>  
 > Oh, sacred union, firm and strong,  
 > How great the Grace, how sweet the song,  
 > That worms of earth should ever be  

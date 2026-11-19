@@ -1,7 +1,7 @@
 # Sermon 2126 | Something Done for Jesus
 
-> "She has worked a good work upon Me."  
-> Matthew 26:10.  
+> She has worked a good work upon Me.  
+> Matthew 26:10  
 
 Study carefully the story of the enthusiastic Christian woman who poured the alabaster box of very precious ointment upon the head of our ever-blessed Lord and Savior. Honored as that action is by the universal Church of God, it did not escape criticism among the religious people of her own day. The disciples censured her but Christ defended her, and in the course of His vindication of her He said, "Why trouble you the women? For she has worked a good work upon Me." There is no reason for troubling gracious men and women, and specially no cause for so doing when their work is good and is done for their Lord. Yet are there plenty of critics around us this day and we could spare a few of them from our own immediate neighborhood. They are only able to worry us so far as we think of them and therefore we will let the wasps alone and feed upon the honey which flows from the lips of our Lord Jesus.
 

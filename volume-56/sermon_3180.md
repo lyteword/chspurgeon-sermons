@@ -1,6 +1,7 @@
 # Sermon 3180 | Christ the Creator
 
-"All things were created by Him and for Him." Colossians 1:16.
+> All things were created by Him and for Him.  
+> Colossians 1:16  
 
 There can be no mistake as to the Person concerning whom Paul is writing under the Inspiration of the Holy Spirit, it is Jesus of Nazareth, the Incarnate Son of God who was crucified on Calvary; for, writing concerning the same Person in the fourteenth verse, the Apostle says, "In whom we have redemption through His blood, even the forgiveness of sins." It is, therefore, that Savior whose blood was shed for His people's redemption who is here declared to be the Creator of all things and by whom all things consist!
 

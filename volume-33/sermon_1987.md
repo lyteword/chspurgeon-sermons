@@ -1,7 +1,7 @@
 # Sermon 1987 | "Behold the Lamb of God"
 
-> "The next day John saw Jesus coming toward him, and said, Behold! The Lamb of God who takes away the sin of the world."  
-> John 1:29.  
+> The next day John saw Jesus coming toward him, and said, Behold! The Lamb of God who takes away the sin of the world.  
+> John 1:29  
 
 John the Baptist's one business was to bear witness to Christ. He was the morning star which heralds the rising sun. When the Sun appeared, he had no more reason for shining. You cannot account for John except by Jesus, the one reason for John's existence is Jesus. I wish it might be so with us. May we be able to say, "For me to live is Christ." May our life be such that it cannot be understood apart from Jesus, take Him away and our whole character would become an inexplicable mystery! I am afraid that some professors could be easily interpreted apart from Christ, perhaps could be better accounted for if there were no Christ. But if we are like John, true witnesses to Jesus, we shall find in Jesus the conscious purpose of our being and His Glory will be the clue to all the windings of our lives. For this purpose were we born and for this end have we come into the world, that we may bear witness to the Lord Jesus Christ! Search and look, my Brothers and Sisters, whether it has been so with you.
 

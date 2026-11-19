@@ -1,7 +1,7 @@
 # Sermon 715 | Children's Bread Given To Dogs
 
-> "And she said, Truth, Lord: yet even the little dogs eat of the crumbs which fall from their masters' table."  
-> Matthew 15:27.  
+> And she said, Truth, Lord: yet even the little dogs eat of the crumbs which fall from their masters' table.  
+> Matthew 15:27  
 
 In this narrative we have the portrait of a soul for which a sure blessing is reserved. If the story closed without its final verse, one might be quite sure as to what the result of the woman's pleading would be. Christ must change His Nature if a person coming as she is said to have come, could be sent away empty! I shall with a few touches sketch the woman's picture, and shall beg you to see if you are like she, for if so it will be evidence to you that the time to favor you, yes, the set time, has come.
 

@@ -1,7 +1,7 @@
 # Sermon 1964 | Why Is Faith So Feeble?
 
-> "And He said unto them, Why are you so fearful? How is it that you have no faith?"  
-> Mark 4:40.  
+> And He said unto them, Why are you so fearful? How is it that you have no faith?  
+> Mark 4:40  
 
 Last Lord's-Day morning our music was pitched upon a high key. We sought after great faith in the Master's name  It struck me that I might, perhaps, have discouraged some of the feebler sort and that, therefore, it would be right, this morning, to follow up that sermon by endeavoring to encourage those of weak faith to exercise it until it becomes stronger, and also to invite those who, as yet have no faith, to venture in the direction of childlike trust.
 

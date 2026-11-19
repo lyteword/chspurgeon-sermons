@@ -1,18 +1,7 @@
 # Sermon 318 | High Doctrine
 
-To the readers of the Park Street pulpit
-
-My dear brethren,
-
-Incessant labour has so completely wearied me, that I am compelled to retire for a few weeks from active service. The great Master bade his disciples to "go into the desert and rest awhile," and I feel that I should be acting in opposition to the warnings of Providence in my mental and physical frame if I did not seek repose. During my absence I shall continue to address you through the evening sermons, which are richer and more full of doctrinal truth than those of the morning. If the sermons addressed to the mixed assemblies of Exeter Hall have been in any measure profitable to you, I am full well assured that the evening sermons to the church of God will not fail, under the divine blessing, to edify you far more.
-
-I shall hope to write a few lines to you, which will be appended to my weekly sermon, that the links of our communion may not be broken, and that I may have the opportunity of begging your daily prayers. The Lord bless you and preserve you until the day of His appearing.
-
-I am, yours in Jesus, Clapham, Monday, June fourth, 1860
-
-H. Spurgeon.
-
-"And all things are of God."&mdash;2 Corinthians. 5.18.
+> And all things are of God.  
+> 2 Corinthians 5:18  
 
 I would have you look on this text as being a summary of all the things which we have preached to you these years. It has been my endeavour, constantly and continually, to maintain that salvation is of God's good will, and not of man's free will; that man is nothing, and that Jesus Christ is both Alpha and Omega, the beginning and the end, the first and the last. And I think I may truly say, "Now of the things which we have spoken, this is the sum"&mdash;"all things are of God." And oh my brethren, what a large summary it is! it contains words which grasp the compass of everything that your mind can think upon&mdash;"all things;" and it proclaims him to whom all things owe their being&mdash;"God." Grasp this total if you are able, "All things!" What is here omitted? Surely whatsoever the Christian can desire is to be found in those words "all things." But lest even that should not be comprehensive enough, our summary contains a still greater word, one which is supreme over all, inasmuch as all things spring from his loins, and yet he remaineth still the same, as full as ever. "All things are of God." If we be thirsty, here are streams that never can be exhausted. If we be hungry, surely here is bread enough and to spare. If we be poor, here are treasures and riches that are utterly inexhaustible, for here we have all things, and all things in God.
 

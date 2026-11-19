@@ -1,7 +1,7 @@
 # Sermon 1995 | The Heart: a Gift for God
 
-> "My son, give Me your heart."  
-> Proverbs 23:26.  
+> My son, give Me your heart.  
+> Proverbs 23:26  
 
 These are the words of Solomon speaking in the name of Wisdom, which wisdom is but another name for the Lord Jesus Christ, who is made of God unto us Wisdom. If you ask, "What is the highest wisdom upon the earth?" it is to believe in Jesus Christ whom God has sent, to become His follower and disciple, to trust Him and imitate Him. It is God, in the Person of His dear Son, who says to each one of us, "My son, give Me your heart." Can we answer, "Lord, I have given You my heart?" Then we are His sons! Let us cry, "Abba, Father," and bless the Lord for the high privilege of being His children. "Behold, what manner of love the Father has bestowed upon us, that we should be called the sons of God."
 

@@ -1,7 +1,7 @@
 # Sermon 2079 | Man Unknown To Man
 
-> "The heart knows his own bitterness. And a stranger does not understand with his joy."  
-> Proverbs 14:10.  
+> The heart knows his own bitterness. And a stranger does not understand with his joy.  
+> Proverbs 14:10  
 
 You lift up your eyes and you behold the stars. Surely, it is no idle imagination that these heavenly lights are distant worlds. But they are entirely separated from the inhabitants of this globe. You may peer at them through the telescope as long as you will, but you cannot enter into the feelings and pursuits of the dwellers in those worlds. You know nothing of the nearest planet, nor even of the world's own satellite. Some look up and declare that they see a man in the moon. It is the fancy of the ignorant. Others gaze at it till they discover huge volcanoes. It is the belief of the astronomer. But do what you will, you cannot enter into conversation with the moon-dwellers.
 

@@ -1,7 +1,7 @@
 # Sermon 164 | The Loved Ones Chastened
 
-> As many as I love, I rebuke and chasten: be zealous therefore, and repent.    
-> Revelation 3:19.    
+> As many as I love, I rebuke and chasten: be zealous therefore, and repent.  
+> Revelation 3:19  
 
 The dealings of God towards the sons of men have always puzzled the wise men of the earth who have tried to understand them. Apart from the revelation of God the dealings of Jehovah towards his creatures in this world seem to be utterly inexplicable. Who can understand how it is that the wicked flourish and are in great power? The ungodly man flourishes like a green bay tree; behold, he stretcheth out his roots by the river: he knoweth not the year of drought; his leaf withereth not; and his fruit doth not fall in an untimely season. Lo, these are the ungodly that flourish in the world; they are filled with riches; they heap up gold like dust; they leave the rest of their substance to their babes; they add field to field, and acre to acre, and they become the princes of the earth. On the other hand, see how the righteous are cast down. How often is virtue dressed in the rags of poverty! How frequently is the most pious spirit made to suffer from hunger, and thirst, and nakedness! We have sometimes heard the Christian say, when he has contemplated these things, "Surely, I have served God in vain; it is for nothing that I have chastened myself every morning and vexed my soul with fasting; for lo, God hath cast me down, and he lifteth up the sinner. How can this be?" The sages of the heathen could not answer this question, and they therefore adopted the expedient of cutting the gordian knot. "We can not tell how it is," they might have said; therefore they flew at the fact itself, and denied it. "The man that prospers is favored of the gods; the man who is unsuccessful is obnoxious to the Most High." So said the heathen, and they knew no better. 
 

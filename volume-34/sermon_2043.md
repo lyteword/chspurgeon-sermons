@@ -1,7 +1,7 @@
 # Sermon 2043 | The Blood of the Lamb, the Conquering Weapon
 
-> "And they overcame him by the blood of the Lamb and by the word of their testimony. And they loved not their lives unto the death."  
-> Revelation 12:11.  
+> And they overcame him by the blood of the Lamb and by the word of their testimony. And they loved not their lives unto the death.  
+> Revelation 12:11  
 
 Wherever evil appears, it is to be fought with by the children of God in the name of Jesus and in the power of the Holy Spirit. When evil appeared in an angel, straightway there was war in Heaven. Evil in mortal men is to be strived against by all regenerate men. If sin comes to us in the form of an angel of light we must still war with it. If it comes with all manner of deceivableness of unrighteousness we must not parley for a single moment but begin the battle at once, if we belong to the armies of the Lord. Evil is at its very worst in Satan himself; with him we fight. He is no mean adversary. The evil spirits which are under his control are, any one of them, terrible foes. But when Satan himself personally attacks a Christian, any of us will be hard put to it.
 

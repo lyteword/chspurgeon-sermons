@@ -1,6 +1,6 @@
 # Sermon 448 | Another And a Nobler Exhibition
 
-> "To the intent that now unto the principalities and powers in heavenly places might be known by the Church the manifold wisdom of God."  
+> To the intent that now unto the principalities and powers in heavenly places might be known by the Church the manifold wisdom of God.  
 > Ephesians 3:10  
 
 All the world has been talking during the last three days of the splendid pageant which adorned the opening of the International Exhibition. Crowds have congregated in the palace of universal art. Representatives of all the nations of the earth have journeyed for many a league to view its wonders. Eminent personages of all empires have appeared in the gorgeous spectacle, and such a scene has glittered before the eyes of all men, as has never before in all respects been equaled and may not for many a year find a successor to rival it.

@@ -1,8 +1,7 @@
 # Sermon 1681 | Shutting, Sealing and Covering, or, Messiah's Glorious Work
 
-> Seventy weeks are determined upon your people and upon your holy city, to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness, and to seal up the vision and prophecy, and to anoint the Most Holy."  
-
-> Daniel 9:24.  
+> Seventy weeks are determined upon your people and upon your holy city, to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness, and to seal up the vision and prophecy, and to anoint the Most Holy.  
+> Daniel 9:24  
 
 The Lord God appointed a set time for the coming of His Son into the world. Nothing was left to chance. Infinite wisdom dictated the hour at which the Messiah should be born and the moment at which He should be cut off. His advent and His work are the highest point of the purpose of God, the hinge of history, the center of providence, the crowning of the edifice of grace and, therefore, peculiar care watched over every detail. Once in the history of the world has the Son of God appeared to put away sin by the sacrifice of Himself and this is the event before which all other events must bow. The studious mind will be delighted to search out the reasons why the Messiah came not before and why He did not tarry till yet later ages. Prophecies declared the date, but long before, infallible wisdom had settled it for the most profound reasons. It was well that the Redeemer came, it was well that He came in what Scripture calls the fullness of time, even in these last days.
 

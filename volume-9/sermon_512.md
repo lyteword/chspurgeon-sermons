@@ -1,7 +1,7 @@
 # Sermon 512 | A Precious Drop Of Honey
 
-> "Behold, I have inscribed you upon the palms of My hands."  
-> Isaiah 49:16.  
+> Behold, I have inscribed you upon the palms of My hands.  
+> Isaiah 49:16  
 
 God's promises are not exhausted by one fulfillment. They are manifold mercies, so that after you have opened one fold and found out one signification, you may unfurl them still more and find another which shall be equally true, and then another, and another, and another, almost without end. Like the cherubim, God's promises have a face for every quarter of the earth, and like the wheels, they are full of eyes for every trial of the chosen people. The Lord knows how to speak many-handed promises. His words, like the trees of the New Jerusalem, bear twelve manner of fruits, and yield their fruit every month. No doubt the text and the preceding promises all refer to the seed of Abraham. God will not cast them away. He does no more forget them than does a woman forget her sucking child. They shall return to their own land and accept Messiah, the Prince whom they have so long despised. But the seed of Abraham is the grand type of the Church. And therefore we believe that every word here, in its widest and most extensive sense, belongs to the elect of God, those who are written in the Lamb's Book of Life, and for whom Jesus shed His blood. We feel persuaded that the favor which is shelved to the whole body is given to each member, and therefore any true Believer who is, through faith, one of the spiritual seed of Abraham, may take the promises to himself and say, "Thus says the Lord unto my soul. Thus and thus speaks He comfortably concerning me."
 

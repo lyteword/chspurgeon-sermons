@@ -1,7 +1,7 @@
 # Sermon 566 | General And Yet Particular
 
-> "You have given Him power over all flesh, that He should give eternal life to as many as You have given Him."  
-> John 17:2.  
+> You have given Him power over all flesh, that He should give eternal life to as many as You have given Him.  
+> John 17:2  
 
 This was used by our Savior as an argument why the Father should glorify Him in His dread hour of conflict. Our Lord did as much as say, "You have already given Me what I now ask. Therefore, since You have virtually bestowed it upon me in the Covenant, give it Me now in very deed." So the Believer, when he prays, asks for what is already his own. And when we come before the Lord in prayer this should encourage us much, that our heavenly Father has already given us all things in giving us His Son, so that we ask for what is virtually our own.
 

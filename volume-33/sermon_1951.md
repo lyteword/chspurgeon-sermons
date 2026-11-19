@@ -1,7 +1,7 @@
 # Sermon 1951 | The Pleading of the Last Messenger
 
-> "Having yet therefore one son, his well-beloved, he sent him also last unto them, saying, They will reverence my son. But those vinedressers said among themselves, This is the heir, come, let us kill him and the inheritance shall be ours. And they took him, and killed him, and cast him out of the vineyard. What shall, therefore, the lord of the vineyard do? He will come and destroy the vinedressers, and will give the vineyard unto others."  
-> Mark 12: 6-9.  
+> Having yet therefore one son, his well-beloved, he sent him also last unto them, saying, They will reverence my son. But those vinedressers said among themselves, This is the heir, come, let us kill him and the inheritance shall be ours. And they took him, and killed him, and cast him out of the vineyard. What shall, therefore, the lord of the vineyard do? He will come and destroy the vinedressers, and will give the vineyard unto others.  
+> Mark 12:6-9  
 
 Brothers and Sisters, you know the story of God's dealing with Israel and Israel's dealing with God. The Lord chose their fathers, Abraham, Isaac and Jacob. He made them a race separated unto Himself; He brought them out of Egypt from under the iron yoke; He led them through the Red Sea; He fed them for 40 years in the wilderness. He led them about and tutored them, even as a man teaches His son. In due time He brought them into the land which flows with milk and honey and He put them under a dispensation eminently gentle and full of tenderness where, as a nation, they might enjoy unbroken prosperity, "sitting every man under his vine and under his fig tree, none making them afraid." All that He required of them was that He should be their God and that they should put no idols in His place, but should obey His statutes.
 

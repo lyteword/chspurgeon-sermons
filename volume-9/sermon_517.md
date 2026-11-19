@@ -1,7 +1,7 @@
 # Sermon 517 | The Rainbow
 
-> "And the bow shall be in the cloud and I will look upon it, that I may remember the Everlasting Covenant between God and every living creature of all flesh that is upon the earth."  
-> Genesis 9:16.  
+> And the bow shall be in the cloud and I will look upon it, that I may remember the Everlasting Covenant between God and every living creature of all flesh that is upon the earth.  
+> Genesis 9:16  
 
 The story of Noah's preservation in the ark is a suggestive representation of salvation by our Lord Jesus Christ. It is, we think, especially intended to depict that part of our salvation which lies in the washing of regeneration. In the same way as Baptism is the outward symbol of regeneration, so also is the ark, "wherein few, that is, eight souls were saved by water." The ark was immersed in those dreadful rains and awful waterfalls which deluged the earth, and Noah's family were buried in that ark to all the world.
 

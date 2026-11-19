@@ -1,7 +1,7 @@
 # Sermon 2134 | The Rough Hewer
 
-> "O Ephraim, what shall I do to you? O Judah, what shall I do to you? for your goodness is as a morning cloud, and as the early dew it goes away. Therefore have I hewed them by the Prophets; I have slain them by the Words of My mouth: and your judgments are as the light that goes forth."  
-> Hosea 6:4,5.  
+> O Ephraim, what shall I do to you? O Judah, what shall I do to you? for your goodness is as a morning cloud, and as the early dew it goes away. Therefore have I hewed them by the Prophets; I have slain them by the Words of My mouth: and your judgments are as the light that goes forth.  
+> Hosea 6:4,5  
 
 Very simple is the way of salvation; very plain is the road home. The chapter begins with it: "Come, and let us return unto the Lord." By going away from the Lord we have lost our privileges, have become wounded and have lost ourselves. To find all these things again we must go back to the Lord, from Whom we have wandered. We must cry with the repenting prodigal, "I will arise and go to my Father", and if we at once begin to carry out the resolve; the way home is not far to seek.
 

@@ -1,7 +1,7 @@
 # Sermon 3536 | A Threefold Slogan
 
 > One thing is necessary.  
-> Luke 10:44  
+> Luke 10:42  
 
 > One thing I know.  
 > John 9:25  

@@ -1,7 +1,7 @@
 # Sermon 659 | Simeon
 
 > And, behold, there was a man in Jerusalem whose name was Simeon. And the same man was just and devout, waiting for the Consolation of Israel: and the Holy Spirit was upon him.  
-> Luke 2:25.  
+> Luke 2:25  
 
 What a biography of a man! How short and yet how complete! We have seen biographies so wordy, full one half is nonsense and much of the other half too dull to be worth reading. We have seen large volumes spun out of men's letters. Writing desks have been broken open and private diaries exposed to the world. Nowadays if a man is a little celebrated, his signature, the house in which he was born, the place where he dines and everything else is thought worthy of public notice. So soon as he is departed this life he is embalmed in huge folios, the profit of which rests mainly, I believe, with the publishers and not with the readers.
 

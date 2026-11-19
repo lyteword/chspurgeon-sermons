@@ -1,7 +1,7 @@
 # Sermon 2063 | The Filling of Empty Vessels
 
-> "Even empty vessels; borrow not a few."  
-> 2 Kings 4:3.  
+> Even empty vessels; borrow not a few.  
+> 2 Kings 4:3  
 
 It is needful that we read the whole story: "Now there cried a certain woman of the wives of the sons of the Prophets unto Elisha, saying, Your servant my husband is dead. And you know that your servant did fear the Lord: and the creditor is come to take unto him my two sons to be bondmen. And Elisha said unto her, What shall I do for you? Tell me, what have you in the house? And she said, Your handmaid has not anything in the house, save a pot of oil. Then he said, Go, borrow vessels abroad of all your neighbors, even empty vessels; borrow not a few. And when you are come in, you shall shut the door upon you and upon your sons and shall pour out into all those vessels and you shall set aside that which is full.
 

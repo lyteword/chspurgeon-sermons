@@ -1,7 +1,7 @@
 # Sermon 1978 | Trust
 
-> "That we should be to the praise of His glory, who first trusted in Christ. In whom you also trusted, after you heard the Word of truth, the Gospel of your salvation."  
-> Ephesians 1:12,13.  
+> That we should be to the praise of His glory, who first trusted in Christ. In whom you also trusted, after you heard the Word of truth, the Gospel of your salvation.  
+> Ephesians 1:12,13  
 
 It appears from the preceding verse that the predestinating purpose of God deals not only with salvation as a whole, but with the details of it, it includes faith as well as salvation which comes of faith. "Being predestinated according to the purpose of Him who works all things after the counsel of His own will, that we should be to the praise of His glory, who first trusted in Christ." The trust is appointed as well as the justification, the means as well as the end. We are not ordained to be saved apart from faith, but those who are predestinated to eternal life are ordained to receive it through faith in Christ Jesus. What God has joined together let no man put asunder.
 

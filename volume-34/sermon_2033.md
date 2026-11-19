@@ -1,7 +1,7 @@
 # Sermon 2033 | Plain Directions To Those Who Would Be Saved From Sin
 
-> "Stand in awe and sin not: commune with your own heart upon your bed and be still. Selah. Offer the sacrifices of righteousness, and put your trust in the Lord."  
-> Psalm 4:4,5.  
+> Stand in awe and sin not: commune with your own heart upon your bed and be still. Selah. Offer the sacrifices of righteousness, and put your trust in the Lord.  
+> Psalm 4:4,5  
 
 David was surrounded with many wicked and cruel enemies. They touched him in a tender place when they mocked his religion and so turned his glory into shame. They invented all kinds of lies against him. But the worst of all was that they said, "There is no help for him in God." As much as to say, "God has cast him off. Therefore, let men cast him off. He that is forsaken of the Lord is not fit to sit upon the throne of Israel. Let us set up Absalom in his place." This was malice, indeed.
 

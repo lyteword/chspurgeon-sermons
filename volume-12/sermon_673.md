@@ -1,7 +1,7 @@
 # Sermon 673 | Secret Sins Driven Out By Stinging Hornets
 
-> "Moreover the Lord your God will send the hornet among them, until those who are left, who hide themselves from you, are destroyed."  
-> Deuteronomy 7:20.  
+> Moreover the Lord your God will send the hornet among them, until those who are left, who hide themselves from you, are destroyed.  
+> Deuteronomy 7:20  
 
 Let us spiritualize the story of the conquest of Canaan by the children of Israel. Canaan was given to Abraham and to his seed by a covenant of salt. Our body, soul, and spirit are given to Christ Jesus to be His portion and His heritage, and the newborn principle within us which represents the seed of Israel is to conquer the whole of our manhood for Christ that He may have possession of it in all its powers and passions, parts and faculties. When our Lord Jesus Christ died, He died not only for our souls but also for our bodies; He did not purchase a right to a part of us only but to the entire man. He contemplated in His passion the sanctification of us wholly, spirit, soul, and body, that in this triple kingdom He Himself might reign supreme without a rival.
 

@@ -1,7 +1,7 @@
 # Sermon 2142 | Our Lord's Triumphant Ascension
 
-> "You have ascended on high, You have led captivity captive: You have received gifts for men; yes, for the rebellious, also, that the Lord God might dwell among them."  
-> Psalm 68:18.  
+> You have ascended on high, You have led captivity captive: You have received gifts for men; yes, for the rebellious, also, that the Lord God might dwell among them.  
+> Psalm 68:18  
 
 The hill of Zion had been taken out of the hand of the Jebusites. They had held it long after the rest of the country had been subdued, but David, at last, had taken it from them. This was the mountain ordained of Jehovah of old to be the place of the Temple. David, therefore, with songs and shouts of rejoicing, brought up the Ark from the house of Obed-edom to the place where it should remain. That is the literal fact upon which the figure of the text is based. We are at no loss for the spiritual interpretation, for we turn to Ephesians 4:8 where, quoting rather the sense of the passage than the exact words, Paul says, "When He ascended up on high, He led captivity captive, and gave gifts unto men."
 

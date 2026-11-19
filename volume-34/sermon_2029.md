@@ -1,7 +1,7 @@
 # Sermon 2029 | Let Him Deliver Him Now
 
-> "He trusted in God; let him deliver him now; if he will have him: for he said, I am the Son of God."  
-> Matthew 27:43.  
+> He trusted in God; let him deliver him now; if he will have him: for he said, I am the Son of God.  
+> Matthew 27:43  
 
 These words are a fulfilment of the prophecy contained in the twenty-second Psalm. Read from the seventh verse: "All they that see me laugh me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that he would deliver him: let him deliver him, seeing he delighted in him." Thus to the letter doth our Lord answer to the ancient prophecy.
 

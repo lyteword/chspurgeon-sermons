@@ -1,6 +1,6 @@
 # Sermon 1968 | Jubilee Joy: or, Believers Joyful In Their King
 
-> "Let the children of Zion bejoyful in their King."  
+> Let the children of Zion bejoyful in their King.  
 > Psalm 149:2  
 
 Your streets will ring with joyous acclamations when the Queen and court pass through them to the Abbey, and well they may! The jubilee of a good and great Queen is an event to be celebrated with enthusiasm. Our hearts are fully in accord with those who bless and praise God for His goodness to this country in giving us 50 years of the peaceful reign of Victoria.

@@ -3,7 +3,8 @@
 > Look unto Abraham your father, and unto Sarah that bore you.  
 > Isaiah 51:2  
 
-"Even as Sara obeyed Abraham, calling him lord: whose daughters you are, as long as you do well, and are not afraid with any amazement." 1 Peter3:6.
+> Even as Sara obeyed Abraham, calling him lord: whose daughters you are, as long as you do well, and are not afraid with any amazement.  
+> 1 Peter 3:6  
 
 Now, I never like to do an injustice to anybody and I feel that I did not, in that sermon, speak sufficiently about Sarah, though I did not quite forget her. Let us make up for our omissions. If we had Abraham at Exeter Hall yesterday morning, we will have Sarah at the Tabernacle, tonight, and maybe we shall learn a lesson from her holy character as well as from that of her husband. And the two lessons combined may go to the perfecting of each other. May our great Teacher, the Holy Spirit, now instruct us! To begin with, let us note what a happy circumstance it is when a godly, gracious man has an equally godly and gracious wife.
 

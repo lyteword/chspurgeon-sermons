@@ -3,7 +3,8 @@
 > This is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sent.  
 > John 17:3  
 
-"We are in Him that is true, even in His Son, Jesus Christ. This is the true God, and eternal life. Little children, keep yourselves from idols." 1 John 5:20, 21.
+> We are in Him that is true, even in His Son, Jesus Christ. This is the true God, and eternal life. Little children, keep yourselves from idols.  
+> 1 John 5:20, 21  
 
 Our subject this morning was concerning laying hold on eternal life, and I thought that I would say a little more, tonight, about eternal life. Many people, when they hear or read that expression, suppose that it means Heaven. It does mean that, but it means much more. Eternal life commences here; it begins in the Believer as soon as he is born again. Then he receives into him that same life which he will have throughout eternity! Eternal life is not a thing of changes. The river widens and deepens, as I showed you this morning, but it is always the same river of the Water of Life; it always flows from the same Source; it is always constituted in the same manner. The life of the new-born Christian who, only a few minutes ago began to pray, is precisely the same life which is to be found in yonder bright spirits that have now been thousands of years in perfection at the right hand of God praising His name! Death does not transport Believers into a new life; it simply rids us of certain impediments that hamper our true life in its upward flow. The life of the Christian, here, is the triumphant life that is to be enjoyed hereafter! It is one and the same life so far as its real nature is concerned.
 

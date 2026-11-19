@@ -1,9 +1,10 @@
 # Sermon 1793 | The Glory in the Rear
 
 > The glory of the Lord shall be thy rereward.  
-> Isaiah 57:8  
+> Isaiah 58:8  
 
-"For the Lord will go before you; and the God of Israel will be your rereward." Isaiah 3:12.
+> For the Lord will go before you; and the God of Israel will be your rereward.  
+> Isaiah 52:12  
 
 WHEN THE ISRAELITES left the place of their bondage and came to the edge of the wilderness, a visible token of the Lord's presence and leadership was granted to them. They saw high in the air a pillar, which by day might be compared to rising smoke, but at night became a flame of fire. Such displays on a small scale were usual in the march of armies, but this was of supernatural origin. Where it moved the people were to follow; it was to be their companion, that they might not be alone, their conductor, that they might not go astray. We have become familiar, by accounts of our own soldiery in Egypt, with the extreme danger of the oriental sun when men are marching over the fiery sand: this cloud would act as a vast umbrella tent, covering the whole of the great congregation, so that they could march without being faint with the heat. By night their canvas city was lighted up by this grand illumination. They could march as well by night as by day, for we are told at the close of the previous chapter that by night the Lord went before them "in a pillar of fire, to give them light; to go by day and night." Might they not have said, "The Lord God is a sun and shield?" Did they not realize the fulfillment of the promise not yet spoken in words, "The sun shall not smite thee by day, nor the moon by night?" This sacred symbol of the divine presence must have been a very great solace to them in those early days, when their pilgrim life was novel to them, and their newly found liberty was darkened by a terrible fear of recapture.
 

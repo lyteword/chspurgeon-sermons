@@ -1,6 +1,6 @@
 # Sermon 985 | The Touchstone of Godly Sincerity
 
-> "Will he always call upon God?"  
+> Will he always call upon God?  
 > Job 27:10  
 
 When Job resumes his address in this chapter, he appeals to God in a very solemn matter as to the truth of all that he had spoken. No less vehemently does he assert his innocence of any signal crime, or his consciousness of any secret guile which could account for his being visited with extraordinary suffering. I do not know that his language necessarily implies any culpable self-righteousness. It appears to me, rather, that he had good cause to defend himself against the bitter insinuations of his unfriendly friends.

@@ -1,6 +1,6 @@
 # Sermon 355 | Portraits Of Christ
 
-> "For whom He did foreknow, He also did predestinate to be conformed to the image of His Son."  
+> For whom He did foreknow, He also did predestinate to be conformed to the image of His Son.  
 > Romans 8:29  
 
 It is not so much predestination which will occupy our attention this morning, as the fact that Believers are predestinated to be conformed to the image of God's dear Son.

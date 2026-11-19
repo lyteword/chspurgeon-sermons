@@ -117,7 +117,7 @@ In other words, dear Brothers and Sisters, since Christ lives, let us live with 
 
 So may God make it to be, for our Lord Jesus Christ's sake! Amen.
 
-## Exposition by C. H. Spurgeon: ROMAANS5
+## Exposition by C. H. Spurgeon: Romans 5
 
 Therefore being justified by faith, we have peace with God through our Lord Jesus Christ. Do not let us simply read these words, but let us, each one, say in our hearts, "That is true. I have believed in Christ, therefore I am justified in the sight of God and, therefore, I have peace with God through Jesus Christ our Lord." There is nothing in the world that is half as valuable as the two precious gems in this verse, justification and the peace which follows it.
 

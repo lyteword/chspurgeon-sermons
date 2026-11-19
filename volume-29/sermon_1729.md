@@ -1,7 +1,7 @@
 # Sermon 1729 | Beginning at Jerusalem
 
-> "And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem."  
-> Luke 24:47.  
+> And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem.  
+> Luke 24:47  
 
 The servants of God were not left to originate a gospel for themselves, as certain modern teachers appear to do, nor were they even left to map out their mode of procedure in the spreading of the glad tidings. They were told by their great Master what to preach, and where to preach it, and how to preach it, and even where to begin to preach it. There is ample room for the exercise of our thought in obeying Christ's commands; but the worldly wise in these days call no one a thoughtful person who is content to be a docile follower of Jesus. They call themselves "thoughtful and cultured" simply because they set up their own thoughts in opposition to the thoughts of God. It were well if they would remember the old proverb: "Let another praise thee, and not thine own lips." As a rule those who call themselves "intellectual" are by no means persons of great intellect. Great minds seldom proclaim their own greatness. These boasters are not satisfied to be "followers of God, as dear children," but must strike out a path for themselves; this reveals their folly rather than their culture. We shall find use for every faculty which we possess, even if we are endowed with ten talents, in doing just as we are bidden by our Lord. Implicit obedience is not thoughtless: on the contrary, it is necessary to its completeness that heart and mind should be active in it.
 

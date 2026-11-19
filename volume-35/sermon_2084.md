@@ -1,7 +1,7 @@
 # Sermon 2084 | The Bible Tried and Proved
 
-> "The Words of the Lord are pure words: as silver tried in a furnace of earth, purified seven times."  
-> Psalm 12:6.  
+> The Words of the Lord are pure words: as silver tried in a furnace of earth, purified seven times.  
+> Psalm 12:6  
 
 In this Psalm our text stands in contrast with the evil of the age. The Psalmist complains that the "godly man ceases. The faithful fail from among the children of men." It was a great grief to him and he found no consolation except in the Words of the Lord. What if men fail; the Word of the Lord abides! What a comfort it is to quit the arena of controversy for the green pastures of Revelation! One feels like Noah, when shut within the ark; he saw no longer the death and desolation which reigned outside. Live in communion with the Word of God and even in the absence of Christian friends you will not lack for company.
 

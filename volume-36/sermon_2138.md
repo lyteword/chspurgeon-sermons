@@ -1,7 +1,7 @@
 # Sermon 2138 | The Shank-bone Sermon, or, True Believers and Their Helpers
 
-> "Who, when he was come, helped them much which had believed through Grace."  
-> Acts 18:27.  
+> Who, when he was come, helped them much which had believed through Grace.  
+> Acts 18:27  
 
 Apollos is not Paul, and Paul is not Apollos. To blend the two in one would be to spoil each one of the two without producing a good third. It is a great mercy that we have Paul, Apollos, Cephas and other varieties of preachers, for not only is variety charming, but it is necessary. It is not everybody that can be profited by Paul, for it requires a great deal of fixed attention to follow him and many hearers cannot concentrate their thoughts for long. It is not everybody that can be profited by Apollos, for fine speech is thrown away on simple souls. It is written, "Then shall the lambs feed after their manner," and assuredly each one of them have a peculiar manner of feeding.
 

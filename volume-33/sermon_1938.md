@@ -1,7 +1,7 @@
 # Sermon 1938 | The Master Key: Opening the Gate of Heaven
 
-> "And You said, I will surely do you good."  
-> Genesis 32:12.  
+> And You said, I will surely do you good.  
+> Genesis 32:12  
 
 The possession of a God, or the non-possession of a God, makes the greatest possible difference between man and man. Esau is a princely being, but he is "a profane person." Jacob is a weak, fallible, frail creature, but he has a God. Have you not heard of "the mighty God of Jacob?" There are many wise, careful, prudent men of the world who have no God and, truly, these in the highest sense, like the young lions, lack and suffer hunger, for their highest nature is left to famish. Those who wait upon the Lord are often very simple and devoid of ability and policy, but they shall not lack any good thing: their highest nature is well supplied from heavenly sources. This is the great difference between the two races which people the world, I mean the sons of men who say in their hearts, "No God," and the sons of God, the twice-born, who have received new life and, therefore, with heart and flesh cry out for God, even the living God!
 

@@ -1,6 +1,6 @@
 # Sermon 978 | All Fullness in Christ
 
-> "For it pleased the Father that in Him should all fullness dwell."  
+> For it pleased the Father that in Him should all fullness dwell.  
 > Colossians 1:19  
 
 The preacher is under no difficulties this morning as to the practical object to be aimed at in his discourse. Every subject should be considered with an object. Every discourse should have a definite spiritual aim, otherwise we do not so much preach as play at preaching. The connection plainly indicates what our drift should be. Read the words immediately preceding the text, and you find it declared that our Lord Jesus is in all things to have the pre-eminence. We would seem, by this text, to yield honor and glory to the ever-blessed Redeemer, and enthrone Him in the highest seat in our hearts.

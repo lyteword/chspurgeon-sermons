@@ -1,6 +1,6 @@
 # Sermon 2120 | The Security of Believers: Or, Sheep Who Shall Never Perish
 
-> "My sheep hear My voice and I know them and they follow Me: and I give unto them eternal life. And they shall never perish, neither shall any man pluck them out of My hand. My Father, which gave them Me is greater than all. And no man is able to pluck them out of My Father's hand. I and my Father are one."  
+> My sheep hear My voice and I know them and they follow Me: and I give unto them eternal life. And they shall never perish, neither shall any man pluck them out of My hand. My Father, which gave them Me is greater than all. And no man is able to pluck them out of My Father's hand. I and my Father are one.  
 > John 10:27-30  
 
 Our Savior did not hesitate to preach the deeper doctrines of the Gospel to the most miscellaneous assembly. When He began to preach where He was brought up, they all gathered with admiration about Him, until He preached the doctrine of election. And then, straightway, they were so angry that they would have destroyed Him. They could not bear to hear of the widows of Israel passed by and the woman of Sarepta chosen, nor of a heathen leper healed, while the many lepers of their own race were left to die.

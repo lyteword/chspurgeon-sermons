@@ -1,6 +1,6 @@
 # Sermon 362 | None But Jesus: Second Part
 
-> "He that believeth on him is not condemned"  
+> He that believeth on him is not condemned  
 > John 3:18  
 
 In the morning sermon, our time was mainly taken up with the description of faith, what it is. We had only a few minutes left at its close to describe what it leads to: the privilege of justification, which is a gift to the soul as the result of faith. Let this high privilege, then, occupy our attention to-night. The text says, "He that believeth on him, is not condemned."

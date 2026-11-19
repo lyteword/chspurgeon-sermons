@@ -1,6 +1,6 @@
 # Sermon 2106 | In the Garden With Him
 
-> "One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him?"  
+> One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him?  
 > John 18:26  
 
 Peter was on dangerous ground. When his Master was being buffeted, he was trying to make himself comfortable. We read of the high priest's servants, that they warmed themselves and Peter stood with them and warmed himself. He stood with them and they were rough servants of ill masters. He was in bad company and he was a man who could not afford to be in bad company; for he was so impulsive and so easily provoked to rash actions.

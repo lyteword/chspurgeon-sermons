@@ -1,7 +1,7 @@
 # Sermon 520 | Confession With The Mouth
 
-> "With the heart man believes unto righteousness. And with the mouth confession is made unto salvation."  
-> Romans 10:10.  
+> With the heart man believes unto righteousness. And with the mouth confession is made unto salvation.  
+> Romans 10:10  
 
 This morning, according to my promise, I discourse upon the second part of this verse: "With the mouth confession is made unto salvation." I feel a measure of regret that all my hearers of this morning were not present last Sunday, since you may wrongly imagine that I exaggerate the importance of outward confession. Whereas had you been present when we were considering the first sentence, you would have seen that I magnified the "believing with the heart." I declared it to be the all-important, the essential thing without which confession with the mouth would be a sin, a falsehood, and a grievous insult to the Most High. One circumstance greatly mitigates my fears: you may all read both sermons at your leisure, and so see for yourselves how earnestly I have labored to put the two duties in their proper place, not unduly exalting the less, nor depreciating the greater.
 

@@ -1,7 +1,7 @@
 # Sermon 1985 | The Child Of Light Walking In Darkness
 
-> "Who amongyou fears the Lord? Who obeys the voice of His servant? Who walks in darkness and has no Light? Let him trust in the name of the Lord, and rely upon his God."  
-> Isaiah 50:10.  
+> Who amongyou fears the Lord? Who obeys the voice of His servant? Who walks in darkness and has no Light? Let him trust in the name of the Lord, and rely upon his God.  
+> Isaiah 50:10  
 
 See how the Lord inquires of His people? In every congregation He asks this question, "Who among you fears the Lord?" These are the wheat upon the threshing floor. As to the thoughtless, "What is the chaff to the wheat? says the Lord." The Lord's heart is towards the hearts that fear Him and He makes enquiry concerning them because He loves them, cares for them and helps them in their day of trouble.
 

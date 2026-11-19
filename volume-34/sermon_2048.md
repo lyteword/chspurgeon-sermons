@@ -1,7 +1,7 @@
 # Sermon 2048 | A Life-Long Occupation
 
-> "By Him, therefore, let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to His name."  
-> Hebrews 13:15.  
+> By Him, therefore, let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to His name.  
+> Hebrews 13:15  
 
 It is instructive to notice where this verse stands. The connection is a golden setting to the gem of the text. Here we have a description of the Believer's position before God. He has done with all carnal ordinances and has no interest in the ceremonies of the Mosaic Law. Brethren, as Believers in Jesus, who is the substance of all the outward types, we have, henceforth, nothing to do with altars of gold or of stone, our worship is spiritual and our altar spiritual. 
 

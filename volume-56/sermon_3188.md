@@ -1,6 +1,7 @@
 # Sermon 3188 | Discipline in Christ's Army
 
-"Pass through the host, and command the people." Joshua 1:11.
+> Pass through the host, and command the people.  
+> Joshua 1:11  
 
 Believers are called to be good soldiers of Jesus Christ. As many of us as believe in Him and have obtained eternal life through Him, are now enlisted beneath His banner to fight the battles of holiness against sin and of truth against error. We war not, however, with flesh and blood, but with spiritual enemies. We slay lust and lying, drunkenness and blasphemy, and we wage a never-ending warfare against everything which is dishonest, unkind, selfish, or ungodly. He who died upon the Cross out of love to the undeserving has taught us how to endure hardness for His sake as good soldiers of Jesus Christ. Our ambition is to fight a good fight and keep the faith. And by the power of the Holy Spirit we hope to do so and to receive from our Great Commander's mouth the blessed commendation, "Well done, good and faithful servant."
 

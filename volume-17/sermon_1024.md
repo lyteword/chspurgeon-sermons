@@ -1,6 +1,6 @@
 # Sermon 1024 | The Throne of Grace
 
-> "The throne of grace."  
+> The throne of grace.  
 > Hebrews 4:16  
 
 These words are found embedded in that gracious verse, "Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need." They are a gem in a golden setting. True prayer is an approach of the soul by the Spirit of God to the throne of God. It is not the utterance of words. It is not, alone, the feeling of desires. It is the advance of the desires to God, the spiritual approach of our nature towards the Lord our God. True prayer is not a mere mental exercise, nor a vocal performance, but it is far deeper than that. It is spiritual commerce with the Creator of heaven and earth.

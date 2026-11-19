@@ -1,7 +1,7 @@
 # Sermon 691 | An Immovable Foundation
 
-> "If the foundations are destroyed, what can the righteous do?"  
-> Psalm 11:3.  
+> If the foundations are destroyed, what can the righteous do?  
+> Psalm 11:3  
 
 We are walking along through the vineyard of this Psalm, plucking the clusters on the right hand and on the left, when suddenly, with a tremendous roar, the "if" of our text, like a young lion, leaps out upon us. What shall we do with it? Let us play the man, like Samson, and rend it as though it were a kid and doubtless we shall find honey in it, and shall have again to put forth our riddle, "Out of the eater came forth meat, and out of the strong came forth sweetness." These "ifs" are terrible lions, but when Divine Grace enables us to slay them, they become good storehouses for sweetness.
 

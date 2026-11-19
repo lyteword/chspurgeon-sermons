@@ -1,7 +1,7 @@
 # Sermon 722 | The Captive Savior Freeing His People
 
-> "Jesus answered, 'I have told you that I am He. If therefore you seek Me, let these go their way,' that the saying might be fulfilled, which He spoke, 'Of them whom You gave Me have I lost none.'"  
-> John 18:8,9.  
+> Jesus answered, 'I have told you that I am He. If therefore you seek Me, let these go their way,' that the saying might be fulfilled, which He spoke, 'Of them whom You gave Me have I lost none.'  
+> John 18:8,9  
 
 The whole story of our Lord's passion is exceedingly rich in meaning. One is tempted to linger over every separate sentence of the narratives given by the Evangelists. It is possible to preach several series of sermons upon the whole story, and there is not a single incident, though it may seem to be but accidental, which might not furnish a wealth of holy thought to the careful student.
 

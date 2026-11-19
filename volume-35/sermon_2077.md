@@ -1,6 +1,6 @@
 # Sermon 2077 | The Gospel of the Glory of Christ
 
-> "The light of the glorious Gospel of Christ."  
+> The light of the glorious Gospel of Christ.  
 > 2 Corinthians 4:4  
 
 Shining in the center of the verse, like a pearl in its setting, you find these words. Literally and accurately translated, they run thus: "The light of the Gospel of the glory of Christ." This is the form given to my text in the Revised Version and I shall follow it because, word for word, it follows the original.

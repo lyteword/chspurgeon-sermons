@@ -3,11 +3,14 @@
 > Behold I am with you.  
 > Genesis 28:15  
 
-"I will be with you." Genesis 31:3.
+> I will be with you.  
+> Genesis 31:3  
 
-"The God of my father has been with me." Genesis 31:5.
+> The God of my father has been with me.  
+> Genesis 31:5  
 
-"Behold, I die: but God shall be with you." Genesis 48:21.
+> Behold, I die: but God shall be with you.  
+> Genesis 48:21  
 
 My discourse, this evening, will scarcely be a sermon. It will be an expository, rather, of the life and experience of Jacob upon one point. In order to bring it out I shall need four texts, but lest you should let any one of them slip, I will give them to you one at a time.
 

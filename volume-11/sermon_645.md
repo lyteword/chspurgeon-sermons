@@ -1,7 +1,7 @@
 # Sermon 645 | The Blind Man's Earnest Cries
 
 > And when he heard that it was Jesus of Nazareth, he began to cry out and say, Jesus, Son of David, have mercy upon me! And many charged him that he should hold his peace: but he cried the more a great deal, Son of David, have mercy on me.  
-> Mark 10:47,48.  
+> Mark 10:47,48  
 
 Wherever Jesus Christ is found, His presence is marvelously mighty. The disciples, when Christ was absent, were like sheep without a shepherd: they were foiled in argument and even defeated in attempted miracles, but as soon as our Savior made His appearance among them, they returned to their strength. When a valiant general suddenly hastens to the rescue of his routed troops, the sound of his horse hoofs reassures the trembling, and the sound of his voice transforms each coward into a hero. May the glorious Captain of our salvation show Himself in the midst of our churches and there will be a joyous shout along our ranks!
 

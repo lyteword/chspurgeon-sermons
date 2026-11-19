@@ -1,7 +1,7 @@
 # Sermon 1960 | The Servants and the Pounds
 
-> "A certain nobleman went into a far country to receive for himself a kingdom and to return. So he called ten of his servants and delivered to them ten pounds, and said to them, Do business till I come."  
-> Luke 19:12,13.  
+> A certain nobleman went into a far country to receive for himself a kingdom and to return. So he called ten of his servants and delivered to them ten pounds, and said to them, Do business till I come.  
+> Luke 19:12,13  
 
 We are told the reason for the Savior's delivering this parable at this particular time. He was going up to Jerusalem and the ignorant and enthusiastic crowd hoped that He might now set up a temporal sovereignty. "They thought that the Kingdom of God should immediately appear." Their minds were crowded with mistakes and the Savior would set them right upon this matter. To banish from their minds the idea of a Jewish empire in which every Hebrew would be a prince, our Lord told them this story, I use the word advisedly, for his parable was also a fact. He would show them that as yet they were not to be partakers in a kingdom, but were soon to be waiters for an absent Lord who had gone to receive a Kingdom and to return. In His absence, His disciples were to be in the position of servants put in trust with property while their Master was gone far away to receive a Kingdom and then to come again. He was now like a nobleman who may be one among many citizens, but He was going away to a court where He would be invested with royal authority, and He would come back a King. They were to be put in trust with certain pounds till He should return.
 

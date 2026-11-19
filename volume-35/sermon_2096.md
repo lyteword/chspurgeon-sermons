@@ -1,7 +1,7 @@
 # Sermon 2096 | The Marriage of the Lamb
 
-> "Let us be glad and rejoice and give honor to Him: for the marriage of the Lamb is come and His wife has made herself ready. And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints."  
-> Revelation 19:7,8.  
+> Let us be glad and rejoice and give honor to Him: for the marriage of the Lamb is come and His wife has made herself ready. And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints.  
+> Revelation 19:7,8  
 
 Last Lord's Day we saw clearly from God's Word that our Lord is worshipped in Heaven under the Character of a Lamb. Now, by a Lamb was meant sacrifice, sacrifice for the putting away of sin, according to the text, "Behold the Lamb of God, which takes away the sin of the world." It is against the great doctrine of atonement and substitutionary death that the attacks of the present unbelieving age are constantly being made. And therefore I set before you the Truth of God that substitution and sacrifice were not a temporary expedient but that they continue all through the whole history of salvation and remain in the very highest place, even in Heaven itself and will continue evermore.
 

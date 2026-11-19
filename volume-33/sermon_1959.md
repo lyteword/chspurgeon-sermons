@@ -1,7 +1,7 @@
 # Sermon 1959 | The Watchword For Today: "Stand Fast"
 
-> "For our citizenship is in Heaven, from where, also, we look for the Savior, the Lord Jesus Christ, who shall change our vile body, that it may be fashioned like unto His glorious body according to the working whereby He is able even to subdue all things unto Himself. Therefore, my brethren, dearly beloved and longed for, my joy and crown, standfast in the Lord my dearly beloved."  
-> Philippians 3:20,21; 4:1.  
+> For our citizenship is in Heaven, from where, also, we look for the Savior, the Lord Jesus Christ, who shall change our vile body, that it may be fashioned like unto His glorious body according to the working whereby He is able even to subdue all things unto Himself. Therefore, my brethren, dearly beloved and longed for, my joy and crown, standfast in the Lord my dearly beloved.  
+> Philippians 3:20,21; 4:1  
 
 Every doctrine of the Word of God has its practical bearing. As each tree bears seed after its kind, so does every Truth of God bring forth practical virtues. Hence you find the Apostle Paul very full of "therefore", his therefores being the conclusions drawn from certain statements of Divine Truth. I marvel that our excellent translators should have divided the argument from the conclusion by making a new chapter where there is least reason for it.
 

@@ -1,7 +1,7 @@
 # Sermon 602 | The Smoke Of Their Torments
 
-> "And Abraham went early in the morning to the place where he had stood before the Lord. Then he looked toward Sodom and Gomorrah and toward all the land of the plain; and he saw, and behold, the smoke of the country went up as the smoke of a furnace."  
-> Genesis 19:27,28.  
+> And Abraham went early in the morning to the place where he had stood before the Lord. Then he looked toward Sodom and Gomorrah and toward all the land of the plain; and he saw, and behold, the smoke of the country went up as the smoke of a furnace.  
+> Genesis 19:27,28  
 
 Early in the morning Abraham sought that favored spot where but yesterday God had been pleased to manifest Himself and where he had been favored with a season of extraordinary communion. Where should the Believer go, but to that choice place, dear to his heart, where he has communed with the Lord?
 

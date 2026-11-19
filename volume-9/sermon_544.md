@@ -1,7 +1,7 @@
 # Sermon 544 | Lessons From Lydia's Conversion
 
-> "And on the Sabbath we went out of the city by a riverside, where prayer was customarily made; and we sat down and spoke to the women who met there. And a certain woman named Lydia, a seller of purple, of the city of Thyatira, who worshipped God, heard us: whose heart the Lord opened, that she attended unto the things which were spoken of Paul."  
-> Acts 16:13, 14.  
+> And on the Sabbath we went out of the city by a riverside, where prayer was customarily made; and we sat down and spoke to the women who met there. And a certain woman named Lydia, a seller of purple, of the city of Thyatira, who worshipped God, heard us: whose heart the Lord opened, that she attended unto the things which were spoken of Paul.  
+> Acts 16:13, 14  
 
 Philippi is famous in classic history as the spot where the world's future trembled in the balance when Octavius met Brutus and Cassius in terrible conflict. The two republican generals here ended their stormy career and universal empire crouched at the feet of Caesar. As long as time endures, or human slaughter is thought worthy of a record, Philippi will be remembered as one of the greatest names in martial history. But when time shall have passed away and the records of human guilt shall have been cast into oblivion, Philippi will still have a name as the place where the first herald of the Cross cried, "Europe for Jesus."
 

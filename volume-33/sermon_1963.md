@@ -1,7 +1,7 @@
 # Sermon 1963 | The Search For Faith
 
-> "Nevertheless, when the Son of Man comes, will He find faith on the earth?"  
-> Luke 18:8.  
+> Nevertheless, when the Son of Man comes, will He find faith on the earth?  
+> Luke 18:8  
 
 It is absolutely certain that God will hear the prayers of His people. From beneath the altar, souls cry unto Him day and night to vindicate the cause of Christ, the cause of truth and righteousness, and to cast down His adversary, these shall be answered speedily. Here on earth, scant though the supplication may be, yet there is a remnant according to the election of Grace who cease not to importune the Almighty God to make bare His arm and display the majesty of His Word. Though for wise and gracious purposes the answer to those prayers may be delayed, yet it is absolutely certain. Shall not God avenge His own elect which cry day and night unto Him though He keeps their case long in hand? Assuredly He will, for those prayers are inspired by the Spirit who knows the mind of God! They are for the Glory of God and of His Christ and they are presented by our great High Priest! Long-suffering keeps back the advent and the judgment for a while, for the Lord is not willing that any should perish but that all should come to repentance. But He will not forever delay the long-expected end! The Lord Jesus, Himself, gives us this personal assurance, "I tell you that He will avenge them speedily." No doubt remains when Jesus says, "I tell you." The Lord will come and, according to His own reckoning, He will come quickly. His reckoning is according to the chronology of Heaven and this, the heirs of Heaven ought gladly to accept, it is meet that even now we keep celestial time.
 

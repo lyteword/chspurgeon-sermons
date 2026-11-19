@@ -1,7 +1,7 @@
 # Sermon 1947 | Who Is This?
 
-> "Behold, the Lord has proclaimed unto the end of the world, Say you to the daughter of Zion, Behold, your salvation comes; behold, His reward is with Him and His work before Him. And they shall call them, The Holy People, The Redeemed of the Lord, and you shall be called, Sought Out, a City Not Forsaken. Who is this that comes from Edom, with dyed garments from Bozrah? This One who is glorious in His apparel, traveling in the greatness of His strength? I who speak in righteousness, mighty to save."  
-> Isaiah 62:11,12; 63:1.  
+> Behold, the Lord has proclaimed unto the end of the world, Say you to the daughter of Zion, Behold, your salvation comes; behold, His reward is with Him and His work before Him. And they shall call them, The Holy People, The Redeemed of the Lord, and you shall be called, Sought Out, a City Not Forsaken. Who is this that comes from Edom, with dyed garments from Bozrah? This One who is glorious in His apparel, traveling in the greatness of His strength? I who speak in righteousness, mighty to save.  
+> Isaiah 62:11,12; 63:1  
 
 Israel was often in great trouble, frequently oppressed by neighboring nations. It would not have been so if they had been faithful to Jehovah. But as a chastisement for their idolatry, they were given over into the hands of adversaries. One nation, near akin to them, was very jealous of them. The Edomites, the seed of Esau, were always watching against Israel and whenever the nation fell on evil times and powerful kingdoms invaded them, Edom was always in alliance with the enemy, ready to profit by Israel's sorrows. Hence Edom was the typical adversary of Israel and is, in that manner, mentioned here with Bozrah, its capital city.
 

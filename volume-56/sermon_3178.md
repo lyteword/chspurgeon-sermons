@@ -1,31 +1,25 @@
 # Sermon 3178 | The Preparatory Prayers of Christ
 
-"Now when all the people were baptized, it came to pass that Jesus, also being baptized, and praying, the Heaven was opened, and the Holy Spirit descended in a bodily shape like a dove upon Him, and a voice came from Heaven, which said, You are My Beloved Son, in You I am well pleased." Luke 3:21,22.
+> Now when all the people were baptized, it came to pass that Jesus, also being baptized, and praying, the Heaven was opened, and the Holy Spirit descended in a bodily shape like a dove upon Him, and a voice came from Heaven, which said, You are My Beloved Son, in You I am well pleased.  
+> Luke 3:21-22  
 
-"And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God. And when it was day, He called unto Him, His disciples: and of them He chose twelve, whom also He named Apostles."
+> And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God. And when it was day, He called unto Him, His disciples: and of them He chose twelve, whom also He named Apostles.  
+> Luke 6:12-13  
 
-Luke 6:12,13.
+> And it came to pass about eight days after these sayings, He took Peter and John and James, and went up into a mountain to pray. And as He prayed, the fashion of His Countenance was altered, and His raiment was white and glistening.  
+> Luke 9:28,29  
 
-"And it came to pass about eight days after these sayings, He took Peter and John and James, and went up into a mountain to pray. And as He prayed, the fashion of His Countenance was altered, and His raiment was white and glistening."
+> And when He had sent the multitudes away, He went up into a mountain apart to pray: and when the evening was come, He was there alone. But the boat was now in the midst of the sea, tossed with waves: for the wind was contrary. And in the fourth watch of the night, Jesus went unto them, walking on the sea.  
+> Matthew 14:23-25  
 
-Luke 9:28,29.
+> Then they took away the stone from the place where the dead were laid. And Jesus lifted up His eyes and said, Father, I thank You that You have heard Me. And I know that You hear Me always: but because of the people here, I said it, that they may believe that You have sent Me.  
+> John 11:41,42  
 
-> And when He had sent the multitudes away, He went up into a mountain apart to pray: and when the evening  
-> was come, He was there alone. But the boat was now in the midst of the sea, tossed with waves: for the wind was contrary. And in the fourth watch of the night, Jesus went unto them, walking on the sea.  
+> And the Lord said, Simon, Simon, behold, Satan has desired to have you, that he may sift you as wheat: but I have prayed for you, that your faith fail not: and when you are converted, strengthen your brethren.  
+> Luke 22:31,32  
 
-Matthew 14:23-25.
-
-"Then they took away the stone from the place where the dead were laid. And Jesus lifted up His eyes and said, Father, I thank You that You have heard Me. And I know that You hear Me always: but because of the people here, I said it, that they may believe that You have sent Me."
-
-John 11:41,42.
-
-"And the Lord said, Simon, Simon, behold, Satan has desired to have you, that he may sift you as wheat: but I have prayed for you, that your faith fail not: and when you are converted, strengthen your brethren."
-
-Luke 22:31,32.
-
-"And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said thus, He gave up the ghost."
-
-Luke 23:46.
+> And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said thus, He gave up the ghost.  
+> Luke 23:46  
 
 There is one peculiarity about the life of our Lord Jesus Christ which everybody must have noticed who has carefully read the four Gospels, namely, that He was a Man of much prayer. He was mighty as a Preacher, for even the officers who were sent to arrest Him said, "Never man spoke like this Man." But He appears to have been even mightier in prayer, if such a thing could be possible! We do not read that His disciples ever asked Him to teach them to preach, but we are told that, "as He was praying in a certain place, when He ceased, one of His disciples said unto Him, Lord, teach us to pray." He had no doubt been praying with such amazing fervor that His disciples realized that He was a master of the holy art of prayer and they, therefore, desired to learn the secret for themselves. The whole life of our Lord Jesus Christ was one of prayer. Though we are often told about His praying, we feel that we scarcely need to be informed of it, for we know that He must have been a Man of prayer. His acts are the acts of a prayerful Man. His words speak to us like the words of One whose heart was constantly lifted up in prayer to His Father. You could not imagine that He would have breathed out such blessings upon men if He had not first breathed in the atmosphere of Heaven! He must have been much in prayer or He could not have been so abundant in service and so gracious in sympathy.
 

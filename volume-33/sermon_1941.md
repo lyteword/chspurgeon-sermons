@@ -1,7 +1,7 @@
 # Sermon 1941 | Grace For Communion
 
-> "Awake, O north wind, and come, you south; blow upon my garden, that the spices thereof may flow out. Let my Beloved come into His garden and eat His pleasant fruits."  
-> Song of Solomon 4:16.  
+> Awake, O north wind, and come, you south; blow upon my garden, that the spices thereof may flow out. Let my Beloved come into His garden and eat His pleasant fruits.  
+> Song of Solomon 4:16  
 
 The soul of the Believer is the garden of the Lord. Within it are rare plants such as yield "spices" and "pleasant fruits." Once it was a wilderness, overgrown with thorns and briars, but now it is "a garden enclosed," an "orchard of pomegranates."
 

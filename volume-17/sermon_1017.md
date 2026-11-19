@@ -1,6 +1,6 @@
 # Sermon 1017 | The Talking Book
 
-> "When you awake, it shall talk with you."  
+> When you awake, it shall talk with you.  
 > Proverbs 6:22  
 
 It is a very happy circumstance when the commandment of our father and the law of our mother are also the commandment of God and the law of the Lord. Happy are they who have a double force to draw them to the right; the bonds of nature, and the cords of grace. They sin with a vengeance who sin both against a father on earth and the great Father in heaven, and they exhibit a virulence and a violence of sin who do despite to the tender obligations of childhood, as well as to the demands of conscience and God. Solomon, in the passage before us, evidently speaks of those who find in the parents' law and in God's law the same thing, and he admonishes such to bind the law of God about their heart, and to tie it about their neck; by which he intends inward affection and open avowal.

@@ -1,7 +1,7 @@
 # Sermon 548 | Forward! Forward! Forward!
 
-> "And the Lord said unto Moses, Why cry you unto Me? Speak unto the children of Israel, that they go forward."  
-> Exodus 14:15.  
+> And the Lord said unto Moses, Why cry you unto Me? Speak unto the children of Israel, that they go forward.  
+> Exodus 14:15  
 
 Spiritual men, in their distresses, turn at once to prayer even as the stag when hunted takes to flight. Prayer is a never-failing resort. It is sure to bring a blessing with it. Even apart from the answer of our supplications, the very exercise of prayer is healthy to the man engaged in it. Far be it from me ever to say a word in disparagement of the holy, happy, heavenly exercise of prayer. But, Beloved, there are times when prayer is not enough, when prayer itself is out of season. You will think that a hard saying and say, "Who can bear it?" But my text is to the point. Moses prayed that God would deliver His people. But the Lord said to him, "Why cry you unto Me?" As much as to say this is not the time for prayer, it is the time for action. "Speak unto the children of Israel, that they go forward." When we have prayed over a matter to a certain degree, it then becomes sinful to tarry any longer. Our plain duty is to carry our desires into action, and having asked God's guidance and having received Divine power from on high, to go at once to our duty without any longer deliberation or delay.
 

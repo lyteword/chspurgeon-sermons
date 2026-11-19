@@ -1,7 +1,7 @@
 # Sermon 677 | Faith Versus Sight
 
-> "For we walk by faith, not by sight."  
-> 2 Corinthians 5:7.  
+> For we walk by faith, not by sight.  
+> 2 Corinthians 5:7  
 
 I think the Apostle is explaining here how it was he could say that while he was at home in the body, he was absent from the Lord, and through what means he felt that this was not the state in which he wished to be forever. Having been possessed, and actuated, and moved by the principle of faith, he was not content to tabernacle in a body which could only be dwelt in satisfactorily through the influence of the faculty of sight. The Apostle, however, mentions here a great general principle: "We walk by faith, not by sight." In talking upon this text this evening, we shall, without pretending to go into it fully, speak, first of all, upon the posture mentioned. Then upon the two principles contrasted, and finally upon a certain caution which is here implied.
 

@@ -1,7 +1,7 @@
 # Sermon 1982 | Love at Its Utmost
 
-> "As the Father hath loved me, so have I loved you: continue ye in my love."  
-> John 15:9.  
+> As the Father hath loved me, so have I loved you: continue ye in my love.  
+> John 15:9  
 
 In the love of Christ we find our best joy. The pastures of the Great Shepherd are wide, but the sweetest grasses grow close to his pierced feet. The love of Jesus is the center of salvation; it is as the sun in the midst of the heavens of grace. I trust that while I lead your meditations this morning towards this golden theme you will be able to enter in spirit into the heart and soul of it. Paul said, when he spake of marriage, "Behold, I show you a mystery: but I speak concerning Christ and the church." There is always much that is mysterious here, but it is ever the mystery of love. You believe in this love; you know it; you have tasted it; and, therefore, I speak to an audience that will appreciate the subject, however faulty may be my handling of it.
 

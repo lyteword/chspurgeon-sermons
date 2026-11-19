@@ -3,7 +3,8 @@
 > But He answered and said, It is not meet to take the children's bread, and to cast it to dogs. And she said, Truth, Lord: yet the dogs eat of the crumbs which fall from their masters' table.  
 > Matthew 15:26,27  
 
-"But Jesus said unto her, Let the children first be filled: for it is not meet to take the children's bread, and to cast it unto the dogs. And she answered and said unto Him, Yes, Lord: yet the dogs under the table eat of the children's crumbs." Mark 7:27,28.
+> But Jesus said unto her, Let the children first be filled: for it is not meet to take the children's bread, and to cast it unto the dogs. And she answered and said unto Him, Yes, Lord: yet the dogs under the table eat of the children's crumbs.  
+> Mark 7:27,28  
 
 I take the two records of Matthew and Mark that we may have the whole matter before us. May the Holy Spirit bless our meditations. The brightest jewels are often found in the darkest places. Christ had not found such faith, no, not in Israel, as he discovered in this poor Canaanite woman. The borders and fringes of the land were more fruitful than the center, where the farming had been more abundant! In the headlands of the field, where the farmer does not expect to grow much beyond weeds, the Lord Jesus found the richest ear of corn that as yet had filled His sheaf. Let those of us who reap after Him be encouraged to expect the same experience. Never let us speak of any district as too depraved to yield us converts, nor of any class of persons as too fallen to become Believers. Let us go, even, to the borders of Tyre and Sidon, though the land is under a curse, for even there we shall discover some elect one, ordained to be a jewel for the Redeemer's crown!
 

@@ -1,7 +1,7 @@
 # Sermon 1990 | "Sitting By"
 
-> "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the Law sitting by."  
-> Luke 5:17.  
+> And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the Law sitting by.  
+> Luke 5:17  
 
 A congregation is a strange aggregate, it is like the gatherings of a net, or the collections of a dredge. If it is a very large one, it is especially remarkable. What strange varieties of creatures meet in the Noah's ark of a crowded House of Prayer! If anybody could write the histories of all gathered here, the result would be a library of singular stories.
 

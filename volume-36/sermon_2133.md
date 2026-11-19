@@ -1,7 +1,7 @@
 # Sermon 2133 | "My God, My God, Why Have You Forsaken Me?"
 
-> "And about the ninth hour Jesus cried with a loud voice, crying, Eli, Eli, lama Sabachthani? that is to say, My God, My God, why have You forsaken Me?"  
-> Matthew 27:46.  
+> And about the ninth hour Jesus cried with a loud voice, crying, Eli, Eli, lama Sabachthani? that is to say, My God, My God, why have You forsaken Me?  
+> Matthew 27:46  
 
 "there was darkness over all the land unto the ninth hour"; this cry came out of that darkness! Expect not to see through its every word, as though it came from on high as a beam from the unclouded Sun of Righteousness. There is light in it; bright, flashing light, but there is a center of impenetrable gloom where the soul is ready to faint because of the terrible darkness. Our Lord was then in the darkest part of His way. He had trodden the winepress now for hours and the work was almost finished. He had reached the culminating point of His anguish. This is His dolorous lament from the lowest pit of misery: "My God, My God, why have You forsaken Me?"
 

@@ -1,7 +1,7 @@
 # Sermon 721 | The Last Enemy Destroyed
 
-> "The last enemy that shall be destroyed is death."  
-> 1 Corinthians 15:26.  
+> The last enemy that shall be destroyed is death.  
+> 1 Corinthians 15:26  
 
 Our Savior stooped to the lowest depths of degradation; He shall be exalted to the topmost heights of glory. "Being found in fashion as a man, He humbled Himself and became obedient unto death, even the death of the cross. Therefore God also has highly exalted Him, and given Him a name which is above every name." Our Lord was trampled beneath the feet of all, but the day comes when all things shall be trampled beneath His feet. By so much as He descended, by so much shall He ascend. By the greatness of His sufferings may we judge of the unspeakable grandeur of His glory. Already sin lies beneath His feet, and Satan, like the old dragon bound, is there also.
 

@@ -1,7 +1,7 @@
 # Sermon 1944 | Might Have Been, or May Be
 
-> "And some of them said, Couldnot thisMan, which opened the eyes ofthe blind, have caused that even this man should not have died?"  
-> John 11:37.  
+> And some of them said, Couldnot thisMan, which opened the eyes ofthe blind, have caused that even this man should not have died?  
+> John 11:37  
 
 "Jesus wept." It does not mean that He shed a tear or two, but that His tears flowed freely. Such is to be gathered from the original word. He wept copiously and continuously till He became the observed of all observers. He was deeply affected and His tears were the fit expression of His intense emotion. Love made Him weep; nothing else ever compelled Him to tears. I do not find that all the pains He endured, even when scourged or when fastened to the cruel Cross, fetched a single tear from Him, but for love's sake, "Jesus wept." At first I feel inclined to say, "Behold, how He wept!" And then I check myself and, borrowing my language from the bystanders, I cry, "Behold, how He loved him!" The Jews recognized, even with their unfriendly eyes, that His tears were drawn from Him by love alone! From this Rock of our salvation no rod but that of love could bring forth floods of tears!
 

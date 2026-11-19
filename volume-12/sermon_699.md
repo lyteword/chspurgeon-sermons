@@ -1,7 +1,7 @@
 # Sermon 699 | Sin Condemned And Executed By Christ Jesus
 
-> "For what the law could not do in that it was weak through the flesh, God did by sending His own Son in the likeness of sinful flesh, on account of sin: He condemned sin in the flesh."  
-> Romans 8:3.  
+> For what the law could not do in that it was weak through the flesh, God did by sending His own Son in the likeness of sinful flesh, on account of sin: He condemned sin in the flesh.  
+> Romans 8:3  
 
 One of the sweetest and most attractive titles of our Lord Jesus Christ, is, "the Friend of sinners." He was in His manners so gentle towards offenders, so graciously did He seek out the lost, and so tenderly did He invite the erring to pardon and reconciliation that it was slanderously said of Him that He was the Friend of sin as well as of sinners. This was the old heathen slander of the days of Celsus. Philosophy and Phariseeism sneeringly asserted that Jesus treated iniquity so lightly, and made it so easy a matter to escape from its consequences that He was rather the helper and abettor of sin than its destroyer. And they blasphemously declared that His Apostles had preached the doctrine of "let us do evil that good may come."
 
