@@ -1,7 +1,5 @@
 # Sermon 192 | The Sunday-School Teacher&mdash;a Steward
 
-On behalf of the Sunday School Union
-
 > Give an account of thy stewardship  
 > Luke 16:2  
 
