@@ -1,6 +1,8 @@
 # Sermon 1864 | First Things First
 
-"You had better have a lion. I have been painting lions so long that they are more in my line than angels." My host answered that there were three or four lions of different colors in the street, already, and that he must have an angel. "Well," said our artist, "if you must have an angel, you shall have an angel, but it will be dreadfully like a lion."
+My Lord Mayor and Gentlemen; I was asked to give an address to the members of the Banks' Prayer Union, and to others occupied in banking, but I beg to warn you all that an address from me is very like a sermon. I am so in the habit of preaching that almost of necessity my talk drops into sermon form.
+
+I have heard a story of a painter of signboards in Harp Alley in the olden times which illustrates the force of habit. An innkeeper selected an angel as the sign of his house, and asked this knight of the brush to produce one. But the painter replied, "You had better have a lion. I have been painting lions so long that they are more in my line than angels." My host answered that there were three or four lions of different colors in the street, already, and that he must have an angel. "Well," said our artist, "if you must have an angel, you shall have an angel, but it will be dreadfully like a lion."
 
 Thus it comes to pass that when I am compelled to give an address, it is extremely like a sermon! I pray you have patience with me now that I have confessed my weakness
 
