@@ -1,6 +1,6 @@
 # Sermon 1100 | Good News for the Lost
 
-> For the Son of Man is come to seek and to sa ve that which was lost.  
+> For the Son of Man is come to seek and to save that which was lost.  
 > Luke 19:10  
 
 The promises of God are like stars, there is not one of them but has in its turn guided tempest-tossed souls to their desired haven. But as among the stars which stud the midnight sky there are constellations which above all others attract the mariner's gaze and are helpful to the steersman, so there are certain passages in Scripture which have not only directed a few wise men to Jesus, but have been guiding stars to myriads of simple minds who have, through their help, found the port of peace. I could mention a number of texts this morning which I might compare to the pointers of the Great Bear or to the Southern Cross because they have directly pointed the penitent eye to Jesus, the Pole Star, and by looking to Him, sinners have found "the way, the truth, and the life."
@@ -25,7 +25,14 @@ If this world of ours could suddenly be left to itself, could forget the centrip
 
 So, when a soul wanders from God, it has no light in it with which to see God and no force in it to draw God to itself. God must enlighten and draw the soul to Him. So that, in this three-fold sense, we are lost by nature, by practice, and by an utter inability to find out our God and to return to Him. Yet, terrible as this lost estate is, "The Son of man is come to seek and to save that which was lost." In addition to this, we are all lost by the condemnation which our sin has brought upon us. We are sometimes told by inaccurate talkers that we are in a state of probation. My Brothers and Sisters, nothing can be more unscriptural than such a statement! We have long ago been proved and found wanting. Our probation is over. We are now, if unrenewed, in a state of condemnation!
 
-The trial is not now pending, it is over and we are condemned, already, for our sins. The fearful sentence of condemnation hangs over every man here who has not believed in the Lord Jesus. The sinner is lost in that sense. It is but a matter of time and that time in God's hands, and the condemned man will be taken out to execution, and the punishment of Divine wrath will fall upon his guilty head. We are lost because we are under legal sentence and are unable to escape from it. We cannot make atonement to God for the wrong we have done, nor avoid His righteous jurisdiction. No mortifications of the body, no lamentations of the spirit, can wipe out a single sin: "Could my tears forever flow; Could my zeal no respite know: All for sin could not atone, Christ must save, and Christ, alone." So that, being before the bar of God regarded as condemned criminals, unregenerate men are lost, indeed.
+The trial is not now pending, it is over and we are condemned, already, for our sins. The fearful sentence of condemnation hangs over every man here who has not believed in the Lord Jesus. The sinner is lost in that sense. It is but a matter of time and that time in God's hands, and the condemned man will be taken out to execution, and the punishment of Divine wrath will fall upon his guilty head. We are lost because we are under legal sentence and are unable to escape from it. We cannot make atonement to God for the wrong we have done, nor avoid His righteous jurisdiction. No mortifications of the body, no lamentations of the spirit, can wipe out a single sin:
+
+> Could my tears forever flow;  
+> Could my zeal no respite know:  
+> All for sin could not atone,  
+> Christ must save, and Christ, alone.  
+
+So that, being before the bar of God regarded as condemned criminals, unregenerate men are lost, indeed.
 
 More than this, there are certain persons in the world who are lost in a more apparent sense than others are. I mean that they are lost to society, to respect and perhaps to decency. That was the case with Zacchaeus, in connection with whom our text was spoken. I do not know what may have been his parentage. Possibly he was born of most reputable folk, but he showed a vicious mind and he turned aside from the good old paths. He loved low company and despised his father's seriousness. There was great grief in that household on his account. Zacchaeus was lost to his parents, they had hoped he would have been a credit to their name, but instead he was a dishonor. They trusted that he would be the staff of their old age, but now he was a scourge to them.
 
@@ -81,7 +88,12 @@ The last point is to be this, there is much of deepest comfort in the descriptio
 
 Now, mark my word, this is a gross and fatal delusion! There is not between the two covers of this Bible one single word of hope held out to any man who believes in that manner, no, but there is the solemn utterance that Christ has not come to save people of that sort at all, for thus it is written: "The whole have no need of a physician, but they that are sick: I came not to call the righteous, but sinners to repentance." As many as are of the works of the Law are under the curse. If any of you are very good people and have no sins. If you have done no wrong and are nearly as good as you ought to be. If you only need just to say a little about the blood of Christ, Christ has not come to save such as you are. He has "come to seek and to save that which was lost." If you are not lost you have no part nor lot in this matter!
 
-Moreover, the Lord Jesus has not come to aid us in self-sufficient endeavors to save ourselves. I wonder how Christian people can sing that verse. A charge to keep I have, A God to glorify; A never-dying soul to save, And fit it for the sky.
+Moreover, the Lord Jesus has not come to aid us in self-sufficient endeavors to save ourselves. I wonder how Christian people can sing that verse.
+
+> A charge to keep I have,  
+> A God to glorify;  
+> A never-dying soul to save,  
+> And fit it for the sky.  
 
 It might suit a Jew at the foot of Sinai, but a Christian should have none of it! If we have to save our own souls it is all over with us. What? Can we fit our souls for the sky? We, save our own souls? Why, this is the clean opposite of the Gospel of Jesus Christ! The theory of some is that there is much natural goodness in men and they have only to work it out and gradually improve themselves into a state of Grace. No, Sir, you are on the wrong tack. Do you know what is the very first ceremony of the Christian religion?
 

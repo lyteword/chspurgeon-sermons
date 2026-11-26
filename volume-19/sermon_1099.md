@@ -27,7 +27,12 @@ A blessed thing it was for us that we had such a Kinsman! When Ruth went to glea
 
 It was not in the power of an angel to have said, "I will suffer for man," for angelic sufferings would have made no amends for human sins. But the Man, the matchless Man, being the representative Man and of right by kinship allowed to redeem, stepped in, suffered what was due, made amends to injured Justice and thereby set us free! Glory be unto His blessed name! And now, Beloved, since the Lord thus saw in Christ's Manhood a suitableness to become our Redeemer, I trust that many here who have been under bondage to Satan will see in that same human Nature an attraction leading them to approach Him.
 
-Sinner, you have not to come to an absolute God. You are not bid to draw near to the consuming fire. You might well tremble to approach Him whom you have so grievously offended. But, there is a Man ordained to mediate between you and God, and if you would come to God, you must come through Him, the Man Christ Jesus. God out of Christ is terrible out of His holy places. He will by no means spare the guilty, but look at yonder Son of Man! His hand no thunder bears, No terror clothes His brow; No bolts to drive your guilty souls To fiercer flames below.
+Sinner, you have not to come to an absolute God. You are not bid to draw near to the consuming fire. You might well tremble to approach Him whom you have so grievously offended. But, there is a Man ordained to mediate between you and God, and if you would come to God, you must come through Him, the Man Christ Jesus. God out of Christ is terrible out of His holy places. He will by no means spare the guilty, but look at yonder Son of Man!
+
+> His hand no thunder bears,  
+> No terror clothes His brow;  
+> No bolts to drive your guilty souls  
+> To fiercer flames below.  
 
 He is a Man with hands full of blessing, eyes wet with tears of pity, lips overflowing with love and a heart melting with tenderness! See you not the gash in His side? Through that wound there is a highway to His heart and he who needs His compassion may soon excite it.
 
@@ -39,7 +44,10 @@ Oh, you guilty ones, have faith that you can reach the heart of Jesus! Sinner, f
 
 Then let me add, before I leave this point, that every child of God ought, also, to be comforted by the fact that our Redeemer is one of our own race, seeing that He was made like unto His brethren that He might be a merciful and faithful High Priest. And He was tempted in all points, like as we are, that He might be able to succor them that are tempted. The sympathy of Jesus is the next most precious thing to His Sacrifice. I stood by the bedside of a Christian Brother the other day and he remarked, "I feel thankful to God that our Lord took our sicknesses." "Of course," said he, "the grand thing was, that He took our sins, but next to that, I, as a sufferer, feel grateful that He also took our sicknesses."
 
-Personally, I also bear witness that it has been to me, in seasons of great pain, superlatively comfortable to know that in every pang which racks His people, the Lord Jesus has a fellow feeling. We are not alone, for one like unto the Son of Man walks the furnace with us! The clouds which float over our sky have aforetime darkened the heavens for Him, also: "He knows what temptations mean, For He has felt the same."
+Personally, I also bear witness that it has been to me, in seasons of great pain, superlatively comfortable to know that in every pang which racks His people, the Lord Jesus has a fellow feeling. We are not alone, for one like unto the Son of Man walks the furnace with us! The clouds which float over our sky have aforetime darkened the heavens for Him, also:
+
+> He knows what temptations mean,  
+> For He has felt the same.  
 
 How completely it takes the bitterness out of grief to know that it once was suffered by Jesus! The Macedonian soldiers, it is said, made long forced marches which seemed to be beyond the power of mortal endurance, but the reason for their untiring energy lay in Alexander's presence. He was accustomed to walk with them and bear the same fatigue.
 
@@ -53,7 +61,12 @@ We might well call Him, "a Man of holiness," for there was no fault in Him. Or a
 
 The various parts of His Character were so singularly harmonious that no one quality predominated so as to become a leading feature. In His moral portrait, the eyes are perfect, but so, also, is the mouth. The cheeks are as beds of spices, but the lips, also are as lilies, dropping sweet-smelling myrrh. In Peter you see enthusiasm exaggerated at times into presumption. And in John, love for his Lord would call fire from Heaven on his foes. Deficiencies and exaggerations exist everywhere but in Jesus! He is the perfect Man, a whole Man, the Holy One of Israel. But there was a peculiarity, and it lay in the fact that "His visage was so marked more than any man, and His form more than the sons of men," through the excessive griefs which continually passed over His spirit.
 
-Tears were His insignia and the Cross His escutcheon. He was the warrior in black armor and not as now, the rider upon the white horse. He was the Lord of Grief, the Prince of Pain, the Emperor of Anguish, a "Man of Sorrows, and acquainted with grief.": "Oh! King of Grief! (a title strange, yet true, To You of all kings only due) Oh! King of Wounds! How shall I grieve for You, Who in all grief prevent me?"
+Tears were His insignia and the Cross His escutcheon. He was the warrior in black armor and not as now, the rider upon the white horse. He was the Lord of Grief, the Prince of Pain, the Emperor of Anguish, a "Man of Sorrows, and acquainted with grief":
+
+> Oh! King of Grief! (a title strange, yet true,  
+> To You of all kings only due)  
+> Oh! King of Wounds! How shall I grieve for You,  
+> Who in all grief prevent me?  
 
 Is not the title, "Man of Sorrows," given to our Lord by way of eminence? He was not only sorrowful, but pre-eminent among the sorrowful! All men have a burden to bear, but His was heaviest of all! Who is there of our race that is quite free from sorrows? Search the whole earth through and everywhere the thorn and thistle will be found, and these have wounded everyone born of woman.
 
@@ -97,9 +110,9 @@ Their malice was not satisfied. They must go further, yet, and nail Him to His C
 
 I feel as if I have no utterance, as if my tongue were tied, while trying to speak upon this subject. I cannot find goodly words worthy of my theme, yet I know that embellishments of language would degrade rather than adorn the agonies of my Lord. There let the Cross stand sublime in its simplicity! It needs no decoration. If I had wreaths of choicest flowers to hang about it, I would gladly place them there, and if instead of garlands of flowers, each flower could be a priceless gem, I would consider that the Cross deserved the whole. But as I have none of these I rejoice that the Cross, alone, in its naked simplicity, needs nothing from mortal speech. Turn to your bleeding Savior, O my Hearers. Continue gazing upon Him, and find in the "Man of Sorrows" your Lord and your God!
 
-And now the last word is, He was "acquainted with grief." With grief He had an intimate acquaintance. He did not know merely what it was in others, but it came home to Himself. We have read of grief. We have sympathized with grief. We have sometimes felt grief, but the Lord felt it more intensely than other men in His innermost soul. He, beyond us all, was conversant with this black letter lore. He knew the secret of the heart which refuses to be comforted. He had sat at Griefs table, eaten of Griefs black bread and dipped His morsel in her vinegar.
+And now the last word is, He was "acquainted with grief." With grief He had an intimate acquaintance. He did not know merely what it was in others, but it came home to Himself. We have read of grief. We have sympathized with grief. We have sometimes felt grief, but the Lord felt it more intensely than other men in His innermost soul. He, beyond us all, was conversant with this black letter lore. He knew the secret of the heart which refuses to be comforted. He had sat at Grief's table, eaten of Grief's black bread and dipped His morsel in her vinegar.
 
-By the waters of Marah He dwelt and knew right well the bitter well. He and Grief were bosom friends. It was a continuous acquaintance. He did not call at Griefs house, sometimes, to take a tonic by the way. Neither did He sip, now and then, of the wormwood and the gall, but the quassia cup was always in His hand and ashes were always mingled with His bread. Not only 40 days in the wilderness did Jesus fast, the world was always a wilderness to Him and His life was one long Lent. I do not say that He was not, after all, a happy Man, for down deep in His soul, benevolence always supplied a living spring of joy to Him.
+By the waters of Marah He dwelt and knew right well the bitter well. He and Grief were bosom friends. It was a continuous acquaintance. He did not call at Grief's house, sometimes, to take a tonic by the way. Neither did He sip, now and then, of the wormwood and the gall, but the quassia cup was always in His hand and ashes were always mingled with His bread. Not only forty days in the wilderness did Jesus fast, the world was always a wilderness to Him and His life was one long Lent. I do not say that He was not, after all, a happy Man, for down deep in His soul, benevolence always supplied a living spring of joy to Him.
 
 There was a joy into which we are one day to enter, the "joy of our Lord," the "joy set before Him" for which "He endured the Cross, despising the shame." But that does not at all take away from the fact that His acquaintance with Grief was continuous and intimate beyond that of any man who ever lived. It was, indeed, a growing acquaintance with Grief, for each step took Him deeper down into the grim shades of sorrow. As there is a progress in the teaching of Christ and in the life of Christ, so is there, also, in the griefs of Christ. The tempest lowered darker and darker, and darker. His sun rose in a cloud, but it set in congregated horrors of heaped up night, till, in a moment, the clouds were suddenly torn in sunder and, as a loud Voice proclaimed, "It is finished," a glorious morning dawned where all expected an eternal night!
 

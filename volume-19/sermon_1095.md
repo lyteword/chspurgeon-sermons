@@ -4,24 +4,18 @@
 > Romans 7:13  
 
 > Philosophers have measured mountains  
-
 > Fathom'd the depths of seas, of states, and kings,  
-
 > Walked with a staff to Heaven and traced fountains:  
-
 > But there are two vast, spacious things,  
-
 > The which to measure it does more behoove:  
-
 > Yet few there are that sound them  
-
 > Sin and Love.  
 
 So sang George Herbert, that sweet and saintly poet, and of one of those "two vast spacious things" we are about to speak on this morning, namely, sin. May the Holy Spirit direct us in thought and speech while into the very center of our subject we plunge at once, keeping to the words of our text.
 
 Our first point to consider this morning shall be that to many men sin does not appear sin. Yes, and in all men in their natural blindness there is an ignorance of what sin is. It needs the power of the Divine Omnipotence, the voice of that same Majesty, which said, "Let there be light," and there was light to illuminate the human mind, or else it will remain in darkness as to much of its own actual sin and the deep and deadly evil which belongs to it. Man, with wretched perverseness of misconception, abides content in a wrong idea of it. His deeds are evil and he will not come to the light lest he should know more concerning that evil than he wishes to know.
 
-Moreover, such is the power of self-esteem that though sin abounds in the sinner he will not readily be brought to feel or confess its existence. There are men in this world, steeped up to the throat in iniquity, who never dream that they have committed anything worse than little faults. There are those whose souls are saturated with it till they are like the wool that has been lying in the scarlet dye, and yet they conceive themselves as white as snow. This is due in part to that dullness of conscience which is the result of the Fall. Though I have heard 10,000 times that conscience is the deputy of God in the soul of man, I have never been able to subscribe to that dogma.
+Moreover, such is the power of self-esteem that though sin abounds in the sinner he will not readily be brought to feel or confess its existence. There are men in this world, steeped up to the throat in iniquity, who never dream that they have committed anything worse than little faults. There are those whose souls are saturated with it till they are like the wool that has been lying in the scarlet dye, and yet they conceive themselves as white as snow. This is due in part to that dullness of conscience which is the result of the Fall. Though I have heard ten thousand times that conscience is the deputy of God in the soul of man, I have never been able to subscribe to that dogma.
 
 It is no such thing! In many persons conscience is perverted. In others only a fragment of it remains and in all it is fallible and subject to aberrations. Conscience is in all men a thing of degrees dependent upon education, example and previous character. It is an eye of the soul, but it is frequently partly blind and weak and always needs light from above or else it does but mock the soul. Conscience is a faculty of the mind, which, like every other, has suffered serious damage through our natural depravity and it is by no means perfect. It is only the understanding acting upon moral subjects and upon such matters it often puts bitter for sweet and sweet for bitter, darkness for light and light for darkness. Therefore it is that men's sins do not appear to them to be sin.
 
@@ -55,7 +49,10 @@ These are no soft speeches and fair words, but hard Truths of God, may the Holy 
 
 This leads us to our second consideration. Where sin is most clearly seen, it appears to be sin. Its most terrible aspect is its own natural self. Sin at its worst appears to be sin. Do I seem to repeat myself? Does this utterance sound like a mere platitude? Then I cannot help it, for the text puts it so. And I know you will not despise the text. But, indeed, there is a depth of meaning in the expression, "Sin, that it might appear sin," as if the Apostle could find no other word so terribly descriptive of sin as its own name. He does not say, "Sin, that it might appear like Satan." No, for sin is worse than the devil since it made the devil what he is. Satan as an existence is God's creature and this, sin never was. Its origin and nature are altogether apart from God.
 
-Sin is even worse than Hell, for it is the sting of that dreadful punishment. Anselm used to say that if Hell were on one side and sin on the other, he would rather leap into Hell than willingly sin against God. Paul does not say, "Sin, that it might appear madness." Truly it is moral insanity, but it is worse than that by far. It is so bad that there is no name for it but itself. One of our poets who wished to show how evil sin looks in the presence of redeeming love, could only say: When the wounds of Christ exploring, Sin does like itself appear.
+Sin is even worse than Hell, for it is the sting of that dreadful punishment. Anselm used to say that if Hell were on one side and sin on the other, he would rather leap into Hell than willingly sin against God. Paul does not say, "Sin, that it might appear madness." Truly it is moral insanity, but it is worse than that by far. It is so bad that there is no name for it but itself. One of our poets who wished to show how evil sin looks in the presence of redeeming love, could only say:
+
+> When the wounds of Christ exploring,  
+> Sin does like itself appear.  
 
 If you need an illustration of what is meant, we might find one in Judas. If you wanted to describe him, you might say he was a traitor, a thief and a betrayer of innocent blood. But you would finish up by saying, "he was a Judas," that gives you all in one, none could match him in villainy.
 
@@ -97,7 +94,14 @@ Look again at thousands of prosperous sinners whose riches are their means of si
 
 This is horrible, but it is so, that the more God gives to man the more man hates His God, and he to whom God multiplies His mercies returns it by multiplying his transgressions! I remember in our Baptist martyrologies the story of one of the Baptists of Holland escaping from his persecutors. A river was frozen over and the good man crossed it safely, but his enemy was of greater bulk and the ice gave way under him. The Baptist, like the child of God he was, turned round and rescued his persecutor just as he was sinking beneath the ice to certain death. And what did the wretch do? As soon as ever he was safely on the shore, he seized the man who had saved his life and dragged him off to prison, from which he was taken to be put to death!
 
-We marvel at such inhumanity! We are indignant at such base returns, but the returns which the ungodly make to God are far more base! I marvel, myself, as I talk to you. I marvel that I speak so calmly on so terribly humbling a theme! And remembering our past lives and our long ingratitude to God, I marvel that we do not turn this place into one vast Bochim or place of weeping, and mingle our tears in a flood with expressions of deep shame and self-abhorrence for our dealings towards God! The same evil is manifested when the Lord reveals His Justice and utters threats. When a threatening sermon is delivered, you will hear men say, as they go out from hearing such a discourse, although the preacher has spoken most affectionately, "We will have no more of this Hell-fire preaching! We are wearied and worried with these threats of judgment.": "Your judgments, too, unmoved they hear, Amazing thought! Which devil's fear Goodness and wrath in vain combine, Their heart betrays no feeling sign." Try the same man with God's tenderness and speak of God's love, and he will be hardened by it, for the Gospel hardens some men and becomes a savor of death unto death unto many.
+We marvel at such inhumanity! We are indignant at such base returns, but the returns which the ungodly make to God are far more base! I marvel, myself, as I talk to you. I marvel that I speak so calmly on so terribly humbling a theme! And remembering our past lives and our long ingratitude to God, I marvel that we do not turn this place into one vast Bochim or place of weeping, and mingle our tears in a flood with expressions of deep shame and self-abhorrence for our dealings towards God! The same evil is manifested when the Lord reveals His Justice and utters threats. When a threatening sermon is delivered, you will hear men say, as they go out from hearing such a discourse, although the preacher has spoken most affectionately, "We will have no more of this Hell-fire preaching! We are wearied and worried with these threats of judgment."
+
+> Your judgments, too, unmoved they hear,  
+> Amazing thought! Which devil's fear  
+> Goodness and wrath in vain combine,  
+> Their heart betrays no feeling sign.  
+
+Try the same man with God's tenderness and speak of God's love, and he will be hardened by it, for the Gospel hardens some men and becomes a savor of death unto death unto many.
 
 O Sin, you are sin, indeed, to make the Gospel of salvation a reason for deeper damnation! When great judgments are abroad in the land, not a few of the ungodly become more insolent against God and even rail at Him as a tyrant. The fire which ought to melt them only makes them harder! The terrors of God they defy and like Pharaoh they demand, "Who is the Lord?" We have known persons in adversity, very poor and very sick, who ought to have been led to God by their sorrow. But instead, they have become careless of all religion and cast off all fear of God. They have acted like Ahaz of whom it is written, "In the time of his distress did he trespass yet more against the Lord: this is that king Ahaz."
 
@@ -111,7 +115,14 @@ The sons and daughters of Adam long to eat of the tree of the knowledge of good 
 
 Observe another case. Men who live in times when zealous and holy Christians abound are often the worse for it. What effect has the zeal of Christians upon such? It excites them to malice! All the while the Church is asleep the world says, "Ah, we do not believe your religion, for you do not act as if you believed it yourselves." But the moment the Church bestirs herself, the world cries, "They are a set of fanatics! Who can put up with their ravings? We could have believed their religion had it been brought to us with respectful sobriety, but accompanied by enthusiasm it is detestable." Nothing will please sinners but their sins! And if their sins could be made into virtues they would fly to their virtues at once, so as to remain in opposition. Contrary to God man will go, his very nature is enmity against his Creator.
 
-The quaint poet with whose verse we commenced our sermon, has truly said: If God had laid all common, certainly Man would have been the encloser: But since now God has impal'd us, on the contrary Man breaks the fence, and every ground will plow. O what were man, might he himself misplace! Sure to be cross he would shift feet and face.
+The quaint poet with whose verse we commenced our sermon, has truly said:
+
+> If God had laid all common, certainly  
+> Man would have been the encloser: But since now  
+> God has impal'd us, on the contrary  
+> Man breaks the fence, and every ground will plow.  
+> O what were man, might he himself misplace!  
+> Sure to be cross he would shift feet and face.  
 
 Sin is thus seen to be exceedingly sinful. That plant must possess great vitality which increases by being uprooted and cut down. That which lives by being killed is strangely full of force. That must be a very hard substance which is hardened by lying in the blast furnace, in the central heat of the fire where iron melts and runs like wax. That must be a very terrible power which gathers strength from that which should restrain it and rushes on the more violently in proportion as it is reined in.
 

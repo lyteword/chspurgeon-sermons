@@ -31,9 +31,21 @@ Let us dwell on these expressions for a few minutes. The first is, that we come 
 
 I hear all this and assent to it. I believe in Jesus and I say, "If He died for all those who trust Him, I will trust Him. If He has offered so great a Sacrifice upon the tree for guilty men, I will rely upon that Sacrifice and make it the basis of my hope." That is coming to Jesus Christ! The term is very simple, yet it is not so very easily explained to others because of its being so simple. If you are taught of the Father you will know full well what it is, but if not I fear that the most plain words will not make you understand. Perhaps I may illustrate coming to Jesus by an incident connected with the hymn which we sang just now.
 
-I think I have read somewhere that Mr. Wesley was one morning dressing. His window looked out towards the sea and there was a heavy wind blowing. The waves were very boisterous and the rain was falling heavily. Just then a little bird, overtaken by the tempest, flew in at the open window and nestled in his bosom. Of course he cherished it there, and then bade it go on its way when the storm was over. Impressed by the interesting occurrence, he sat down and wrote the verse: "Jesus, lover of my soul, Let me to your bosom fly While the raging billows roll, While the tempest still is high. Hide me, O my Savior, hide me Till the storm of life is past."
+I think I have read somewhere that Mr. Wesley was one morning dressing. His window looked out towards the sea and there was a heavy wind blowing. The waves were very boisterous and the rain was falling heavily. Just then a little bird, overtaken by the tempest, flew in at the open window and nestled in his bosom. Of course he cherished it there, and then bade it go on its way when the storm was over. Impressed by the interesting occurrence, he sat down and wrote the verse:
 
-Imitate that poor little bird if you would have Christ, fly away from the wrath of God, fly away from your own convictions of sin, fly away from your dark forebodings of judgment to come, right into the bosom of Jesus which is warm with love to sinners: "Come, guilty souls, and flee away Like doves to Jesus' wounds; This is the accepted Gospel day Wherein free Grace abounds."
+> Jesus, lover of my soul,  
+> Let me to your bosom fly  
+> While the raging billows roll,  
+> While the tempest still is high.  
+> Hide me, O my Savior, hide me  
+> Till the storm of life is past.  
+
+Imitate that poor little bird if you would have Christ, fly away from the wrath of God, fly away from your own convictions of sin, fly away from your dark forebodings of judgment to come, right into the bosom of Jesus which is warm with love to sinners:
+
+> Come, guilty souls, and flee away  
+> Like doves to Jesus' wounds;  
+> This is the accepted Gospel day  
+> Wherein free Grace abounds.  
 
 The second description given us of the way in which Christ becomes ours is by believing on Him. Here, again, I have to explain a word which needs no explanation except one flash of light from the Holy Spirit. And I question whether any other light was ever sufficient to make it clear. And that not because of any real obscurity, but because of the willful blindness of unrenewed nature. To believe on Christ means to believe that Jesus Christ is the Son of God and the Savior of men. But it includes far more than that. You may be very orthodox in your notions about Christ. In fact, you may believe what the Bible states about Him and yet you may not have saving faith in Him. "He that believes on Me." What if I put the word "trusts" instead? "He that trusts in Me." Or he who leans all his weight on Me, who, knowing such and such things to be true, acts as if they were true and shows the reality of his belief by the simplicity of his reliance.
 
@@ -53,7 +65,7 @@ Have you ever chewed the cud with the Truths of the Gospel, turning them over, a
 
 Now, as a man who has feasted well and is no more hungry, rises from the table satisfied, so we feel that in Jesus our entire nature has all that it needs. Christ is All and we are filled in Him, complete in Him. This is to receive Christ. Beloved, if you want to have Christ altogether your own, you must receive Him by this process. Merely to trust Him gives you Christ as food in your mouth. To contemplate, to meditate, to commune with Him is to understand Him, even as food is digested and is ours. Further prayer and fellowship and meditation assimilate Christ so that He becomes part and parcel of our very selves. Christ lives in us and we in Him! We ought not to forget, as we are dwelling upon this, that the two points about Jesus Christ which He says are to us meat and drink, are His flesh and his blood.
 
-We understand by His flesh, His Humanity, our soul feeds upon the literal, real, historical fact that "God was in Christ." That, "the Word was made flesh and dwelt among us," and men beheld His Glory, the Glory as of the OnlyBegotten of the Father, full of Grace and Truth. My soul's main comfort today is not a doctrine. I get a great deal of comfort out of many doctrines, but the bottom comfort of my soul is not a doctrine but a fact. And it is this fact, that He who made the heavens and the earth, and without whom was not anything made that was made, was born of the Virgin Mary at Bethlehem and for 30 years and more did actually, not in fiction or romance, but in very deed, dwell as a Man among men! That fact is my soul's food!
+We understand by His flesh, His Humanity, our soul feeds upon the literal, real, historical fact that "God was in Christ." That, "the Word was made flesh and dwelt among us," and men beheld His Glory, the Glory as of the Only Begotten of the Father, full of Grace and Truth. My soul's main comfort today is not a doctrine. I get a great deal of comfort out of many doctrines, but the bottom comfort of my soul is not a doctrine but a fact. And it is this fact, that He who made the heavens and the earth, and without whom was not anything made that was made, was born of the Virgin Mary at Bethlehem and for thirty years and more did actually, not in fiction or romance, but in very deed, dwell as a Man among men! That fact is my soul's food!
 
 The historical fact that Christ Jesus was flesh and blood, bone of our bone, flesh of our flesh, a Man like ourselves, this, I say, is nourishment to our spirits, and believing it we feel a joy unutterable, for we know that He who sits upon the Throne of God is a Man. Jesus was made "a little lower than the angels," but now, in the Person of Christ, He is crowned with glory and honor! We now know that God cannot hate manhood, because Christ is a Man. Christ has reconciled God to manhood because He represented manhood and the thoughts of God towards man are, for Christ's sake, thoughts of love and not of evil!
 
@@ -71,15 +83,31 @@ My God, whom I offended, became a Man and for my sake He suffered what I ought t
 
 The heart, also, has its hunger, for almost unknown to itself it cries, "O that someone loved me and that I could love someone whose love would fill my nature to the brim." Men's hearts are gluttons after love. Yes, like death and the grave they are insatiable. They hunt here and there, but are bitterly disappointed, for earth holds not an object worthy of all the love of a human heart. But when they hear that Jesus Christ loved them before the world was, and died for them, their roving affections find rest. Like as Ruth found rest in the house of a husband, do we come to peace in Jesus. The love of Jesus casts out all hankering for other loves and fills the soul! He becomes the Bridegroom of our heart, our best Beloved, and we bid the meaner things depart.
 
-In the love of the Father and the Son we dwell in sweet content, hungering and thirsting no more. If the ocean of Divine Love cannot fill us, what can? What more can a man need or wish for? My God, I am Yours. What a comfort Divine, What a blessing to know That my Savior is mine! In the Heavenly Lamb Thrice happy I am, And my heart it does dance At the sound of His name.
+In the love of the Father and the Son we dwell in sweet content, hungering and thirsting no more. If the ocean of Divine Love cannot fill us, what can? What more can a man need or wish for?
+
+> My God, I am Yours.  
+> What a comfort Divine,  
+> What a blessing to know  
+> That my Savior is mine!  
+> In the Heavenly Lamb  
+> Thrice happy I am,  
+> And my heart it does dance  
+> At the sound of His name.  
 
 The heart's hunger is removed eternally by Jesus. Then there are vast desires in us all and when we are quickened those desires expand and enlarge. Man feels that he is not in his element and is not what he was intended to be. He is like a bird in the shell, he feels a life within him too great to be forever confined within such narrow bounds. Do you not, dear Friends, feel great longings? Does not your soul seethe with high ambitions? Our immortal nature frets beneath the burden of mortality! Its spiritual nature is weary of the chains of materialism.
 
-That hungering will never be hushed into content till we receive Christ, but when we have Him we learn that we are the sons of God, heirs of God, joint heirs with Christ and that it does not yet appear what we shall be, but when He shall appear we shall be like He is, for we shall see Him as He is. This opens up before us a splendid future of unfading glory and unbounded bliss, and we feel that we need no more. Since we are Christ's and Christ is God's, all things are ours and our hunger is forever over. The only contented man in the whole world is he who has believed in Jesus and he is contented just because he has obtained all that his nature needs: "Let others stretch their arms like seas, And grasp in all the shore, Grant me the blessings of Your Grace, And I desire no more." Because I could not desire more than all and Christ is All in All.
+That hungering will never be hushed into content till we receive Christ, but when we have Him we learn that we are the sons of God, heirs of God, joint heirs with Christ and that it does not yet appear what we shall be, but when He shall appear we shall be like He is, for we shall see Him as He is. This opens up before us a splendid future of unfading glory and unbounded bliss, and we feel that we need no more. Since we are Christ's and Christ is God's, all things are ours and our hunger is forever over. The only contented man in the whole world is he who has believed in Jesus and he is contented just because he has obtained all that his nature needs:
+
+> Let others stretch their arms like seas,  
+> And grasp in all the shore,  
+> Grant me the blessings of Your Grace,  
+> And I desire no more.  
+
+Because I could not desire more than all and Christ is All in All.
 
 My Beloved, this perfect satisfying of our nature is to be found nowhere else but in Christ. Some have tried to be satisfied with themselves and their own doings. They have despised the bread of Heaven, for they dreamed that they could live without bread, they would be self-contained men, they would make themselves happy with themselves. But it is a wretched failure. The poor Bushmen, when they have nothing to eat, tie a girdle around them and call it the hunger belt. And when they have gone a few days they pull it tighter and tighter still, in order to enable them to bear hunger, so any man who has to live upon himself will have to draw the hunger belt very tight, indeed. A soul cannot be persuaded by philosophy to content itself without its necessary food. Eloquence may try all its charms to that end, but it will be in vain.
 
-Who can convince a hungry man that he needs not eat? Some have gone to Moses for bread and, mark you, the two greatest bread-givers in the world are Moses and Christ. Moses fed the tribes in the wilderness for 40 years and Jesus feeds His people always. But Moses' bread never satisfies. Those who eat it, before long call it light bread. And if they have been satisfied with it for a time, yet there is the mournful reflection that their fathers did eat it and are dead. There is no life in the bread of the Law. But he who gets Christ has a bread of which he shall eat forever and ever, and shall never die.
+Who can convince a hungry man that he needs not eat? Some have gone to Moses for bread and, mark you, the two greatest bread-givers in the world are Moses and Christ. Moses fed the tribes in the wilderness for forty years and Jesus feeds His people always. But Moses' bread never satisfies. Those who eat it, before long call it light bread. And if they have been satisfied with it for a time, yet there is the mournful reflection that their fathers did eat it and are dead. There is no life in the bread of the Law. But he who gets Christ has a bread of which he shall eat forever and ever, and shall never die.
 
 I am told that there is country, I think it is Patagonia, where men in times of need eat clay in great lumps. They fill themselves with it, so as to deaden their hunger. I know that many people in England do the same.
 
