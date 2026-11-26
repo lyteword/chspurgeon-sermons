@@ -109,17 +109,17 @@ The promise goes with godliness, and if you have godliness there is nothing in H
 
 > Lo! I see the fair immortals,  
 > Enter to the blissful seats;  
-> Glory opens her waiting portals,   
+> Glory opens her waiting portals,  
 > And the Savior's train admits.  
 > All the chosen of the Father,  
 > All for whom the Lamb was slain,  
-> All the Church appear together,   
+> All the Church appear together,  
 > Washed from every sinful stain.  
-> His dear smile the place enlightens   
+> His dear smile the place enlightens  
 > More than thousand suns could do;  
 > All around, His Presence brightens,  
 > Changeless, yet forever new.  
-> Blessed state! Beyond conception!    
+> Blessed state! Beyond conception!  
 > Who its vast delights can tell?  
 > May it be my blissful portion,  
 > With my Savior there to dwell.  
@@ -130,39 +130,40 @@ Now, very briefly, consider another point. I have shown you that the promise app
 
 Already tens of thousands to whom the promise was made have obtained a measure of this bliss in the glorification of their perfect spirits. We are on the road to the same happy state. Some of us are on the river's brink. Perhaps the Lord may come suddenly, and we shall be changed, and so perfected without dying. Be that as the Lord wills, it is not a question which disturbs us. By God's Grace, our faith is strong and firm. We are sure that we, too, shall enter into the rest which remains, and with all the blood-washed multitude shall in wonder and surprise adore the God before whose Throne we shall cast our crowns.
 
-But I shall not tarry upon that, for there comes a fourth thought. This promise is a present promise. You should notice the participle, "having promise." It does not say that godliness after awhile will get the promise, but godliness has promise now: at this very moment. My dear Hearer, if you are godly, that is, if you have submitted to God's way of salvation. If you trust God, love God, serve God: if you are, in fact, a converted man: you have NOW the promise of the life that is to come. When we get a man's promise in whom we trust, we feel quite easy about the matter under concern. A note of hand from many a firm in the city of London would pass current for gold any day in the week.
+But I shall not tarry upon that, for there comes a fourth thought. This promise is a present promise. You should notice the participle, "having promise." It does not say that godliness after awhile will get the promise, but godliness has promise now: at this very moment. My dear Hearer, if you are godly, that is, if you have submitted to God's way of salvation. If you trust God, love God, serve God: if you are, in fact, a converted man: you have now the promise of the life that is to come. When we get a man's promise in whom we trust, we feel quite easy about the matter under concern. A note of hand from many a firm in the city of London would pass current for gold any day in the week.
 
-And surely when God gives the promise, it is safe and right for us to accept it as if it were the fulfillment itself, for it is quite as sure. We have the promise, let us begin to sing about it! What is more, we have a part of the fulfillment of it, for, "I give unto My sheep eternal life," says Christ: shall we not sing concerning that? Believe in Jesus: you have eternal life NOW. There will be no new life given to you after death. You have even NOW, O Christian, the germ within you which will develop into the Glory-life above. Grace is Glory in the bud. You have the earnest of the Spirit. You have already a portion of the promise which is given to godliness.
+And surely when God gives the promise, it is safe and right for us to accept it as if it were the fulfillment itself, for it is quite as sure. We have the promise, let us begin to sing about it! What is more, we have a part of the fulfillment of it, for, "I give unto My sheep eternal life," says Christ: shall we not sing concerning that? Believe in Jesus: you have eternal life now. There will be no new life given to you after death. You have even now, O Christian, the germ within you which will develop into the Glory-life above. Grace is Glory in the bud. You have the earnest of the Spirit. You have already a portion of the promise which is given to godliness.
 
 Now, what you should do is to live now in the enjoyment of the promise. You cannot enjoy Heaven, for you are not there, but you can enjoy the promise of it. Many a dear child, if it has a promise of a treat in a week's time, will go skipping among its little companions as merry as a lark about it. It has not the treat yet, but it expects it. And I have known in our Sunday schools our little boys and girls, months before the time came for them to go into the country, as happy as the days were long, in prospect of that little pleasure. Surely you and I ought to be childlike enough to begin to rejoice in the Heaven that is so soon to be ours! I know tomorrow some of you will be working very hard, but you may sing:
 
 > This is not my place of resting,  
 > Mine's a city yet to come;  
-> Onward to it I am hasting   
+> Onward to it I am hasting  
 > On to my eternal home.  
 
-Perhaps you will have to fight the world's battles, and you will find them very stern. Oh, but you can sing even now of the palm branch, and of the victory that awaits you! And as your faith looks at the crown that Christ has prepared for it, you will be much rested even in the heat of the battle. When a traveler who has been long an exile returns home, it may be after walking many miles he at last gets to the brow of the hill where he can see the Church of the little town, and get a bird's-eye view of the parish. He gazes awhile, and as he looks again and again, says to himself, "Yes, that is the High Street there, and yonder is the turning by the old inn, and there—yes, there, I can see the gable of the dear old house at home."
+Perhaps you will have to fight the world's battles, and you will find them very stern. Oh, but you can sing even now of the palm branch, and of the victory that awaits you! And as your faith looks at the crown that Christ has prepared for it, you will be much rested even in the heat of the battle. When a traveler who has been long an exile returns home, it may be after walking many miles he at last gets to the brow of the hill where he can see the Church of the little town, and get a bird's-eye view of the parish. He gazes awhile, and as he looks again and again, says to himself, "Yes, that is the High Street there, and yonder is the turning by the old inn, and there, yes, there, I can see the gable of the dear old house at home."
 
 Though his feet may be blistered, the way may have been long, and the sweat may be pouring from his face, yet he plucks up courage at the sight of home. The last mile down hill is soon over, for he has seen his long-loved home. Christians, you may see it, you may see the goodly land from Nebo even now:
 
 > How near  
-> At times to faith's far-seeing eye, The golden gates appear!  
+> At times to faith's far-seeing eye,  
+> The golden gates appear!  
 
-When the Crusaders first came in sight of Jerusalem, though they had a hard battle before them before they could win it, yet they fell down in ecstasy at the sight of the holy city. And do not you and I say, "Soldiers of the Cross, my fellow Crusaders in the holy war of righteousness, will you not in prospect of the coming glory sing:
+When the Crusaders first came in sight of Jerusalem, though they had a hard battle before them before they could win it, yet they fell down in ecstasy at the sight of the holy city. And do not you and I say, Soldiers of the Cross, my fellow Crusaders in the holy war of righteousness, will you not in prospect of the coming glory sing:
 
 > Oh my sweet home, Jerusalem,  
 > Would God I were in you!  
 > Would God my woes were at an end,  
 > Your joys that I might see!  
 
-When the brave soldiers, of whom Xenophon tells us, came at last in sight of the sea, from which they had been so long separated, they cried out, "Thallasse! Thallasse!": "The sea! The sea!" And we, though death appears between us and the better land, can yet look beyond it and see the: sweet fields beyond the swelling flood arrayed in living green, and bless God that a sight of what is to be revealed renders the burdens of the way light as we march towards Glory. Oh, live, live in the foretaste of Heaven. Let worldlings see that:
+When the brave soldiers, of whom Xenophon tells us, came at last in sight of the sea, from which they had been so long separated, they cried out, "Thallasse! Thallasse!": "The sea! The sea!" And we, though death appears between us and the better land, can yet look beyond it and see the sweet fields beyond the swelling flood arrayed in living green, and bless God that a sight of what is to be revealed renders the burdens of the way light as we march towards Glory. Oh, live, live in the foretaste of Heaven. Let worldlings see that:
 
 > The thought of such amazing bliss  
 > Does constant joys create.  
 
 Last of all. This promise which is appended to godliness is a very needful one. It is a very necessary one, for ah, if I have no promise of the life that is to come, where am I? Where am I? And where shall I be? Where shall I be? I live, I know. I die, I know I must. And if it all is true as this old Bible, my mother's Bible, tells me: that there is a hereafter. If I have no godliness, then woe is the day to me! Oh, how much I want the promise of the life to come, for if I have not that I have a curse for the life to come.
 
-I cannot die, God has made my soul immortal. Even God Himself will never annihilate me, for He has been pleased to create me an immortal spirit, and on I must live forever. There are some who say, and I think the doctrine is full of unnumbered perils to the souls of men, that God made man naturally mortal, and the soul can become extinct. And they go on to teach that sinners are made to live after death on purpose to be tormented for a longer or shorter time, and then at last are annihilated. What a God must He be to give them a life they need not have: on purpose: that He might torment them! I know no such God.
+I cannot die, God has made my soul immortal. Even God Himself will never annihilate me, for He has been pleased to create me an immortal spirit, and on I must live forever. There are some who say, and I think the doctrine is full of unnumbered perils to the souls of men, that God made man naturally mortal, and the soul can become extinct. And they go on to teach that sinners are made to live after death on purpose to be tormented for a longer or shorter time, and then at last are annihilated. What a God must He be to give them a life they need not have, on purpose that He might torment them! I know no such God.
 
 But He, whom I adore, in His unbounded goodness, gave to mankind what was in itself a wondrous blessing: immortality. And if you, my Hearer, choose to turn it into a curse forever, it is you that are to be blamed for it! Not God who gave you the immortality which, if you believe in the appointed Savior, will be to you an eternity of bliss. You are now past all recall an immortal being, and if you die without hope in Christ there will remain only this for you: to go on sinning in another state as you have gone on sinning here. But you will get no pleasure from it as you think you do sometimes, here: on the contrary, you will be tortured with remorse concerning it. And you will be vexed with angry passions to think that you cannot have your will, passions that will make you struggle yet worse against your God, and make your misery consequently the greater.
 

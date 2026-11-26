@@ -5,7 +5,6 @@
 
 In those good old times when preachers did not grow weary, though they discoursed for three hours at a stretch. And when congregations were not given to slumber, even under such long discourses, the preacher had ample time not only to dilate upon the doctrine of his text, but to speak, also, upon what was then called "the improvement of the subject," namely, the practical and experimental application of the Truths of God taught to the cases of his hearers. Nowadays when we are restricted to three-quarters of an hour; not altogether to our loss or ours; there are occasions on which we feel our course so wide, and our time so narrow, that having found a good sea to sail upon, and objects of surpassing interest to attract our attention in the morning, we venture to resume the current of thought and follow up with the application in the evening.
 
-
 The application, then, which I proceed to take in hand is twofold: first, to some of you who are not converted, a few earnest, faithful, affectionate words. And, secondly, to you who have received Christ, and have also obtained power to become sons of God, a little tender counsel.
 
 First, a few words to the unconverted. You perceive it is stated in the text that the Lord Jesus Christ appeared in human form, and put away sin by the sacrifice of Himself. Now, it will strike your reason that God would not have come upon earth, would not have left the royalties of Heaven if there had been some other way of putting away sin. Surely the eternal Father would never have put His Only Begotten and Well-Beloved Son to such terrible pains and griefs if there had been any other door of salvation for the lost sons of men. When Jesus said, "If it is possible, let this cup pass from Me," you may depend upon it that it would have passed if it had been possible for us to be saved by any other method. But, inasmuch as Jesus Christ bowed His head to the stroke of His Father's sword, and poured out His soul unto death for us, we may rest assured that there is no other name given among men whereby we must be saved.
@@ -26,9 +25,9 @@ There you see how, though sin entrenched itself in the Blessed and Beloved Body 
 
 But if any sin could be lightly passed over, how should your sin escape, when you add to it this sin of sins, by way of aggravation; that you make God a liar by not believing on His Son? Ah, my hearer, let no ill deceive you. God's Word is true; every transgression shall receive its just recompense of reward. He will by no means spare the guilty. Do not hope to die with the words upon your lips, "God is merciful." I know He is, but He is also just, and to those who reject His Son there is no mercy:
 
-> How they deserve the deepest Hell,   
-> That leave the joys above!   
-> What claims of vengeance must they feel   
+> How they deserve the deepest Hell,  
+> That leave the joys above!  
+> What claims of vengeance must they feel  
 > Who slight the bands of love!  
 
 You shall find it so. Either Christ must bear your sins for you, and you must see your sin punished in the wounds of Immanuel, or you must feel them punished in yourself forever! O Soul, which shall it be? May God make the election for you, and may you be saved in Jesus Christ our Lord.
@@ -49,16 +48,20 @@ If I live and die knowing the Gospel, and yet rejecting it, what can I say at Go
 
 Our text tells us that Christ has appeared once to put away sin, but remember, He is to come a second time! Unconverted man, woman, have you thought of that? You would not look at Christ when He came the first time, despised and rejected of men, but you shall look at Him when at His second advent:
 
-> The Lord shall come! A dreadful form,    
-> With rainbow wreath, and robes of storm;   
-> On cherub wings, and wings of wind,   
-> Appointed Judge of all mankind.   
+> The Lord shall come! A dreadful form,  
+> With rainbow wreath, and robes of storm;  
+> On cherub wings, and wings of wind,  
+> Appointed Judge of all mankind.  
 
 You said it was nothing to you the first time, and you passed by. But you will find it something to you the second time. When the trumpet sounds exceedingly loud and long. When the cerements of the grave are rent asunder. When the dead shall rise from land and sea. When the Great White Throne shall be set, and all nations shall be gathered before it, and the Shepherd-King shall divide them as a shepherd divides the sheep from the goats; you will find, then, that from that Throne you cannot escape! The Throne of Mercy you may despise, but the Throne of Judgment you will not be able to set at nothing!
 
 Suppose the destined hour should transpire now; and it is but a little while before it shall overtake this giddy, thoughtless world. Overleap that brief interval for a moment. Let your imaginations transport you to: "That tremendous day whose coming none can tell," although with silent, sure, and rapid steps it is approaching us now. Think that you are standing in the crowd, and the books are opened, and the eyes of fire have flashed upon you, and your life unveiled, with all your actions and their hidden springs, is being published to angels and to men; and your sentence is about to be pronounced.
 
-No escape is possible! The rocks cannot hide you! The mountains cannot cover you! The eyes of Him who once wept will flash with lightning, and the tongue that said, "Come unto Me, you weary," shall say, "Depart, you cursed," and the Face that was once so full of pity, shall suddenly be red with holy anger as He shall say, "I know you not! Depart from Me, you workers of iniquity!" And shall that be your portion: "Prevent, prevent it by Your Grace; Be You, O God, my hiding place, In this the accepted hour!"
+No escape is possible! The rocks cannot hide you! The mountains cannot cover you! The eyes of Him who once wept will flash with lightning, and the tongue that said, "Come unto Me, you weary," shall say, "Depart, you cursed," and the Face that was once so full of pity, shall suddenly be red with holy anger as He shall say, "I know you not! Depart from Me, you workers of iniquity!" And shall that be your portion:
+
+> Prevent, prevent it by Your Grace;  
+> Be You, O God, my hiding place,  
+> In this the accepted hour!  
 
 My hearer, shall this be your portion? Shall it be the portion of any man or woman now sitting in this house of prayer? May God avert it by His eternal mercy! But I see not how it is to be avoided except you are led to fly to Christ. And the only opportunity you may ever have is this present opportunity, for, "Now is the accepted time, now is the day of salvation." May you be led by the Spirit at this moment to come to Jesus, and so shall you find eternal salvation in Him.
 
@@ -71,27 +74,27 @@ You will never enter Heaven without repentance. And if your faith does not lead 
 But where is true repentance to be had? It is never experienced by a man, except as he, by God's Grace, receives the cleansing, sanctifying power of the Savior's precious blood. To repent of sin because I know it has ruined me, or it will ruin me, is legal repentance, and needs to be repented of. But to be able to sing, as one of our hymn writers expresses it:
 
 > My sins, my sins, my Savior!  
-> Their guilt I never knew,   
+> Their guilt I never knew,  
 > Till with You in the desert,  
 > I near Your passion drew.  
 > I know they are forgiven,  
 > But still their pain to me,  
 > Is all the grief and anguish  
-> They laid, my Lord, on You.   
+> They laid, my Lord, on You.  
 
 That is repentance. To hate sin because it caused the brow of Christ to be girt with the crown of thorns, and the face of Christ to be dishonored with the spittle, and the hands of Christ to be pierced with the nails; this is repentance; not because I am afraid of Hell! Not because sin brings pains and penalties with it, but because it made Jesus Christ to suffer for me such pangs unutterable.
 
-My brothers and sisters, standing here by faith at the foot of the Cross, do we not feel more than ever the evil of sin? If we do not, let this be our prayer, "Lord, help me this night as I come to Your table, to feel the bitterness of my sin, which was so bitter to You. Let me see its deadly character in Your death. Let me see its shame in Your shame. Let me perceive the nakedness which it brought upon me in Your nakedness. Let me discern the misery which it would have caused me forever in Your misery. And let me now declare revenge against my sin. And however dear any one sin may have been to me, let this be my solemn resolve, in the strength of the Holy Spirit:
+My brothers and sisters, standing here by faith at the foot of the Cross, do we not feel more than ever the evil of sin? If we do not, let this be our prayer, "Lord, help me this night as I come to Your table, to feel the bitterness of my sin, which was so bitter to You. Let me see its deadly character in Your death. Let me see its shame in Your shame. Let me perceive the nakedness which it brought upon me in Your nakedness. Let me discern the misery which it would have caused me forever in Your misery. And let me now declare revenge against my sin. And however dear any one sin may have been to me, let this be my solemn resolve, in the strength of the Holy Spirit:"
 
-> Whatever that idol is,   
-> At once I'll tear it from its throne,   
-> And worship only You.   
+> Whatever that idol is,  
+> At once I'll tear it from its throne,  
+> And worship only You.  
 
 Deep repentance will be a sweet help in coming to the Supper. The bitter herbs always made the Paschal lamb the sweeter, and the pensive sadness of repentance will give zest and stimulant to the faith with which we feed upon the crucified Redeemer.
 
 Still further, Beloved, what emotions of gratitude should this Truth of God inspire in your breasts! Ought it not to fill your entire life with the fragrant incense of praise? "Your testimonies," we might well say with the Psalmist, "have I taken as a heritage forever. For they are the rejoicing of my heart." O that the flame of gratitude might kindle and glow in all your musings! O that it might find constant expression in the deep humility and the sweet gentleness of all your works and ways! Say, "What homage can I offer You, my Lord, at this good hour? Little can I render unto You for all Your benefits, but much do I owe You for Your love that passes knowledge. Your Word shall be my lamp. Your Precepts shall be my choice. Your Statutes shall be my songs.
 
-"I will delight myself in Your Commandments. All who trespass against me, I will forgive for Your sake. Your saints I will love. Your lambs I will feed. I will bear the infirmities of the weak, and not please myself. I will pray without ceasing. I will give thanks for all things unto God and the Father in the name of our Lord Jesus Christ. 'so will I'; did I say? Let me rather say, 'so would I.' Though the vows of God are upon me, I have not strength of myself to perform one vow. Yet You know, for You search all hearts, and this You know, for You know all things; I sincerely desire and earnestly covet the Spirit of holiness to consecrate myself unreservedly unto You."
+"I will delight myself in Your Commandments. All who trespass against me, I will forgive for Your sake. Your saints I will love. Your lambs I will feed. I will bear the infirmities of the weak, and not please myself. I will pray without ceasing. I will give thanks for all things unto God and the Father in the name of our Lord Jesus Christ. 'So will I'; did I say? Let me rather say, 'so would I.' Though the vows of God are upon me, I have not strength of myself to perform one vow. Yet You know, for You search all hearts, and this You know, for You know all things; I sincerely desire and earnestly covet the Spirit of holiness to consecrate myself unreservedly unto You."
 
 There is yet another point to which I wish to have your particular attention, O you that believe in Jesus! We are told in the text that once in the end of the world Christ appeared to put away sin. Now what is your conviction upon the subject? Did He put away sin or not? I anticipate the answer of every believer here; "Of course He did! By His one offering He put away sin forever." Beloved, why is it that some of you tonight are troubled about your sin? Now look back during the past week. Has there not been a great deal in your life that you have to mourn over? Do you live a single day in which you went to your rest contented with the review of your character or your conduct? I must acknowledge I never spent such a day, and I am afraid I never shall till I get Home to Heaven.
 
@@ -123,4 +126,4 @@ This morning I also dwelt upon that word "appeared." Christ was not ashamed to a
 
 I shall not detain you longer. I have said too little unless God has blessed it. I have said enough if He shall apply it. I beseech you, brothers and sisters, when you come to the Table, do not be satisfied with these outward signs. Think it nothing to eat the bread or to drink the wine. In fact, it is less than nothing and vanity, unless there is something more. The great thing is for that bread to help you to think of the broken Body of your Lord, and for that cup to show you the agonies of His soul when He was exceeding sorrowful even unto death. Come here with the subject of this morning's sermon fresh upon your hearts.
 
-Come with the thoughts which it suggests this evening burning for fuller expressions in your lives. And as you sit before the Lord in the fellowship of His people, let this be your desire, "Lord, as You have given Yourself for me, let me know experimentally all the blessings which Your blood has purchased. Bring me unto communion with Yourself. Permit me to put my fingers into the prints of the nails, and thrust my hand into Your side tonight. Give me the cleansing, the purification, the sanctification which Your blood can bestow, and help me from this day to be Yours, and Yours alone, till death shall take me to dwell with You where You are, and till Your second coming shall make me to be like You, when I shall see You as You are. May God bless these words to us for Jesus' sake. Amen.
+Come with the thoughts which it suggests this evening burning for fuller expressions in your lives. And as you sit before the Lord in the fellowship of His people, let this be your desire, "Lord, as You have given Yourself for me, let me know experimentally all the blessings which Your blood has purchased. Bring me unto communion with Yourself. Permit me to put my fingers into the prints of the nails, and thrust my hand into Your side tonight. Give me the cleansing, the purification, the sanctification which Your blood can bestow, and help me from this day to be Yours, and Yours alone, till death shall take me to dwell with You where You are, and till Your second coming shall make me to be like You, when I shall see You as You are." May God bless these words to us for Jesus' sake. Amen.

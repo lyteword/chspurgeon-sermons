@@ -25,10 +25,10 @@ But if you ask him whether he would choose to live on board in that narrow cabin
 
 "We've no abiding city here, sad truth were this to be our home." No thought would be more dreadful to us than the idea of having our portion in this life, in this dark world which refused the love of Jesus, and cast Him out of its vineyard. We have desires which the whole world could not fulfill. We have insatiable yearnings which a thousand empires could not satisfy. The Creator has made us to pant and long after Himself, and all the creatures put together could not delight our souls without His Presence:
 
-> Hopeless of joy in anything below,   
-> We only long to soar,   
-> The fullness of His love to feel,   
-> And lose His smile no more.   
+> Hopeless of joy in anything below,  
+> We only long to soar,  
+> The fullness of His love to feel,  
+> And lose His smile no more.  
 
 In addition to this dissatisfaction, there reigns within the regenerate heart a supreme longing after the heavenly state. When believers are in their right minds, their aspirations after Heaven are so forcible that they despise death itself. When faith is weak, then the pains and the groans of dying make a black cloud of forebodings which darken the spirit, and we shrink from the thought of departing.
 
@@ -36,17 +36,17 @@ But when we know that our Redeemer lives, and look forward to the Resurrection a
 
 > Oh, if my Lord would come and meet,  
 > My soul should stretch her wings in haste,  
-> Fly fearless through death's iron gate,   
-> Nor fear the terrors as she passed.   
+> Fly fearless through death's iron gate,  
+> Nor fear the terrors as she passed.  
 
 Whatever the separation of the soul from the body may involve of pain or mystery, the believer feels that he could dare it all to enter at once into the unfading joys of Heaven. Sometimes the heir of Heaven grows impatient of his bondage. Like a captive looking out of the narrow window of his prison beholds the green fields of the unfettered earth, and marks the flashing waves of the ocean, ever free, and hears the songs of the free tenants of the air; he weeps as he views his narrow cell and hears the clanking of his chains.
 
 There are times when the most patient of the Lord's banished ones feel the home sickness strong upon them. Like those beasts which we have sometimes seen in our menageries, which pace to and fro in their dens, and chafe themselves against the bars, uneasy, unhappy, bursting out every now and then into fierce roars, as though they yearned for the forest or the jungle. Even so we also chafe and fret in this, our prison, longing to be free. As by the waters of Babylon the sons of Zion sat down and wept, even so do we. Dwelling in Kedar's tents and sojourning with Mesech, we long for the wings of a dove that we might fly away and be at rest:
 
-> O my sweet home, Jerusalem,   
-> Would God I were in you!   
-> Would God my woes were at an end,   
-> Your joys that I might see.   
+> O my sweet home, Jerusalem,  
+> Would God I were in you!  
+> Would God my woes were at an end,  
+> Your joys that I might see.  
 
 Having thus seen that the groaning worked in us by God is made up of dissatisfaction with this world and anxious desire for the world to come, we may profitably consider it yet a little further. What is it that makes the Christian long for Heaven? What is that within him which makes him restless till he reaches the better land? It is, first, a desire for the unseen. The carnal mind is satisfied with what the eyes can see, the hands can handle, and the taste enjoy. But the Christian has a spirit within him which has passions and appetites which the senses cannot gratify.
 

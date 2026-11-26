@@ -110,13 +110,16 @@ But I must pass on to the third head. Our greatest sorrows arise from our treati
 > This wondrous Man, of whom we tell,  
 > Is true Almighty God!  
 > He bought our souls from death and Hell,  
-> The price, His own heart's blood.   
+> The price, His own heart's blood.  
 
 Beware, my brethren, of resting content with anything short of faith in an actual, literal, living Mediator; for nothing but reality will be of any use to you in the matter. Of course, with a phantom Savior for real sins, an apparition of a Redeemer for real bondage; you cannot find comfort. Of what use is the appearance of bread and the resemblance of water to famishing pilgrims in the desert? If you have a phantom helper for real woes you are the worse for such help. If your Savior does not actually and practically support you in times of need, and supply your wants and console you under depression, then in what respects are you better off than those who have no helper at all?
 
 Jesus is a Friend, indeed. His grace, love, and presence, are no fictions; of all facts they are most sure. If I have to carry a real load, and then have a ghost to assist me, I am in reality unassisted. We want true power, force, and energy, in our Helper, and all that, faith sees in Jesus, her Lord. But you will readily see how sorrows multiply where Jesus is lightly esteemed.
 
-Besides, to some Christ is not only, as it were, an impalpable spirit, but He is really an indifferent, unfeeling spirit. Jesus to His disciples on the sea seemed as though He would have gone by them and left them to their fate! And we often dream that our gracious Lord is unmindful of us; at any rate, we forget that he is tenderly mindful of our case. It did not strike you when you were so poor last week that Jesus knew it, and was grieved for your affliction? You forgot, dear brother, when you were trembling as you went into the pulpit, that Jesus knew you trembled, and would uphold you while hearing your testimony. Too seldom do we remember that: "In every pang that rends the heart The Man of Sorrows bears a part."
+Besides, to some Christ is not only, as it were, an impalpable spirit, but He is really an indifferent, unfeeling spirit. Jesus to His disciples on the sea seemed as though He would have gone by them and left them to their fate! And we often dream that our gracious Lord is unmindful of us; at any rate, we forget that he is tenderly mindful of our case. It did not strike you when you were so poor last week that Jesus knew it, and was grieved for your affliction? You forgot, dear brother, when you were trembling as you went into the pulpit, that Jesus knew you trembled, and would uphold you while hearing your testimony. Too seldom do we remember that:
+
+> In every pang that rends the heart  
+> The Man of Sorrows bears a part.  
 
 Ah, good husband, you knew your wife pitied you. You noted well the teardrop when she saw your grief. Ah, dear child, you knew your mother sorrowed for you. Ah, but if you did but know Christ, you would know this, too; that He never puts you to an unnecessary pain, nor ever tries you with an unneeded trial. There is a needs be for all, and He has sympathy for you in all.
 
@@ -151,7 +154,7 @@ Is not He just as dear to you now, though unseen? Is not faith as mighty a facul
 > Faith lends its realizing light,  
 > The clouds disperse, the shadows fly;  
 > The invisible appears in sight,  
-> And God is seen by mortal eye.   
+> And God is seen by mortal eye.  
 
 Does not faith make Jesus as real to us as our sight would do? It should do so. I pray it may. And then see how true will be your consecration, how abundant will be your service, how ready your thanksgiving, how abounding your offerings!
 

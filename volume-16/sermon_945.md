@@ -33,10 +33,10 @@ Do you not remember, my brothers and sisters, when you used to be afraid to put 
 
 An extreme delicacy concerning sin should be cultivated by us all. When the believer can listen to a song with a lascivious tone and does not feel himself indignant, let him be indignant with himself. When he can come across sin and feel that it does not shock him as once it did, let him be shocked to think that his conscience is being so seared. I would give you for a prayer, that verse from Wesley's hymn:
 
-> Quid as the twinkle of an eye,   
-> O God, my conscience make,   
-> Awake my heart, when sin is near.   
-> And keep it still awake.   
+> Quid as the twinkle of an eye,  
+> O God, my conscience make,  
+> Awake my heart, when sin is near.  
+> And keep it still awake.  
 
 The sensitive plant, as soon as it is touched, begins to fold up its leaves. Touch it again and the little branches droop, until at last it stands like the bare poles of a vessel; all its sail of leaf is furled, and it seems as if it would, if it could, shrink into nothing to avoid your hand. So should you be, so should I be, tender to the touch of sin, so as to say with the Psalmist, "Horror has taken hold upon me because of the wicked that forsake Your Law." Such tenderness is a prominent mark of ripeness, and it should be exhibited, not only in relation to sin, but in other ways.
 
@@ -66,17 +66,17 @@ When, like Paul, we can say, "I am ready to depart," when we set loose all earth
 
 "Whom have I in heaven but You? There is none upon earth that I desire beside You." This is the mature believer's question. His song often is:
 
-> My heart is with Him on His Throne,   
-> And ill can brook delay;   
-> Each moment listening for the voice,   
-> 'Rise up and come away.'   
+> My heart is with Him on His Throne,  
+> And ill can brook delay;  
+> Each moment listening for the voice,  
+> 'Rise up and come away.'  
 
 It is a sure token of ripeness when you are standing on tiptoe, with your wings outspread, ready for flight. When no chain any longer binds you further to earth. When your love to things below is subordinate to your longing for the joys above. Oh, it is sweet to sing with Dr. Watts:
 
-> Father, I long, I faint to see   
-> The place of Your abode;   
-> I'd leave Your earthly courts, and flee   
-> Up to Your seat, my God.   
+> Father, I long, I faint to see  
+> The place of Your abode;  
+> I'd leave Your earthly courts, and flee  
+> Up to Your seat, my God.  
 
 When we get to this in our very hearts, we are getting ripe, and we shall soon be gathered. The Master will not let His ripe fruit hang long on the tree. Thus I have given you the marks of ripeness.
 
@@ -88,7 +88,12 @@ That blessed Spirit, flowing to us from Christ; as He is the Creator of the firs
 
 When the truth of God is present in the hidden part, outer influences help. Fruit is ripened by the sun. His beams impart or produce in the fruit its perfectness of flavor. Sunless skies cause tasteless fruit. How sweetly Christians grow when they walk in the light of God's countenance! What a ripening influence the love of Jesus Christ has on the soul! When the love of God is shed abroad in the heart by the Holy Spirit, how rapidly the Christian advances! I believe we ripen in grace more in ten minutes when we live near to God than we might do in ten years of absence from His Presence.
 
-Some fruit on a tree will not ripen fast, it is shielded from the sun. We have the cottagers pluck off the leaves from their vines in our chilly climate in order to let the sun get at the vine, and bring out the color and ripeness of the clusters. Even thus the great Husbandman takes away many of the leaves of worldly comfort from us, that the comfort of His own dear Presence may come at us, and ripen us for Himself. We cannot have too much joy in the Lord, we cannot get too near to Him. We may well sing: "When will You come unto me, Lord? O come, my Lord, most dear! Come near, come nearer, nearer still, I'm blessed when You are near."
+Some fruit on a tree will not ripen fast, it is shielded from the sun. We have the cottagers pluck off the leaves from their vines in our chilly climate in order to let the sun get at the vine, and bring out the color and ripeness of the clusters. Even thus the great Husbandman takes away many of the leaves of worldly comfort from us, that the comfort of His own dear Presence may come at us, and ripen us for Himself. We cannot have too much joy in the Lord, we cannot get too near to Him. We may well sing:
+
+> When will You come unto me, Lord?  
+> O come, my Lord, most dear!  
+> Come near, come nearer, nearer still,  
+> I'm blessed when You are near.  
 
 The joy of the Lord is your strength, and the joy of the Lord is your perfectness. Still, brethren, the fruit is no doubt equally ripened, though not as evidently so, by the shower and by the dew. All heat and no moisture, and there must be scarcely any fruit. So the dew of God's Spirit falling upon us, the constant shower of grace visiting us, and what if I add, even the trials and troubles of life, which are like showers to us; all these teach us by experience, and by experience we ripen for the skies. Some fruit I have heard of, especially the sycamore fig, never will ripen except it is bruised.
 
@@ -106,10 +111,10 @@ Thus we have given you the causes of ripeness. Briefly let us show you the desir
 
 We do not think that of our own bodies, that so long as we can breathe it is enough. If anyone were dragged out of the Serpentine and life was just in him, we should not feel it sufficient to discover the vital spark and there leave it. No, we pursue the processes of resuscitation till the person is perfectly restored. To be just alive as a Christian is horrid work. It is a poor state to be in to be always trying to see whether we are alive by putting the looking glass of evidences to the lips to see if there is just a trace of gracious vapor on the surface. It is a dolorous thing to be always groaning:
 
-> It is a point I long to know,   
-> Oft it causes anxious thought,   
-> Do I love the Lord or no?   
-> Am I His, or am I not?   
+> It is a point I long to know,  
+> Oft it causes anxious thought,  
+> Do I love the Lord or no?  
+> Am I His, or am I not?  
 
 Yet too many are content to continue in this ignominious condition. Brethren, it is desirable that you should get out of it, and come to ripeness in grace by God's Spirit, for, first, ultimate ripeness is an index of the health of your soul. The fruit which under proper circumstances does not ripen is not a good fruit; it must be an unwholesome production. Your soul can surely not be as it should be if it does not ripen under the influence of God's love and the work of His grace. The gardener's reward is the ripe fruit. You desire that Christ should see of the travail of His soul and be satisfied; do you think He will find that satisfaction in sour grapes?
 

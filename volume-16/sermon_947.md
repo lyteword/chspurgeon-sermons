@@ -58,7 +58,7 @@ If you remain as you are, there is no hope for you. All the supposed good which 
 > Sighs and sorrows cannot save you,  
 > Healing dwells not in your tears;  
 > It is believing  
-> Which the soul to Christ endears. 
+> Which the soul to Christ endears.  
 
 The second part of our discourse shall deal with the perplexities of this state. "Seeking for Jesus" is a state of heart in which the poor soul is usually very much put to it, "tumbled up and down in his thoughts," as John Bunyan would say. For first, seekers are very often much perplexed as the result of their ignorance of the way of salvation. Too often, awakened souls, though they may have heard the Gospel, do not in their hearts understand it. Many enquirers do not know what faith is.
 
@@ -98,7 +98,14 @@ What? Do you not know that Christ came to save you from your new sins as well as
 
 Make Jesus your sole reliance. Cry to Him, "Purge me with hyssop, and I shall be clean! Wash me, and I shall be whiter than snow." Nothing else can end your perplexities. You cannot untie the Gordian knot of your difficulties! Cut it, then, by leaving all to Jesus. You cannot overcome your sins except by the blood of the Lamb. You cannot be what you should be, nor what you would be, except by taking Jesus to be your All in All. Here is a song for you:
 
-"At last I own it cannot be That I should fit myself for You. Here, then, to You I all resign; Yours is the work, and only Yours. What shall I say Your Grace to move? I give up every plea beside, Lord I am sin, but You are love; Lord, I am lost, but You have died!"
+> At last I own it cannot be  
+> That I should fit myself for You.  
+> Here, then, to You I all resign;  
+> Yours is the work, and only Yours.  
+> What shall I say Your Grace to move?  
+> I give up every plea beside,  
+> Lord I am sin, but You are love;  
+> Lord, I am lost, but You have died!  
 
 And now, in the third place, let me warn you of the dangers of the state of "seeking for Jesus." I have already told you that there is much of hopefulness, but there is much of peril in your condition. Dear seeker, what a sad thing it is that you should be wasting so much time, and losing so much comfort, by this long-continued seeking, when it might all end so happily even now at this present hour. Had you believed in Jesus at the very first, you had had light at once.
 

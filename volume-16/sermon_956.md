@@ -65,19 +65,19 @@ And put the three together, the book of Revelation, the book of Providence, the 
 
 The venerable Christian matron may, before she departs, dwell still upon this topic, and tell her children and her children's children of what God has done for her. In your health or in your sickness, in your wealth or in your poverty, in your joy or in your sorrow; still, this theme of the loving kindness of God will be congenial and healthful. This you may study on the top of Amana when you have passed by the leopards' dens. This you may rehearse in the Valley of Humiliation when you lie down with the shepherd boy among the flocks and sing:
 
-> He that is down need fear no fall,   
+> He that is down need fear no fall,  
 > He that is low, no pride.  
 
-This you may think of when you are fighting with Apollyon, and the darts fly thick as hail, yes, fiery darts that burn as well as wound. And this you may think of in the Valley of the Shadow of Death, when heart and flesh fail you. This may be your last song, and as you enter into Glory it may be your first: 
+This you may think of when you are fighting with Apollyon, and the darts fly thick as hail, yes, fiery darts that burn as well as wound. And this you may think of in the Valley of the Shadow of Death, when heart and flesh fail you. This may be your last song, and as you enter into Glory it may be your first:
 
 > Soon shall I pass the gloomy vale,  
 > Soon all my mortal powers must fail.  
 > O may my last expiring breath  
 > His loving kindness sing in death!  
-> Then let me mount and soar a way  
+> Then let me mount and soar away  
 > To the bright world of endless day,  
 > And sing with rapture and surprise,  
-> His loving kindness in the skies.   
+> His loving kindness in the skies.  
 
 I have thus introduced to you the topic for mental contemplation. We will at once proceed to the second part of our subject.
 
@@ -147,11 +147,14 @@ My last word is this. Brethren, depend upon it that you shall find, each of you 
 
 Well, then, one says, "How can I consider myself to be a child of God? Why, I cannot pray. I kneel down and pour out what ought to be my desires, but I am afraid I do not desire them. I read the Bible, but it does not glow and glisten before my eyes as it once did. I try to love God, but do not seem to have any emotion left. I am like a dead log or stone." What is the best way to quicken one's self when you have got to be just a mere inanimate mass, and cannot awaken yourself into life? Of course, the Holy Spirit is the Quickener; but what means shall we use?
 
-"Why," says one, "turn over your sins and begin to think of them." Well, I have known some become more dead than they were before through that, and the little life they had seemed to go out of them as they saw their transgressions. I believe there is no reflection that has so much, under God the Holy Spirit, of quickening power in it as a remembrance of the loving kindness of the Lord! I have said unto my soul, "You are dull and heavy today, my Soul, but Jesus did not love you because of your brightness and liveliness. You have, at any rate, a desire not to be so dull.
+"Why," says one, "turn over your sins and begin to think of them." Well, I have known some become more dead than they were before through that, and the little life they had seemed to go out of them as they saw their transgressions. I believe there is no reflection that has so much, under God the Holy Spirit, of quickening power in it as a remembrance of the loving kindness of the Lord! I have said unto my soul, "You are dull and heavy today, my Soul, but Jesus did not love you because of your brightness and liveliness. You have, at any rate, a desire not to be so dull."
 
 "Who gave you that? Was not it His own Grace that made you hate yourself for being so dull and stupid? And He loves you just the same." Why, then, I am aware my soul makes me like the chariots of Amminadab; before I have hardly got through a little meditation upon my Lord's love, my love is kindled. Dr. Watts hit the mark when he said:
 
-"Come, Holy Spirit, heavenly Dove, With all Your quickening powers, Come, shed abroad a Savior's love, And that shall kindle ours."
+> Come, Holy Spirit, heavenly Dove,  
+> With all Your quickening powers,  
+> Come, shed abroad a Savior's love,  
+> And that shall kindle ours.  
 
 If you doubt Christ's love to you, you will not love Him. But remember that He still loves you, believe it, hold on to it, and your love will revive:
 

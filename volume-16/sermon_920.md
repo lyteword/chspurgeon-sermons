@@ -25,7 +25,7 @@ And then observe: having looked at backsliding as a disease, He does not say, "I
 
 Nor does He say, "I will destroy them, because of their backsliding." Some will have it that God's people may sin, partially and finally, so as never to be the Lord's beloved again. They say they can sin themselves out of the covenant. But we have not so learned Christ, neither have we so understood the Fatherhood of our God: "Whom once He loves, He never leaves, but loves them to the end."
 
-"The gifts and calling of God are without repentance," on His part towards His people. "The God of Israel says He hates putting away." No, it is not, "I will strike their names out of the Book of Life." It is not, "I will disinherit them, seeing they have proved unfaithful to Me," but, "I will heal their backsliding." That is to say, whatever their sin may have been I will overcome it, I will drive it out, I will restore them to their first condition of health. I will do more, I will so heal them that one day without spot or wrinkle or any such thing they shall see their Father's face." A word of consolation!
+"The gifts and calling of God are without repentance," on His part towards His people. "The God of Israel says He hates putting away." No, it is not, "I will strike their names out of the Book of Life." It is not, "I will disinherit them, seeing they have proved unfaithful to Me," but, "I will heal their backsliding." That is to say, "whatever their sin may have been I will overcome it, I will drive it out, I will restore them to their first condition of health. I will do more, I will so heal them that one day without spot or wrinkle or any such thing they shall see their Father's face." A word of consolation!
 
 The next is a word of majesty. It is the first word of the text, "I will heal their backsliding." "I." It is Jehovah Himself who here speaks, the Omnipotent, to whom nothing is difficult. The All-Wise, to whom nothing is secret. He has not promised that their backsliding shall be healed by unknown means, but that He, Himself, will heal it. Suppose He had said, "I will let them alone, and see to what their backsliding will turn. It may be, perhaps, after a period it will work out all its venom, and the wound will be cured." No, my brethren, had we been left to ourselves, our wounds have become corrupt, and our spirit would have utterly perished. We have gone astray like lost sheep, and one of the ways in which lost sheep go astray is this: they never think of returning. The shepherd must seek them, or else they will wander further and further from home.
 
@@ -47,7 +47,7 @@ Are they not His children? Now, if a physician failed to exercise his skill on a
 
 Beloved, we have cost our God too dear for Him to suffer us to perish, and perish we must without healing; therefore He will heal us. On every child of God the Father sees the marks of the Redeemer's blood. Every heir of Heaven carries about with him mementoes that touch the Father's soul, for He remembers well the bloody sweat of Gethsemane, and the groans and cries of the Well-Beloved. You who believe in Jesus cost too much; He cannot let you die. The Lord has loved you too long to let you perish, for before the foundation of the world His heart went out towards His chosen. From of old His delights were with the sons of men.
 
-Before you were fashioned and curiously worked in the lower parts of the earth, you lived in the heart of God, and lay upon the bosom of your Redeemer with Whom, even then, you were accounted as one in the covenant of grace. "I will heal their backsliding." No disease shall slay them, no sin shall fester in them so as to destroy them. I, Jehovah, who have chosen them, who have redeemed them and called them by my grace, I will heal them." Heaven and earth may pass away, but this Word shall not pass away. Oh, the blessed certainty of the divine word!
+Before you were fashioned and curiously worked in the lower parts of the earth, you lived in the heart of God, and lay upon the bosom of your Redeemer with Whom, even then, you were accounted as one in the covenant of grace. "I will heal their backsliding." "No disease shall slay them, no sin shall fester in them so as to destroy them. I, Jehovah, who have chosen them, who have redeemed them and called them by my grace, I will heal them." Heaven and earth may pass away, but this Word shall not pass away. Oh, the blessed certainty of the divine word!
 
 There is yet a fifth word in the text, and that is a word of personality. "I will heal their backsliding." That is to say, the backsliding, first, of all His Israel. He is speaking of Israel. "I will heal their backsliding"; His own peculiar people; His own elect ones. He Himself shall and will heal them. He will not suffer one of them to become sick with sin that it shall be fatal to them. That we may know whether we share in this promise we may judge from other words which precede the text. Those of whom He spoke were willing to come to Him and say, "Take away all iniquity, receive us graciously, and love us freely."
 
@@ -67,7 +67,10 @@ It is a defiling thing to backslide, for a man cannot lose the intensity of his 
 
 I know some holy men (I wish to be more like they) who are a blessing to all with whom they converse. Wherever they are, like an Oriental perfume, they spread a fragrance all around. Their lives are like the star in the east which led men to Christ. Their graciousness reminds us of the blessing of Asher, whose promise was that he should dip his foot in oil; for wherever they go they leave the tokens of the unction of the Holy One behind them. But the dark side to this picture is the fact that if we decline in grace, our backsliding has a down-dragging tendency on others. The whole army is impeded by the lagging of a single regiment.
 
-The old naturalists used to speak of a creature they called a remora, which they believed could fasten with its suckers upon a sailing vessel and hinder its progress. Backsliding Christians are just such remoras to the good ship of the Church, they are barnacles upon her, and impede her voyage: "One sickly sheep infects the flock, And weakens all the rest."
+The old naturalists used to speak of a creature they called a remora, which they believed could fasten with its suckers upon a sailing vessel and hinder its progress. Backsliding Christians are just such remoras to the good ship of the Church, they are barnacles upon her, and impede her voyage:
+
+> One sickly sheep infects the flock,  
+> And weakens all the rest.  
 
 When there is a parliamentary train crawling along in front, even the limited express mail is hindered. When one professor acts in a worldly, careless, indifferent, or covetous spirit, he encourages others to do the same, and the example soon multiplies itself.
 
@@ -124,17 +127,23 @@ Does He bid me return to Him, and does He say, "I am married unto you?" "How sha
 
 We feel revenge against sin, and sacred jealousy is aroused. Then we return unto our first Husband, and our first love! With weeping and with supplications we return, and with desire we desire Him in the night:
 
-> Love, mighty love, our soul subdues; We fly into our Savior's arms; Her former vow our heart renews, Ravished afresh with mercy's charms. Love is the cord that draws us home, The bond which holds our spirit fast;   
-> Forbids us over again to roam, And captivates us to the last.   
+> Love, mighty love, our soul subdues;  
+> We fly into our Savior's arms;  
+> Her former vow our heart renews,  
+> Ravished afresh with mercy's charms.  
+> Love is the cord that draws us home,  
+> The bond which holds our spirit fast;  
+> Forbids us over again to roam,  
+> And captivates us to the last.  
 
 It sometimes happens that the healing of our backsliding is as sudden as it is gracious. When we awoke this morning we were all startled to find how suddenly the ground had been covered with snow. I should not wonder when we leave this place if we shall be almost as much startled to find how soon the snow has disappeared under the rapid thaw.
 
 The Lord who casts forth His ice like morsels can cause His wind to blow so that the waters flow. Have you ever found it so in the little world within? Your heart has been dull and dead, and by a word Jesus has quickened you! "Or ever you were aware, your soul made you like the chariots of Amminadib." Blessed be God, His cures can be worked in a moment! He can raise His children from their graves of backsliding and redeem them from death. Pray that so glorious a work may be worked in you, my dear brother or sister. Let me pause awhile to give you space to breathe the prayer:
 
-> Come, Lord, on wings of flaming love,   
-> My spirit to upraise;   
-> Fly like the lightning from above,   
-> And fill my soul with praise.   
+> Come, Lord, on wings of flaming love,  
+> My spirit to upraise;  
+> Fly like the lightning from above,  
+> And fill my soul with praise.  
 
 Even if restoration from backsliding be gradual, brethren, as sometimes it is; and attended with much mourning and much sorrow, yet is the blessing still so choice that no words of mine can ever express its value. And so I leave it with your hearts to do what my lips cannot.
 

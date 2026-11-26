@@ -95,9 +95,9 @@ Get to the life of Christ, and let that life be in you, that you are, indeed, Go
 
 I have turned my thoughts on this last head into verse, and I will repeat the lines:
 
-> Where is Christ my King?   
+> Where is Christ my King?  
 > I languish for the sight,  
-> Gladly would I fall to worshipping,   
+> Gladly would I fall to worshipping,  
 > For He's my soul's delight.  
 
 > Himself, Himself alone,  
@@ -128,7 +128,12 @@ First, they saw the young Child. I do not think they merely said, "There He is,"
 
 For our redemption the Word was made flesh! This truth will breed the brightest hope within your soul. If you follow that Babe's wondrous life till it ends at the Cross, I trust you may there be able to give such a look at Him that, like when Moses lifted up the serpent in the wilderness, and they that looked were healed, so you, looking, may be healed of all your spiritual diseases! Though it is many a year since I first looked to Him, I desire to look to Jesus again. The incarnate God! My eyes swim with tears to think that He who might have crushed me into hell forever, becomes a young Child for my sake!
 
-See Him, all of you, and seeing, worship. What did the Wise Men do next? They worshipped Him. We cannot properly worship a Christ whom we do not know. "To the unknown God" is poor worship. But, oh, when you think of Jesus Christ, whose goings forth were of old from everlasting! The eternally begotten Son of the Father! And then when you see Him coming here to be a Man of the substance of His mother, and know and understand why He came and what He did when He came, then you must fall down and worship Him: "Son of God, to You we bow, You are Lord, and only You. You the woman's promised Seed; You who did for sinners bleed."
+See Him, all of you, and seeing, worship. What did the Wise Men do next? They worshipped Him. We cannot properly worship a Christ whom we do not know. "To the unknown God" is poor worship. But, oh, when you think of Jesus Christ, whose goings forth were of old from everlasting! The eternally begotten Son of the Father! And then when you see Him coming here to be a Man of the substance of His mother, and know and understand why He came and what He did when He came, then you must fall down and worship Him:
+
+> Son of God, to You we bow,  
+> You are Lord, and only You.  
+> You the woman's promised Seed;  
+> You who did for sinners bleed.  
 
 We worship Jesus! Our faith sees Him go from the manger to the Cross, and from the Cross right up to the Throne, and there where Jehovah dwells, amidst the insufferable glory of the divine Presence stands the Man, the very Man who slept at Bethlehem in the manger! There He reigns as Lord of lords. Our souls worship Him again. You are our Prophet, every word You say, Jesus, we believe and desire to follow; You are our Priest, Your sacrifice has made us clean; we are washed in Your blood. You are our King! Command, we will obey. Lead on, and we will follow. We worship You. We should spend much time in worshipping the Christ, and He should ever have the highest place in our reverence.
 

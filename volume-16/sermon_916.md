@@ -39,7 +39,10 @@ One other mark let us give among many more which might be mentioned. These peopl
 
 The bias of the current is not towards Heaven. Alas, it is the other way! "Behold I send you forth as sheep in the midst of wolves." "The whole world lies in the Wicked One, and you are of God, little children." Darkness prevails. It cannot minister to your safety or to your happiness. Neither can the sinful world minister light to the understanding, peace to the conscience, joy to the heart, or holiness to the life of the believer. You will have to fight continually. The last step you take will be a conflict, and you will never be able to sheathe your sword until you are in the bosom of Christ. Thus must you maintain the godly warfare,
 
-"'Till with yonder blood-bought crowd You shall sing on Canaan's shore Songs oft triumph, sweet and loud War with Amalek no more."
+> 'Till with yonder blood-bought crowd  
+> You shall sing on Canaan's shore  
+> Songs of triumph, sweet and loud  
+> War with Amalek no more.  
 
 Here, then, are some of the marks of the Church of Christ. I hope that a part of that Church worships in this House of Prayer. A part of that Church will be found to worship in every House of Prayer where the disciples of our common Lord assemble, and the mystery of God and of the Father and of Christ is acknowledged.
 
@@ -77,9 +80,9 @@ Before I leave this point let me call your attention to a certain sense in which
 
 So, then, the exhortation of our text which, strictly speaking, seems most applicable to the minister, becomes next suitable to the child of God who has not up to now cast in his lot with the company of our Lord's disciples. And after that, in a certain sense, it may be appropriately addressed to all who come under the sound of the Gospel. "Come you with us, and we will do you good."
 
-But now, our third observation is that the main argument—the most powerful incentive we can ever use is that association with the Church of Christ will do those who enter into it good.
+But now, our third observation is that the main argument, the most powerful incentive we can ever use, is that association with the Church of Christ will do those who enter into it good.
 
-I am sure it will, for I speak from experience. And if I were to call upon many scores, and even hundreds, in this House of Prayer, they would all bear the same testimony, that union with the people of God has done them good. The Church of God may say this, first, because she can offer to those who join with her good company. In the Church of God are those who are called "the excellent of the earth," in Whom David said was all his delight. In the Church of God are the humble, meek, and lowly.
+I am sure it will, for I speak from experience. And if I were to call upon many scores, and even hundreds, in this House of Prayer, they would all bear the same testimony, that union with the people of God has done them good. The Church of God may say this, first, because she can offer to those who join with her good company. In the Church of God are those who are called "the excellent of the earth," in whom David said was all his delight. In the Church of God are the humble, meek, and lowly.
 
 And, though in that Church there will come a traitorous Judas, yet there are not wanting the warm-spirited and loving John, the bold and daring Peter, the practical James, the well-instructed Paul in labors more abundant, and many of the precious sons of Zion and daughters of Jerusalem in like manner. Of whom, I might affirm, as the Apostle did of Priscilla and Aquila, they are my helpers in Christ Jesus, unto whom I not only give thanks, but also all the Churches of the Gentiles. Truly we can sing with heart-felt sincerity, Dr. Watts' paraphrase of David's Psalm: "Here my best friends, my kindred dwell, here God my Savior reigns."
 

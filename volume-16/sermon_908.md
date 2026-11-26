@@ -13,9 +13,7 @@ Where positiveness is the result of knowledge and of meditation, it becomes subl
 
 Some speak confidently because they are not confident. How often have we observed that brag and bluster are only the outward manifestations of inward trembling? They are but concealments adopted to cover cowardice! As the schoolboy, passing through the Churchyard, whistles to keep his courage up, so some people talk very positively because they are not positive. They make a pompous parade of faith because they desire to sustain the presumption which, as being their only comfort, is exceedingly dear to them.
 
-Now in the Apostle's case, every syllable he speaks has beneath it a most real weight of confidence which the strongest expressions could not exaggerate. Sitting there in the dungeon, a prisoner for Christ, abhorred by his countrymen, despised by the learned, and ridiculed by the rude, Paul confronted the whole world with a holy boldness which knew no quailing. A boldness resulting from the deep conviction of his spirit. You may take these words and put what emphasis you can upon each one of them, for they are the truthful utterance of a thoroughly earnest and brave spirit. May we enjoy
-
-such a confidence ourselves, and then we need not hesitate to declare it, for our testimony will glorify God and bring consolation to others.
+Now in the Apostle's case, every syllable he speaks has beneath it a most real weight of confidence which the strongest expressions could not exaggerate. Sitting there in the dungeon, a prisoner for Christ, abhorred by his countrymen, despised by the learned, and ridiculed by the rude, Paul confronted the whole world with a holy boldness which knew no quailing. A boldness resulting from the deep conviction of his spirit. You may take these words and put what emphasis you can upon each one of them, for they are the truthful utterance of a thoroughly earnest and brave spirit. May we enjoy such a confidence ourselves, and then we need not hesitate to declare it, for our testimony will glorify God and bring consolation to others.
 
 This morning for our instruction, as the Holy Spirit may help us, we shall first consider the matter in question, that which Paul had committed to Christ. Secondly, the fact beyond all question, namely, that Christ was able to keep him. Thirdly, the assurance of that fact, or how the Apostle was able to say, "I know and am persuaded." And fourthly, the influence of that assurance when it rules in the heart.
 
@@ -23,7 +21,7 @@ First, then, dear Friends, let us speak for a few minutes upon the matter in que
 
 That matter was, first of all, the Apostle's deposit of all his interests and concerns into the hands of God in Christ. Some have said that what Paul here speaks of was his ministry. But there are many reasons for concluding that this is a mistake. A great array of expositors, at the head of whom we would mention Calvin, think that the sole treasure which Paul deposited in the hands of God was his eternal salvation. We do not doubt that this was the grandest portion of the priceless deposit, but we also think that as the connection does not limit the sense, it cannot be restricted or confined to any one thing. It seems to us that all the Apostle's temporal and eternal interests were, by an act of faith, committed into the hands of God in Christ Jesus.
 
-To the Lord's gracious keeping the Apostle committed his body. He had suffered much in that frail tabernacle,  shipwrecks, perils, hunger, cold, nakedness, imprisonments, beatings with rods and stoning had all spent their fury upon him. He expected before long that his mortal frame would become the prey of Nero's cruelty. None could tell what would then happen to him, whether he should be burned alive to light up Nero's gardens, be torn to pieces by wild beasts to make a Roman holiday, or become the victim of the headsman's sword. But in whatever way he might be called to offer up himself a sacrifice to God, he committed his body to the keeping of Him who is the Resurrection and the Life.
+To the Lord's gracious keeping the Apostle committed his body. He had suffered much in that frail tabernacle, shipwrecks, perils, hunger, cold, nakedness, imprisonments, beatings with rods and stoning had all spent their fury upon him. He expected before long that his mortal frame would become the prey of Nero's cruelty. None could tell what would then happen to him, whether he should be burned alive to light up Nero's gardens, be torn to pieces by wild beasts to make a Roman holiday, or become the victim of the headsman's sword. But in whatever way he might be called to offer up himself a sacrifice to God, he committed his body to the keeping of Him who is the Resurrection and the Life.
 
 He was persuaded that in the day of the Lord's appearing he would rise again, his body having suffered no loss through torture or dismemberment. He looked for a joyful resurrection and asked no better embalming for his corpse than the power of Christ would ensure it.
 
@@ -51,12 +49,14 @@ And in the more dreadful hour, when the trumpet peal shall awake the dead, shall
 
 It is a happy circumstance that we can turn from it to our second point, to dwell for a while upon the fact beyond all question, namely, that God in Christ is able to keep that which we have committed to Him.
 
-The Apostle's confidence was that Christ was an able Guardian. So he meant, first, that Jesus is able to keep the soul from falling into damning sin. I suppose this is one of the greatest fears that has ever troubled the true Believer. Have you ever prayed that you might rather die than turn aside from Christ? I know I have, and I have sung bitterly in my soul that verse, 
+The Apostle's confidence was that Christ was an able Guardian. So he meant, first, that Jesus is able to keep the soul from falling into damning sin. I suppose this is one of the greatest fears that has ever troubled the true Believer. Have you ever prayed that you might rather die than turn aside from Christ? I know I have, and I have sung bitterly in my soul that verse,
 
-> Ah, Lord! With such a heart as mine,   
-> Unless You hold me fast, I feel I must, I shall decline, And turn from You at last.   
+> Ah, Lord! With such a heart as mine,  
+> Unless You hold me fast,  
+> I feel I must, I shall decline,  
+> And turn from You at last.  
 
-Now, troubled Christian, remember that your Lord is able to keep you under every possible form of temptation. "Ah," you say, "the Apostle Paul had not the trials I have. I think he had. But if he had not, Jesus had. And Christ has ability to keep you under them. Do I hear one say, "I am the only one of my household that has been called by Grace, and they all oppose me. I am a lonely one in my father's house?" Now, Paul was precisely in your condition. He was a Hebrew of the Hebrews, and he was regarded by his people with the most extreme hate because he had come out from among them to follow the Crucified One.
+Now, troubled Christian, remember that your Lord is able to keep you under every possible form of temptation. "Ah," you say, "the Apostle Paul had not the trials I have." I think he had. But if he had not, Jesus had. And Christ has ability to keep you under them. Do I hear one say, "I am the only one of my household that has been called by Grace, and they all oppose me. I am a lonely one in my father's house?" Now, Paul was precisely in your condition. He was a Hebrew of the Hebrews, and he was regarded by his people with the most extreme hate because he had come out from among them to follow the Crucified One.
 
 Yet Paul felt that God was able to keep him, and you may depend upon it, though father and mother forsake, and brothers and sisters scoff, He whom you trust will keep you also firm in the faith. "Ah," says another, "but you do not know what it is to strive with the prejudices of an education hostile to the faith of Jesus. When I seek to grow in Grace, the things I learned in my childhood force themselves upon me and hinder me." And was not the Apostle in this case? As touching the Law he had been a Pharisee, educated in the strictest sect, brought up in traditions that were opposed to the faith of Christ. And yet the Lord kept him faithful even to the end.
 
@@ -100,7 +100,7 @@ Have you put your soul into the keeping of that blessed Man who is also God? He 
 
 Brothers and Sisters, the Apostle attained this full assurance through growing knowledge. He did not say, "I am persuaded that Christ will save me, apart from anything I know about Him." But he begins by saying, "I know." Let no Christian among us neglect the means provided for obtaining a fuller knowledge of the Gospel of Christ. I would that this age produced more thoughtful and studious Christians. I am afraid that apart from what many of you gather from the sermon, or from the reading of the Scriptures in public, you do not learn much from the Word of God, or from those innumerable instructive books which godly men have bequeathed to us.
 
-Men are studious in various schools and colleges in order to obtain knowledge of the classics and mathematics. But should we not be even more diligent that we may know Christ? That we may study Him, and all about Him, and no longer be children, but in knowledge may be men? Many of the fears of Christians would be driven away if they knew more. Ignorance is not bliss in Christianity, but misery. Knowledge sanctified and attended by the Presence of the Holy Spirit is as wings by which we may rise out of the mists and darkness into the light of fall assurance. The knowledge of Christ is the most excellent of sciences. Seek to be masters of it, and you are on the road to full assurance.
+Men are studious in various schools and colleges in order to obtain knowledge of the classics and mathematics. But should we not be even more diligent that we may know Christ? That we may study Him, and all about Him, and no longer be children, but in knowledge may be men? Many of the fears of Christians would be driven away if they knew more. Ignorance is not bliss in Christianity, but misery. Knowledge sanctified and attended by the Presence of the Holy Spirit is as wings by which we may rise out of the mists and darkness into the light of full assurance. The knowledge of Christ is the most excellent of sciences. Seek to be masters of it, and you are on the road to full assurance.
 
 Once, again, the Apostle, it appears from the text, gained his assurance from close consideration as well as from knowledge. "I know and am persuaded." As I have already said, persuasion is the result of argument. The Apostle had turned this matter over in his mind. He had meditated on the pros and cons. He had carefully weighed each difficulty, and he felt the preponderating force of Truth swept every difficulty out of the way. O Christian, if you made your mind more familiar with Divine Truth, you would, under the guidance of the Holy Spirit, have much more assurance! I believe it is the doctrine which we have least studied in the Word which gives us the most trouble in our minds. Search it out and look.
 
@@ -128,13 +128,13 @@ O children, your characters will be safe if you trust them with Jesus! I do not 
 
 This first Sunday of a new year. What time more suitable for beginning aright? O may the Holy Spirit softly whisper in your ears reasons that shall persuade you to give yourselves to Christ! I say again, my testimony is that you cannot do a wiser or a better thing. Oh, the happiness my soul has known in resting on my Lord! I wish you knew it. I would not cease to be a Christian if I might be made a king or an angel. No character can be to me so suitable or so happy as that of a humble dependant upon the faithful love of my redeeming Lord.
 
-O come and trust Him, dear young Friends! You older ones, do you need that I should speak to you, when you are getting so near your grave? You are now out of Christ, how soon may you be in Hell? You younger ones, I say, embrace this flying hour and let this be the day of which you shall sing in after years, 
+O come and trust Him, dear young Friends! You older ones, do you need that I should speak to you, when you are getting so near your grave? You are now out of Christ, how soon may you be in Hell? You younger ones, I say, embrace this flying hour and let this be the day of which you shall sing in after years,
 
-> It is done! The great transaction's done!   
-> I am my Lord's, and He is mine,    
-> He drew me, and by His Grace I followed on,   
-> Charmed to confess the voice Divine.   
-> High Heaven, that heard the solemn vow,   
-> That vow renewed shall daily hear,    
-> Till in life's latest hour I bow,   
+> It is done! The great transaction's done!  
+> I am my Lord's, and He is mine,  
+> He drew me, and by His Grace I followed on,  
+> Charmed to confess the voice Divine.  
+> High Heaven, that heard the solemn vow,  
+> That vow renewed shall daily hear,  
+> Till in life's latest hour I bow,  
 > And bless in death a bond so dear.  

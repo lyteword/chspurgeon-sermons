@@ -17,9 +17,7 @@ Although both these interpretations are true, and both instructive, the text is 
 
 In regarding the text from this point of view, we shall first observe the prelude of this delightful song. And then, secondly, we shall listen to the song itself.
 
-First I shall ask your consideration of the prelude of this charming song. Here are certain preliminaries to the music. They are contained in the first line of the text. "In that day you shall say." Here we have the tuning of the harps, the notes of the music follow in the succeeding sentences. Much of instruction is couched in these seven words of prelude. Note then, first, there is a time for that joyous song which is here recorded. "In that day." The term, "that day,"
-
-is sometimes used for a day of terror, and often for a period of blessing. The common term to both is this: they were both days of the manifestation of Divine power.
+First I shall ask your consideration of the prelude of this charming song. Here are certain preliminaries to the music. They are contained in the first line of the text. "In that day you shall say." Here we have the tuning of the harps, the notes of the music follow in the succeeding sentences. Much of instruction is couched in these seven words of prelude. Note then, first, there is a time for that joyous song which is here recorded. "In that day." The term, "that day," is sometimes used for a day of terror, and often for a period of blessing. The common term to both is this: they were both days of the manifestation of Divine power.
 
 "That day," a day of terrible confusion to God's enemies. "That day," a day of great comfort to God's friends. The day being in either case the time of the making bare of God's arm and the manifestation of His strength. Now, the day in which a man rejoices in Christ is the day in which God's power is revealed on his behalf in his heart and conscience, and the Holy Spirit subdues him to the reign of Christ. It is not always that God works with such effectual power as this in the human heart, for He has His set times. Oftentimes the word of human ministry proves ineffectual; the preacher exhorts, the hearer listens, but the exhortation is not obeyed. It sometimes happens that even desires may be excited, and yet nothing is accomplished, for these better feelings prove to be as those spring blossoms on the trees which do not knit and fall fruitless to the ground.
 
@@ -27,7 +25,7 @@ There is, however, an appointed time for the calling of God's elect, a set time 
 
 With some who are in great distress of spirit, it may be God's time to wound and to kill. Their self-confidence is yet too vigorous, their carnal righteousness is yet too lively. Their confidences must be wounded, their righteousness must be killed. For otherwise they will not yield to grace. God does not clothe us till He has stripped us. He does not heal till first He has wounded. How should He make alive those who are not dead? There is a work of grace in the heart of digging out the foundations before grace begins to build up our hopes. Woe to that man who builds without having the foundation dug out, for his house will fall. Woe to that man who leaps into a sudden peace without ever having felt his need of pardon, without repentance, without brokenness of spirit. He shall see his hasty fruit wither before his eyes.
 
-The time when God effectually blesses is sometimes called "a time of love." It is a time of deep distress to us, but it is a time of love with God, a time wisely determined in the decree and counsel of the Most High, so that healing mercy arrives at the best time to each one who is interested in the covenant of grace. Someone may enquire, "When do you think will be the time when God will enable me to say, 'Your anger is turned away'? " My dear brother, you can easily discern it! I believe God's time to give us comfort is usually when we are brought so low as to confess the justice of the wrath which He is pouring upon us.
+The time when God effectually blesses is sometimes called "a time of love." It is a time of deep distress to us, but it is a time of love with God, a time wisely determined in the decree and counsel of the Most High, so that healing mercy arrives at the best time to each one who is interested in the covenant of grace. Someone may enquire, "When do you think will be the time when God will enable me to say, 'Your anger is turned away'?" My dear brother, you can easily discern it! I believe God's time to give us comfort is usually when we are brought so low as to confess the justice of the wrath which He is pouring upon us.
 
 Humbleness of heart is one sure indication of coming peace. A German nobleman some years ago went over the galleys at Toulon. There he saw many men condemned by the French government to perpetual toil at the galley oar on account of their crimes. Being a prince in much repute, he obtained the favor that he should give liberty to one of the captives. He went about among them, and talked to them, but found in every case that they thought themselves wrongly treated, oppressed, and unrighteously punished. At last he met with one who confessed, "In my case my sentence is a most just and even a merciful one. If I had not been imprisoned in this way I should most likely have long ago been executed for some still greater crime. I have been a very great offender, and the law is doing nothing more than it ought to do in keeping me in confinement for the rest of my life."
 
@@ -61,14 +59,14 @@ Even if the forgiven one could not speak with his tongue, he could say it with h
 
 But that very morning that I heard the Gospel message, "Look unto Me, and be you saved, all you ends of the earth," I am certain that no person who knew me could have helped remarking the difference even in my face! A change came over my spirits, which as I remember was even indicated in the way in which I walked, for the heavy step of melancholy was exchanged for a more cheerful pace. The spiritual condition affects the bodily state, and it was evidently so with me. My delight at being forgiven was no ordinary sensation, I could have fairly leaped for joy!
 
-> All through the night I wept full sore,   
-> But morning brought relief.   
-> That hand which broke my bones before,   
-> Then broke my bonds of grief.   
-> My mourning He to dancing turns,   
-> For sackcloth joy He gives,   
-> A moment, Lord, Your anger burns,   
-> But long Your favor lives.   
+> All through the night I wept full sore,  
+> But morning brought relief.  
+> That hand which broke my bones before,  
+> Then broke my bonds of grief.  
+> My mourning He to dancing turns,  
+> For sackcloth joy He gives,  
+> A moment, Lord, Your anger burns,  
+> But long Your favor lives.  
 
 If I had not avowed my deliverance the very stones must have cried out! It was not in my heart to keep it back, but I am sure I could not have done so if I had desired. God's grace does not come into the heart as a beggar into a barn, and lie hidden away as if it stole a night's lodging. No, its arrival is known all over the house, and every chamber of the soul testifies its presence! Grace is like a bunch of lavender; it discovers itself by its sweet smell. Like the nightingale it is heard where it is not seen. Like a spark which falls into the midst of straw it burns, and blazes, and consumes, and so reveals itself by its own energetic operations.
 
@@ -116,7 +114,12 @@ And now what shall I say unto the Lord, but, "I will praise You: for though You 
 
 Time fails me, but I must add that our song includes holy resolutions: "I will praise You." I will do it with my heart in secret. I will get alone and make my expressive silence sing Your praise. I will sit and pour out liquid songs in tears of gratitude, welling up from my heart. I will praise You in the church of God, for I will search out other believers, and I will tell them what God has done for me. I will cast in my lot with Your people: if they are despised, I will bear the shame with them: and count it honor. I will unite myself to them, and help them in their service. And if I can magnify Christ by my testimony among them, I will do it.
 
-I will praise You in my life. I will make my business praising You. I will make my parlor and my drawing room, I will make my kitchen and my fields praise You. I will not be content unless all I am and all I have shall praise You. I will make a harp of the whole universe. I will make earth and heaven, space and time to be but strings upon which my joyful fingers shall play lofty tunes of thankfulness. I will praise You, O my God! My heart is fixed, I will sing and give praise: and when I shall die, or rather pass from this life to another, I who have been forgiven so much sin through such a Savior, will, by your grace, continue to praise You: "Oh, how I long to join the choir Who worship at His feet! Lord, grant me soon my heart's desire! Soon, soon Your work complete!"
+I will praise You in my life. I will make my business praising You. I will make my parlor and my drawing room, I will make my kitchen and my fields praise You. I will not be content unless all I am and all I have shall praise You. I will make a harp of the whole universe. I will make earth and heaven, space and time to be but strings upon which my joyful fingers shall play lofty tunes of thankfulness. I will praise You, O my God! My heart is fixed, I will sing and give praise: and when I shall die, or rather pass from this life to another, I who have been forgiven so much sin through such a Savior, will, by your grace, continue to praise You:
+
+> Oh, how I long to join the choir  
+> Who worship at His feet!  
+> Lord, grant me soon my heart's desire!  
+> Soon, soon Your work complete!  
 
 Note once more that this is a song which is peculiar in its character, and appropriate only to the people of God. I may say of it, "no man could learn this song but the redeemed." He only who has felt his vileness, and has had it washed away in the "fountain filled with blood," can know its sweetness. It is not a Pharisee's song: it has no likeness to, "God I thank You that I am not as other men." It confesses, "You were angry with me," and there owns that the singer was even as others. But it glories that through infinite mercy the Divine anger is turned away. And herein it leans on the appointed Savior.
 
@@ -136,6 +139,6 @@ The American bee keeper, when he wants to collect a hive, catches first a single
 
 I am afraid you are guilty here. See to it, dear brother. See to it, dear sister, and who can tell of what use you may yet be? There was a dear servant of Christ who was just on the borders of the grave, very old and very ill, and frequently delirious, so that the doctors said no one must go into the chamber except the nurse. A little Sunday school boy, who was rather curious, peeped in at the door to look at the minister, and the poor dying servant of God saw him, and the ruling passion was strong in death. He called him. "David," said he, "did you ever close in with Christ? I have done so many a time, and I long that you may." Fifty years after, that boy was living and bearing testimony that the dying words of the good man had brought him to Jesus, for by them he was led to close in with Christ.
 
-You do not know what half a word might do if you would but speak it! O keep not back the good news that might bring salvation to your wife, to your husband, to your child, to your servant! If you have, indeed, felt the Lord's anger pass away this morning, go home to your chamber, and on your knees repeat this vow, "My God, I will praise You! I have been a sluggard, I have been very silent about You. I am afraid I have not given You of my substance as I ought. I am sure I have not given You of my heart as I should. But oh, forgive the past, and accept Your poor servant yet again. 'Then I will praise You. For though You were angry with me, Your anger is turned away, and You comfort me.' "
+You do not know what half a word might do if you would but speak it! O keep not back the good news that might bring salvation to your wife, to your husband, to your child, to your servant! If you have, indeed, felt the Lord's anger pass away this morning, go home to your chamber, and on your knees repeat this vow, "My God, I will praise You! I have been a sluggard, I have been very silent about You. I am afraid I have not given You of my substance as I ought. I am sure I have not given You of my heart as I should. But oh, forgive the past, and accept Your poor servant yet again. 'Then I will praise You. For though You were angry with me, Your anger is turned away, and You comfort me.'"
 
 God bless you, for Christ's sake.

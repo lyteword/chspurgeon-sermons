@@ -115,7 +115,16 @@ If the Methodists cry out, "Hallelujah," I could for once have cried out, "Halle
 
 You can only find pardon and peace by looking to Jesus. The simple act of throwing yourself into His dear arms will bring it; nothing else will. It will come at once, come suddenly, and when it comes it will bring to you results of blessedness that shall know no end. "I," says God, "I will do it." "Give unto the Lord, then, you pardoned, give unto the Lord glory and strength! Give unto the Lord the glory that is due unto His name."
 
-Take now your songs and go forth and sing, "O God, I will praise You, for though You were angry with me, Your anger is turned away, and You comfort me." If you choose your joy in that sweet verse of our poet, you will do well, "Jesus is become at length, my salvation and my strength! And His praises shall prolong, while I live, my pleasant song. Praise You, then, His glorious name, publish His exalted fame, still His worth your praise exceeds, excellent are all His deeds."
+Take now your songs and go forth and sing, "O God, I will praise You, for though You were angry with me, Your anger is turned away, and You comfort me." If you choose your joy in that sweet verse of our poet, you will do well:
+
+> Jesus is become at length,  
+> My salvation and my strength!  
+> And His praises shall prolong,  
+> While I live, my pleasant song.  
+> Praise You, then, His glorious name,  
+> Publish His exalted fame,  
+> Still His worth your praise exceeds,  
+> Excellent are all His deeds.  
 
 Continue till you mount to heaven to sing, "Unto Him that loved us and washed us from our sins in His own blood, to Him be glory forever and ever."
 
@@ -139,10 +148,20 @@ But I must note again there is not only peace and neighborliness in the text, bu
 
 She had had a deal of trouble, and I praised God when she said, "Oh, but I should not have minded the trouble if I could have got to the Tabernacle on Sundays and weekdays, for there you could at least forget your troubles for an hour or two, and then go away strong to contend with them again." Yes, and when sitting under the shadow of Christ, under the leaves of His truth, under the droppings of His familiar love, Christian fellowship becomes very sweet. One almost feels, when Jesus draws near to our assemblies, that if heaven is better than this, it must be very good, indeed. We get such earnest anticipation of the joy of the glorified saints that we are fairly overcome with excessive delight!
 
-But note, it was not only comfort they had, but substantial enjoyment and real supply of needs. They sat under the vine, then there was wine for them to drink. They sat under the fig tree, then there were figs for them to eat. So when God gives pardon and peace, He gives to our souls a satisfaction with good things. We find in Jesus Christ, if we sit under His shadow with delight, that His fruit is sweet unto our taste, "All my capacious powers can wish in Christ do richly meet; Nor to my eyes is light so dear, nor friendship half so sweet."
+But note, it was not only comfort they had, but substantial enjoyment and real supply of needs. They sat under the vine, then there was wine for them to drink. They sat under the fig tree, then there were figs for them to eat. So when God gives pardon and peace, He gives to our souls a satisfaction with good things. We find in Jesus Christ, if we sit under His shadow with delight, that His fruit is sweet unto our taste:
+
+> All my capacious powers can wish  
+> In Christ do richly meet;  
+> Nor to my eyes is light so dear,  
+> Nor friendship half so sweet.  
 
 Now, my beloved friends, you that are unsaved and remain so. I can understand that you seek company and that you will go and call every man his neighbor, "Come, let us make mirth, let us eat and drink, for tomorrow we die, let us break the sabbath, let us break God's bands asunder, and cast His cords from us." I can understand that, and I think you also can understand that the company you keep on earth will be the company you will have to keep forever. "Bind them in bundles to burn them," will be the Lord's command. Like with like. They that depart from Christ on earth will hear Him say, "Depart, you cursed, forever." O that you might be led to seek God, and then to seek His people!
 
-But as for you that love God, I am sure if grace is reigning in your hearts you will feel a yearning after holy company, and your company will be such as love what you love, such as hope to be with Jesus where you will be. "Oh, but God's people have many faults!" My dear friend, so have you, but despite all the faults of the church, "My soul shall pray for Zion still, while life or breath remains. There may best friends, my kindred dwell, there God my Savior reigns."
+But as for you that love God, I am sure if grace is reigning in your hearts you will feel a yearning after holy company, and your company will be such as love what you love, such as hope to be with Jesus where you will be. "Oh, but God's people have many faults!" My dear friend, so have you, but despite all the faults of the church:
+
+> My soul shall pray for Zion still,  
+> While life or breath remains.  
+> There may best friends, my kindred dwell,  
+> There God my Savior reigns.  
 
 There is no better company than the company that Christ keeps! There is no better house than the house that Christ inhabits. May we be willing to be doorkeepers in the house of God! May we, by God's grace, be glad to be the least in the church, so long as we may be numbered among the chosen, redeemed by the blood of Jesus! May the Lord give us perfect pardon, perfect peace, for His name's sake. Amen.

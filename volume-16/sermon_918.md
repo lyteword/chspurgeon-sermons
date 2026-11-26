@@ -71,7 +71,10 @@ When the tower rises tier upon tier upon so frail a base, it leans like the towe
 
 The main difference, however, between the two houses did not lie in these cracks and settlements, nor in the cheapness or rapidity of the building; it lay out of sight, underground. It was all a matter of the foundation. How many there are who suppose that if a thing is out of sight it may as well be out of mind! Who do you think is likely to dig down and see what the foundations are? "Well," says one, "I see no need for being over precise. I do not believe in being so particular. What nobody sees cannot mean anything." Many subscribe to the graceless song:
 
-"For faith and grace let foolish zealots fight; He can't be wrong whose life is in the right." "You pay twenty shillings in the pound, attend a place of worship, take the sacrament, are charitable and say your prayers, and never trouble about anything further"; that is the popular notion. "What is the use of fretting about your heart? That is all transcendental nonsense! What can it signify?" That is how the foolish builder comforted himself. And he doubtless sneered at the wise builder as a poor miserable creature who was overmuch righteous and melancholy. Outward appearance is everything with men, but nothing with God. The essential difference between the true child of God and the mere professor is not readily to be discovered, even by spiritual minds. But the Lord sees it. It is a secret mysterious something which the Lord prizes, "for He knows them that are His." He separates between the precious and the vile. He puts away the pretenders as dross, but He suffers no sincere heart to be destroyed.
+> For faith and grace let foolish zealots fight;  
+> He can't be wrong whose life is in the right.  
+
+"You pay twenty shillings in the pound, attend a place of worship, take the sacrament, are charitable and say your prayers, and never trouble about anything further"; that is the popular notion. "What is the use of fretting about your heart? That is all transcendental nonsense! What can it signify?" That is how the foolish builder comforted himself. And he doubtless sneered at the wise builder as a poor miserable creature who was overmuch righteous and melancholy. Outward appearance is everything with men, but nothing with God. The essential difference between the true child of God and the mere professor is not readily to be discovered, even by spiritual minds. But the Lord sees it. It is a secret mysterious something which the Lord prizes, "for He knows them that are His." He separates between the precious and the vile. He puts away the pretenders as dross, but He suffers no sincere heart to be destroyed.
 
 What, then, is this important matter? I answer it is just this: beloved hearer, if you would be built on a rock, see to it that you have a true sense of sin. I do not say that a sense of sin is a preparation for Christ, and that we ought to pull men back from the Gospel till they feel their sin. But I do believe that wherever there is true faith in Jesus there goes with it a deep abhorrence of sin. Faith without contrition is a dead and worthless faith.
 
@@ -113,7 +116,10 @@ To close. Having thus mentioned the common trials and the effects produced in th
 
 Then came the floods. They would, if they could, have sapped and undermined the foundations, but they took no effect on the granite rock. And though the wind howled round the habitation, every stone was well cemented and all bound as with iron bands to the grand old Rock; and therefore the man was safe and happy within. And above all, he was grateful that he had built on such a foundation. He could sit down and sing:
 
-"Loud may the troubled ocean roar, In sacred peace my soul abides." The Christian rests peacefully upon Christ. Troubles come one after another, but they do not sweep him away; they only endear to him the hope which is based upon Christ Jesus. And when at last death comes, that awful flood which will undermine everything that can be removed; it cannot find anything to shake in the wise builder's hope.
+> Loud may the troubled ocean roar,  
+> In sacred peace my soul abides.  
+
+The Christian rests peacefully upon Christ. Troubles come one after another, but they do not sweep him away; they only endear to him the hope which is based upon Christ Jesus. And when at last death comes, that awful flood which will undermine everything that can be removed; it cannot find anything to shake in the wise builder's hope.
 
 He rests on what Christ has done; death cannot affect that. He believes in a faithful God. And dying cannot affect that. He believes in the Covenant signed, and sealed, and ratified, in all things ordered well. He lays hold on the "shalls" and "wills" of an immutable God, all sealed with the blood of the Redeemer! Death cannot affect any of these. And when the last great trumpet sounds, and the last fire that shall try every man's work of what sort it is comes forth from the Throne of God, the man who in true sincerity and with real experience has laid hold on Christ is not afraid of the tremendous hour.
 
@@ -127,27 +133,27 @@ I pray you, if you are a seeker, be not put off with empty hopes and vain confid
 
 The descriptions of Scriptures are, after all, but condescensions to our ignorance; partial revelations of fathomless mysteries. But if these are so dreadful, what must the full reality be? Provoke Him not, my hearers; tempt not your God! Neglect not the great salvation, for if you do, you shall not escape. Play not with your souls! Be not heedless and careless of the realities of eternity! But now, even now, may God hear your prayer as you breathe it from your inmost souls, and give you truly to be washed in the precious blood, and effectually saved by Him, in Whom there is fullness of truth and grace. Amen.
 
-> My God, I mark with fear 
+> My God, I mark with fear  
 > How many hopes decay,  
 > And like the foolish builder's house  
 > Fall in the trial day.  
-> Perhaps amid this throng   
-> You do a soul espy   
-> Whose towering hopes are built on sand,   
-> I ask, 'Lord, is it I?'   
-> A thousand doubts arise,   
-> I bring them all to You.   
-> Am I unconsciously deceived?   
-> Lord, search my heart and see.   
-> O teach me deep to dig   
-> Down to the solid Rock,   
-> That when tornadoes round me sweep   
-> My house may bear the shock.   
-> Jesus, You only are   
-> The sure foundation stone,   
-> Firm as the eternal hills are You,   
-> I build on You alone.   
-> Cemented fast to You   
-> No stone is laid in vain,   
-> My hope defies the assaults of Hell,   
+> Perhaps amid this throng  
+> You do a soul espy  
+> Whose towering hopes are built on sand,  
+> I ask, 'Lord, is it I?'  
+> A thousand doubts arise,  
+> I bring them all to You.  
+> Am I unconsciously deceived?  
+> Lord, search my heart and see.  
+> O teach me deep to dig  
+> Down to the solid Rock,  
+> That when tornadoes round me sweep  
+> My house may bear the shock.  
+> Jesus, You only are  
+> The sure foundation stone,  
+> Firm as the eternal hills are You,  
+> I build on You alone.  
+> Cemented fast to You  
+> No stone is laid in vain,  
+> My hope defies the assaults of Hell,  
 > The flood, the wind, the rain.  
