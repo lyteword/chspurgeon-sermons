@@ -29,21 +29,14 @@ I thought I would, under this second head, mention some reflections which often 
 
 First, there are many true believers who at the first are tried with unbelief, because they have now, more than ever they had before, a sense of their past sins. Many a man receives a far deeper sense of sin after he is forgiven than he ever had before. The light of the law is but moonlight compared with the light of the gospel, which is the light of the sun. Love makes sin to become exceeding sinful.
 
-'My Sins, my Sins, my Savior!
-
-How sad on thee they fall;
-
-Seen through thy gentle patience,
-
-I tenfold feel them all.
-
-I know they are forgiven,
-
-But still their pain to me
-
-Is all the grief and anguish
-
-They laid, my Lord, on thee.'
+> My sins, my sins, my Savior!  
+> How sad on thee they fall;  
+> Seen through thy gentle patience,  
+> I tenfold feel them all.  
+> I know they are forgiven,  
+> But still their pain to me  
+> Is all the grief and anguish  
+> They laid, my Lord, on thee.  
 
 The light of the promise gleaming in the soul reveals the infinite abyss of horror which lies in indwelling sin. In the light of God's countenance we discover the filthiness, the abomination, the detestable ingratitude of our past conduct. We loathe ourselves in our own sight. While we bless God that sin is pardoned, we are staggered to think it should have been such sin as it is, and the natural feeling resulting from our discovery is a fear that we cannot be pardoned. We ask ourselves, can it be that such sins are forgiven? Possibly the memory of certain peculiarly heinous sins becomes very vivid to our conscience: we had half forgotten them, but they start up with dreadful energy, and cast suspicions into our mind as to whether forgiveness is possible. Oh, that we could blot out those evil days! We have said, 'Cursed be the sun that it rose on such a day as that in which I so defiled myself with iniquity.' Thus, under a sense of sin, though there is the belief that we are pardoned, there may also arise the unbelief against which we need the Lord to help us.
 
@@ -55,9 +48,8 @@ I have known some, again, whose unbelief has been excited by a consideration of 
 
 I have known, too, not a few, whose unbelief has arisen through a sacred anxiety to be right; a most proper anxiety if not pushed beyond its sphere. The idea has been suggested to them: 'suppose I should be after all presumptuous, and should deceive myself, by thinking I am saved, whereas I am not? What if I should film the wound, when it ought to be lanced, before there can be effectual healing.' How I wish that all hypocrites would be troubled with this sort of fear. It would be a great mercy for many boastful professors if they had grace enough to doubt. I think Cowper was right when he said:
 
-'He that never doubted of his state,
-
-He may, perhaps he may too late.'
+> He that never doubted of his state,  
+> He may, perhaps he may too late.  
 
 But yet, this anxiety may be carried too far, and the soul may slide into despondency through it. I ought to be afraid of presumption, but it cannot be presumptuous to believe God's word. I ought to be afraid of saying, 'Peace, peace, where there is no peace;' but if peace comes to me through the word of Christ, I need never be suspicious of it, let it be as profound as it may. I may doubt myself; I may go further, I may despair of self, but I must not doubt the Lord. If he has said, 'Trust in me, believe in me, and thou shalt be saved;' if I believe in him, it is no presumption to know that I am saved. If he has declared that he that believeth in him is justified from all things from which he could not be justified by the law of Moses; if I have believed in him, I am justified from all my sins. There is far more presumption in doubting the Lord than there ever can be in trusting him. Faith is no more than God's due, it ought never to be looked at as too daring. If I believe in Jesus I have no right to say, 'I hope I am saved,' for that implies a doubt of God's declaration that the believer is saved. I have no right to say, 'I sometimes think I am safe.' I am so undoubtedly if I believe in Jesus. It is no matter of opinion, but a matter of certainty. There is nothing in this world about which a man may be so sure as about his own salvation, because other things come to us by the evidence of our own fallible senses, or by the testimony of men who may be mistaken; but the fact that the believer is saved is sealed to us by the testimony of God himself, who cannot lie. When the Scripture says plainly, 'He that believeth and is baptized shall be saved,' I, having believed, and having been baptized, ought not to question the divine declaration, but should be as sure that, if I have believed, I am saved, as I am sure that I exist. This assurance is attainable, and should be the common condition of the believer. Yet has it often happened, I say, that an anxiety, which was commendable in its outset, has ended in a censurable unbelief.
 
@@ -74,5 +66,3 @@ It is observable that this poor man did not say, 'Lord, I believe, but have some
 Then, again, having made a confession of his unbelief as you observe, the father, in the narrative, prayed against it, and an earnest prayer it was. It was, 'Help thou mine unbelief.' It is very noticeable that he does not say, 'Lord, I believe; help thou my child.' No, nor does he say, 'Lord, I believe; now cast the devil out of my boy:' not at all; he perceives that his own unbelief was harder to overcome than the devil, and that to heal him of his spiritual disease was a more needful work, than even to heal his child of the sad malady under which he labored. This is the point to arrive at, to feel that there is no deficiency in the merit of Christ; no lack of power in his precious blood; no unwillingness in Christ's heart to save me; but all the hindrance lies in my unbelief. There is the point. O God, bring thy power to bear where it is wanted. It is not because the blood will not cleanse me, it is because I will not believe; it is not because Christ's plea is not heard, but because I do not trust that plea. If I am not in the possession of full salvation, it is not because Christ is not mighty to save, but because I do not lean on him fully and entirely. O God, thou seest this is the center of the difficulty, bring thy power to bear on that difficulty. I ask only this. No more do I cry, 'Help me here, or help me there;' but, 'Help mine unbelief.' That is the Slough of Despond; I carry that in my heart; that is the weak point. 'Lord, strengthen me just there.' It is well when, in addition to confession, we bring up all the great guns of fervent prayer to bear upon that position which needs to be carried by storm.
 
 And, lastly, this man did well in looking for the help against his unbelief to the right quarter. He did not say, 'Lord, I believe; and now I will try to overcome my belief.' No; but 'Lord help,' as if he felt that the Lord alone could do it. No physician can cure unbelief but Christ. He is the physic for it, and he is the physician too. If thou hast any unbelief, take thou the blood of Christ to cure it with. Think of him; God in the glory of his person, tabernacling among men, working out a perfect righteousness, dying a felon's death upon the cross in the sinner's stead; think of him as rising from the dead, no more to die: think of him as ascending into heaven amidst the shouts of angels: think of him as standing at the right hand of God with the keys of death and hell at his girdle: think of him as always pleading the merit of his blood before the Father's throne; and, as thou considerest concerning him, in the power of the Spirit, thine unbelief will die, for thou wilt say, 'Lord, the thought of thee has helped mine unbelief; while I have been studying thee, and feeding my soul on thee, and making thee to be as bread and wine to my soul, my unbelief has gone. I do believe in thee, and I will; for thou hast helped mine unbelief.' Go, any of you who are in trouble about this matter, go where you gained your first faith, go there to get more. If you first obtained your faith at the foot of the cross, go there again to end your unbelief. View the flowing of his soul-redeeming blood, and continue viewing it till thou shalt by divine assurance know; that he has made thy peace with God. God bless thee in Christ Jesus. Amen.
-
-Portion of Scripture read before sermon: Mark 9:1-37.

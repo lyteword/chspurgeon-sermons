@@ -77,17 +77,16 @@ If there were a place in the world where God never came, no Christian would ever
 
 Next, we rejoice in His Character. All the attributes of God are themes of joy and rejoicing to a Christian. "Why," he says, "He is a merciful God. Blessed be His name for that, else I had never been saved! He is a gracious God. Glory be to Him for that, for He can save the souls of my children by His Grace. He is a powerful God, and I would not have Him otherwise. This, indeed, is a well of joy."
 
-"The God that rules on high,
+> The God that rules on high,  
+> And thunders when He pleases.  
+> That rides upon the stormy sky,  
+> And manages the seas.  
+> This amazing God is ours,  
+> Our Father and our love.  
+> He shall send down His heavenly powers  
+> To carry us above.  
 
-And thunders when He pleases.
-
-That rides upon the stormy sky,
-
-And manages the seas.
-
-This amazing God is ours,
-
-Our Father and our love. He shall send down His heavenly powers To carry us above." We are glad that we have a God who can do all things on our behalf!
+We are glad that we have a God who can do all things on our behalf!
 
 The Lord is also immutable, and oh, what a sun of consolation that is, without variableness or shadow of a turning! I shift and change like the winds and the waves, but He is always the same. Many a fainting believer has drunk from this fountain when all others have failed him. Moreover, the Lord is faithful to His promises. What a joy is this! And He is holy, and just, and good; here, too, is joy, for if He is holy He cannot do an unrighteous action, and it were unrighteous of Him not to save His people for the sake of His Anointed. Every attribute of God darts thunder and lightning upon an unreconciled man. And, on the other hand, every part of the divine character smiles with eternal sunlight upon a spirit which has received the atonement.
 

@@ -37,9 +37,8 @@ Now, let us observe that although in Paul's particular form of it, this temptati
 
 Some real Christians have a constitutional tendency towards inordinate self-esteem. They never err through timidity, but they are very easily led into self-confidence. No man living is indifferent to it:
 
-"The proud to gain it toils on toils endure;
-
-The modest shun it but to make it sure."
+> The proud to gain it toils on toils endure;  
+> The modest shun it but to make it sure.  
 
 It is vain for us to boast of not caring about it. We do care about it and our duty is to keep that propensity in check. He who thinks he is humble is probably the proudest man in the place. But there are some men in whom self-consciousness is so uppermost and so evidently powerful that you can see it in almost everything they do. It is their struggle, but it will come up in the form of being very easily annoyed because they are overlooked in some good work, or in being easily irritated because they fancy that somebody is opposing them when that somebody never thought of them.
 
@@ -101,10 +100,10 @@ He continued to pray till at last he received for an answer not the removal of t
 
 God, therefore, knowing that this thorn in the flesh was a sacred medicine to Paul, would not take it away, even though most urgently requested to do so. Well does Ralph Erskine say of prayer:
 
-"I'm heard when answered soon or late,
-Yes, heard when I no answer get.
-Most kindly answered when refused
-And treated well when harshly used."
+> I'm heard when answered soon or late,  
+> Yes, heard when I no answer get.  
+> Most kindly answered when refused  
+> And treated well when harshly used.  
 
 So, though refused, Paul was answered for the result was that the grace given him enabled him to bear the thorn and lifted him right above it; till he even rejoiced and gloried to think that he was permitted so to suffer. "Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may rest upon me."
 

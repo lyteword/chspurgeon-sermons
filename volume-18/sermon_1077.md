@@ -19,7 +19,7 @@ For you, in the fullness of time, Jesus came to tabernacle among men. Who shall 
 
 Nor was the gift of Jesus Christ's dying, all, for Jesus' living is still ours! His resurrection teems with the blessings of life and immortality. We are one with Him and He is forever our Head. And in Him, by virtue of His ascension, we have received the gift of the Holy Spirit who dwells in us and will dwell in us forever. Through His indwelling we have "an unction from the Holy One," through which we "know all things," being taught of God and led into all truth according to the office of the gracious Comforter.
 
-Meanwhile we are also raised up together and made to sit together in the heavenly places in Christ Jesus, while all things are ours and we are Christ's, and Christ is God's. But indeed, I am not about to make a catalog of those gifts; time would fail and ability would also be lacking; suffice it to hint at them to you, to remind you that if through grace you have received Christ, you are, indeed, "blessed of the Lord that made heaven and earth," for 10,000 times 10,000 of the choicest gifts have been the seals and testimonials of your heavenly Father's affection toward you.
+Meanwhile we are also raised up together and made to sit together in the heavenly places in Christ Jesus, while all things are ours and we are Christ's, and Christ is God's. But indeed, I am not about to make a catalog of those gifts; time would fail and ability would also be lacking; suffice it to hint at them to you, to remind you that if through grace you have received Christ, you are, indeed, "blessed of the Lord that made heaven and earth," for ten thousand times ten thousand of the choicest gifts have been the seals and testimonials of your heavenly Father's affection toward you.
 
 But, Beloved, the peculiar people to whom this blessing comes are, after their conversion, known by their character. In due time divine grace works in them, producing signs of the inward and spiritual grace which the Holy Spirit has implanted. "He shall bless them that fear the Lord, both small and great." So then, if you fear the Lord, "you are blessed of the Lord that made heaven and earth." Now, to fear Him is not merely to tremble before Him, fearful lest He should destroy you. Such a fear as that has been found in the hearts of even the vilest of men! We suppose that neither Pharaoh nor Belshazzar was a stranger to that feeling.
 
@@ -39,7 +39,7 @@ The blessing of the Lord is as dew to the mown grass and as showers to the parch
 
 A strong expression indeed! They are worse than a thorn in the flesh. Sin is a thorn in the eye to the believer. But to know that though I fight daily with corruptions and have to mourn an evil heart of unbelief, yet I am blessed of the Lord, is not that bliss? Oh, the sweetness of that word to a heart which has been sorely tempted! Besides, the child of God, in addition to what he feels within, is often called to suffer the curses of the world and the curses of Satan. If you are of the world, the world will love its own; but if you are not of the world, the world will hate you. And though at times, under misrepresentations, slanders and cruel accusations you will feel that you are shamefully entreated, this truth of God remains: "You are blessed of the Lord that made heaven and earth."
 
-The bitterness of persecution is gone when this is realized. Your faithful soul learns to say, "Let them curse on if they will; let Balak go from mountain to mountain and kill his bullocks and his rams, and yet surely there is no enchantment against Jacob nor divination against Israel." They may cast their spells and invoke the demons as they will, but if the Lord has blessed the people, blessed they are!" Blessed be God, if we have once received this benediction from our Great Father's hand, all the maledictions of the Pope or the devil, or all the wicked men on earth shall not frighten our spirit! God's blessing shall silence all!
+The bitterness of persecution is gone when this is realized. Your faithful soul learns to say, "Let them curse on if they will; let Balak go from mountain to mountain and kill his bullocks and his rams, and yet surely there is no enchantment against Jacob nor divination against Israel." They may cast their spells and invoke the demons as they will, but if the Lord has blessed the people, blessed they are! Blessed be God, if we have once received this benediction from our Great Father's hand, all the maledictions of the Pope or the devil, or all the wicked men on earth shall not frighten our spirit! God's blessing shall silence all!
 
 Thus have I spoken upon the peculiar people chosen by sovereign grace receiving perpetual tokens of love, known by their character, all of them receiving the blessing, whether great or small, and all of them finding that blessing inexpressibly sweet.
 
@@ -65,13 +65,12 @@ He made heaven and earth, and therefore you are never out of His domain. We read
 
 Sick and sorry, or well and rejoicing, there is not a pin to choose so long as we are blessed of the Lord that made heaven and earth! Rich or poor, famous or despised; truly, there is not the turn of a hair between them if we are blessed of the Lord that made heaven and earth! If this sweet blessing could fall upon a soul in hell it would be a heaven to it, and could the blessing of the Lord that made heaven and earth be taken away from the saints in heaven, heaven would be a hell to them! Our heart can sing with the Psalmist:
 
-"Let the ungodly race advance,
+> Let the ungodly race advance,  
+> And boast of all their store.  
+> The Lord is my inheritance,  
+> My soul can wish no more.  
 
-And boast of all their store.
-
-The Lord is my inheritance,
-
-My soul can wish no more." The blessing of the Lord that made heaven and earth is all in all.
+The blessing of the Lord that made heaven and earth is all in all.
 
 Let us turn to the third word, which is this: it is a benediction with a peculiar date, for it is in the present tense. The preceding verses spoke of the past and the future. "The Lord has been mindful of us, He will bless us. He will bless the house of Israel. He will bless the house of Aaron." These are blessed "wills." "He will bless them that fear Him, both small and great. The Lord shall increase you more and more, both you and your children." These are all in the future but you know the Proverb says a bird in the hand is worth two in the bush!
 
@@ -95,20 +94,20 @@ Now, fourthly and briefly, this is a blessing with a peculiar certainty. Scriptu
 
 The Lord blesses not in word only, but in deed. His blessings are not futile wishes but omnipotent acts. We may fail to obtain the benedictions which our friends invoke upon us, but God's blessings are sure to all the seed. Failure and miscarriage never occur to the Lord our God. Many are the slips between cups and lips at this world's banquet, but the chalice of divine blessing shall surely reach the lip of the elect soul:
 
-> This is Your will, that in Your love   
-> We ever should abide   
-> And lo, we earth and Hell defy   
-> To make Your counsel void.   
-> Not one of all the chosen race   
-> But shall to heaven attain;   
-> Partake on earth the purposed grace,   
-> And then with Jesus reign.   
+> This is Your will, that in Your love  
+> We ever should abide  
+> And lo, we earth and Hell defy  
+> To make Your counsel void.  
+> Not one of all the chosen race  
+> But shall to heaven attain;  
+> Partake on earth the purposed grace,  
+> And then with Jesus reign.  
 
 Now, Beloved, let us make sure of this blessing which is so sure. And how can we do so but by faith? We believe that, and He has given His dear Son to me if I believe in Jesus! As surely as I believe in Him, the blessing is mine. Grip it, brothers and sisters! Make sure of it. Let no man deceive you with vain words. In these times it is hard to find anybody who believes anything. Even the common history we learned at school is now suspected to be a myth. I do not think that you could, according to the modes of reasoning adopted in these skeptical days, be able to prove that you had either a father or a mother.
 
 Nothing at all. The floods of doubt have carried all away. We are taught from the pulpit to doubt. The old Gospel was, "He that believes and is baptized shall be saved." The new Gospel is, "He that doubts and is sprinkled shall be saved." A sorry comedown for both the words. But, Beloved, we have not so learned the Gospel; we have learned to believe and hope, still, to live by faith. Our beliefs are grounded too firmly to be shaken by fashionable quibbling. Do get a fast hold, my brothers and sisters! You say, "How can I?" Why, simply by believing that surely He who speaks can fulfill what He has said! And you can get your faith strengthened by experience.
 
-Test Him; I mean, when He is trying you, trust Him and test His promise. Prove Him and see if He does not bless you. Fair-weather Christianity is all very well, but it is stormy-weather Christianity that proves a man to be truly a man of God. Can you trust God when the cupboard is bare? Can you rejoice in God when every nerve of your body is made to throb with pain? Can you stand beneath a burden that might have made Atlas bow down to the earth and feel that divine strength is equal to all that and 10,000 times more? Could you fling yourself, like a Samson, unarmed, upon a thousand foes and strike them because the Lord was in you? If you can, you will have no trouble about this skepticism and these questions and doubts.
+Test Him; I mean, when He is trying you, trust Him and test His promise. Prove Him and see if He does not bless you. Fair-weather Christianity is all very well, but it is stormy-weather Christianity that proves a man to be truly a man of God. Can you trust God when the cupboard is bare? Can you rejoice in God when every nerve of your body is made to throb with pain? Can you stand beneath a burden that might have made Atlas bow down to the earth and feel that divine strength is equal to all that and ten thousand times more? Could you fling yourself, like a Samson, unarmed, upon a thousand foes and strike them because the Lord was in you? If you can, you will have no trouble about this skepticism and these questions and doubts.
 
 You will know the Lord's truth, for you have seen it. You will know His love, for you rejoice in it. You will know His faithfulness, for it is the pillow of your weary head. You will know His immutability, for it is the anchor of your poor tempest-tossed boat. You will know that you are blessed of God that made heaven and earth! You will know it more and more by living more and more by faith, for only so shall we know it; to know it by despising everything else in comparison with it and relishing it and prizing it above all the delicacies that can be put upon the tables of worldlings. May we be as assured of this as we are of our existence! Then shall we be "strong in the Lord and in the power of His might."
 
@@ -122,11 +121,12 @@ Brothers and sisters, we have had enough of all this! If your murmuring in times
 
 What? Dumb till now? An heir of heaven speechless? May a sight of God's blessing open your mouth! From this time forth begin to bless Him. 'Tis a good time in which to begin blessing God. This moment is a fair season for repentance. When was there a time that was unsuitable for adoring gratitude? And when was there an hour when it was not well to bless God? I beseech you, join me in praising Him!
 
-Then the Psalmist resolves to praise the Lord "forevermore." Our adoration of God is never to cease. As long as there is breath in our body let us praise Him who gives it to us. "Dum spiro spero," said the heathen, "While I breathe, I
+Then the Psalmist resolves to praise the Lord "forevermore." Our adoration of God is never to cease. As long as there is breath in our body let us praise Him who gives it to us. "Dum spiro spero," said the heathen, "While I breathe, I hope." But when I die, I will still hope in God. While we exist we will adore:
 
-hope." But when I die, I will still hope in God. While we exist we will adore:
-
-"My God, I'll praise You while I live, And praise You when I die! And praise You when I rise again, And to eternity!"
+> My God, I'll praise You while I live,  
+> And praise You when I die!  
+> And praise You when I rise again,  
+> And to eternity!  
 
 Repeat the joyous strain! Cease not day nor night! Nothing of worldly business deserves so much attention as to warrant our ceasing to bless and magnify the Lord in our hearts!
 

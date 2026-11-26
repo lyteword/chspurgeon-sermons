@@ -9,7 +9,10 @@ It is a most important matter with all of us who are believers in Christ that ou
 
 Now there is one very severe trial of faith which will happen to us all, and probably has already occurred to most of us. It is that of a change of trials, a passing into new territory, an entrance into novel circumstances. There is a conservative tendency about most of us so that we build our nest and would gladly live and die in it. Even if we are ill at ease in our present circumstances, this feeling:
 
-"Makes us rather bear the ills we have Than fly to others that we know not of." Some spirits are given to change and would almost leap from the pan into the fire, but others of us take root deeply and dread transplanting. We know the present and we dread the unknown tomorrow. We are familiar with wilderness tribulations, but we shudder at the Jordan which lies before us and the giants and the chariots of iron which are yet to be encountered.
+> Makes us rather bear the ills we have  
+> Than fly to others that we know not of.  
+
+Some spirits are given to change and would almost leap from the pan into the fire, but others of us take root deeply and dread transplanting. We know the present and we dread the unknown tomorrow. We are familiar with wilderness tribulations, but we shudder at the Jordan which lies before us and the giants and the chariots of iron which are yet to be encountered.
 
 We are not given to change, but are far more likely to settle upon our lees. We would gladly abide where we are and make no experiment of novel circumstances. This principle is so strongly developed in certain minds that they have even been afraid to learn truths of God which are new to them! From the milk diet of their spiritual infancy they are unwilling to be weaned even though strong meat awaits them. They were not taught certain sublime truths in their early days, and therefore they wish not to be instructed now. Like the aged man in Solomon's proverb, they are afraid of that which is high. The doctrine of Election. They see how full of comfort it is, but not having heard it preached before, they feel afraid to hear it and accept it. That "wine on the lees well refined" they will not drink, because up to now it has not been poured into their cup. We have known such persons to be suspicious of spiritual attainments; they have been victims of doubts and fears so long that they are now afraid to believe! As for full assurance, they are as much alarmed at it as if it were a crime rather than a divine grace! They regard it as dangerous presumption, and put it far from them. Holy courage, brave reliance upon God, fervent zeal, confidence in prayer, unspeakable joy; these and such like blessings are to their timorous souls perilous things which had better be let alone.
 
@@ -43,8 +46,10 @@ The Lord has no emergencies. He is never at the end of His resources. O beloved,
 
 Moreover, there is one view of this thought which ought to be very encouraging to the sorrowful, namely, that He who is at your Father's side, the Man of Love, the Crucified, has, in His practical sympathy with you, actually walked this pathway of yours. That God has seen it is consoling, but that Christ has walked it is richest comfort:
 
-"In every pang that rends the heart
-The Man of Sorrows bears His part." You may see all along the way the blood-stained footsteps of Him who gave His feet to the nails. Right down to Jordan's brink, and through the flood and up the far shore there are the marks of the goings of Him who loved the sons of men and bore their sorrows in His own person for their sakes! Courage, my brothers and sisters; where Jesus has been we may go.
+> In every pang that rends the heart  
+> The Man of Sorrows bears His part.  
+
+You may see all along the way the blood-stained footsteps of Him who gave His feet to the nails. Right down to Jordan's brink, and through the flood and up the far shore there are the marks of the goings of Him who loved the sons of men and bore their sorrows in His own person for their sakes! Courage, my brothers and sisters; where Jesus has been we may go.
 
 He leads us through no darker places than He went through before, and His having gone through them has sown them with light. We thought them novel places of trial, but they are no longer so since our Covenant Head has traversed them. Remember, also, the trials which seem new to us are not new to God's people. Joshua said to the tribes, "You have not passed this way before"; but their forefathers had gone through the Red Sea, which was much the same thing; and perhaps on a greater scale still. Do not, therefore, say or imagine that your woes are peculiar. Others have suffered as much as you are enduring. Ask your fathers, the elders of the Christian Church, whether these griefs of yours are new, and they will smile and tell you that they have done business in the same deep waters and that the waves and billows which go over you have also covered their heads. Dream not that a strange thing has happened to you. If it is strange to you it is only to you that it is strange, for the rest of God's saints have suffered the same.
 
@@ -66,24 +71,24 @@ The trials of manhood are not at all the same as those of a child. There are dis
 
 It is quite certain that if we are troubled with a west wind, if a rough east wind should blow, we shall not be troubled with the west wind any longer. Heat and cold will not both torment us at the same moment. When the children of Israel were in the desert, there was the hot sand beneath their feet, and the Amalekites pursuing them and attacking them. And, therefore, at any rate whatever there might be in Canaan, they would be out of the desert and away from desert inconveniences. If they had the Gergashites to fight with there would be no Amalekites. So there is something of gain to be set over against any possible loss. Let every child of God remember that.
 
-When the Lord calls us to a change of position and brings out a new burden, He removes the older one. We shall not, tomorrow, be pressed with the weight of today. I do not know what my trials may be seven years from now, but I do know that the trials of the month of June, 1872, will not, then, disturb me. When we bow beneath the infirmities of age, we may rest assured that we shall not be annoyed by the temptations of boyhood, nor molested by the vexations of middle life. In advancing there are prospects of gain as well as of loss.
+When the Lord calls us to a change of position and brings out a new burden, He removes the older one. We shall not, tomorrow, be pressed with the weight of today. I do not know what my trials may be seven years from now, but I do know that the trials of the month of June, eighteen hundred and seventy-two, will not, then, disturb me. When we bow beneath the infirmities of age, we may rest assured that we shall not be annoyed by the temptations of boyhood, nor molested by the vexations of middle life. In advancing there are prospects of gain as well as of loss.
 
 Moreover, although we have not passed this way before, the path runs in the right direction. The children of Israel had their faces set towards the Promised Land, but they were traveling to the land of brooks and rivers which flowed with milk and honey! Men of faith among them would say, one to another, "We pitched our tent each night all through the wilderness a day's march nearer to our rest, and now there is only one more day between us and the land of promise, therefore let us not fear."
 
 How brave they must have felt when Canaan was just in view. Courage, brothers and sisters! The way may be rough to us, but it is the King's highway, leading to the New Jerusalem:
 
-> Yet the dear path to Your abode   
-> Lies through this horrid land,   
-> Lord, we would keep the heavenly road,   
-> And run at Your command.   
-> Our souls shall tread the desert through   
-> With undiverted feet,   
-> And faith and flaming zeal subdue   
-> The terrors that we meet.   
-> Our journey is a thorny maze,   
-> But we march upward still.   
-> Forget the troubles of the way,   
-> And reach at Zion's hill.   
+> Yet the dear path to Your abode  
+> Lies through this horrid land,  
+> Lord, we would keep the heavenly road,  
+> And run at Your command.  
+> Our souls shall tread the desert through  
+> With undiverted feet,  
+> And faith and flaming zeal subdue  
+> The terrors that we meet.  
+> Our journey is a thorny maze,  
+> But we march upward still.  
+> Forget the troubles of the way,  
+> And reach at Zion's hill.  
 
 In the second place a few sentences of instruction. How shall a man be guided when he comes to a way which he has not passed before? When our way is devoid of familiar footprints, what shall we do? We must be most concerned to hear the Word of the Lord and obey it. Notice that this chapter seems taken up with, "The Lord said unto Joshua," and, "Joshua said unto the people of Israel." It must have struck you, in reading it, that it is full of commands.
 
@@ -91,7 +96,9 @@ The only details are the taking up of the stones of memorial, heaping them on th
 
 Remember the words of the hymn:
 
-"'Tis mine to obey; 'tis His to provide." Would you take the Lord's work into your own hands? You cannot do it! Attend to your own. If you were at this very moment in the worst trouble that ever befell a son of Adam, I do not believe: "Trust in the Lord and do good, so shall you dwell in the land, and verily you shall be fed." Be it yours to hear what God, the Lord, shall speak; all will come right, then. The chief point in every dilemma is to wait till you hear the Master's voice.
+> 'Tis mine to obey; 'tis His to provide.  
+
+Would you take the Lord's work into your own hands? You cannot do it! Attend to your own. If you were at this very moment in the worst trouble that ever befell a son of Adam, I do not believe: "Trust in the Lord and do good, so shall you dwell in the land, and verily you shall be fed." Be it yours to hear what God, the Lord, shall speak; all will come right, then. The chief point in every dilemma is to wait till you hear the Master's voice.
 
 The next instruction is to distinctly recognize the presence of the Covenant God of Israel with you. The Ark which went before the people had three-fourths of a mile of distance between it and the people in order that they might see it, because had they been nearer to it the front rank might have seen it, but the rest would not. But now there was a space put between it and the people that they all might see it before them as they went on their march. We never travel so sweetly over the rough ways of this life as when we see that God, the living God, the God of the Covenant, the God of the Mercy Seat, the God of our Lord and Savior Jesus Christ, the God of the reconciliation by blood is with us and fulfilling His promise, "I will never leave you nor forsake you."
 
@@ -117,10 +124,10 @@ What next will happen? Why, in all probability the difficulty in your way will c
 
 The writings of novelists are not one half as interesting as the actual lives of Christians would be if they were written out at length. God does interfere in ways which could not have been prognosticated by those who best understand the science of probabilities. A trouble is coming, it will come; but there will come with it a mercy which will swallow it up. "The flood," you say, "the flood is before me, it overflows its banks." It is there and yet it is not there, for lo, when you shall come to it, it shall have disappeared:
 
-> You fearful saints, fresh courage take,   
-> The clouds you so much dread   
-> Are big with mercy, and shall break   
-> In blessings on your head.   
+> You fearful saints, fresh courage take,  
+> The clouds you so much dread  
+> Are big with mercy, and shall break  
+> In blessings on your head.  
 
 It has been well up till now. It shall be well to the end. You have not a changing God to deal with. Remember that! Shall the God of our childhood, who nursed us when we could not help ourselves, leave us when we come to second childhood? God forbid! Shall He who loved us before the world was leave us when we come into peril? It cannot be! "Can a woman forget her sucking child that she should not have compassion on the son of her womb? Yes, they may forget, yet will I not forget you." Rest assured of this, that God has resources you have never dreamed of and difficulties shall only put you into a position to see new displays of Jehovah's power and grace!
 

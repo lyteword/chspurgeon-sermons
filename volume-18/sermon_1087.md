@@ -25,7 +25,10 @@ He means that in the Church of God, at any rate, there is no question about thes
 
 The facts are unquestioned by the Church of God and are without dispute among the faithful, regarded as containing in their inner depths a world of weighty meaning, even the great mystery of godliness. Have you ever noticed that there are six New Testament mysteries? There may be more, but these six are the chief. The first is the mystery of the Incarnation: "Great is the mystery of godliness, God was manifest in the flesh." The next is the mystery of the union of Christ with His Church, of which we read, in Ephesians 5:31, 32, "For this cause shall a man leave his father and mother, and shall be joined unto his wife, and they two shall be one flesh. This is a great mystery: but I speak concerning Christ and the Church." Thrice blessed union with Jesus, may our souls find their Heaven in Your holy mystery:
 
-"Oh teach us, Lord, to know and own This wondrous mystery, That You with us are truly ONE, And we are ONE with You!"
+> Oh teach us, Lord, to know and own  
+> This wondrous mystery,  
+> That You with us are truly one,  
+> And we are one with You!  
 
 The third mystery is the mystery of the calling of the Gentiles, to which Paul refers in Ephesians 3:4-6, where he says, "Whereby, when you read, you may understand my knowledge in the mystery of Christ; which in other ages was not made known unto the sons of men, as it is now revealed unto His holy Apostles and Prophets by the Spirit; that the Gentiles should be fellow heirs, and of the same body, and partakers of His promise in Christ by the Gospel." Herein we have a joyful portion for which we can never be too grateful.
 
@@ -43,15 +46,15 @@ Who was manifest in the flesh? Surely He must have been God! And so, if the word
 
 What infinite leagues our thought must traverse between Godhead self-existent and, therefore, full of power and self-sufficiency, before we have descended to the far-down level of poor flesh which is as grass at its best and dust in its essence! Where can we find a greater contrast than between God and flesh? And yet the two are blended in the Incarnation of the Savior! God was manifest in the flesh. Truly God, not God humanized, but God as God! He was manifest in real flesh. Not in manhood deified and made superhuman, but in actual flesh.
 
-> Oh joy! There sits in our death,   
-> Upon a throne of light,   
-> One of a human mother born,   
-> In perfect Godhead bright!   
-> Forever God, forever Man,   
-> My Jesus shall endure;   
-> And fixed on Him,   
-> My hope remains   
-> Eternally secure.   
+> Oh joy! There sits in our death,  
+> Upon a throne of light,  
+> One of a human mother born,  
+> In perfect Godhead bright!  
+> Forever God, forever Man,  
+> My Jesus shall endure;  
+> And fixed on Him,  
+> My hope remains  
+> Eternally secure.  
 
 Matchless Truth of God! Let the Church never fail to set it forth, for it is essential to the world's salvation that this doctrine of the Incarnation be fully known. O my Brothers and Sisters, since it is, "without controversy," let us not controvert but sit down and feed upon it! What a miracle of condescension is here, that God should manifest Himself in flesh! It needs not so much to be preached upon as to be pondered in the heart. It needs that you sit down in quiet and consider how He, He who is your God became your brother Man. He who is adored of angels once lay in a manger! He who feeds all living things hungered and was thirsty. He who oversees all worlds as God, was, as a Man, made to sleep, to suffer and to die like yourselves!
 
@@ -61,7 +64,8 @@ This brings our manhood near to God and by so doing it ennobles our nature; it l
 
 If you are Believers in the Christ of God, then you are also the children of God and, if children, heirs; heirs of God, joint heirs with Jesus Christ! What a fullness of consolation there is in this Truth, as well as of benediction, for if the Son of God is Man, then He understands me and will have a fellow feeling for me. He knows my unfitness to worship sometimes; He knows my tendencies to grow weary and dull; He knows my pains, my trials and my griefs;
 
-"He knows what fierce temptations mean, For He has felt the same."
+> He knows what fierce temptations mean,  
+> For He has felt the same.  
 
 Man, truly Man, yet sitting at the right hand of the Father, You, O Savior, are the delight of my soul! Is there not the richest comfort in this for you, the people of God? And, besides, there is instruction, too, for God was manifest in the flesh. And if you desire to see God, you must see Him in Christ Jesus.
 
@@ -79,7 +83,7 @@ Hearken, also, to His words of command when His Godhead glows through His Humani
 
 It was this anointing which made Him the chief of all Prophets, teachers and revealers of the mind of God. All who heard Him confessed His unrivalled power, even when they resisted it. The Spirit filled Him; His words were full of unction. The Spirit animated Him; His words went to men's hearts. The Spirit of God bore witness to Christ and justified all His claims at the time of His Baptism, when out of the excellent Glory there appeared the form of a dove and a voice cried out of Heaven, "This is My beloved Son." That same Spirit justified Him audibly again in His Transfiguration. But silently and yet more evidently the Spirit witnessed to Him everywhere. Only blind eyes, blinded by hate, refused to see the Divine light which hung about His every word and act, as radiance enrobes a star!
 
-Above all, our Lord's claims were justified by the Spirit in His Resurrection, when He was "declared to be the Son of God with power, according to the Spirit of holiness by His resurrection from the dead." Nor less so when, after 40 days, He was received up into Glory and the Spirit of God justified all that Christ had said by coming down like a rushing mighty wind and cloven tongues of fire and resting upon His disciples. If Christ had not risen from the dead He would have been a convicted impostor. And after His rising from the dead, if the Spirit of God had not been given, His claim would still have remained under a cloud!
+Above all, our Lord's claims were justified by the Spirit in His Resurrection, when He was "declared to be the Son of God with power, according to the Spirit of holiness by His resurrection from the dead." Nor less so when, after forty days, He was received up into Glory and the Spirit of God justified all that Christ had said by coming down like a rushing mighty wind and cloven tongues of fire and resting upon His disciples. If Christ had not risen from the dead He would have been a convicted impostor. And after His rising from the dead, if the Spirit of God had not been given, His claim would still have remained under a cloud!
 
 But now it is clear that, "He has ascended on high and received gifts for men, yes, for the rebellious also, that the Lord God might dwell among them," for the scattering of the Spirit of God among men was that promised largess which our mighty Conqueror distributed among His people when He entered upon the possession of His crown. The Holy Spirit has justified Christ! This is a part of the testimony of the Church; that Christ's claims are to be justified by the spirit of His teaching and also by the Holy Spirit whose supernatural power will accompany the proclamation of the Gospel.
 
@@ -93,7 +97,10 @@ The Godhead was seen in Christ by angels as they had never seen it before. They 
 
 The angels, seeing God thus manifest in flesh, ministered to Him. They watched around the manger. They were messengers to His foster parent to warn him of intended evil to the Child. And they waited on the Redeemer in the desert of His temptation. One of their number strengthened Him in the garden. Another rolled away the stone from His grave, while others sat at the head and foot of the sepulcher where Jesus had lain. I doubt not it is true as we sang just now:
 
-"They brought His chariot from above, To bear Him to His Throne; Clapped their triumphant wings, and cried, 'The glorious work is done.'"
+> They brought His chariot from above,  
+> To bear Him to His Throne;  
+> Clapped their triumphant wings, and cried,  
+> 'The glorious work is done.'  
 
 We can understand why they tune their notes so heartily to the song, "Worthy is the Lamb that was slain," for they saw Him labor and suffer; therefore is their song so vivid and so full of adoration. "You were slain," they sing, though they cannot add, "and have redeemed us unto God by Your blood."
 
@@ -113,7 +120,7 @@ I hate to see, as I do sometimes in certain modern buildings, the pulpit stuck i
 
 The pulpit is the trumpet of Heaven and the battering ram of Hell! By this door salvation comes, for faith comes by hearing, and how shall they hear without a preacher? God's way of creating faith in men's hearts is not by pictures, music, or symbols, but by the hearing of the Word of God! Strange as it may seem, for it is a mystery and a great mystery, it is a fact beyond all controversy! Let the Church forever maintain that Christ is to be preached unto the Gentiles!
 
-A part of the greatness of the mystery lies in the persons who preached the Gospel. It was a strange thing that Jesus should be preached unto the Gentiles by unlearned and ignorant men. One of the Apostles, it is true, was of another class, but he declares that he never preached with excellency of speech. He declared that in all simplicity he laid bare the mystery of God in plain language. It was wonderful that Christ should be preached unto the Gentiles so rapidly. It was but the other day the 120 were in the upper room and within a few years there was no part of the civilized globe which had not heard the name of Jesus! They had penetrated Scythia. They had subdued the barbarians; their only weapon being the Cross!
+A part of the greatness of the mystery lies in the persons who preached the Gospel. It was a strange thing that Jesus should be preached unto the Gentiles by unlearned and ignorant men. One of the Apostles, it is true, was of another class, but he declares that he never preached with excellency of speech. He declared that in all simplicity he laid bare the mystery of God in plain language. It was wonderful that Christ should be preached unto the Gentiles so rapidly. It was but the other day the one hundred and twenty were in the upper room and within a few years there was no part of the civilized globe which had not heard the name of Jesus! They had penetrated Scythia. They had subdued the barbarians; their only weapon being the Cross!
 
 They had triumphed at Athens, in the stronghold of classic learning. They had passed into Rome and set up the Cross amidst the luxurious vices of the capital. No place was untrodden by the Christian missionary and no place was unaffected by the power of the Gospel which he preached. May the Lord repeat the mystery again and again! O that preaching might once again be recognized to be God's power unto salvation and used everywhere; in the Church, in the lecture hall, in the street; in foreign lands and at home! The voice of the Truth of God in the preaching of Jesus is the great power of God!
 
@@ -121,7 +128,7 @@ One question here, and we leave it. Have you reverently heard the Gospel? For th
 
 And now the fifth part of the mystery is a very remarkable one. Like that which preceded, it does not appear to be mysterious on the surface, but it is so; "believed on in the world." This is the most glorious of all the six points, this wonderful fact that Jesus is "believed on in the world." Why, when the humble preachers first went out to tell of Jesus, their story was so strange you could not imagine that any would believe it! And then the doctrines that they taught were so contrary to all the prejudices of flesh and blood, so humbling to human pride, so insulting to all our self-esteem that it was not probable that men would accept them!
 
-And the world, too, what a world it was! It was steeped up to its throat in cruelty, in vice, in luxury; and was it likely that a pure Savior with a perfect doctrine like His would find followers? But He did; He was "believed on in the world." Why, I think the first preachers must have been ready to leap for joy when they found that men believed them! If I had been Peter, I should scarcely have slept for joy for many a night if I had found 3,000 willing to believe my testimony and willing to be baptized into Christ! And Paul; oh, I think with all his sorrows, he must have been a very happy man; must have been struck with wonder to see that though he went into idolatrous lands to tell this new, strange and incredible story, yet in every place there were found men or women who received it joyfully!
+And the world, too, what a world it was! It was steeped up to its throat in cruelty, in vice, in luxury; and was it likely that a pure Savior with a perfect doctrine like His would find followers? But He did; He was "believed on in the world." Why, I think the first preachers must have been ready to leap for joy when they found that men believed them! If I had been Peter, I should scarcely have slept for joy for many a night if I had found three thousand willing to believe my testimony and willing to be baptized into Christ! And Paul; oh, I think with all his sorrows, he must have been a very happy man; must have been struck with wonder to see that though he went into idolatrous lands to tell this new, strange and incredible story, yet in every place there were found men or women who received it joyfully!
 
 Hark well that the Church is bound to maintain this mystery; that it is by believing in Christ that the efficacy of His Sacrifice comes to men. The mystery is not that Christ is served in the world, that is not put here; nor that Christ is worshipped in the world, that is not the first point; those things will be sure to follow. But the vital mystery is that Christ is "believed on in the world," that is to say, trusted as the Savior! Men leave all other trusts and trust in Him! They give up their self-righteousness. They leave their vaunted sacraments. They forsake all ways and modes of self-salvation. This is the great mystery!
 

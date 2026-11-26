@@ -17,11 +17,11 @@ First, we shall expound the text with great brevity in its application to Israel
 
 Yes, more, the Lord said to him, "I will establish My Covenant between Me and you, and your seed after you, in their generations for an everlasting covenant." And God bade Abraham look towards heaven and count the stars, and He said, "So shall your seed be." A progeny that should be like the innumerable sand upon the seashore was assured to the patriarch and Sarah, his wife! Moreover, the man was old, well stricken in years, and we read concerning him that his body was now dead; that is to say, he was too far advanced in years to be likely to become the progenitor of a race. As for his wife, she also, it is said, was barren.
 
-And yet, from these two, who seemed the least likely of all flesh and blood, God was pleased to create a people countless as the stars! Abraham was not a man in a commanding position, with large armies at his feet who could make a show in the world. He was a dweller in tents, a Bedouin sheik, wandering through the plains of Palestine; yet he was never injured; for God had sent forth a secret mandate, which fell, though they knew it not, upon men's hearts, "Touch not My anointed, and do My prophets no harm." And though in many cases it seemed as if this embryo of a race might have been crushed, and become extinct, yet Abraham and Sarah, Isaac and Rebekah, Jacob and Rachel—they must survive because God's promise was that He would make a great nation out of these few men and women.
+And yet, from these two, who seemed the least likely of all flesh and blood, God was pleased to create a people countless as the stars! Abraham was not a man in a commanding position, with large armies at his feet who could make a show in the world. He was a dweller in tents, a Bedouin sheik, wandering through the plains of Palestine; yet he was never injured; for God had sent forth a secret mandate, which fell, though they knew it not, upon men's hearts, "Touch not My anointed, and do My prophets no harm." And though in many cases it seemed as if this embryo of a race might have been crushed, and become extinct, yet Abraham and Sarah, Isaac and Rebekah, Jacob and Rachel, they must survive because God's promise was that He would make a great nation out of these few men and women.
 
-Now, the Prophet turns to the Israelites, and he says, "We have been thinned out by innumerable invasions; the sword of war has slain the tribes. Judah and Israel can never rise again. But are there not more left of you than there were at first? There were but two, Abraham and Sarah, that bore you, and yet God made you a people! Can He not make you a people again? You are not lower, now, than you were then. True, but these, your progenitors, were not great in the earth. You say that you have no strength, that the men of valor have ceased, and that you are not skillful in the use of arms. Be it so. Neither were your first ancestors; they were but few and feeble in the land; yet God preserved them!
+Now, the Prophet turns to the Israelites, and he says, "We have been thinned out by innumerable invasions; the sword of war has slain the tribes. Judah and Israel can never rise again." But are there not more left of you than there were at first? There were but two, Abraham and Sarah, that bore you, and yet God made you a people! Can He not make you a people again? You are not lower, now, than you were then. True, but these, your progenitors, were not great in the earth. You say that you have no strength, that the men of valor have ceased, and that you are not skillful in the use of arms. Be it so. Neither were your first ancestors; they were but few and feeble in the land; yet God preserved them!
 
-He worked great deliverances for them, and brought the country to great strength and power! And cannot He who did this for them do the same again for you, now that He promises to visit you and to restore you? I think you see that the thoughts which would be awakened in the heart of a Jew by these reflections would be eminently consolatory. They ought to be consolatory to us now with regard to the Jewish people. Behold them wandering on the face of the earth without a country of their own. They are a people who have been oppressed and downtrodden almost beyond belief. The hand of the heathen and the hand of the so-called Christian—they have been jeered and hooted at for ages; though they are, in truth, the very nobles of God, and their ancient lineage is like that of kings.
+He worked great deliverances for them, and brought the country to great strength and power! And cannot He who did this for them do the same again for you, now that He promises to visit you and to restore you? I think you see that the thoughts which would be awakened in the heart of a Jew by these reflections would be eminently consolatory. They ought to be consolatory to us now with regard to the Jewish people. Behold them wandering on the face of the earth without a country of their own. They are a people who have been oppressed and downtrodden almost beyond belief. The hand of the heathen and the hand of the so-called Christian, they have been jeered and hooted at for ages; though they are, in truth, the very nobles of God, and their ancient lineage is like that of kings.
 
 Let us not, however, despair for them. Abraham, their father, was but a heathen when God called him out of a family that had worshipped the seraphs and made him to be a witness of the living and true God, and honored his faith with exceedingly great rewards. Doubt not, then, that He can call Israel again from all her wanderings, cleanse her from all her profane traditions and her unbelief and separate her unto Himself to be a holy people in whom, once again, His power shall be made known! And it shall be made known in such a way that they shall not speak of the ark of the Lord, or the redemption out of Egypt as the chief symbol of their national glory or the grand theme; for a greater redemption and a greater manifestation of the divine presence shall be in the midst of Israel than the wilderness of Sinai had ever known, or the mountains round about Jerusalem have ever witnessed!
 
@@ -67,21 +67,22 @@ I leave that point because I am anxious to dwell upon another. Our text may be v
 
 They will say, "I have lost all enjoyment of religion. I could once sing for joy of heart in the precious love of Christ. When I went to the House of God the Word was like music to my ears. When I bowed the knee in prayer it was delightful to speak with my heavenly Father:
 
-'What peaceful hours I then enjoyed, How sweet their memory still.'
+> What peaceful hours I then enjoyed,  
+> How sweet their memory still.  
 
 "But I do not enjoy these sacred exercises now. I follow after them. God forbid I should ever give them up. Still I am afraid there is very much that is mechanical in my devotion. Certainly I have not much inward peace. Alas, that I must confess it, my feelings seem to have become dull and blunt! At one time I wept if I thought I had sinned. The least touch of sin grieved me, I was like a sensitive plant; the very brush of evil I felt. But now, Sir, I cannot feel! Oh, what would I give for the tenderness of years gone by! I sometimes think:
 
-'If anything is felt, 'tis only pain,
-
-To think I cannot feel.'
+> If anything is felt, 'tis only pain,  
+> To think I cannot feel.  
 
 "I read the story of Christ's death without a tear, and I think of sinners perishing without the shudder that used to thrill every nerve of my body. At one time it would have broken my heart, but now I treat it as a matter of course. Not only is the joy gone, but other graces which were apt to bloom now droop as if there were a blight among all the flowers in the garden of my soul." Such a one may say, "I do not doubt the faithfulness of God, but I am afraid I have no interest in it. I do not doubt the power of Jesus' precious blood to cleanse from sin, but I am afraid I never had any faith in that precious blood, and that I cannot be one of His disciples. I feel, oh, I cannot tell you how; it is like a dead calm in my spirit:
 
-'No stir in the air, no stir in the sea, The ship was as still as a ship might be.'
+> No stir in the air, no stir in the sea,  
+> The ship was as still as a ship might be.  
 
 "And so is my soul, till it seems to be like the deep described in Coleridge's 'Ancient Mariner':
 
-'The very deep did rot,'
+> The very deep did rot,  
 
 "Alas, that ever this should be! My soul seems in that awful calm, as though every good thing were rotting within her and I cannot help myself."
 

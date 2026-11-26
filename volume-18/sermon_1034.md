@@ -37,7 +37,7 @@ There is more teaching in the passage. He 'sat down;' this shows that he took po
 
 The apostle tells us where this seat of Christ was. He says, he 'sat down at the right hand of God.' This indicates the highest glory possible; our poet calls it
 
-'The highest place that heaven affords.'
+> The highest place that heaven affords.  
 
 There was no nobler position, or Jesus should have had it. Note the remark of this same apostle in the first chapter of this epistle: 'Unto which of the angels said he at any time, sit thou at my right hand?' Angels do not sit at the right hand of God; they are constantly in the place of service, and therefore they stand ready to fly on their Master's commands; but Jesus sits in the highest seat as Lord over his own house, clothed with honor and dignity, enthroned in the place of favor at the right hand of God. Sitting there he is to be viewed as clothed with everlasting power, 'able to save unto the uttermost them that come unto God by him.' 'Exalted to be a Prince and a Savior to give repentance unto Israel, and remission of sins;' no more the 'despised and rejected, the Man of Sorrows, and acquainted with grief,' no more in weakness and dishonor taken out to die; he sits as a king upon his throne, distributing royal bounties, coequal with Jehovah himself. As King of kings, Jesus Christ is exalted at the right hand of the Father. So much with regard to the result of the Redeemer's passion in reference to himself.
 
@@ -55,29 +55,21 @@ Hearken then further to me. See in the text the position out of which you should
 
 Now, follow on the text, and, oh, may it come into your very soul, for its practical teaching is that the one sole object of faith for the pardon of sin, is the man, the priest, Christ Jesus. 'This man,' says the Apostle, 'offered one sacrifice for sins for ever.' If thou wouldst have peace of heart, thou must get it only from this one glorious person, the Christ of God. I tell thee solemnly, thou wilt damn thyself by thy prayers, and thy tears, and thy repentings, and thy church goings, and thy chapel goings, as easily as by blasphemy and fornication, if thou trustest in them; for if thou makest a Savior and an idol of thy best works, they are accursed. Though thine idol be of purest gold, it is as much an abomination unto the living God as if thou hadst made it of filth. There must be no looking anywhere but to Jesus, not in any measure or degree. He who looks partly to Jesus, and partly to himself, looks not to Christ at all. If a man shall put one foot upon the land and the other on the sea; the foot that is on the land will not avail him, he must certainly fall, because his other standing place is weak. If a chain be made strong enough to bear huge weights in every portion except one link, yet as we all know its strength is not to be measured by the stronger portions, but by the weak link; and if you have one weak link in your hope, if you are resting in anything you are or hope to be, or can do or feel, that one weak link will snap and ruin you for ever.
 
-'None but Jesus, none but Jesus,
-
-Can do helpless sinners good.'
+> None but Jesus, none but Jesus,  
+> Can do helpless sinners good.  
 
 From top to bottom, from foundation to pinnacle, our hopes must be in the work of Jesus, and we must trust in him alone, or else we shall build in vain. 'Other foundation can no man lay than that which is laid.' Other hope beneath the skies there is none. O soul, learn the uselessness of looking to anything but Christ; but, be thou assured of this, if thou wilt look to him, and to him alone, he will put away thy sin, nay, he has done it by the sacrifice of himself.
 
 Furthermore, here is another thought; I would that you would drink it in as Gideon's fleece drank in the dew; it is this: the efficacy of the atonement of Christ for sin is as great to-day as ever it was. He 'offered one sacrifice for sins,' for what? for a thousand years? No! But the text says 'for ever!' for ever!
 
-'The dying thief rejoiced to see,
-
-That fountain in his day,
-
-And there may I, though vile as he,
-
-Wash all my sins away.
-
-Dear dying Lamb, thy precious blood,
-
-Shall never lose its power;
-
-Till all the ransomed church of God,
-
-Be saved to sin no more.'
+> The dying thief rejoiced to see,  
+> That fountain in his day,  
+> And there may I, though vile as he,  
+> Wash all my sins away.  
+> Dear dying Lamb, thy precious blood,  
+> Shall never lose its power;  
+> Till all the ransomed church of God,  
+> Be saved to sin no more.  
 
 'One sacrifice for sins for ever.' The devil tells you it is of no use for you to believe in Christ, there is not efficacy for you, you have sinned away your day of grace; tell him he is a liar, Christ has offered one sacrifice for sins for ever; and while a man lives beneath the covenant of mercy, where the gospel is sounded in his ears, there is efficacy in the atonement for ever. The atoning sacrifice has no limit in its merit, the salvation of some has not drained it of even the smallest degree of its power. As the sunlight, though it be seen by millions of eyes, is as bright as ever it was, so is it with Jesus. Perhaps the Sun's fires may grow dull, and become dimmed in the course of ages, but it is certain that the eternal fount of mercy, the Sun of Righteousness, will never fail. He will continue to flood his people with the golden sunlight of his forgiving grace. He has made one sacrifice for sins for ever. I will come to him then. He is able to save me; he is able to save me even though I were a sinner of seventy years of age. I will come to him, I will rest in him; in him alone. Oh, believe me, if you do this you have eternal life abiding in you.
 
@@ -93,13 +85,10 @@ Now, brethren, another practical point is this, that it becomes us to make the e
 
 Finally, brethren, it remains for us to recollect that Christ will be one of two things to every one of us here present: either we shall see him at the right hand of God and rejoice that he is lifted so high, or else we shall behold him there with horror as we writhe beneath his feet. For his people, perfected for ever, it is their heaven to think that Christ is highly exalted. Oh, would we not exalt him if we could! Is there anything in this world that we would keep back from him? Is there any suffering from which we would shrink if we could lift him high? I hope I can speak for all of God's people and say, the dearest object of our life is to honor him. Oh for high thrones for Jesus and bright crowns for Jesus!
 
-'Let him be crowned with majesty
-
-Who bowed his head to death!
-
-And be his honors sounded high
-
-By all things that have breath!'
+> Let him be crowned with majesty  
+> Who bowed his head to death!  
+> And be his honors sounded high  
+> By all things that have breath!  
 
 Let him have the highest place that heaven can yield him.
 
