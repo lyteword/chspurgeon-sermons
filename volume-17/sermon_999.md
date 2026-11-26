@@ -31,22 +31,22 @@ The great physician will cut with his sharp knife till the corrupt flesh is remo
 
 The convincing work of the Spirit, wherever it comes, is unexpected, and even to the child of God in whom this process has still to go on, it is often startling. We begin again to build that which the Spirit of God had destroyed. Having begun in the spirit, we act as if we would be made perfect in the flesh. And then, when our mistaken rebuilding has to be leveled with the earth, we are almost as astonished as we were when first the scales fell from our eyes. In some such condition as this was Newton when he wrote:
 
-> "I asked the Lord that I might grow   
-> In faith and love and every grace,   
-> Might more of his salvation know,   
-> And seek more earnestly his face.   
-> It was he who taught me thus to pray,   
-> And he, I trust, has answered prayer.   
-> But it has been in such a way   
-> As almost drove me to despair.   
-> I hoped that in some favored hour,   
-> At once he'd answer my request,   
-> And by his love's constraining power   
-> Subdue my sins, and give me rest.   
-> Instead of this, he made me feel   
-> The hidden evils of my heart.   
-> And let the angry powers of hell   
-> Assault my soul in every part."  
+> I asked the Lord that I might grow  
+> In faith and love and every grace,  
+> Might more of his salvation know,  
+> And seek more earnestly his face.  
+> It was he who taught me thus to pray,  
+> And he, I trust, has answered prayer.  
+> But it has been in such a way  
+> As almost drove me to despair.  
+> I hoped that in some favored hour,  
+> At once he'd answer my request,  
+> And by his love's constraining power  
+> Subdue my sins, and give me rest.  
+> Instead of this, he made me feel  
+> The hidden evils of my heart.  
+> And let the angry powers of hell  
+> Assault my soul in every part.  
 
 Ah, marvel not, for thus the Lord is likely to answer his people. The voice which says, "Comfort you, comfort you my people," achieves its purpose by first making them hear the cry, "All flesh is grass, and all the goodliness thereof is as the flower of the field."
 

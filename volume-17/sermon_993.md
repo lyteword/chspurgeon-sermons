@@ -41,9 +41,9 @@ Under persecutions and difficulties, let God's people resolve on victory, and by
 
 Probably, however, there is more grace exhibited by the Christian, who, without present success, realizes the things not seen as yet and continues, still, to work on. To labor is not easy, but to labor and to wait is harder by far. It is a grand thing to continue patiently in doing well, confident that in the end the reward is sure. He is a man, indeed, who under long-continued disappointment will not:
 
-> "Bate a jot  
+> Bate a jot  
 > Of heart or hope, but still bear up and steer  
-> Right onward."  
+> Right onward.  
 
 Such a man "plucks success even from the spear-proof crest of rugged danger." The well-annealed steel within him before long breaks in shivers the common iron which strikes him so severely. To him, to overcome by grace is glory, indeed.
 

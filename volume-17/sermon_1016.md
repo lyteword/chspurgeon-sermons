@@ -43,21 +43,21 @@ I have broken God's just commandments. I have done evil against my God. I have d
 
 Those who mourn for the guilt of past sin, before long, reach a higher point. Mourners are not suffered long to tarry; grace takes their load of guilt away. Their transgressions are covered. Do they leave off mourning then? Oh, no, they mourn in another way. There is a sweet mourning concerning my past sin which I would never wish to lose. It is forgiven, every sin of mine is blotted out, and my soul, therefore, with a sweet bitterness, would mourn over it more and more:
 
-> "My sins, my sins, my savior!  
+> My sins, my sins, my savior!  
 > How sad on you they fall,  
 > Seen through your gentle patience  
 > I tenfold feel them all.  
 > I know they are forgiven  
 > But still their pain to me  
 > Is all the grief and anguish  
-> They laid, my Lord, on you."  
+> They laid, my Lord, on you.  
 
 This is a kind of mourning which may accompany us even to heaven's gates, and we might almost regret to have to part with such a friend even there:
 
-> "Lord, let me weep for nothing but sin,  
+> Lord, let me weep for nothing but sin,  
 > And after none but you.  
 > And then I would, oh that I might,  
-> A constant weeper be."  
+> A constant weeper be.  
 
 True hearts, however, mourn not only for their past transgressions, but they also sorrow over their present imperfections. If you are what you should be, dear friend, I am quite certain you see a great deal in yourself to grieve over. You cannot live as you would live. Whenever I meet with a person who feels that he is perfect, I conceive at once that he has not yet attained even a remote conception of what true perfection must be.
 
@@ -83,14 +83,14 @@ The Holy One of Israel in the midst of Zion gives as well as appoints. The rich 
 
 Did you ever feel, while cast down, on a sudden lifted up, when some precious promise has come home to your soul? This is the happy experience of all the saints:
 
-> "Sometimes a light surprises  
+> Sometimes a light surprises  
 > The Christian while he sings,  
 > It is the Lord who rises  
 > With healing in his wings.  
 > When comforts are declining,  
 > He grants the soul again  
 > A season of clear shining  
-> To cheer it, after rain."  
+> To cheer it, after rain.  
 
 Our ever gracious and almighty Lord knows how to comfort his children, and be assured he will not leave them comfortless. He who bids his ministers again and again attend to this duty, and says, "Comfort you, comfort you my people," will not, himself, neglect to give them consolation. If you are very heavy, there is the more room for the display of his grace in you, by making you very joyful in his ways.
 
@@ -130,16 +130,16 @@ And, when we told them where we lost our burden, they said, "Ah, there is someth
 
 Do you remember John Bunyan's description of how he got rid of the burden? He stood at the foot of the cross and there was a sepulcher hard by. And as he stood and looked, and saw One hanging on the tree, suddenly the bands that bound his burden cracked, and the load rolled right away into the sepulcher! And when he looked for it, it could not be found. And what did he do? Why, he gave three great leaps for joy, and sang:
 
-> "Blessed Cross!  
+> Blessed Cross!  
 > Blessed sepulcher!  
 > Blessed rather be the Man  
-> That there was put to shame for me."  
+> That there was put to shame for me.  
 
 If those who knew the Pilgrim in his wretchedness had met him on the other side of that never-to-be-forgotten sepulcher, they would have said, "Are you the same man?"
 
 If Christiana had met him that day, she would have said, "My husband, are you the same? What a change has come over you." And when she and the children marked the father's cheerful conversation, they would have been compelled to say, "It is the Lord's doing, and it is wondrous in our eyes." Oh live such a happy life that you may compel the most wicked man to ask where you learned the art of living! Let the stream of your life be so clear, so limpid, so cool, so sparkling, so like the river of the Water of Life above, that men may say, "From where came this crystal rivulet? We will trace it to its source," and so may they be led to the foot of that dear cross where all your hopes began.
 
-Another word remains, and when we have considered it, we will conclude. That other word is this, "The planting of the Lord, that he might be glorified." That is the end of it all, that is the great result we drive at and that is the object, even, of God himself, "that HE might be glorified." For when men see the cheerful Christian, and perceive that this is God's work, then they own the power of God. Not always, perhaps, with their hearts as they should, but still they are obliged to confess, "this is the finger of God."
+Another word remains, and when we have considered it, we will conclude. That other word is this, "The planting of the Lord, that he might be glorified." That is the end of it all, that is the great result we drive at and that is the object, even, of God himself, "that He might be glorified." For when men see the cheerful Christian, and perceive that this is God's work, then they own the power of God. Not always, perhaps, with their hearts as they should, but still they are obliged to confess, "this is the finger of God."
 
 Meanwhile, the saints, comforted by your example, praise and bless God and all the church lifts up a song to the Most High. Come, my brethren and sisters, are any of you down? Are you almost beneath the enemy's foot? Here is a word for you, "Rejoice not over me, O my enemy, though I fall yet shall I rise again." Are any of you in deep trouble; very deep trouble? Another word, then, for you; "When you pass through the waters, I will be with you, and through the rivers, they shall not overflow you: when you walk through the fire, you shall not be burned; neither shall the flame kindle upon you."
 
@@ -157,12 +157,12 @@ Perhaps I speak to some for whom the promises of God have no charm. Let me, then
 
 Beware, then, you that forget God, lest he overthrow you in his hot displeasure. Seek the savior now, lest the acceptable year of the Lord be closed with a long winter of utter despair:
 
-> "You who spurn his righteous sway,  
+> You who spurn his righteous sway,  
 > Yet, oh yet, he spares your breath.  
 > Yet his hand, averse to slay,  
 > Balances the bolt of death.  
 > Before that dreadful bolt descends,  
 > Hasten before his feet to fall,  
 > Kiss the scepter he extends,  
-> And adore him, 'Lord of all.'"  
+> And adore him, 'Lord of all.'  
 

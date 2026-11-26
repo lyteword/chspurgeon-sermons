@@ -29,8 +29,8 @@ The innocent mirth of the fireside, the chaste happiness of household love: even
 
 Now, brethren, if God's praise has been no wilderness to you, return to it with zest and ardor, and say, "I will yet praise You more and more." If any suppose that you grow weary with the service of the Lord, tell them that his praise is such freedom, such recreation, such felicity that you desire never to cease from it. As for me, if men call God's service slavery, I desire to be such a bondslave forever and would gladly be branded with my Master's name indelibly! I would have my ear bored to the doorpost of my Lord's house, and go no more out. My soul joyfully sings:
 
-> "Let Your grace, Lord, like a fetter,  
-> Bind my wandering heart to You."  
+> Let Your grace, Lord, like a fetter,  
+> Bind my wandering heart to You.  
 
 This to me shall be ambition: to be more and more subservient to the divine honor. This shall be gain: to be nothing for Christ's sake. This my all in all: to praise You, my Lord, as long as I have any being.
 
@@ -60,8 +60,8 @@ Heaven is indeed the only home of our souls, and we shall never feel that we hav
 
 Am I nearer heaven? Then I will be doing more of the work which I shall do in heaven. I shall soon use the harp: let me be carefully tuning it: let me rehearse the hymns which I shall sing before the throne. For if the words in heaven shall be sweeter and more rich than any that poets can put together here, yet the essential song of heaven shall be the same as that which we present to Jehovah here below:
 
-> "They praise the Lamb in hymns above,  
-> And we in hymns below."  
+> They praise the Lamb in hymns above,  
+> And we in hymns below.  
 
 The essence of their praise is gratitude that he should bleed: it is the essence of our praise, too. They bless Immanuel's name for undeserved favors bestowed upon unworthy ones, and we do the same.
 
@@ -139,6 +139,6 @@ O that a change might come over you who have never blessed the Lord, and may it 
 
 But Christians, the last word shall be to you. Are you praising God more and more? If you are not, I am afraid of one thing, and that is that you are probably praising him less and less. It is a certain truth that if we do not go forward in the Christian life, we go backward. You cannot stand still: there is a drift one way or the other. Now he that praises God less than he did, and goes on to praise him less tomorrow, and less the next day, and so on: what will he get to? And what is he?
 
-Evidently he is one of those that draw back unto perdition, and there are no persons upon whom a more dreadful sentence is pronounced, often spoken of by Paul, and most terribly by Peter and Jude. Those "Trees twice dead, plucked up by the roots." The "wandering stars for whom is reserved the blackness of darkness forever." It would have been infinitely better for them not to have known the way of righteousness, than having known it, after a fashion, to have turned aside!
+Evidently he is one of those that draw back unto perdition, and there are no persons upon whom a more dreadful sentence is pronounced, often spoken of by Paul, and most terribly by Peter and Jude. Those "trees twice dead, plucked up by the roots." The "wandering stars for whom is reserved the blackness of darkness forever." It would have been infinitely better for them not to have known the way of righteousness, than having known it, after a fashion, to have turned aside!
 
 Better never to have put their hand to the plow, than having done so, after a sort, to turn back from it. But, beloved, I am persuaded better things for you, and things that accompany salvation, though I thus speak. I pray that God will lead you on from strength to strength: for that is the path of the just. May you grow in grace, for life is proven by growth. May you march like pilgrims towards heaven, singing all the way. The lark may serve us as a final picture, and an example of what we all should be. We should be mounting: our prayer should be, "Nearer, my God, to you." We should be mounting: our motto might well be, "Higher! Higher! Higher!" As we mount, we should sing, and our song should grow louder, clearer, more full of heaven. Upward, brothers and sisters! Sing as you soar! Upward! Sing till you are dissolved in glory! Amen.

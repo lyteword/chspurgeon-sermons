@@ -51,8 +51,8 @@ She is not that one, for she is not even a member of the Church, and therefore i
 
 We pass on to the next point; the king at the feast. "The king came in to see the guests." What an honor and privilege this was to the poor creatures whom his royal munificence had brought together! Was it not, indeed, the chief point of the entire festival? One of our greatest joys is to sing:
 
-> "The King Himself comes near  
-> And feasts His saints today!"  
+> The King Himself comes near  
+> And feasts His saints today!  
 
 What would Church fellowship be if it had not the fellowship of God with it? To sit with my dear brethren and rejoice in their love is exceedingly delightful. But the best wine is fellowship with the Father, and with His Son Jesus Christ. The king did not provide the banquet and leave his guests to eat by themselves, but he "came in."
 
@@ -64,14 +64,14 @@ When the king came into the banqueting chamber he saw the guests, and they also 
 
 If her Majesty the Queen were entertained by one of her nobles, he would be in waiting, and at the threshold would meet her. But when a superior entertains an inferior the inferior may take his seat at the table, and when all is ready the noble host will come in. It is so in the banquet of mercy. You and I see nothing of God, by way of communion with Him, until first we have been brought in by the message of mercy to the marriage feast of the Gospel. For, indeed, until then a sight of God would strike us with terror:
 
-> "Till God in human flesh I see,  
+> Till God in human flesh I see,  
 > My thoughts no comfort find.  
 > The holy, just, and sacred Three  
 > Are terrors to my mind.  
 > But when Immanuel's face appears  
 > My hope, my joy, begins!  
 > His name forbids my slavish fear  
-> His grace removes my sins."  
+> His grace removes my sins.  
 
 When I get to the banquet of mercy, then it is that I can dare to look at the King of kings, but not till then. What a joyous sight, a vision of the God and Father of our Lord Jesus Christ; the Father of Glory as He appears in the Gospel, feasting us upon His fatlings! An incarnate God makes God visible to us and makes us happy in the sight. "How can you see My face and live?" was the old question, but, behold, it is answered this day. At the marriage union of Christ with His people we see the face of the King in His beauty, and our souls not only live, but we have life more abundantly.
 
@@ -121,13 +121,13 @@ He saw now that his time to insult was over, and the day of retribution had come
 
 Why did he not burst into tears? Why did he not confess the wrong? Why did he not say, "My King, I have insulted you, have pity upon me"? His proud heart would not let him. Sin made him incapable of repentance. There is a verse in one of Hart's hymns which runs thus:
 
-> "Fixed is their everlasting state.  
-> Could they repent, it is now too late."  
+> Fixed is their everlasting state.  
+> Could they repent, it is now too late.  
 
 That is true enough, but it supposes an impossibility, and I think it would have been far better to have said:
 
-> "Fixed is their everlasting state.  
-> They can't repent, it is now too late."  
+> Fixed is their everlasting state.  
+> They can't repent, it is now too late.  
 
 Because the sinner goes on to sin, he continues still to suffer. He will not turn, he cannot turn. As the Ethiopian cannot change his skin, nor the leopard his spots, so when sin has reached its height the man cannot bend, or bow, or retrace his steps.
 

@@ -102,7 +102,7 @@ As for the hypocrite, if he gets into a Church and there is a Prayer Meeting and
 
 Something more must be done. Had Jacob been a hypocrite he would have let the angel loose at once, but being one of the Lord's own, he said, "I will not let You go, except You bless me." When the angel touched him in the hollow of his thigh and made the sinew shrink, had Jacob been a hypocrite he would have thought, "I have had enough of this already. I may be made to shrink all over. I cannot tell what may happen next. I will have no more of this midnight encounter with an unknown visitor. I will get me back to my tent."
 
-But no. He meant to prevail, and though he felt the pain, Yet he said:
+But no. He meant to prevail, and though he felt the pain, yet he said:
 
 > With You all night I mean to stay,  
 > And wrestle till the break of day.  
