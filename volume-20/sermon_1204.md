@@ -17,7 +17,7 @@ Having thus reminded you that God would have penitents very soon rejoice, I want
 
 The joy of God over sinners. It is always difficult to speak of the ever-blessed God becomingly when we have to describe Him as touched by emotions. I pray, therefore, to be guided in my speech by the Holy Spirit. We have been educated to the idea that the Lord is above emotions, either of sorrow or pleasure. That He cannot suffer, for instance, is always laid down as a self-evident postulate. Is that quite clear? Cannot He do or bear anything He chooses to do? What does the Scripture mean which says that man's sin, before the flood, made the Lord repent that He had made man on the earth, "and it grieved Him at His heart"?
 
-Is there no meaning in the lord's own language, "Forty years long was I grieved with this generation?" Are we not forbidden to grieve the Holy Spirit? Is He not described as having been vexed by ungodly men? Surely, then, He can be grieved, it cannot be an altogether meaningless expression. For my part, I rejoice to worship the living God, who, because He is living, dose grieve and rejoice! It makes one feel more love to Him than if He dwelt on some serene Olympus, careless of all our woes because incapable of any concern about us, or interest in us, one way or the other. To look upon Him as utterly impassive and incapable of anything like emotion does not, in my mind, exalt the Lord, but rather brings Him down to be comparable to the gods of stone or wood which cannot sympathize with their worshippers.
+Is there no meaning in the Lord's own language, "Forty years long was I grieved with this generation?" Are we not forbidden to grieve the Holy Spirit? Is He not described as having been vexed by ungodly men? Surely, then, He can be grieved, it cannot be an altogether meaningless expression. For my part, I rejoice to worship the living God, who, because He is living, does grieve and rejoice! It makes one feel more love to Him than if He dwelt on some serene Olympus, careless of all our woes because incapable of any concern about us, or interest in us, one way or the other. To look upon Him as utterly impassive and incapable of anything like emotion does not, in my mind, exalt the Lord, but rather brings Him down to be comparable to the gods of stone or wood which cannot sympathize with their worshippers.
 
 No, Jehovah is not insensible! He is the living God and everything that goes with life, pure, perfect, holy life, is to be found in Him. Yet must such a subject always be spoken of very tenderly, with solemn awe, because, albeit we know something of what God is, for we are made in the image of God and the best likeness of God undoubtedly was man as he came from his Maker's hand, yet man is not God and, even in his perfectness, he must have been but a very tiny miniature of God! While now that he has sinned he has blotted and blurred that image.
 
@@ -37,9 +37,16 @@ Beloved, consider, awhile, the Lord's bounty to returning sinners, blotting out 
 
 At glad times men generally manifest some specialty in their bounty. On the day of the young heir's coming of age the long-stored cask of wine is broached and the best bullock is roasted whole. So here in the parable we read, "Bring forth the best robe," indicating that it had been laid by and kept in store until then. Nobody had used that robe. It was locked up in the wardrobe, only to be brought out on some very special occasion. This was the happiest day that ever had made glad the house and, therefore, "Bring forth the best robe." No other will suffice! If meat is needed for the banquet, let a calf be killed. Which shall it be? A calf taken at random from the herd? No, but the fatted calf which has been standing in the stalls and is well fed, and has been reserved for a festival!
 
-Oh, Beloved, when God blesses a sinner He shows His joy by giving him the reserved mercies, the special treasures of everlasting love, the precious things of Divine Grace, the secret of the Covenant, yes, He has given to sinners the best of the best in giving them Christ Jesus and the indwelling of the Holy Spirit! The best that Heaven affords, God bestows on sinners when they come to Him. No scraps and odds and ends are dealt out to hungry and thirsty seekers, but in princely munificence of unstinting love the heavenly Father deals out abundant Grace! I would that sinners would come and try my Lord's hospitality! They would find His table to be more richly loaded than even that of Solomon, though 30 oxen and a hundred sheep did not suffice for one day's provision for the household of that magnificent sovereign!
+Oh, Beloved, when God blesses a sinner He shows His joy by giving him the reserved mercies, the special treasures of everlasting love, the precious things of Divine Grace, the secret of the Covenant, yes, He has given to sinners the best of the best in giving them Christ Jesus and the indwelling of the Holy Spirit! The best that Heaven affords, God bestows on sinners when they come to Him. No scraps and odds and ends are dealt out to hungry and thirsty seekers, but in princely munificence of unstinting love the heavenly Father deals out abundant Grace! I would that sinners would come and try my Lord's hospitality! They would find His table to be more richly loaded than even that of Solomon, though thirty oxen and a hundred sheep did not suffice for one day's provision for the household of that magnificent sovereign!
 
-If they would but come, even the largest-hearted among them would be wonder-struck as they saw how richly God supplied all their needs according to His riches in Glory by Christ Jesus: "Rags exchanged for costly treasure Shoe and ring and Heaven's best robe! Gifts of love, which knows no measure; Who can tell the heart of God? All His loved ones His redeemed ones, Perfect are in His abode."
+If they would but come, even the largest-hearted among them would be wonder-struck as they saw how richly God supplied all their needs according to His riches in Glory by Christ Jesus:
+
+> Rags exchanged for costly treasure  
+> Shoe and ring and Heaven's best robe!  
+> Gifts of love, which knows no measure;  
+> Who can tell the heart of God?  
+> All His loved ones His redeemed ones,  
+> Perfect are in His abode.  
 
 We also shower our joy by a concentration of thought upon the object of it. When a man is carried away with joy, he forgets everything else and gives himself up to the one delight. David was so glad to bring back the Ark of the Lord that he danced before the Lord with all his might, being clad only with a linen ephod. He laid aside his stately garments and thought so little of his dignity that Michal sneered at him. He was so much absorbed in adoring his Lord that all regard to appearances was quite gone.
 
@@ -105,26 +112,19 @@ It was most kind of the father to divide the labor of love. One would put on the
 
 How glad those were who helped to dress him, I cannot tell. Meanwhile, another servant was gone off out of doors to bring in the fatted calf and perhaps two or three were engaged in killing and dressing it, while another was lighting a fire in the kitchen and preparing the spits for the roast. One laid the table and another ran to the garden to bring flowers to make wreaths for the room; I know I should have done that if I had been there. All were happy! All ready to join in the music and dancing. Those who work for the good of sinners are always the most glad when they are saved! You who pray for them, you who teach them, you who preach to them, you who win them for Christ, you shall share in their merriment!
 
-Now, dear Brothers and Sisters, we are told that they "began to be merry," and according to the description it would seem that they were merry, indeed, but still they only "began." I see no intimation that they ever left off. "They began to be merry," and as merriment is apt to grow beyond all bounds when it once starts, who knows what they have come to by this time? The saints begin to be merry now and they will never cease, but rejoice evermore. On earth all the joy we have is only beginning to be merry, it is up in Heaven that we get into full swing! Here our best delight is hardly better than a near tide at its ebb. There the joy rolls along in the majesty of a full spring tide: "Oh what rapturous hallelujahs
+Now, dear Brothers and Sisters, we are told that they "began to be merry," and according to the description it would seem that they were merry, indeed, but still they only "began." I see no intimation that they ever left off. "They began to be merry," and as merriment is apt to grow beyond all bounds when it once starts, who knows what they have come to by this time? The saints begin to be merry now and they will never cease, but rejoice evermore. On earth all the joy we have is only beginning to be merry, it is up in Heaven that we get into full swing! Here our best delight is hardly better than a near tide at its ebb. There the joy rolls along in the majesty of a full spring tide:
 
-In our Father's home above!
+> Oh what rapturous hallelujahs  
+> In our Father's home above!  
+> Hallelujah! Hallelujah!  
+> O'er the embraces of His love!  
+> Wondrous welcome; God's own welcome,  
+> May the chief of sinners prove.  
+> Sweet melodious strains ascending,  
+> All around a mighty flood;  
+> Servants, friends, with joy attending;  
+> Oh! the happiness of God!  
+> Grace abounding, all transcending,  
+> Through a Savior's precious blood.  
 
-Hallelujah! Hallelujah!
-
-O'er the embraces of His love!
-
-Wondrous welcome; God's own welcome,
-
-May the chief of sinners prove.
-
-Sweet melodious strains ascending,
-
-All around a mighty flood;
-
-Servants, friends, with joy attending; Oh! the happiness of God!
-
-Grace abounding, all transcending,
-
-Through a Savior's precious blood." Let us begin to be merry this morning! But we cannot unless we are laboring for the salvation of others in all ways possible to us. If we have done and are doing that, let us praise and bless the Lord and rejoice with the reclaimed ones. And let us keep the feast as Jesus would have it kept, for I hope there is no one here of the elder brethren who will be angry and refuse to go in. Let us continue to be merry, as long as we live, because the lost are found and the dead are made alive! God grant you to be merry, on this account, world without end. Amen.
-
-Portion of Scripture Read Before Sermon: Luke 15:11-32. Hymns from "Our Own Hymn Book": 548, 1002, 1004.
+Let us begin to be merry this morning! But we cannot unless we are laboring for the salvation of others in all ways possible to us. If we have done and are doing that, let us praise and bless the Lord and rejoice with the reclaimed ones. And let us keep the feast as Jesus would have it kept, for I hope there is no one here of the elder brethren who will be angry and refuse to go in. Let us continue to be merry, as long as we live, because the lost are found and the dead are made alive! God grant you to be merry, on this account, world without end. Amen.

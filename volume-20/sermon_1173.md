@@ -3,51 +3,38 @@
 > I thought.  
 > 2 Kings 5:11  
 
-Our great object in preaching today will be the conversion of sinners. There is a great deal else to be done, Believers need building up, comforting and quickening, but while myriads of men remain careless until they are swept away into Perdition, it becomes us to lend our strength to the most necessary work of winning souls for Jesus. Therefore, again this morning, I shall leave the 99 in the wilderness and go after that which has gone astray, pleading earnestly with God that He will bless my pleading with men so that while I discourse with them concerning their folly in rejecting the Savior, His Spirit may discourse with them, also, and lead them to flee to Jesus for eternal life!
+Our great object in preaching today will be the conversion of sinners. There is a great deal else to be done, Believers need building up, comforting and quickening, but while myriads of men remain careless until they are swept away into Perdition, it becomes us to lend our strength to the most necessary work of winning souls for Jesus. Therefore, again this morning, I shall leave the ninety-nine in the wilderness and go after that which has gone astray, pleading earnestly with God that He will bless my pleading with men so that while I discourse with them concerning their folly in rejecting the Savior, His Spirit may discourse with them, also, and lead them to flee to Jesus for eternal life!
 
 At the outset, however, we will have a few words for Believers. Preconceptions of what ought to be the Lord's mode of action are very injurious, even to those who have true faith in God, and yet they are very frequently indulged. We map out beforehand the path of Providence and the method of mercy, forgetting that the Lord's way is in the sea, His path in the great waters and His footsteps are not known. When the Lord does not choose to act according to our notions we start back and cry, half-indignantly, "I thought He would surely act otherwise." This folly is seen in Believers, sometimes, in reference to their way to Heaven.
 
 They are like the children of Israel when they came out of Egypt. There is a straight road to Canaan; why are they not allowed to take it? Instead of a direct march onward they are led round about with ever-varying experiences. Their course is by turns progressive, retrograde and standing still, to the right and to the left, forward and retreat. Does not Providence often perplex you and run counter, not only to your wishes, but to your deliberate judgment? That which for many reasons seems to be the best does not happen to you, while that which appears to be distressingly injurious overtakes you! Your forecasts do not come true, your daydreams are not realized, your schemes for life are not carried out. You cannot understand why!
 
-Why is it that you are kept in poverty when you could have made such good use of riches? How is it you are laid aside just when you could have been most useful? Why have talents been denied to you when you feel you would have used them with such diligence and fidelity? How is it that others, who waste away life, are endowed with 10 talents, while you who are industrious and zealous have scarcely one? You have ventured to propose such inquiries, but you have not been able to answer them. It is as well that you should not, for our business is not the solution of problems, but the performance of precepts. Let us cease from our own wisdom and leave all arrangements in the hand of our heavenly Father. Our thoughts are vanity, His thoughts are precious.
+Why is it that you are kept in poverty when you could have made such good use of riches? How is it you are laid aside just when you could have been most useful? Why have talents been denied to you when you feel you would have used them with such diligence and fidelity? How is it that others, who waste away life, are endowed with ten talents, while you who are industrious and zealous have scarcely one? You have ventured to propose such inquiries, but you have not been able to answer them. It is as well that you should not, for our business is not the solution of problems, but the performance of precepts. Let us cease from our own wisdom and leave all arrangements in the hand of our heavenly Father. Our thoughts are vanity, His thoughts are precious.
 
-The like fault will arise in connection with our prayers. We pray believingly and an answer comes, for believing prayer never fails, but the answer comes in an unexpected fashion and not at all as we thought! We prayed God to bless our family, and, lo, our wife is taken away, or our child sickens! We besought the Lord to make us more spiritual and He has sent a severe affliction to grieve us: "I asked the Lord that I might grow
+The like fault will arise in connection with our prayers. We pray believingly and an answer comes, for believing prayer never fails, but the answer comes in an unexpected fashion and not at all as we thought! We prayed God to bless our family, and, lo, our wife is taken away, or our child sickens! We besought the Lord to make us more spiritual and He has sent a severe affliction to grieve us:
 
-In faith, and love and every Grace,
+> I asked the Lord that I might grow  
+> In faith, and love and every Grace,  
+> Might more of His salvation know,  
+> And seek more earnestly His face.  
+> I hoped that in some favored hour  
+> At once He'd answer my request,  
+> And by His love's constraining power  
+> Subdue my sins, and give me rest.  
+> Instead of this, He made me feel  
+> The hidden evils of my heart  
+> And let the angry powers of Hell  
+> Assault my soul in every part.  
+> Yes, more, with His own hand He seemed  
+> Intent to aggravate my woe.  
+> Crossed all the fair designs I schemed,  
+> Blasted my gourds and laid me low.  
+> "Lord, why is this?" I trembling cried.  
+> "Will You pursue Your worm to death?"  
+> "'Tis in this way," the Lord replied,  
+> "I answer prayer for Grace and faith."  
 
-Might more of His salvation know,
-
-And seek more earnestly His face.
-
-I hoped that in some favored hour
-
-At once He'd answer my request,
-
-And by His love's constraining power
-
-Subdue my sins, and give me rest.
-
-Instead of this, He made me feel
-
-The hidden evils of my heart
-
-And let the angry powers of Hell
-
-Assault my soul in every part.
-
-Yes, more, with His own hand He seemed
-
-Intent to aggra vate my woe.
-
-Crossed all the fair designs I schemed,
-
-Blasted my gourds and laid me low.
-
-'Lord, why is this?'I trembling cried.
-
-'Will You pursue Your worm to death?'
-
-''Tis in this way,' the Lord replied, 'I answer prayer for Grace and faith.'" "I thought," you say, "but oh, how different from my thoughts!" Yes, but how much better than your thoughts! You shall find that the Lord is doing for you exceeding abundantly above all that you asked or even thought! God is enriching you by your poverty. He is healing you by your sickness and drawing you nearer to Himself by driving you further away from creature confidence.
+"I thought," you say, "but oh, how different from my thoughts!" Yes, but how much better than your thoughts! You shall find that the Lord is doing for you exceeding abundantly above all that you asked or even thought! God is enriching you by your poverty. He is healing you by your sickness and drawing you nearer to Himself by driving you further away from creature confidence.
 
 Often and often we fail to see God's gracious answers to prayer because we make up our minds as to the way in which they will come. We refuse letters from Heaven because they are sent in black-bordered envelopes. We thought our Lord would send us bread and meat by angels, but instead, He sent it by ravens. When we see the Lord's hand in unexpected ways, we are apt to say, half in disappointment, "I thought it would have been otherwise." Perhaps we have carried these preconceptions of ours still further, for we have actually thought beforehand that God would not bless us at all! He has been graciously designing our good by affliction and we have written bitter things both against Him and against ourselves, for we have thought that He had utterly forsaken us. We have cried with Jacob, "Joseph is not, Simeon is not, and you will take Benjamin away. All these things are against me!"
 
@@ -107,7 +94,7 @@ Besides, all that you can do is already due to God and, therefore, it cannot mak
 
 But you have thought that if you are to be saved, you must of necessity experience great horrors, as many have done. You have read of John Bunyan and others passing through the Slough of Despond and you have set it down as a fact that you ought to wallow there, also. But why, Beloved? How does this tend to salvation? Is doubting the mercy of God a good and useful thing? Truly, some who are brought to Jesus are long in coming, but if He pleases to lead you by a long way, why complain? Is not the Gospel way the best way? Believe and live, is not that enough? Why, if the terrors did come upon you, they could not help you, or if they did, you would trust in your despair and this would be a false way.
 
-"Then," you say, "I stipulate for raptures and excitements. If I have these, I will believe." Joy will come after believing, it is a gift of God with which He rewards faith. If the Lord required joy and rapture of you, you could no more render them than if the way of works were still in vogue. "Jesus only" is your hope, why demand more? Now I come to the point. I have looked at what you would like salvation to be, and I have told you what it is. I will ask you this question; What in it do you object? Do you object to being saved simply by faith? Because it appears to you to be too mysterious? Mysterious? It is the essence of simplicity! You make it mysterious by refusing to understand it and not believing it to be so plain. "Believe in the Lord Jesus Christ and you shall be saved." To believe is to trust, and whoever trusts in the atoning blood is saved. Where is the mystery?
+"Then," you say, "I stipulate for raptures and excitements. If I have these, I will believe." Joy will come after believing, it is a gift of God with which He rewards faith. If the Lord required joy and rapture of you, you could no more render them than if the way of works were still in vogue. "Jesus only" is your hope, why demand more? Now I come to the point. I have looked at what you would like salvation to be, and I have told you what it is. I will ask you this question: what in it do you object? Do you object to being saved simply by faith? Because it appears to you to be too mysterious? Mysterious? It is the essence of simplicity! You make it mysterious by refusing to understand it and not believing it to be so plain. "Believe in the Lord Jesus Christ and you shall be saved." To believe is to trust, and whoever trusts in the atoning blood is saved. Where is the mystery?
 
 Then men turn round and say, "Then it seems like nothing at all." But Jesus says, "This is the work of God, that you believe on Him whom He has sent." It is the work which God works, the grandest of all works, to believe in Jesus Christ! Do you count it as nothing, when God has elected it to be the grand means of renewing the heart by the Holy Spirit? Faith is the spring which moves all our nature. He who believes learns to love and, learning to love, he is changed from sin to holiness. "Yes, but this believing makes a man into a mere child." Is that an objection? Then I give you no reply but the words of the Lord Himself: "Except you be converted and become as little children, you shall in no wise enter into the kingdom of Heaven."
 
@@ -117,14 +104,12 @@ So you would like to have one way to Heaven for yourself and people of quality, 
 
 I sometimes feel inclined to answer people in the manner in which I replied to a caviler not long ago. He did not understand this, nor understand that, nor understand the other and at last I said to him, "Sir, I do not suppose you ever will understand it." "Why not?" he asked. "Because," I said, "God reveals these things to His own elect and not to the wise and prudent." This view of the case he did not like, but I believed it would do him more good than entering into further controversy with him. Men profess to be puzzled with this and that when the truth is that their hearts are alienated from God. When the heart is set right and they are sincere inquirers, they will feel that the plan of salvation by Divine Grace is most suitable, most wise and most acceptable.
 
-When God the Holy Spirit once makes a man feel himself to be a lost, undone, ill-deserving, Hell-deserving sinner, he seizes upon the Gospel of Free Grace as a hungry man grasps a loaf of bread! May God bring men to feel themselves sinners and they will quibble at the Gospel no more. In conclusion. You thought that the Gospel ought to be such-and-such and now you are annoyed because you are told that the whole plan lies in believing. Let me ask you, then, Do you mean to be damned for the sake of a whim? Come, I will not mince the matter. Do you mean to lose Heaven and be cast into Hell forever for the sake of your proud fancies? For, oh, Sir, I assure you, in God's name, His plan will not alter for you! If the Lord should alter His Gospel for you, then He must alter it for another, and another, and it would be as shifting as quicksand. There it is! Take it of leave it, but alter it, you cannot. "He that believes and is baptized shall be saved" is always true. And the other side of the question is true, too: "He that believes not shall be damned."
+When God the Holy Spirit once makes a man feel himself to be a lost, undone, ill-deserving, Hell-deserving sinner, he seizes upon the Gospel of Free Grace as a hungry man grasps a loaf of bread! May God bring men to feel themselves sinners and they will quibble at the Gospel no more. In conclusion. You thought that the Gospel ought to be such-and-such and now you are annoyed because you are told that the whole plan lies in believing. Let me ask you, then, do you mean to be damned for the sake of a whim? Come, I will not mince the matter. Do you mean to lose Heaven and be cast into Hell forever for the sake of your proud fancies? For, oh, Sir, I assure you, in God's name, His plan will not alter for you! If the Lord should alter His Gospel for you, then He must alter it for another, and another, and it would be as shifting as quicksand. There it is! Take it or leave it, but alter it, you cannot. "He that believes and is baptized shall be saved" is always true. And the other side of the question is true, too: "He that believes not shall be damned."
 
-Remember, also, that however much you may dislike it today, it will be quite as unpleasant tomorrow. If there is at present some sharp, stripping and humbling work about it, it always will strip and always humble you if ever you receive it. To be saved by Grace alone will be as hard to your pride in 10 years' time as it is now, perhaps harder, because your heart will have grown harder and your stomach even more haughty against the Lord God of Hosts. Surely, Sir, if you are lost because you will not have salvation in God's way, you will get small comfort from your meditations when you lie in Hell. When you are shut in the eternal prison, you will reflect that you are there because you thought God ought to save you in another way. Then you will say to yourself, "I would not take His mercy freely. I would not fall down at Jesus' feet and simply trust Him. I wanted to feel, or do, or be something. I would not give up self and its foolish confidences, and here I am."
+Remember, also, that however much you may dislike it today, it will be quite as unpleasant tomorrow. If there is at present some sharp, stripping and humbling work about it, it always will strip and always humble you if ever you receive it. To be saved by Grace alone will be as hard to your pride in ten years' time as it is now, perhaps harder, because your heart will have grown harder and your stomach even more haughty against the Lord God of Hosts. Surely, Sir, if you are lost because you will not have salvation in God's way, you will get small comfort from your meditations when you lie in Hell. When you are shut in the eternal prison, you will reflect that you are there because you thought God ought to save you in another way. Then you will say to yourself, "I would not take His mercy freely. I would not fall down at Jesus' feet and simply trust Him. I wanted to feel, or do, or be something. I would not give up self and its foolish confidences, and here I am."
 
 Surely you will gnaw your tongue in anguish that you have been cast away for such an unreasonable reason! If others ask you how you came there, it will be a strange answer that you will have to give them. "I," says one, "I am here because I loved drink." Another says, "I am here, for I was lustful and debauched." "Ah," you say, "I was neither the one nor the other. I was kept from such sins, but I am lost simply because when I heard the plan of salvation, I had made up my mind what it ought to be and I stuck to my prejudices. I would not go to the Bible to search. I thought I knew as well as the Book and as well as the Holy Spirit, and I am lost." My dear Hearers, I do not ask you to believe anything I say because I say it. Fling it to the winds if it has no better authority than mine! But if it is God's Word, I charge you, on your soul's peril, do not reject it!
 
 We shall face each other at the last tremendous day and if I have told you honestly the plan of salvation, I am clear of your blood. But if, having heard it, you reject it because it does not suit your preconceived ideas, then, Sirs, your doom will lie at your own door. Provoke it not! Yield to the Master's bidding! May His Holy Spirit sweetly incline you and He shall have praise. There it is. Jesus died instead of sinners. He suffered God's wrath in the place of the guilty and, "Whoever believes in Him has everlasting life." Other foundation can no man lay. There is not another name under Heaven among men whereby you can be saved! The worst of all is, you will say, "We do not reject it, but we mean to think of it tomorrow."
 
-That has been the cry of some of you for 50 years! The bell will toll for your funerals before your tomorrow comes! Do not run this frightful risk. If to believe and to be saved would incapacitate you from your daily calling, or rob you of a single honorable joy, I might see sense in your procrastination. But since to be saved will make you fit for this life and fill your cup to the brim with joy, in addition to preparing you for the life to come, I charge you, by the living God, "kiss the Son lest He is angry and you perish from the way, while His wrath is kindled but a little." The Lord bless you for Jesus' sake. Amen.
-
-Portion of Scripture Read Before Sermon: 2 Kings 5. Hymns from "Our Own Hymn Book": 34 (Vs. I), 560, 583.
+That has been the cry of some of you for fifty years! The bell will toll for your funerals before your tomorrow comes! Do not run this frightful risk. If to believe and to be saved would incapacitate you from your daily calling, or rob you of a single honorable joy, I might see sense in your procrastination. But since to be saved will make you fit for this life and fill your cup to the brim with joy, in addition to preparing you for the life to come, I charge you, by the living God, "kiss the Son lest He is angry and you perish from the way, while His wrath is kindled but a little." The Lord bless you for Jesus' sake. Amen.
