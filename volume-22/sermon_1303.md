@@ -27,17 +27,27 @@ First, let me speak with you upon the confidence which the Believer has in refer
 
 You see the point lies in at home and from home. These words are as near an approach to the original as could readily be found, though they do not exhaust the sense of the Greek terms. Here, then, in the present state, we are said to be at home in the body. But we are at home in a very modified sense, for it is a home which is not a home, but only a frail lodging, a temporary tenement to accommodate us till we reach our true and real home in the New Jerusalem. It is such a home as a soldier has in the camp at a bivouac, or as a passenger has when he is crossing from continent to continent. Abraham, Isaac, and Jacob had each a home, but it was in a strange country and they were daily looking for a city which has foundations whose builder and maker is God.
 
-While we are in this present state we are at a disadvantage, for we are dwelling in a house which is not, as yet, in our home country, and by it we are kept from our real home in the fatherland above. In a sense, however, this body is a home, for here dwells the living, thinking, active mind, somewhere in the brain, from where it spreads itself and rules all the members of the body. We know that within the walls of this earthly fabric, our spirit is ordained to live for awhile, a lamp burning within a pitcher, a precious jewel set in a ring of clay. It is a house for which we have no little affection, and we are loath to quit it: 
-For who to dumb forgetfulness a prey, 
-This pleasing, anxious being ever resigned, Left the warm precincts of this house of clay, Nor cast one longing, lingering look behind? 
+While we are in this present state we are at a disadvantage, for we are dwelling in a house which is not, as yet, in our home country, and by it we are kept from our real home in the fatherland above. In a sense, however, this body is a home, for here dwells the living, thinking, active mind, somewhere in the brain, from where it spreads itself and rules all the members of the body. We know that within the walls of this earthly fabric, our spirit is ordained to live for awhile, a lamp burning within a pitcher, a precious jewel set in a ring of clay. It is a house for which we have no little affection, and we are loath to quit it:
 
-We complain of the infirmities of our bodies, but we are in no hurry to leave them! They threaten to fall upon as in their decay, but we linger in them, still, till death serves a writ of ejection and, at the same time, pulls down the tenement. We have, some of us, lived in our body for 40 years. Some of you for 60 or 70 years and it is natural that we should have made a home of it, such as it is. And it is small marvel that we are in no haste to emigrate, even the temptation of that brighter home and the "many mansions", is not always enough to make us wish to be gone! But yet this body is not a fitting home for us and we often discover, by experience, how inconvenient it is.
+> For who to dumb forgetfulness a prey,  
+> This pleasing, anxious being ever resigned,  
+> Left the warm precincts of this house of clay,  
+> Nor cast one longing, lingering look behind?  
+
+We complain of the infirmities of our bodies, but we are in no hurry to leave them! They threaten to fall upon as in their decay, but we linger in them, still, till death serves a writ of ejection and, at the same time, pulls down the tenement. We have, some of us, lived in our body for forty years. Some of you for sixty or seventy years and it is natural that we should have made a home of it, such as it is. And it is small marvel that we are in no haste to emigrate, even the temptation of that brighter home and the "many mansions", is not always enough to make us wish to be gone! But yet this body is not a fitting home for us and we often discover, by experience, how inconvenient it is.
 
 It is a poor old tent, easily overturned, constantly getting torn. And the older it gets, the more trouble it takes to patch it up and to keep it in habitable repair. In the course of years it has become soiled, creased and worn-out, like the tents of Kedar. With the wear and tear of many years, it becomes more and more evident that it is not a worthy dwelling place for the child of a King, nor a fit abode for an immortal Spirit born from on high! We have suffered many inconveniences from this crumbling tabernacle in many ways, but especially in spiritual things. We have been willing to watch, but the body has been inclined to sleep. The spirit has been willing, but the flesh has been very weak. We have been numbered with weariness, pain, care and bodily appetite when we have desired to be altogether engrossed with heavenly things.
 
 Sometimes, when we would sing, a throbbing headache makes us sigh. When we would rejoice with unspeakable joy, a palpitating heart depresses us. And when we would go about our Master's business, a lame foot or a decaying constitution hinders us so that we dwell in a house which is beneath the quality of so noble a creature as a spirit. We have to put up with flesh and blood, but we are outgrowing them, we feel we are, there is a something within us which warns us that, like certain of the sea creatures which have to break their shells up as they grow, so we are growingly in need of another and better abode.
 
-We are like the young chick within the eggshell, it has been a home for us until now, but it is becoming too tight for us, we begin to chip it and we sometimes wish it would break altogether, that we might enjoy fuller liberty. "We that are in this body do groan, being burdened," and groan, we shall, till the day of our full redemption and the deliverance of the body from the bondage of corruption!: "Welcome, sweet hour of full discharge, That sets my longing soul at large, Unbinds my chains, breaks up my cell, And lets me with my God to dwell." According to the expression of the Greek, ours is a home in a foreign country. We are not dwelling among our own people at present, but we are exiles in a far-off land. We are not alone, for a numerous band of our Brothers and Sisters are with us, even as the Jews found company of their own race in Babylon, in whose songs and sighs they could unite. But this is exile to us, we have no inheritance here. "A possession of a burying place" is all that we need ask for and all that we shall soon have, for this world is not our rest.
+We are like the young chick within the eggshell, it has been a home for us until now, but it is becoming too tight for us, we begin to chip it and we sometimes wish it would break altogether, that we might enjoy fuller liberty. "We that are in this body do groan, being burdened," and groan, we shall, till the day of our full redemption and the deliverance of the body from the bondage of corruption:
+
+> Welcome, sweet hour of full discharge,  
+> That sets my longing soul at large,  
+> Unbinds my chains, breaks up my cell,  
+> And lets me with my God to dwell.  
+
+According to the expression of the Greek, ours is a home in a foreign country. We are not dwelling among our own people at present, but we are exiles in a far-off land. We are not alone, for a numerous band of our Brothers and Sisters are with us, even as the Jews found company of their own race in Babylon, in whose songs and sighs they could unite. But this is exile to us, we have no inheritance here. "A possession of a burying place" is all that we need ask for and all that we shall soon have, for this world is not our rest.
 
 The Lord has not been pleased to give us our portion in this life; our inheritance lies on the other side of the Jordan. We are at home in the body, but, as I have already said, it is but a lodging place in the midst of a strange country in which we are pilgrims and sojourners as all our fathers were. We are wayfaring men hastening away and passing through a foreign land among people who speak not our tongue, know not our customs, understand nothing of the place to which we are going and, therefore, cannot understand us. They even think us mad when we talk about another country, of which they have no idea, and for which they have no longing. We are at home only in a narrow sense, as a man may be said to be at home when, being in banishment, he takes up his abode, for awhile, in a foreign town. It can never be more than this.
 
@@ -45,14 +55,16 @@ It is a home, too, which keeps us from our true home. We are not yet where we ca
 
 No sense of perfect home rest ever comes over the soul while we are here, except as faith anticipates the joys prepared above. There remains a rest for the people of God, but in this body and in this world it is not to be had. Home is the place where one feels secure; our house is our castle. Outside, in the world, men watch your words and, if they can, they misrepresent or misinterpret them. You have to fight a battle of life, outside, but it is a very blessed thing if the battle is over when you cross your own threshold. Then you are no longer misunderstood, but are appreciated and loved around your own fireside. Beneath our own dear rooftree there is nobody to catch us up, nobody to quibble at us! Only wife and children and friends who love us and delight in us.
 
-Well, Brothers and Sisters, we find no such home spiritually in this world, for this is the place of conflict and watchfulness. Here we dwell among enemies and we have to sorrowfully cry: "My soul is among lions, among those that are set on fire of Hell." We sing: 
-Woe's me that I in Mesech am a sojourner so long! 
-That I in tabernacles dwell to Kedar that belong. 
-My soul with him that hates peace has long a dweller been: 
-I am for peace; but when I speak, 
-For battle they are keen. 
-My heart mourns and pines to reach that peaceful shore, 
-Where all the weary are at rest, And troublers vex no more. 
+Well, Brothers and Sisters, we find no such home spiritually in this world, for this is the place of conflict and watchfulness. Here we dwell among enemies and we have to sorrowfully cry: "My soul is among lions, among those that are set on fire of Hell." We sing:
+
+> Woe's me that I in Mesech am a sojourner so long!  
+> That I in tabernacles dwell to Kedar that belong.  
+> My soul with him that hates peace has long a dweller been:  
+> I am for peace; but when I speak,  
+> For battle they are keen.  
+> My heart mourns and pines to reach that peaceful shore,  
+> Where all the weary are at rest,  
+> And troublers vex no more.  
 
 In Heaven there will be no foes to watch against, nor men of our own household to be our worst enemies. Home, sweet home is to be found above, and from that home our present home in the body is keeping us. Home, too, is the place of the closest and sweetest familiarities. There all unbend. The judge takes off his gown and the soldier his sword, and both play with their children. He who wears his belt out of doors, finds himself stripped of it when he comes among his own kin. There is the kiss of affection, there are the blandishments of love. Here, alas, our spirits cannot take their fill of heavenly familiarities, for distance comes between. We long for the vision of love, but it comes not as yet.
 
@@ -60,9 +72,10 @@ But up there what indulgence shall be accorded to us! What discoveries of the lo
 
 But, dear Friends, the main point in which the present state is at a disadvantage compared with the future one is that here we have to live entirely by faith. We walk here by faith, not by sight. You believe in God, but you have not beheld His Glory as the blessed dead have done. You believe in our Lord Jesus Christ, but it is in One "whom having not seen, you love." You believe in the Holy Spirit and you have been conscious of His Presence, by faith, but there is a something better yet: a clearer sight is yet to be had which we cannot enjoy while we tarry here. At present we take everything on the testimony of God's Word and the witness of His Spirit, but we have not yet seen the Celestial City, nor heard the voice of harpers harping with their harps, nor eaten at the banquets of the glorified!
 
-We enjoy a foretaste of all these and anticipate them by faith, but actual enjoyments are not for this world. What a man sees, why does he yet hope for? This place is the realm of hope we cannot expect to see. But we are going to the place where we shall not so much believe as behold, where we shall not so much expect as enjoy! We are nearing the country where we shall: 
-See and hear, and know, 
-All we desired or wished below. 
+We enjoy a foretaste of all these and anticipate them by faith, but actual enjoyments are not for this world. What a man sees, why does he yet hope for? This place is the realm of hope we cannot expect to see. But we are going to the place where we shall not so much believe as behold, where we shall not so much expect as enjoy! We are nearing the country where we shall:
+
+> See and hear, and know,  
+> All we desired or wished below.  
 
 And faith shall be exchanged for the clearest sight. Here we gaze through the telescope at heavenly things, but we cannot get into contact with them as we wish to do. But when we have shaken you off, O flesh, then shall we actually come into sight and fruition, and shall behold the Savior, as He is, face to face!
 
@@ -110,7 +123,7 @@ The last point I can only spend a few minutes upon. It is this: the believer has
 
 Believer, it ought to be your ambition to please Christ in every act you do. Do not say, "How will this please myself or please my neighbor?" But ask, "How will this please my Lord?" And, remember, it is not by the action, alone, that He will be pleased, but the motive must be right or you will fail. Oh, cry to Him to keep your motives clean, pure, elevated, heavenly, for groveling aims will be a sour leaven and will render the whole loaf unfit to offer. Nor is it merely the motive: it is the spirit in which the whole thing is done. Labor, Brothers and Sisters, with a Divine ambition to please Jesus Christ in your thoughts, in your wishes, in your desires, in everything that is about you.
 
-I know you will have to lament many shortcomings and errors. There will be much about you that will be displeasing to Him. Take care that it is also displeasing to you and never be pleased with that which does not please Him. Never accept any- thing in yourself which He would not accept. With all your ardent spirit watch every movement of your soul that no power or passion so moves as to vex His Holy Spirit. Seek to please Him every moment while you are upon the earth. You know what sort of things Jesus did and what He would like you to do, follow His every step, obey His every word.
+I know you will have to lament many shortcomings and errors. There will be much about you that will be displeasing to Him. Take care that it is also displeasing to you and never be pleased with that which does not please Him. Never accept anything in yourself which He would not accept. With all your ardent spirit watch every movement of your soul that no power or passion so moves as to vex His Holy Spirit. Seek to please Him every moment while you are upon the earth. You know what sort of things Jesus did and what He would like you to do, follow His every step, obey His every word.
 
 He has bid you walk in holiness as He did, O sin not against Him! He bids you clothe the naked, feed the hungry, teach the ignorant, visit the sick, look after the fatherless and widows: all these things He speaks of as peculiarly pleasing to Himself and as mentionable to the honor of His saints in the day of His appearing. Let these things be in you and abound in you! Be fruitful in those Graces which were most conspicuous in Him. Do not let a day pass without doing something with the one objective of pleasing Christ.
 
@@ -127,5 +140,3 @@ But, my Brothers and Sisters, let us so live that while our lives shall challeng
 Come, then, Brothers and Sisters, do not let us care whether we live or die! Let us not suffer ourselves to be alarmed about the passage out of this world into the next state, but let us be "steadfast, unmovable, always abounding in the work of the Lord." I have been twice to the grave this week, with two of our aged friends, a Sister and a Brother, who have passed into Glory. And the lesson which they have left behind for our edification is; let us not be concerned whether we are at home in the body or whether we are at home with Christ, but, living or dying, let us be careful to please Jesus!
 
 I wish I knew how to enforce this lesson and send it home to every Believer's heart, but I must rather pray the Holy Spirit to do so. May He write it on my soul and on yours! And may we all be found practicing it from this time forth, even forever. Amen.
-
-Portion of Scripture read before sermon: 2 Corinthians 4:14-18; 5. Hymns from "Our Own Hymn Book": 865, 858, 850.

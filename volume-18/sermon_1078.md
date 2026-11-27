@@ -27,9 +27,9 @@ Only a holy man can delight in holy things. Holiness is the terror of unholy men
 
 Having thus expounded the words briefly, we will now come to the main point of the exhortation. The Psalmist stirs us up to bless God with our whole being and I pray the Holy Spirit to bring us to that condition this morning. Upon that part of the exhortation we shall now dwell.
 
-And our first remark shall be that this exhortation is remarkably comprehensive. "Bless the Lord, O my Soul". There is the unity of our nature. "And all that is within me". There are the diverse powers and faculties which make up the variety of our nature. The unity and the diversity are both summoned to the delightful employment of magnifying God!
+And our first remark shall be that this exhortation is remarkably comprehensive. "Bless the Lord, O my Soul." There is the unity of our nature. "And all that is within me." There are the diverse powers and faculties which make up the variety of our nature. The unity and the diversity are both summoned to the delightful employment of magnifying God!
 
-First, the unity of our nature is here bid, in its concentration, to yield its whole self to the praise of God. He means thereby not his lips only, not his hands upon the harp strings, not his eyes uplifted towards Heaven, but his soul, his very self, his truest self. Never let me present to God the outward and superficial alone, but let me render to Him the inner and the sincere. Let me never bring before Him merely the outward senses which my soul uses, but the soul which uses these instrumental faculties. "Bless the Lord, O my Soul". Let the true ego praise Him, the essential I, the vital personality, the soul of my soul, the life of my life!
+First, the unity of our nature is here bid, in its concentration, to yield its whole self to the praise of God. He means thereby not his lips only, not his hands upon the harp strings, not his eyes uplifted towards Heaven, but his soul, his very self, his truest self. Never let me present to God the outward and superficial alone, but let me render to Him the inner and the sincere. Let me never bring before Him merely the outward senses which my soul uses, but the soul which uses these instrumental faculties. "Bless the Lord, O my Soul." Let the true ego praise Him, the essential I, the vital personality, the soul of my soul, the life of my life!
 
 Let me be true to the core to my God. Let that which is most truly my own vitality spend itself in blessing the Lord. The soul is our best self. We must not merely bless the Lord with our body, which will soon become worm's meat and is but dust at its best, but with our inner, ethereal nature which makes us akin to angels. Yes, that which causes it to be said that in the image of God we were created. My spiritual nature, my loftiest powers must magnify God. Not the voice which sings a hypocritical magnificat, but the heart which means it! Not the lips which cry Hosanna thoughtlessly, but the mind which considers and intelligently worships. Not only this little narrow walk of my body would I fill with song, but the infinite. Through which my spirit soars on wings of boundless thought, I would make that shoreless region vocal with Jehovah's praise! My real self, my best self shall bless the Lord.
 
@@ -41,7 +41,9 @@ If you do your own business in a lax fashion, yet do not God's business so. If y
 
 O God, my hand, my tongue, my mind, my heart shall all adore You:
 
-"Every string shall have its attribute to sing." My united, concentrated, entire being shall bless You, You infinitely glorious Jehovah! I pray you, my Brothers and Sisters, either do not pretend to praise God at all, or praise Him with all your might. If you are Christian people, be out and out Christians or let Christianity alone. None hinder the glorious kingdom of Christ so much as these half-and-half men and women who blow hot and cold with the same breath! My Brethren, be thorough! Plunge into this stream of life as bathers do who dive to the very bottom and swim in the broad stream with intense delight. Do this, or else make no profession.
+> Every string shall have its attribute to sing.  
+
+My united, concentrated, entire being shall bless You, You infinitely glorious Jehovah! I pray you, my Brothers and Sisters, either do not pretend to praise God at all, or praise Him with all your might. If you are Christian people, be out and out Christians or let Christianity alone. None hinder the glorious kingdom of Christ so much as these half-and-half men and women who blow hot and cold with the same breath! My Brethren, be thorough! Plunge into this stream of life as bathers do who dive to the very bottom and swim in the broad stream with intense delight. Do this, or else make no profession.
 
 But then, David speaks of the diverse faculties of our nature, and writes, "All that is within me bless His holy name." I think the Psalm itself, if we had time to comment upon it, might suggest in succession all our mental powers and passions. For instance, when he said, "Bless the Lord, O my Soul," he meant, of course, first of all let the heart bless Him, for that is often synonymous with the soul. The affections are to lead the way in the concert of praise. But the Psalmist intended, next, to stir up the memory, for he goes on to say, "forget not all His benefits."
 
@@ -49,7 +51,7 @@ May I ask you, beloved Friends, to recollect what God has done for you? Thread t
 
 Let your conscience praise the Sin-Bearer who has caused it to flow with peace like a river and to abound in righteousness as the waves of the sea. Let your emotions join the sacred choir, for you have this day, if you are like the Psalmist, many feelings of delight. Bless Him "who crowns you with loving kindness and tender mercies, and who satisfies your mouth with good things so that your youth is renewed like the eagles." Is all within you peaceful today?
 
-Sing the 23rd Psalm. Let the calm of your spirit sound forth the praises of the Lord upon the pleasant harp and the psaltery.
+Sing the twenty-third Psalm. Let the calm of your spirit sound forth the praises of the Lord upon the pleasant harp and the psaltery.
 
 Do your days flow smoothly? Then consecrate the dulcimer to the Lord. Are you joyful this day? Do you feel the exhilaration of delight? Then praise the Lord with the timbrel and dance. On the other hand, is there a contention within? Does conflict disturb your mind? Then praise Him with the sound of the trumpet, for He will go forth with you to the battle. When you return from the battle and divide the spoil, then, "praise Him upon the loud cymbals: praise Him upon the high-sounding cymbals." Whatever emotional state your soul is found in, let it lead you to bless your Maker's holy name!
 
@@ -81,11 +83,12 @@ An unconsecrated part in a Believer's manhood would become a nest of hornets, or
 
 But I will not further insist that it is reasonable, for I have further to assert that it is necessary. It is necessary that the whole nature bless God, for at its best, when all engaged in the service, it fails to compass the work and falls short of Jehovah's praise. All the man, with all his might, always occupied in all ways in blessing God, would still be no more than a whisper in comparison with the thunder of praise which the Lord deserves!
 
-One of our poets used a singular expression which the fact more than justifies. He said
+One of our poets used a singular expression which the fact more than justifies. He said:
 
-"But ah, eternity's too short To utter all Your praise."
+> But ah, eternity's too short  
+> To utter all Your praise.  
 
-It is so. The whole company of God's creatures would be incapable of reflecting the whole of the Divine Glory and such mercy and Grace does God show to us in the gift of His dear Son that the Church militant, and the Church triumphant, together, are not equal to well-deserved praise. Do not, therefore, let us insult the Lord with half when the whole is not enough! Let us not bring Him the tithe, when, if we had 10 times as much, we could not magnify Him as we should.
+It is so. The whole company of God's creatures would be incapable of reflecting the whole of the Divine Glory and such mercy and Grace does God show to us in the gift of His dear Son that the Church militant, and the Church triumphant, together, are not equal to well-deserved praise. Do not, therefore, let us insult the Lord with half when the whole is not enough! Let us not bring Him the tithe, when, if we had ten times as much, we could not magnify Him as we should.
 
 We must, moreover, give the Lord all because divided powers in every case lead to failure. The men who have succeeded in anything have almost always been men of one thing. He who is jack-of-all-trades is master of none. He who can do a little of this and a little of that never does much of any one thing. The fact is, there is only water enough in the brook of our manhood to drive one wheel, and if we divide it into many trickling runners we shall accomplish nothing. The right thing is to dam up all our forces and allow them to spend themselves in one direction and so pour them all forth upon the constantly revolving wheel of praise to God.
 
@@ -109,14 +112,19 @@ While whole-hearted praise is beneficial to ourselves, it is also useful to othe
 
 It is truly Christian-like to rejoice in the Lord at all times. We should seek to have Christ's joy fulfilled in ourselves. If there is anything that is cheerful, joyous, dewy, bright, full of Heaven, it is the life of a man who blesses God all his days. This is the way to win souls! We shall not catch these flies with vinegar. We must use honey. We shall not bring men into the Church by putting into the window of Christ's shops, coffins and crepe, and shrouds, and standing at the door like mutes. No, we must tell the Truth of God and show sinners the best robe, the wedding ring, and the silver sandals of joy and gladness. We must sing:
 
-"The men of Grace have found. Celestial truths on earthly ground From faith and hope do grow." I read in Thomas Cooper's, "Plain Talk," a story of a class leader who was in a sad state of mind and therefore gave out in the class the hymn:
+> The men of Grace have found.  
+> Celestial truths on earthly ground  
+> From faith and hope do grow.  
 
-"Ah, where should I go, Burdened, and sick, and faint."
+I read in Thomas Cooper's, "Plain Talk," a story of a class leader who was in a sad state of mind and therefore gave out in the class the hymn:
 
-To one seemed inclined to sing, therefore, the leader asked a certain Brother Martin to start a tune. "No, no," said Martin, "I'm neither burdened, nor sick nor faint, I'll start no tune, not I!" "Well, then, Brother Martin," said the leader, "Give out a verse yourself." Whereupon Martin, with all the power of his lungs, sang:
+> Ah, where should I go,  
+> Burdened, and sick, and faint.  
 
-> Oh for a thousand tongues to sing   
-> My great Redeemer's praise.   
+To one seemed inclined to sing, therefore, the leader asked a certain Brother Martin to start a tune. "No, no," said Martin, "I'm neither burdened, nor sick nor faint, I'll start no tune, not I!" "Well, then, Brother Martin," said the leader, "give out a verse yourself." Whereupon Martin, with all the power of his lungs, sang:
+
+> Oh for a thousand tongues to sing  
+> My great Redeemer's praise.  
 
 Ah, that's the hymn, my Brothers and Sisters, keep to that! If you have not a thousand tongues, at least let the one you have continue to bless the Lord while you have any being.
 
@@ -128,10 +136,10 @@ And between now and Heaven He will put all that is within them into fit conditio
 
 And in Heaven it will be your nature to praise God! You will breathe praise! You will live in an atmosphere of adoration and like those angels who for many an age, day without night, have circled the Throne of Jehovah rejoicing, so will you! But I will not speak much on that, or you will be wanting to be flying away to our own dear country.
 
-> Where we shall see His face,   
-> And never, never sin;   
-> But from the rivers of His Grace   
-> Drink endless pleasures in.   
+> Where we shall see His face,  
+> And never, never sin;  
+> But from the rivers of His Grace  
+> Drink endless pleasures in.  
 
 You must stay a little while longer in the tents of Kedar and mingle with the men of soul-distressing Mesech. But till the day breaks and the shadows flee away, say unto your soul, "Bless the Lord, O my Soul: and all that is within me, bless His holy name."
 

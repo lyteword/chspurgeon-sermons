@@ -43,7 +43,7 @@ Let me tarry just one minute longer over this. The true faith is set forth in Sc
 
 A still more remarkable representation of faith was that of the healing look of the serpent-bitten Israelites. On the great standard in the midst of the camp Moses lifted up a serpent of brass; high overhead above all the tents this serpent gleamed in the sun, and whoever of all the dying host would but look to it was made to live. Looking was a very simple act, but it indicated that the person was obedient to God's command. He looked as he was bidden, and the virtue of healing came from the brazen serpent through a look. Such is faith. It is the simplest thing in the world, but it indicates a great deal more than is seen upon its surface:
 
-> "There is life for a look at the Crucified One."  
+> There is life for a look at the Crucified One.  
 
 To believe in Jesus is but to glance the eye of faith to him, to trust him with thy soul.
 

@@ -49,10 +49,10 @@ Oh, I would to God there should come upon us a Divine hunger which cannot stay i
 
 Deep feeling on your part for others shall make others feel for themselves, and God shall bless you, and that right early. But I stand not here any longer to justify what I would far rather commend and personally feel:
 
-> "Did Christ over sinners weep,  
+> Did Christ over sinners weep,  
 > And shall our cheeks be dry?  
 > Let floods of consecrated grief  
-> Stream forth from every eye."  
+> Stream forth from every eye.  
 
 Is God all love, and shall God's children be hard and cold? Shall Heaven be compassionate and shall not earth that has received His mercy send back the echo of compassion? O God, make us imitators of You in Your pity towards erring men!
 

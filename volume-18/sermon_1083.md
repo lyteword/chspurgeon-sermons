@@ -35,7 +35,10 @@ The superstitious notion which makes people think that if they go at particular 
 
 However, the religion of Jesus teaches me that I am always to worship. Family prayer is as good and as much accepted as the prayer in the great congregation. True religion teaches me that I may pray in private. That every hour and not merely at some canonical hour, I ought to pray. It teaches me that:
 
-"Wherever I seek Him He is found, And every place is hallowed ground," that the Lord will bless and accept me and press me to His heart as His own dear child wherever I am, for in my Father's house are many mansions and God's grace is not here or there, but everywhere that the true heart seeks it. I need you all to feel this because somehow or other the Church does not appear to have learned it.
+> Wherever I seek Him He is found,  
+> And every place is hallowed ground,  
+
+that the Lord will bless and accept me and press me to His heart as His own dear child wherever I am, for in my Father's house are many mansions and God's grace is not here or there, but everywhere that the true heart seeks it. I need you all to feel this because somehow or other the Church does not appear to have learned it.
 
 God was with the Covenanters amidst their glens as gloriously as ever He manifested Himself in cathedrals! God has been as earnestly sought and as verily found in humble cottages where two or three have met to pray as ever He has been in the largest tabernacle! The sailor's service read on the sea has been as acceptable to God as worship on land and the gatherings of humble Romans in the catacombs, or of the hunted fathers in the secluded dells of our counties were as much the gatherings of the true church of God as any well-appointed assemblies can be in these peaceable times!
 
@@ -49,7 +52,7 @@ Neither do I notice any singular genius necessary. It is not said, "With that ma
 
 Neither is there a syllable here said about outward religiousness. It does not say, "I will dwell with that man that attends a place of worship twice on Sunday, joins the Church, is baptized and receives the Lord's Supper." Nothing of the sort. The description of the spiritual temple runs not so. And then, I need you to notice, next, that the points which are selected as descriptive of God's temple are just such as are frequently despised. "Oh," the world says, "who wants to be poor?" "Poor in spirit," we reply. "Ah," says the world, "we don't need any of your self-made, self-reliant men. Poor in spirit, indeed!
 
-"And," says the world, "We find the contrite very dull company. Broken-hearted people are not the sort we love to associate with." Oh, no; what in their account can be the value of contrition? And as for trembling at God's Word, why you know it was because the Society of Friends were accustomed to speak much of this and say that they trembled at God's Words that they called them Quakers, thus turning their good confession into a term of derision and reproach! And nowadays if a man is very reverent towards the Word of God and very desirous to obey the Lord's commands in everything, people say, "He is very precise," and they shun him. Or, with still more acrimony they say, "He is very bigoted. He is not a man of liberal spirit." And so they cast out his name as evil.
+"And," says the world, "we find the contrite very dull company. Broken-hearted people are not the sort we love to associate with." Oh, no; what in their account can be the value of contrition? And as for trembling at God's Word, why you know it was because the Society of Friends were accustomed to speak much of this and say that they trembled at God's Words that they called them Quakers, thus turning their good confession into a term of derision and reproach! And nowadays if a man is very reverent towards the Word of God and very desirous to obey the Lord's commands in everything, people say, "He is very precise," and they shun him. Or, with still more acrimony they say, "He is very bigoted. He is not a man of liberal spirit." And so they cast out his name as evil.
 
 Bigotry, in modern parlance, you know, means giving heed to old truths in preference to novel theories. And a liberal spirit, nowadays, means liberal with God's Law, liberal with God's doctrine, liberal to believe that a lie is a truth, that black is white and that white may occasionally be black. The Broad Church school; from which may God continually deliver us, for there is something true in the world, after all, and we shall get wrong in heart and rotten at the core if we think there is not! Only God is pleased to say that the man who trembles at His Word, the man of broken heart, the man who is poor in spirit is; these, and these only, the men in whom He will dwell!
 
@@ -67,14 +70,14 @@ Oh, what a mercy it is to be made weak, feeble, dead, hopeless, helpless and los
 
 You have begun to appeal for mercy. Oh, then, God's mercy will come, for mercy delights to visit misery! Mercy is always at home where there is a sinner confessing sin:
 
-> Mercy is welcome news, indeed,   
-> To those that guilty stand.   
-> Wretches, that feel what help they need,   
-> Will bless the helping hand.   
-> We all have sinned against our God,   
-> Exception none can boast.   
-> But he that feels the heaviest load   
-> Will prize forgiveness most.   
+> Mercy is welcome news, indeed,  
+> To those that guilty stand.  
+> Wretches, that feel what help they need,  
+> Will bless the helping hand.  
+> We all have sinned against our God,  
+> Exception none can boast.  
+> But he that feels the heaviest load  
+> Will prize forgiveness most.  
 
 Besides, I know what will happen to you if you are of a broken spirit. You will value the society of Jesus. None love Christ so well as those that hate themselves for their sin. He that strips himself of all pretensions of his own will admires much and longs most passionately for the robe of righteousness which Christ provides.
 
@@ -100,47 +103,29 @@ I should like to be the means of comfort to some contrite spirit tonight. Very l
 
 There is salvation in no other, but there is salvation in the crucified Redeemer:
 
-"There is life for a look at the Crucified One.
+> There is life for a look at the Crucified One.  
+> There is life at this moment for you!  
+> Then look, Sinner; look unto Him and be saved!  
+> Look unto Him who was nailed to the tree.  
+> It is not your tears of repentance or prayers,  
+> But the blood that atones for the soul.  
+> On Him, then, who shed it, believing, at once,  
+> Your weight of iniquities roll.  
+> His anguish of soul on the Cross have you seen?  
+> His cry of distress have you heard?  
+> Then why, if the terrors of wrath He endured,  
+> Should pardon, to you, be deferred?  
+> We are healed by His stripes;  
+> Would you add to the word?  
+> And He is our righteousness made:  
+> The best robe of Heaven He bids you put on!  
+> Oh, could you be better arrayed?  
+> Then doubt not your welcome, since God has declared,  
+> There remains no more to be done!  
+> That once in the end of the world He appeared  
+> And completed the work He begun.  
 
-There is life at this moment for you!
-
-Then look, Sinner; look unto Him and be saved!
-
-Look unto Him who was nailed to the tree.
-
-It is not your tears of repentance or prayers,
-
-But the blood that atones for the soul.
-
-On Him, then, who shed it, believing, at once,
-
-Your weight of iniquities roll.
-
-His anguish of soul on the Cross have you seen?
-
-His cry of distress have you heard?
-
-Then why, if the terrors of wrath He endured,
-
-Should pardon, to you, be deferred?
-
-We are healed by His stripes;
-
-Would you add to the word?
-
-And He is our righteousness made:
-
-The best robe of Heaven He bids you put on!
-
-Oh, could you be better arrayed?
-
-Then doubt not your welcome, since God has declared,
-
-There remains no more to be done!
-
-That once in the end of the world He appeared
-
-And completed the work He begun." Look to Jesus, and rest your soul at the foot of His cross and if you don't get life today, or tomorrow, you will get it! And if you have not joy and peace in believing for many a day, it will come; it must come; for God will sooner or later look to him that is poor and of a contrite spirit and that trembles at His Word.
+Look to Jesus, and rest your soul at the foot of His cross and if you don't get life today, or tomorrow, you will get it! And if you have not joy and peace in believing for many a day, it will come; it must come; for God will sooner or later look to him that is poor and of a contrite spirit and that trembles at His Word.
 
 Now, many will go away and laugh, and say, "Well, I understand nothing about that." Poor heart! The more's the pity! If you live and die not knowing this, your lot will be worse than if you had never been born! The Lord have mercy on you! Though your pocket is lined with gold and your back covered with the finest clothes and though your house is full of splendid furniture and children on your knee, God have mercy on you if you have never known what a contrite spirit means! For, as the Lord lives, a terrible end will be yours. An end without end, forever and forever!
 

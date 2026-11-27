@@ -43,7 +43,10 @@ Since the garden is His own, He will not suffer even the least plant to perish. 
 
 The next word denotes cultivation. "I am come into My garden." The Church is a cultivated spot. It did not spring up by chance, it was arranged by Himself. It has been tended by Himself, and the fruits belong to Himself. Thankful are we if we can truly know that as a Church.
 
-"We are a garden walled around, Chosen and made peculiar ground." Christ, the Great Cultivator, exercises care and skill in training His people, and He delights to see His own handiwork in them.
+> We are a garden walled around,  
+> Chosen and made peculiar ground.  
+
+Christ, the Great Cultivator, exercises care and skill in training His people, and He delights to see His own handiwork in them.
 
 And then there are the two choice words at the close by which He speaks of His Church, herself, rather than of her work. As if He would draw the attention of His people to themselves and to Himself, rather than to their work. He says, "My Sister, My Spouse." There is one name for the garden, but there are two names for herself. The work is His work, the garden is His garden, but see, He wants communion not so much with the work as with the worker, He speaks to the Church herself. He calls her, "My Sister, My Spouse." "Spouse" has something in it of dearness that is not in the first word, for what can be dearer to the husband than the bride?
 

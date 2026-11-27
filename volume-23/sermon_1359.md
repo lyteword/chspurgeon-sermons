@@ -1,6 +1,6 @@
 # Sermon 1359 | Happiness, the Privilege and Duty of Christians
 
-> Happy are you, O Israel; who is like unto you? Opeople saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places.  
+> Happy are you, O Israel; who is like unto you? O people saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places.  
 > Deuteronomy 33:29  
 
 These are the last recorded words of Moses and they are significant, for they show us that he found comfort, in his dying moments, in considering the happiness of the people for whom he had labored all his life. From the day when, by God's power, he led them up out of Egypt and brought them into the wilderness, they had never ceased to lie near his heart. They had been a very heavy burden to him at times, but with marvelous meekness and patience he had borne with their many rebellious provocations and only once spoken bitterly of them. Oftentimes had he stood in the gap and made intercession for them, when otherwise they would have been destroyed. He had, for their sakes, given up the most glorious prospect that was ever proposed to the mind of man, for the Lord had said to him in secret, "Let Me alone, that I may destroy them; and I will make of you a greater nation."
@@ -64,7 +64,12 @@ You felt that to say, "My Beloved is mine and I am His," was the very essence of
 
 Have you not, also, somewhat neglected to survey your hopes? What if you have little of this world? Look at what is laid up in store for you hereafter! Within a few years, at the outside, you are to be with the angels where no dust of toil shall ever stain your garments! Where no sweat of labor shall stand upon your brow! Where no care shall scourge the heart and no sorrow dim the eyes! Grief, loss, bereavement, or need shall never approach you there! You are of the imperial blood and you are soon to be acknowledged as a peer of Heaven's own realm! The day of your accession to sacred honors hastens on. It may be but a week or two that the bliss will tarry, even a few hours may be the only interval and we shall stand beatified among the perfected ones who see God's face without a veil between!
 
-We have every reason to be happy and if we are not so, it must be because we fail to remember the privileges which our Lord has bestowed upon us. Let me stir you up, my Brothers and Sisters, to happiness this morning: "Why should the children of a King Go mourning all their days? Come, cease to groan, and loudly sing a Psalm of gladsome praise."
+We have every reason to be happy and if we are not so, it must be because we fail to remember the privileges which our Lord has bestowed upon us. Let me stir you up, my Brothers and Sisters, to happiness this morning:
+
+> Why should the children of a King  
+> Go mourning all their days?  
+> Come, cease to groan, and loudly sing  
+> A Psalm of gladsome praise.  
 
 What a blessed task is mine, to urge my Brothers and Sisters to be happy! How highly favored are you to be exhorted to so delicious a privilege! When happiness becomes a duty, who will not be glad? What a blessed people are they to whom to be delighted is but to obey the Divine command to rejoice in the Lord. An obligation as well as a privilege! My Brethren, I would urge you to rejoice, this morning, because if you are, indeed, believers in Christ, you are "a people saved by the Lord."
 
@@ -92,7 +97,7 @@ Many evils would injure you and even destroy you, if they could, but Jehovah Jes
 > Afflict me day by day.  
 > Yet they never can prevail,  
 > God defends His people still!  
-> Jesus 'power can never fail  
+> Jesus' power can never fail  
 > To save from all that's ill.  
 
 See how the Lord our God has interposed, already, on innumerable occasions. We have been laid low by sickness, but it has worked our spiritual health. We have experienced losses, but we have been enriched by them in the highest sense. We have even endured calumny, but our character is still as bright as ever through the gracious protection of our God. We have been assailed by temptation, but the evil influence did not enter our spirit, so as to pollute it, for just then Divine Grace came in to prevent our yielding to the vile suggestion. We have been the subjects of much doubt and skepticism, but always, when these have flown at us like vultures, God, Himself, in infinite love, has turned aside their fierce attacks.
@@ -125,7 +130,10 @@ A man will never be dazzled with gold who has his heart satiated with God. Unhap
 
 Have you begun to be lukewarm? Has your heart declined in affection? Nothing can make your soul return to its first love like the Lord's return and the restoration of the old happiness. Yes, I am saved. Yes, I am shielded. Yes, I bear His sword with which to smite my foes. Yes, I shall triumph through the blood of the Lamb and there is a portion for me at His right hand. Well, then, the next thought is therefore blessed be His dear name, I do love Him! I thought I did not, but when I begin to see what He has done for me and what He has given me and provided for me, I find my sluggish heart beating at a quicker rate.
 
-"Yes, I love Him and adore, Oh for Grace to love Him more." That is a good result to come of being happy. "Therefore comfort you, comfort you My people, says the Lord; speak you comfortably unto Jerusalem."
+> Yes, I love Him and adore,  
+> Oh for Grace to love Him more.  
+
+That is a good result to come of being happy. "Therefore comfort you, comfort you My people, says the Lord; speak you comfortably unto Jerusalem."
 
 Joy, also, will have another effect. It will give you confidence to expect other blessings. Because God has dealt so well with us in the past, we are persuaded that goodness and mercy will follow us all our days. If now, today, Beloved, you will survey the goodness of God to you in the past, you will feel confidence that when new troubles arise you will be helped in them and when new mercies are needed, they shall be supplied, "new every morning." Gratitude for the past inspires us with courage for the future. And so, too, you will gain strength for bearing all your burdens and courage for facing all your enemies. Has the Lord done so much to make us happy? Then He will not deny us anything! He who has given us so much, already, will be sure to sustain us and supply our needs out of His all-sufficiency until we have trampled down every foe and shall rest forever at His right hand.
 

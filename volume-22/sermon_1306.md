@@ -1,6 +1,6 @@
 # Sermon 1306 | Fat Things, Full of Marrow
 
-> For a small moment have I forsaken you, but with great mercies will I gather you. In a little wrath I hid My face from you for a moment, but with everlasting kindness will I have mercy on you, says the Lord your Redeemer. For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go o ver the earth, so have I sworn that I would not be angry with you nor rebuke you. For the mountains shall depart, and the hills be removed; but My kindness shall not depart from you, neither shall the Co venant of My peace be remo ved, says the Lord that has mercy on you.  
+> For a small moment have I forsaken you, but with great mercies will I gather you. In a little wrath I hid My face from you for a moment, but with everlasting kindness will I have mercy on you, says the Lord your Redeemer. For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go over the earth, so have I sworn that I would not be angry with you nor rebuke you. For the mountains shall depart, and the hills be removed; but My kindness shall not depart from you, neither shall the Covenant of My peace be removed, says the Lord that has mercy on you.  
 > Isaiah 54:7-10  
 
 This precious passage is the property of all true Believers in the Lord Jesus Christ. We might not have ventured to say this if it were not for the last verse of the chapter, which assures us that it is so. "This is the heritage of the servants of the Lord, and their righteousness is of Me, says the Lord." The matchless promises and assurances of this chapter do not belong to the Jews, alone, nor only to the Gentile Church, nor even exclusively to the whole Church considered as a community; they are the property of all who are sons and servants of the living God. Isaiah speaks of both sonship and service. "This is the heritage," or portion obtained by heirship, which implies sonship. The promise, then, is ours, if we have been born into the family of Grace.
@@ -15,13 +15,14 @@ You will never have faith enough to comprehend the extent of the heritage prepar
 
 The people of God are often very severely afflicted. They are tried in Providence and they are vexed by the wicked among whom they dwell. At times it seems as if their lot were far less desirable than that of the ungodly. The best of saints have been tempted to envy the worst of sinners when they have seen them in great power, spreading themselves as a green bay tree, while they, themselves, have been as withered plants. The saints are chastened and the sinners are enriched: this is no small test of faith! What is worse, at times the children of God are the subjects of great spiritual griefs and derive no comfort from their religion. They judge themselves to be deserted by their God and they enquire within themselves, "Is His mercy clean gone forever? Will He be favorable no more?"
 
-Then the joy of their heart ceases and their music is turned into mourning. At such times there is powerful comfort for the child of God in the fact that, whatever the Lord may do with him, He cannot be angry with him, nor rebuke him in the weightiest sense of those words. Since Jesus has made complete atonement on our behalf, there may be much that is bitter in our cup, but there cannot be in it even a single drop of judicial punishment for sin, because Christ has borne all that Justice could indict! It would be inconsistent with the integrity of the Most High, first to execute vengeance upon the Surety, and then to call His people to account for the sin which that Surety has put away! There is not, therefore, in all the chastisements which God lays upon us so much as a single trace of punitive wrath: 
-Death and the curse were in our cup: 
-O Christ, Christ, 'twas full for You! 
-But You ha ve drained the last dark drop, 
-'Tis empty now for me: 
-That bitter cup, love drank it up, 
-Now blessing's left for me. 
+Then the joy of their heart ceases and their music is turned into mourning. At such times there is powerful comfort for the child of God in the fact that, whatever the Lord may do with him, He cannot be angry with him, nor rebuke him in the weightiest sense of those words. Since Jesus has made complete atonement on our behalf, there may be much that is bitter in our cup, but there cannot be in it even a single drop of judicial punishment for sin, because Christ has borne all that Justice could indict! It would be inconsistent with the integrity of the Most High, first to execute vengeance upon the Surety, and then to call His people to account for the sin which that Surety has put away! There is not, therefore, in all the chastisements which God lays upon us so much as a single trace of punitive wrath:
+
+> Death and the curse were in our cup:  
+> O Christ, Christ, 'twas full for You!  
+> But You have drained the last dark drop,  
+> 'Tis empty now for me:  
+> That bitter cup, love drank it up,  
+> Now blessing's left for me.  
 
 The punishment for sin has been executed once and for all upon Jesus Christ our Savior! And now, if ever there is wrath on God's part towards His people, it is of quite another kind from that with which He visits the unbelieving world. Towards the ungodly He is a Judge and He summons them to judgment and executes His righteous sentences upon them. But we who are in Christ have virtually died in Him and upon us Justice has executed its sentence in the Person of our great Substitute. Therefore the Law cannot make any further demands upon us. We are, from now on, the children of God and have come under another discipline altogether: the discipline of a loving father towards his family. The Lord may be angry with us as a father is angry with his child, but never as a judge is angry with a criminal.
 
@@ -31,21 +32,18 @@ The first subject, then, is what the Lord calls His, "little wrath." Let us spea
 
 The terrors of a slave are not needed to keep the children of God in order. The filial fear which trembles at a father's frown is quite sufficient. Let God but hide His face and we are troubled. We do not, therefore, despise the chastening of the Lord, or think little of His fatherly anger. On the contrary, we are weary with crying, our eyes fail while we wait for our God. Our entreaty is, "Hide not Your face from Your servant; for I am in trouble: hear me speedily." It breaks our hearts to think that we should grieve our God! This pain of heart is a very proper feeling, but it may be perverted by unbelief into the occasion of sin. We may conclude from the chastening rod that the Lord is about to destroy us: though He has plainly said, "Fury is not in Me."
 
-We may falsely conclude, as the text seems to hint, that God has utterly forsaken us and hidden His face forever. When we prayed, we enjoyed no liberty and felt no access to the Mercy Seat. When we tried to sing, our hosannas fell flat from our tongues. When we went to the assembly of the saints, we no longer beheld the Glory of the Lord as we had, be- fore, seen Him in His sanctuary. When we opened the Bible, its choicest promises appeared to be as dry bones from which the marrow is taken and, therefore, we concluded that all was over with us, that God had forsaken us! And we, therefore, feared that nothing remained for us but eternal destruction: "If sometimes I strive, as I mourn,
+We may falsely conclude, as the text seems to hint, that God has utterly forsaken us and hidden His face forever. When we prayed, we enjoyed no liberty and felt no access to the Mercy Seat. When we tried to sing, our hosannas fell flat from our tongues. When we went to the assembly of the saints, we no longer beheld the Glory of the Lord as we had, before, seen Him in His sanctuary. When we opened the Bible, its choicest promises appeared to be as dry bones from which the marrow is taken and, therefore, we concluded that all was over with us, that God had forsaken us! And we, therefore, feared that nothing remained for us but eternal destruction:
 
-My hold of Your promise to keep,
+> If sometimes I strive, as I mourn,  
+> My hold of Your promise to keep,  
+> The billows more fiercely return,  
+> And plunge me again in the deep.  
+> While harassed and cast from Your sight,  
+> The tempter suggests with a roar,  
+> 'The Lord has forsaken you quite:  
+> Your God will be gracious no more!'  
 
-The billows more fiercely return,
-
-And plunge me again in the deep.
-
-While harassed and cast from Your sight,
-
-The tempter suggests with a roar,
-
-'The Lord has forsaken you quite:
-
-Your God will be gracious no more!'" This dark estimate of our affairs is not God's view of them! He knows that He has not utterly or finally withdrawn, but He puts it thus: "For a small moment have I forsaken you." It is but a partial departure under which the saint is suffering: the small moment will soon be over. The tried one is enduring only a partial and transient withdrawal of the light of His Countenance, for the Lord says, "In a little wrath I hid My face from you for a moment."
+This dark estimate of our affairs is not God's view of them! He knows that He has not utterly or finally withdrawn, but He puts it thus: "For a small moment have I forsaken you." It is but a partial departure under which the saint is suffering: the small moment will soon be over. The tried one is enduring only a partial and transient withdrawal of the light of His Countenance, for the Lord says, "In a little wrath I hid My face from you for a moment."
 
 I suppose if we were quite new in this world and had never seen the sun descend below the horizon, we should conclude at his setting that we were about to be plunged into everlasting darkness! We have now become so accustomed to see him set and rise again, that evening causes us no alarm. Well, child of God, I trust you will not, for an instant, lose the light of your Father's countenance, but if you should do so, it will return again; He has not forsaken you altogether nor forever! Weeping shall have its night, but joy's bright morning will follow, for the Lord will not cast off forever. And though He causes grief, yet will He have compassion according to the multitude of His mercies.
 
@@ -77,7 +75,10 @@ It is such wrath as is consistent with love: "for a while I spoke against him. I
 
 I have not time to linger where there is so much to detain us, but we will notice, next, that the expression of His little anger is not, after all, so extremely severe, for what does it say? "I hid My face." The face of the Lord is against them that do evil, to cut off the remembrance of them from the earth. But our text does not say, "I turned My face against you," but only, "I hid My face from you." I grant that this is painful, but still, there is this sweet reflection: why does He hide His face? It is because the sight of it would be pleasant to us! It is a face of love, for if it were a face of anger He would not need to hide it from His erring child! If it were an angry face and He wished to chasten us, He would unveil it. And, therefore, we may be sure that He covers it because it is so bright with everlasting love that if it could be seen, no chastisement would be felt by us.
 
-See, then, that: "Behind a frowning Providence He hides a smiling face."
+See, then, that:
+
+> Behind a frowning Providence  
+> He hides a smiling face.  
 
 His hidden love is true love and it hides itself because it is so. Remember that we might have been plunged in outer darkness and have felt the crushing blows of the iron rod. But, as it is, we are only put under His frown for a time: "He has not dealt with us after our sins; nor rewarded us according to our iniquities." Be it ours to humble ourselves under the mighty hand of God, but let us not despise the chastening of the Lord, nor faint when we are corrected by Him, for whom the Lord loves He chastens and scourges every son whom He receives. Let us neither despair nor distrust our God, nor think that we are the objects of His great Wrath when, indeed, we are only feeling His fatherly anger, which is only a form of His wise and deep love.
 
@@ -95,9 +96,16 @@ I should not wonder but what the first shower of rain that fell, after he came o
 
 His great Wrath is over. The flood of old lasted six months and more and, during that time, there was neither sowing nor reaping, but the Lord has said that never again shall a flood interrupt the operations of Nature. "Seed time and harvest," said He, "summer and winter shall not cease." And they have not ceased! Go, now, into the fields and see how loaded they are with the fruits of the earth which are ripening for the sickle! Note, then, that as God has not suffered the seasons to be suspended by another flood, though thousands of years have passed away, so it is certain that He will not spend your spiritual life, nor take from you the blessings of His Covenant by letting out His great Wrath against you. He says He will not, and, Brothers and Sisters, it were something like blasphemy to indulge a doubt about this.
 
-My text suggests to me that we have ample security that the great Wrath of God will never break out against us, for it has broken out against us once. The waters of Noah did go over the earth once, but never twice. Now, the great Wrath of God can never break forth against His redeemed because it has already broken forth against them! Do you not remember it? It was on that dark, that doleful night, when our great Covenant Head and Representative was in the garden all alone. And then the flood began to rise and rage and He said, "My soul is exceedingly sorrowful, even unto death." There was a sight in the garden that night such as none of us have ever seen: "Immanuel, sunk with dreadful woe, Unfelt, unknown to all below; except the Son of God; in agonizing pangs of soul, Drinks deep of wormwood's bitterest bowl, And sweats great drops of blood."
+My text suggests to me that we have ample security that the great Wrath of God will never break out against us, for it has broken out against us once. The waters of Noah did go over the earth once, but never twice. Now, the great Wrath of God can never break forth against His redeemed because it has already broken forth against them! Do you not remember it? It was on that dark, that doleful night, when our great Covenant Head and Representative was in the garden all alone. And then the flood began to rise and rage and He said, "My soul is exceedingly sorrowful, even unto death." There was a sight in the garden that night such as none of us have ever seen:
 
-The floods lifted up their voice, the cataracts of wrath descended and the great deeps opened up from beneath to overwhelm His spirit! The waters came in, even unto His soul! You know what happened to Him in Pilate's Hall and among the soldiers; how He hid not His face from shame and spitting while He bowed His back to the smiter's lash. And you remember, well, how they took Him to the Cross and nailed Him there, your Lord and mine. "It pleased the Father to bruise Him: He has put Him to grief." He made His soul an offering for sin and laid on Him the iniquities of us all. The Father hid His face from Him and refused to smile on the sinner's Substitute! The tempest had came to its highest! The floods were out 20 cubits above the tops of the mountains when our Lord cried out, "My God, My God, why have You forsaken Me?"
+> Immanuel, sunk with dreadful woe,  
+> Unfelt, unknown to all below,  
+> Except the Son of God;  
+> In agonizing pangs of soul,  
+> Drinks deep of wormwood's bitterest bowl,  
+> And sweats great drops of blood.  
+
+The floods lifted up their voice, the cataracts of wrath descended and the great deeps opened up from beneath to overwhelm His spirit! The waters came in, even unto His soul! You know what happened to Him in Pilate's Hall and among the soldiers; how He hid not His face from shame and spitting while He bowed His back to the smiter's lash. And you remember, well, how they took Him to the Cross and nailed Him there, your Lord and mine. "It pleased the Father to bruise Him: He has put Him to grief." He made His soul an offering for sin and laid on Him the iniquities of us all. The Father hid His face from Him and refused to smile on the sinner's Substitute! The tempest had came to its highest! The floods were out twenty cubits above the tops of the mountains when our Lord cried out, "My God, My God, why have You forsaken Me?"
 
 The flood was then at its height, even that flood of great Wrath which was due to us for sin! In the death of the Lord Jesus we died! We were crucified in Him! In Him we bore the punishment for sin! The Lord has laid on Him the iniquity of us all. Take it for a stable maxim which can never be denied, that two judgments can never be meted out for the same offense. Neither the laws of earth nor Heaven will permit that the Substitute should bleed and then that the penalty should, a second time, be demanded! Where would be the value of the Atonement if such could be the case? Jesus has paid our debts and, therefore, we are out of debt! He has taken the handwriting of ordinances which were against us and nailed it to His Cross: there is the receipt for all our debts, fastened up before Heaven and Hell upon the Cross of Christ!
 
@@ -105,13 +113,14 @@ The flood was then at its height, even that flood of great Wrath which was due t
 
 Does anybody know how far in the broad heavens east is from the west? In the vastness of space no boundary can be imagined in either direction and, therefore, the distance is inconceivable. If the great enemy were to try and bring back our sins, it would take him an eternity to do it and, meanwhile, we shall be safe in Heaven! What is said concerning the Lord in the Book of Micah? "He will subdue our iniquities; and You will cast all their sins into the depths of the sea." Does anybody know how deep the sea is? In some places it is said to be unfathomable! Can we find, again, that which is cast into the deeps? Our sins are cast by our Lord Jesus into deeps where no line will ever reach them. Glory be to His name for this!
 
-Another text flashes upon my memory. "In those days, and in that time, says the Lord, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found." Take this again: "I have blotted out, as a thick cloud, your transgressions, and as a cloud your sins." The texts which speak to this effect are many! Time would fail us to mention them all, but their sum and substance is that Jesus Christ, our great Covenant Surety, was made a curse for us and has, thereby, redeemed us from the curse of the Law. You see, then, my drift. The floods of great Wrath have been out; they have rolled over the dear Redeemer's sacred Person and spent their fury!: 
-The tempest's awful voice was heard! 
-O Christ, it broke on You! 
-Your open bosom was my ward, 
-It bra ved the storm for me. 
-Your form was scarred, Your visage marred; 
-Now cloudless peace for me. 
+Another text flashes upon my memory. "In those days, and in that time, says the Lord, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found." Take this again: "I have blotted out, as a thick cloud, your transgressions, and as a cloud your sins." The texts which speak to this effect are many! Time would fail us to mention them all, but their sum and substance is that Jesus Christ, our great Covenant Surety, was made a curse for us and has, thereby, redeemed us from the curse of the Law. You see, then, my drift. The floods of great Wrath have been out; they have rolled over the dear Redeemer's sacred Person and spent their fury!
+
+> The tempest's awful voice was heard!  
+> O Christ, it broke on You!  
+> Your open bosom was my ward,  
+> It braved the storm for me.  
+> Your form was scarred, Your visage marred;  
+> Now cloudless peace for me.  
 
 It is absolutely certain that there never shall be a second flood, either of water to drown the world, or of Divine Wrath to overwhelm the souls of the redeemed! What joy is this!
 
@@ -134,5 +143,3 @@ My Brothers and Sisters, do you believe this? If you do, you ought to be as happ
 As for you who have no portion in Divine realities, what do you possess that is worth having? O you who are seeking the world, but are despising Covenant mercies, it were better for you that you had never been born! "What shall it profit a man if he gains the whole world and lose his own soul?" Think upon this, and consider your ways. And there is this encouragement for you, that all through our text the leading note is mercy. Look at the seventh verse, "With great mercies will I gather you." Look at the eighth verse, "Will I have mercy on you." The Word of God drips with mercy! Remember, also, that if any of us have obtained these Covenant promises, we were no better than you by nature and we had no more meritorious right to them than you have!
 
 But God, in infinite distinguishing Grace, was pleased to bring us into the enjoyment of these privileges: why should He not bring you also? If salvation were by merit, there would be no Gospel! But as it is of mercy, free mercy, rich mercy; here is good news for you! Dear heart, if you would be forgiven, Christ is ready to forgive! If you would have peace with God, that peace is made! If you believe in the Lord Jesus Christ you shall be saved, even as they are who are, this day, rejoicing in His complete redemption! The Lord bring you this day to confess your sin humbly, to look up to Christ believingly and to find salvation through the blood of the Lamb! Amen.
-
-Portion of Scripture read before sermon: Isaiah 54. Hymns from "Our Own Hymn Book": 245, 738.

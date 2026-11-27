@@ -25,14 +25,14 @@ It is to be feared that some of our praise ascends nowhere at all, but it is as 
 
 Note, next, that it should be continual. "Praise waiteth for thee, O God, in Zion." Some translators conceive that the main idea is that of continuance. It remains; it abides; for Zion does not break up when the assembly is gone. We do not leave the holiness in the material house, for it never was in the stone and the timber, but only in the living souls of the faithful.
 
-> Jesus, where'er thy people meet,   
-> There they behold thy mercy-seat;   
-> Where'er they seek thee, thou art found,   
-> And every place is hallowed ground,   
-> For thou within no walls confined,   
-> Inhabitest the humble mind;   
-> Such ever bring thee where they come,   
-> And going, take thee to their home.   
+> Jesus, where'er thy people meet,  
+> There they behold thy mercy-seat;  
+> Where'er they seek thee, thou art found,  
+> And every place is hallowed ground,  
+> For thou within no walls confined,  
+> Inhabitest the humble mind;  
+> Such ever bring thee where they come,  
+> And going, take thee to their home.  
 
 The people of God, as they never cease to be a church, should maintain the Lord's praise perpetually as a community. Their assemblies should begin with praise and end with praise, and ever be conducted in a spirit of praise. There should be in all our solemn assemblies a spiritual incense altar, always smoking with "the pure incense of sweet spices, mingled according to the art of the apothecary": the thanksgiving which is made up of humility, gratitude, love, consecration, and holy joy in the Lord. It should be for the Lord alone, and it should never go out day nor night. "His mercy endureth forever:" let our praises endure forever. He makes the outgoings of the morning to rejoice, let us celebrate the rising of the sun with holy psalm and hymn. He makes the closing in of the evening to be glad, let him have our vesper praise. "One generation shall praise thy works to another, and shall declare thy mighty acts." Could his mercy cease, there might be some excuse for staying our praises: but, even should it seem to be so, men who love the Lord would say with Job, "Shall we receive good at the hand of the Lord, and shall we not also receive evil? The Lord gave, and the Lord hath taken away; and blessed be the name of the Lord." Let our praise abide, continue, remain, and be perpetual. It was a good idea of Bishop Farrar, that, in his own house he would keep up continual praise to God, and as, with a large family and household, he numbered just twenty-four, he set apart each one for an hour in the day to be engaged specially in prayer and praise, that he might girdle the day with a circle of worship. We could not do that. To attempt it might on our part be superstition; but to fall asleep blessing God, to rise in the night to meditate on him, and when we wake in the morning to feel our hearts leap in the prospect of his presence during the day, this is attainable, and we ought to reach it. It is much to be desired that all day long, in every avocation, and every recreation, the soul should spontaneously pour forth praise, even as birds sing, and flowers perfume the air, and sunbeams cheer the earth. We would be incarnate psalmody, praise enshrined in flesh and blood. From this delightful duty we would desire no cessation, and ask no pause. "Praise waiteth for thee, O God, in Zion;" thy praise may come and go, from the outside world, where all things ebb and flow, for it lies beneath the moon, and there is no stability in it; but amidst thy people, who dwell in thee, and who possess eternal life, in them thy praise perpetually abides.
 
@@ -40,8 +40,8 @@ A third point, however, is clear upon the surface of the words. "Praise waiteth 
 
 But, perhaps, you are aware, dear friends, that there are other translations of this verse. "Praise waiteth for thee," may be read, "Praise is silent unto thee," "is silent before thee." One of the oldest Latin commentators reads it, "Praise and silence belong unto thee;" and Dr. Gill tells us, that in the King of Spain's Bible, it runs, "The praise of angels is only silence before thee, O Jehovah," so that when we do our best, our highest praise is but silence before God, and we must praise him with confession of shortcomings. Oh, that we too, as our poet puts it, might,
 
-> Loud as his thunders speak his praise,   
-> And sound it lofty as his throne!   
+> Loud as his thunders speak his praise,  
+> And sound it lofty as his throne!  
 
 But we cannot do that, and when our notes are most uplifted, and our hearts most joyous, we have not spoken all his praise. Compared to what his nature and glory deserve, our most earnest praise has been little more than silence. Oh, brethren, have you not often felt it to be so? Those who are satisfied with formal worship, think that they have done well when the music has been correctly sung; but those who worship God in spirit, feel that they cannot magnify him enough. They blush over the hymns they sing, and retire from the assembly of the saints mourning that they have fallen far short of his glory. O for an enlarged mind, rightly to conceive the divine majesty; next for the gift of utterance to clothe the thought in fitting language; and then for a voice like many waters, to sound forth the noble strain. Alas! as yet, we are humbled at our failures to praise the Lord as we would.
 
@@ -49,17 +49,17 @@ Words are but air, and tongues but clay, and his compassions are divine. How, th
 
 Yet it may be well to observe here, that the praise which God accepts, presents itself under a variety of forms. There is praise for God in Zion, and it is often spoken; but there is often praise for God in Zion, and it is silence. There are some who cannot sing vocally, but perhaps, before God, they sing best. There are some, I know, who sing very harshly and inharmoniously, that is to say, to our ears; and yet God may accept them rather than the noise of stringed instruments carefully touched. There is a story told of Rowland Hill's being much troubled by a good old lady who would sit near him and sing with a most horrible voice, and very loudly, as those people generally do who sing badly, and he at last begged her not to sing so loudly. But when she said, "It comes from my heart," the honest man of God retracted his rebuke, and said, "Sing away, I should be sorry to stop you." When praise comes from the heart, who would wish to restrain it? Even the shouts of the old Methodists, their "hallelujahs" and "glorys," when uttered in fervor, were not to be forbidden; for if these should hold their peace, even the stones would cry out. But there are times when those who sing, and sing well, have too much praise in their soul for it to enclose itself in words. Like some strong liquors which cannot use a little vent, but foam and swell until they burst each hoop that binds the barrel; so, sometimes, we want a larger channel for our soul than that of mouth and tongue, and we long to have all our nerves and sinews made into harpstrings, and all the pores of our body made mouths of thankfulness. Oh, that we could praise with our whole nature, not one single hair of our heads, or drop of blood in our veins, keeping back from adoring the Most High! When this desire for praise is most vehement, we fall back upon silence, and quiver with the adoration which we cannot speak. Silence becomes our praise.
 
-> A sacred reverence checks our songs,   
-> And praise sits silent on our tongues.   
+> A sacred reverence checks our songs,  
+> And praise sits silent on our tongues.  
 
 It would be well, perhaps, in our public service, if we had more often the sweet relief of silence. I am persuaded that silence, ay, frequent silence, is most beneficial; and the occasional unanimous silence of all the saints when they bow before God would, perhaps, better express, and more fully promote, devout feeling than any hymns which have been composed or songs that could be sung. To make silence a part of worship habitually might be affectation and formalism, but to introduce it occasionally, and even frequently into the service, would be advantageous and profitable. Let us, then, by our silence, praise God, and let us always confess that our praise, compared with God's deserving, is but silence.
 
 I would add that there is in the text the idea that praise waits for God expectantly. When we praise God, we expect to see more of him by and by, and therefore wait for him. We bless the King, but we desire to draw nearer to him. We magnify him for what we have seen, and we expect to see more. We praise him in his outer courts, for we shall soon be with him in the heavenly mansions. We glorify him for the revelation of himself in Jesus, for we expect to be like Christ, and to be with him where he is. When I cannot praise God for what I am, I will praise him for what I shall be. When I feel dull and dead about the present, I will take the words of our delightful hymn and say,
 
-> And a new song is in my mouth,   
-> To long-loved music set;   
-> Glory to thee for all the grace   
-> I have not tasted yet.   
+> And a new song is in my mouth,  
+> To long-loved music set;  
+> Glory to thee for all the grace  
+> I have not tasted yet.  
 
 My praise shall not only be the psalmody of the past, which is but discharging a debt of gratitude, but my faith shall anticipate the future, and wait upon God to fulfill his purposes; and I will begin to pay my praise even before the mercy comes.
 
@@ -73,27 +73,27 @@ We are not given to vow-making in these days. Time was when it was far oftener d
 
 Beloved, many of us did, in effect, make a most solemn vow at the time of our baptism. We were buried with Christ in baptism unto death, and, unless we were greatly dissembling, we avowed that we were dead in Christ and buried with him; wherein, also, we professed that we were risen with him. Now, shall the world live in those who are dead to it, and shall Christ's life be absent from those who are risen with him? We gave ourselves up there and then, in that solemn act of mystic burial. Recall that scene, I pray you; and as you do it blush, and ask God that your vow may yet be performed, as Doddridge well expresses it:
 
-> Baptised into your Saviour's death   
-> Your souls to sin must die;   
-> With Christ your Lord ye live anew,   
-> With Christ ascend on high.   
+> Baptised into your Saviour's death  
+> Your souls to sin must die;  
+> With Christ your Lord ye live anew,  
+> With Christ ascend on high.  
 
 Some such vow we made, too, when we united ourselves to the church of God. There was an understood compact between us and the church, that we would serve it, that we would seek to honor Christ by holy living, increase the church by propagating the faith, seek its unity, its comfort, by our own love and sympathy with the members. We had no right to join with the church if we did not mean to give ourselves up to it, under Christ, to aid in its prosperity and increase. There was a stipulation made, and a covenant understood, when we entered into communion and league with our brethren in Christ. How about that? Can we say that, as unto God and in his sight, the vow has been performed? Yes, we have been true to our covenant in a measure, brethren. Oh, that it were more fully so! Some of us made another vow, when we gave ourselves, as I trust, under divine call, altogether to the work of the Christian ministry; and though we have taken no orders, and received no earthly ordination, for we are no believers in man-made priests, yet tacitly it is understood that the man who becomes a minister of the church of God is to give his whole time to his work, that body, soul, and spirit should be thrown into the cause of Christ. Oh, that this vow were more fully performed by pastors of the church! You, my brethren, elders and deacons, when you accepted office, you knew what the church meant. She expected holiness and zeal of you. The Holy Ghost made you overseers that you might feed the flock of God. Your office proves your obligation. You are practically under a vow. Has that vow been performed? Have you performed it in Zion unto the Lord?
 
 Besides that, it has been the habit of godly men to make vows occasionally, in times of pain, and losses, and affliction. Did not the psalm we just now sing prove it so?
 
-> Among the saints that fill thine house,   
-> My offerings shall be paid;   
-> There shall my zeal perform the vows   
-> My soul in anguish made.   
-> Now I am thine, forever thine,   
-> Nor shall my purpose move!   
-> Thy hand hath loosed my bands of pain,   
-> And bound me with thy love.   
-> Here in thy courts I leave my vow,   
-> And thy rich grace record;   
-> Witness, ye saints, who hear me now,   
-> If I forsake the Lord.   
+> Among the saints that fill thine house,  
+> My offerings shall be paid;  
+> There shall my zeal perform the vows  
+> My soul in anguish made.  
+> Now I am thine, forever thine,  
+> Nor shall my purpose move!  
+> Thy hand hath loosed my bands of pain,  
+> And bound me with thy love.  
+> Here in thy courts I leave my vow,  
+> And thy rich grace record;  
+> Witness, ye saints, who hear me now,  
+> If I forsake the Lord.  
 
 You said, "If I am ever raised up, and my life is prolonged, it shall be better spent." You said, also, "If I am delivered out of this great trouble, I hope to consecrate my substance more to God." Another time you said, "If the Lord will return to me the light of his countenance, and bring me out of this depressed state of mind, I will praise him more than ever before." Have you remembered all this? Coming here myself so lately from a sick bed, I at this time preach to myself. I only wish I had a better hearer; I would preach to myself in this respect, and say, "I charge thee, my heart, to perform thy vow." Some of us, dear friends, have made vows in time of joy, the season of the birth of the first-born child, the recovery of the wife from sickness, the merciful restoration that we have ourselves received, times of increasing goods, or seasons when the splendor of God's face has been unveiled before our wondering eye. Have we not made vows, like Jacob when he woke up from his wondrous dream, and took the stone which had been his pillow, and poured oil on its top, and made a vow unto the Most High? We have all had our Bethels. Let us remember that God has heard us, and let us perform unto him our vow which our soul made in her time of joy. But I will not try to open the secret pages of your private notebooks. You have had tender passages, which you would not desire me to read aloud; the tears start at their memory. If your life were written, you would say, "Let these not be told; they were only between God and my soul," some chaste and blessed love passages between you and Christ, which must not be revealed to men. Have you forgotten how then you said, "I am my beloved's, and he is mine," and what you promised when you saw all his goodness made to pass before you? I have now to stir up your pure minds by way of remembrance, and bid you present unto the Lord tonight the double offering of your heart's praise and of your performed vow. "O magnify the Lord with me, and let us exalt his name together."
 
@@ -101,7 +101,7 @@ And now, time will fail me, but I must have a few words upon the blessed encoura
 
 Observe, here, that God hears prayer. It is, in some aspects, the lowest form of worship, and yet he accepts it. It is not the worship of heaven, and it is, in a measure, selfish. Praise is superior worship, for it is elevating; it is the utterance of a soul that has received good from God, and is returning its love to him in acknowledgment. Praise has a sublime aspect. Now, observe, if prayer is heard, then praise will be heard too. If the lower form, on weaker wing as it were, reaches the throne of the majesty on high, how much more shall the seraphic wing of praise bear itself into the divine presence. Prayer is heard of God: therefore our praises and vows will be. And this is a very great encouragement, because it seems terrible to pray when you are not heard, and discouraging to praise God if he will not accept it. What would be the use of it? But if prayer and yet more praise be most surely heard, ah, brethren, then let us continue and abide in thanksgiving. "Whoso offereth praise glorifieth me, saith the Lord."
 
-Observe too according to the text, that all prayer, if it be true prayer, is heard of God, for so it is put: "Unto thee shall all flesh come." Oh, how glad I am at that word. My poor prayer, shall God reject it? Yes, I might have feared so if he had said, "Unto thee shall all spirits come." Behold, my brethren, he takes the grosser part as it were, and looks at prayer in his infinite compassion, perceiving it to be what it is, a feeble thing, a cry coming from poor fallen flesh, and yet he puts it, "Unto thee shall all flesh come. My broken prayer, my groaning prayer shall get to thee, though it seems to me a thing of flesh, it is nevertheless wrought in me by thy Spirit. And, O my God, my song, though my voice be hoarse and oftentimes my notes most feeble, shall reach thee. Though I groan because it is so imperfect, yet even that shall come to thee. Prayer, if true, shall be received of God, notwithstanding all its faultiness, through Jesus Christ. Then so it will be with our praises and our vows.
+Observe too according to the text, that all prayer, if it be true prayer, is heard of God, for so it is put: "Unto thee shall all flesh come." Oh, how glad I am at that word. My poor prayer, shall God reject it? Yes, I might have feared so if he had said, "Unto thee shall all spirits come." Behold, my brethren, he takes the grosser part as it were, and looks at prayer in his infinite compassion, perceiving it to be what it is, a feeble thing, a cry coming from poor fallen flesh, and yet he puts it, "Unto thee shall all flesh come." My broken prayer, my groaning prayer shall get to thee, though it seems to me a thing of flesh, it is nevertheless wrought in me by thy Spirit. And, O my God, my song, though my voice be hoarse and oftentimes my notes most feeble, shall reach thee. Though I groan because it is so imperfect, yet even that shall come to thee. Prayer, if true, shall be received of God, notwithstanding all its faultiness, through Jesus Christ. Then so it will be with our praises and our vows.
 
 Again, prayer is always and habitually received of God. "O thou that hearest prayer." Not that didst hear it or on a certain occasion may have heard it, but thou that ever hearest prayer. If he always hears prayer, then he always hears praise. Is not this delightful to think of my praise, though it be but that of a child or a poor unworthy sinner, God does hear it, does accept it, in spite of its imperfections, and does accept it always? Oh, I will have another hymn tomorrow, I will sing a new song tomorrow. I will forget my pain, I will forget for a moment all my care, and if I cannot sing aloud by reason of those that are with me, yet will I set the bells of my heart ringing. I will make my whole soul full of praise. If I cannot let it out of my mouth, I will praise him in my soul, because he always hears me. You know it is hard to do things for one who never accepts what you do. Many a wife has said, "Oh! it is hard. My husband never seems pleased. I have done all I can, but he takes no notice of little deeds of kindness." But how easy it is to serve a person who, when you have done any little thing, says, "How kind it was of you" and thinks much of it. Ah, poor child of God, the Lord thinks much of thy praises, much of thy vows, much of thy prayers. Therefore, be not slack to praise and magnify him unceasingly.
 

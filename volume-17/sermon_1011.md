@@ -21,10 +21,10 @@ And, brethren, there is no period of our life in which it is necessary for us to
 
 But, now, I am compelled to say that the regrets expressed in our text are exceedingly common, and it is only here and there that we meet with a believer who has not had cause to use them. It ought not to be so, but it is so. How grievously often will the pastor hear this among the bleating of the sheep: "Oh that I were as in months past, as in the days when God preserved me:"
 
-> What peaceful hours I then enjoy'd,   
-> How sweet, their memory still;   
-> But they have left an aching void   
-> The world can never fill.   
+> What peaceful hours I then enjoy'd,  
+> How sweet, their memory still;  
+> But they have left an aching void  
+> The world can never fill.  
 
 The commonness of this lamentation may be somewhat accounted for, by the universal tendency to undervalue the present and exaggerate the excellence of the past. Have you never noticed this in natural things? We are prone to cast a partial eye upon some imaginary "good old times." It is gone, and therefore it was good. It is here, and therefore it is dubious. In the middle of summer, we feel that the heat is so taxing that a frost would be the most delightful thing conceivable. We love, we say, the bracing air of winter. We are sure it is much healthier for us; yet, usually, when winter arrives and the extreme cold sets in, we are all most anxious for the advent of spring, and we feel that somehow or other the frost is more trying to us than the heat. Personally, I met with an illustration of this tendency the other day. I went down a steep cliff to the seashore, and during the descent every step tried my weak knees. I felt that going downhill was the most difficult traveling in the world. Soon I had to return from the sands and climb the steep path again. When I began to pant and puff with the difficult ascent, I changed my opinion and felt that I would a great deal sooner go down than come up. The fact is that whatever is with us we think to be the worse, and whatever was with us we conceive to be the better. We may, therefore, take some discount from our regrets. Perhaps were we more conscious of the benefit of the present state, and did we make less prominent the difficulty of it, we should not sigh to be as we were in months past.
 

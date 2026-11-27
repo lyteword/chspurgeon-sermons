@@ -51,7 +51,7 @@ It matters not, dear Brothers and Sisters, what becomes of us poor common soldie
 
 I comforted myself in thus reflecting of our friend who is lately deceased. He was struck, as many of you know, with sudden paralysis and he had lain so some six weeks. If it had pleased God, he might have lain six years or sixteen years and it would have been a very painful thing to see him with life still in the body but with a mind sorely darkened. We are thankful. I feel personally grateful to God that our friend has fallen asleep; that he has escaped from the miseries of this present evil life.
 
-But how much more grateful ought we to be concerning our dear Lord, whom our soul loves! Oh, can you bear to think of Him, that He had not where to lay His head? Who among us would not have left his couch to give Him a night's rest? Yes, and have forsworn the bed forever if we might have given Him soft repose. Would we not, ourselves, have fallen to the hillside and been there all night till our head was wet with dew, if we might have gained rest for Him? He is worth 10,000 of us, and did it not seem as if it were too much for Him to have to suffer: to be homeless and houseless? He was hungry, Brothers and Sisters! He was thirsty! He was weary! He was faint!
+But how much more grateful ought we to be concerning our dear Lord, whom our soul loves! Oh, can you bear to think of Him, that He had not where to lay His head? Who among us would not have left his couch to give Him a night's rest? Yes, and have forsworn the bed forever if we might have given Him soft repose. Would we not, ourselves, have fallen to the hillside and been there all night till our head was wet with dew, if we might have gained rest for Him? He is worth ten thousand of us, and did it not seem as if it were too much for Him to have to suffer: to be homeless and houseless? He was hungry, Brothers and Sisters! He was thirsty! He was weary! He was faint!
 
 He suffered our sicknesses; we are told that He took them upon Himself. Often had He heartache. He knew what "cold mountains and the midnight air" were to chill the body. And He knew what the bleak atmosphere and bitter privation were to freeze the soul. He passed through innumerable griefs and woes. From the first blood-shedding at His birth, down to the last blood-shedding at His death, it seemed as if sorrow had marked Him as her peculiar child. Always was He troubled, tempted, vexed, assailed, assaulted, molested by Satan, by wicked men and by the evils that are without!
 
@@ -95,19 +95,19 @@ I felt that Jesus Christ was really buried, really laid in the earth and has rea
 
 "Come, see the place where the Lord lay," that you may see where you will have to lie unless the Lord should come on a sudden. You may take the measure of that tomb, for that is where you will have to repose. It does us good to remember, if we have great estates, that six feet of earth is all that will ever be our permanent freehold. We shall have to come to it: that solitary mound with two spears' length of level ground:
 
-> Princes, this clay must be your bed,   
-> In spite of all your towers.   
-> The tall, the wise, the reverent head   
-> Must lie as low as ours.   
+> Princes, this clay must be your bed,  
+> In spite of all your towers.  
+> The tall, the wise, the reverent head  
+> Must lie as low as ours.  
 
 There is no discharge in this war. To the dust we must return. So, "Come, see the place where the Lord lay" to see that you must lie there, too.
 
 But then, "Come, see the place where the Lord lay," to see what good company you will have there! That is where Jesus lay: doesn't that comfort you?
 
-> "Why should the Christian fear the day   
-> That lands him in the tomb?   
-> There the dear flesh of Jesus lay,   
-> And left a long perfume."   
+> Why should the Christian fear the day  
+> That lands him in the tomb?  
+> There the dear flesh of Jesus lay,  
+> And left a long perfume.  
 
 What more appropriate chamber for a Prince's son to go to sleep in than the Prince's own tomb? There slept Emmanuel! There, my Body, you may be well content to sleep, too! What more royal couch can you desire than the bosom of that same mother earth where the Savior was laid to rest awhile? Think, Beloved, of the ten thousands of saints that have gone that way to Heaven! Who shall dread to go where all the flock have gone?
 
@@ -119,8 +119,8 @@ I would not care to go to bed in a prison where there stood a turnkey with his i
 
 "Come, see the place where the Lord lay," in order to celebrate the triumph over death. If Miriam sang at the Red Sea, we also may sing at Jesus' tomb. If she said, "Sing unto the Lord, for He has triumphed gloriously," shall not we say the same? If all the hosts of Israel went out with her: the women with dances, and the strong men with their voices in the song, so let all Israel go forth this day and bless and praise the Lord, saying, "O Death, where is your sting? O Grave, where is your victory?" The place where Jesus lay has told us that:
 
-> "Vain the watch, the stone, the seal!   
-> Christ has burst the gates of Hell."   
+> Vain the watch, the stone, the seal!  
+> Christ has burst the gates of Hell.  
 
 Now let us sing unto Him and give Him all the praise.
 

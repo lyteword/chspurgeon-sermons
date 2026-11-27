@@ -19,14 +19,14 @@ When a man works for Christ he should work with all his might. Surely we should 
 
 If I may use the figure, we ought to employ every particle of our steam power. We should drive the engine at high pressure. We have no force that can be allowed to escape in waste. We should not be simply walking to Heaven, but running the heavenly race and running it with diligence and eagerness! When a man truly labors it takes a good deal out of him. Laboring, therefore, implies self-denial. In labor the man's strength is brought forth and expended. See how the hot sweat stands upon his brow, how it pours from him as he continues to exert himself. He has to deny himself, for he would like to be at rest. He sees his comrade, perhaps, lounging against yonder pillar or stretching himself at ease upon the greensward, but he knows he cannot. He lays aside his ease and comfort for the sake of what he has to do.
 
-So would the Church. She would deny herself and take up the cross of high-pressure service. She would toil without cessation and give without stint. An energy far beyond anything usual in Christendom would be common in the Church if she were in a right state of heart. Alas, I fear the bulk of professors are not earnest enough to preserve their professions from ridicule. I noticed the other day a remark which struck me. Speaking of a certain congregation, the writer said he believed there were a hundred persons in it who were worth not less than five thousand pounds a year each, and then he mentioned the sum that was given for the maintenance of the work of God, and he added, "If any ordinary person who was not a Christian went in there and heard them sing;
+So would the Church. She would deny herself and take up the cross of high-pressure service. She would toil without cessation and give without stint. An energy far beyond anything usual in Christendom would be common in the Church if she were in a right state of heart. Alas, I fear the bulk of professors are not earnest enough to preserve their professions from ridicule. I noticed the other day a remark which struck me. Speaking of a certain congregation, the writer said he believed there were a hundred persons in it who were worth not less than five thousand pounds a year each, and then he mentioned the sum that was given for the maintenance of the work of God, and he added, "If any ordinary person who was not a Christian went in there and heard them sing,
 
 > And if I might make some reserve,  
 > And duty did not call,  
 > I love my God with zeal so great,  
 > That I would give him all  
 
-; he would say to himself, 'I was at the theater on Saturday night and saw a farce, but if I need a screaming one I must come here on a Sunday.'"
+he would say to himself, 'I was at the theater on Saturday night and saw a farce, but if I need a screaming one I must come here on a Sunday.'"
 
 Indeed, I thought the remark to be sadly true. When I see how much there is of available strength both in worldly substance, in mental vigor and in other forms in the Church which is never used, I dare hardly say that any Church now upon earth really labors for Christ. A little of your spare strength is given to Jesus and then you think you have done well. He is put off with odds and ends, the cheese parings and the potato peelings of the Church! I ask you, does He get much more? What are the gifts of most? Do they give as much as would keep the lowest menial in their kitchens? It was not so in early times. Then men were Christians all over and altogether, and served Christ first, Christ last, Christ midst, and Christ without end! But now it is enough if we gloss over life with a little varnish of holy talk and pious profession.
 
@@ -52,8 +52,8 @@ There are some who faint in the work of God because the work itself has proven v
 
 Dear friends, if any of you think that the road of Christian service is all level and rolled with a steam roller, you have made a very great mistake, and certainly there is no such road in the service of God! Never was there a truer sentence than that we sung just now:
 
-"True, it is a straight and thorny road,
-And mortal spirits tire and faint."
+> True, it is a straight and thorny road,  
+> And mortal spirits tire and faint.  
 
 Friends were debating the other day concerning the work of the ministry, the ease or the labor of it, and I reminded one of them of that saying of Baxter, "God have mercy upon the man who finds the ministry of the Gospel to be easy work, for he will have need of all God's mercy, indeed, when he renders up his account at the Last Great Day."
 

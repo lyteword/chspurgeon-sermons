@@ -21,10 +21,10 @@ Further than this, the priests and the Levites enjoyed the privilege of drawing 
 
 In like manner there is a people to be found on earth at this day whom God has chosen to draw near unto Him. In Christ Jesus they who sometimes were afar off are made near by the blood of Christ. The same precious blood that is applied to their conscience is sprinkled on the Mercy Seat, and therefore they have access to the Father. Oh, happy are they, who, like the priests and Levites, love dwelling in the Lord's House, and praising Him, who can say:
 
-> "Here, Lord, I find settled rest  
+> Here, Lord, I find settled rest  
 > While others go and come.  
 > No more a stranger or a guest,  
-> But like a child at home."  
+> But like a child at home.  
 
 Lord, You have been our dwelling place in all generations; we are a people near unto You, made near by affinity with the Son of God. We are brought near by the blood, led near by the Spirit of God, kept near, and rejoicing to be near, for here is our honor and comfort, to be near unto God. We are made priests and Levites because we are claimed as God's portion, prepared for God's service, and admitted to a near familiarity with Him. There are some such to be found in this place today, whom God has taken from among the Gentiles to be priests and Levites unto Him.
 
@@ -122,9 +122,9 @@ You, a blasphemer and injurious! You, a careless, godless, Christless man, now r
 
 Be humble, Brother; it will help you to watch. Watching is done best in a lowly manner. And since He has taken us for priests and for Levites, let us do every office heartily as unto the Lord. If others in this world can serve God coldly, yet, my Brothers, you and I cannot afford to do so. We were such sinners that if we have been forgiven, we must love Him. Those that had little sin to be cleansed may not have much love to lavish on their Redeemer. Not so with me or you:
 
-> "Love I most;  
+> Love I most;  
 > I've more forgiven;  
-> I'm a miracle of Grace."  
+> I'm a miracle of Grace.  
 
 Those that had some good principles instilled into them by early training, or some sort of preparation to receive the Gospel may not feel their deep indebtedness to the wonderful working of the Spirit. But those of us who were steeped in sin, and hardened in heart, when we are saved we must magnify the power of God, and moved by that feeling we must serve Him heartily with our whole spirit, soul, and body. A man that feels what Grace has done for him cannot help throwing his whole soul into it.
 

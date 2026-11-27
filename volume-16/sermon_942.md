@@ -103,7 +103,7 @@ Again, let me add, it is a permanent way. Jesus says, "I am the way; not a way f
 
 > His precious blood shall never lose its power,  
 > Till all the ransomed Church of God  
-> Are saved to sin no more.
+> Are saved to sin no more.  
 
 It is a way that never has been broken up, and never will be. All the floods of all His people's sins have never made a swamp or bog-hole in this blessed way.
 
@@ -135,7 +135,10 @@ If you ever take your best virtues and sanctifications and make them a ground of
 
 This is the way to live, the way to live evermore, not only as a beginner, but when you are advanced in Divine Grace; the way to live when you are becoming a mature matron or veteran soldier, and the way when you come to die. It is especially, then, in those last moments, that we fling everything away but just what Christ has done. We might have been troubling ourselves a great deal before about marks, evidences, and so on. But when it comes to the last, we are like the good man who, on his dying bed, tried to pick out what was good and what was bad of his own doings. He said he was a long while judging them, but they were so much of a burden that he at last tied them all up in one bundle and flung them over, and rested on Christ alone. That is the very best thing for us all to do even now:
 
-"None but Jesus, none but Jesus, Can do helpless sinners good." This will not make you unholy but holy. If you believe this, you will seek to honor and glorify God with all your might, and when you have done all, you will feel that you are unprofitable servants. And into His dear arms you will cast yourselves, and pray that the hands that were pierced may still embrace you and keep you safe in death and in eternity.
+> None but Jesus, none but Jesus,  
+> Can do helpless sinners good.  
+
+This will not make you unholy but holy. If you believe this, you will seek to honor and glorify God with all your might, and when you have done all, you will feel that you are unprofitable servants. And into His dear arms you will cast yourselves, and pray that the hands that were pierced may still embrace you and keep you safe in death and in eternity.
 
 Now, the question to finish with is this, "Is Christ my way today?" Oh, I know many of you could rise up and say, "Yes, He is, He is all my salvation and all my desire."
 

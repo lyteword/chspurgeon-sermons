@@ -1,6 +1,6 @@
 # Sermon 1101 | An Old-Fashioned Conversion
 
-> Lo, all these things works God oftentimes with man, To bring back his soul from thepit, to be enlightened with the light of the living.  
+> Lo, all these things works God oftentimes with man, to bring back his soul from the pit, to be enlightened with the light of the living.  
 > Job 33:29,30  
 
 Some people are wonderfully enamored of anything that is old. An old coin, an old picture, an old book, or even a piece of antique rubbish they will almost worship. The jingle of a rusty medal is music to them, and "auld nick-nackets" are as precious as diamonds. It is wonderful what a little mold and a few worm-holes will do in the way of increasing values! I confess I do not very greatly share in the feeling, at least it is no craze of mine but, nevertheless, all things being equal, antiquity has its charms. Old, old stories of the days far past, when time was young, have a special interest. They are as windows which permit us to gaze down the dim aisles of ages long gone by, we look through them with mingled curiosity and awe.
@@ -33,11 +33,14 @@ In this chapter it is God that visits, that speaks, chastens, instructs, enlight
 
 So we have two points in this ancient conversion in which it was just like our own, the same men to be operated upon and the same God to work the miracles of Grace.
 
-The most interesting point to you will probably be the third. The means used to work conversion
+The most interesting point to you will probably be the third. The means used to work conversion in those distant ages were very much the same as those employed now. There were differences in outward agencies, but the inward modus operandi was the same. There was a difference in the instruments, but the way of working was the same. Kindly turn to the chapter, at the fifteenth verse. You find there that God, first of all, spoke to men, but they regarded Him not, and then He spoke to them effectually by means of a dream: "In a dream, in a vision of the night, when deep sleep falls upon men, in slumbering upon the bed."
 
-In those distant ages were very much the same as those employed now. There were differences in outward agencies, but the inward modus operandi was the same. There was a difference in the instruments, but the way of working was the same. Kindly turn to the chapter, at the fifteenth verse. You find there that God, first of all, spoke to men, but they regarded Him not, and then He spoke to them effectually by means of a dream: "In a dream, in a vision of the night, when deep sleep falls upon men, in slumbering upon the bed."
+Now, this was an extraordinary means of Grace, seldom used now. In this the distant ages differ from the present. A dream, though it is, in itself, but the mirage of sleep, may be employed by God to arouse the mind towards eternal things. Dreams of death and judgment to come have frequently had a very alarming effect upon the conscience, while visions of celestial Glory have impressed the heart with desires after infinite bliss. As Dryden says of some men:
 
-Now, this was an extraordinary means of Grace, seldom used now. In this the distant ages differ from the present. A dream, though it is, in itself, but the mirage of sleep, may be employed by God to arouse the mind towards eternal things. Dreams of death and judgment to come have frequently had a very alarming effect upon the conscience, while visions of celestial Glory have impressed the heart with desires after infinite bliss. As Dryden says of some men: "In sleep they fearful precipices tread Or, shipwrecked, labor to some distant shore," so others have in their slumbers shivered at the gates of Hell, or even been tossed upon its fiery waves, and the thoughts consequent upon such dreams have, by God's Grace, occasionally been rendered permanently useful, though I fear it is not often so.
+> In sleep they fearful precipices tread  
+> Or, shipwrecked, labor to some distant shore,  
+
+so others have in their slumbers shivered at the gates of Hell, or even been tossed upon its fiery waves, and the thoughts consequent upon such dreams have, by God's Grace, occasionally been rendered permanently useful, though I fear it is not often so.
 
 In the days of Elihu, however, dreams were much more frequently the way in which God spoke, for there were few messengers from God to interpret His mind, no openly declared Gospel and few assemblies for instruction by hearing the Word. And what is more, there was then no written Word of God. In those early times they had no Inspired books at all, so that, lacking the Bible and lacking the frequent ministrations of God's servants, the Lord was pleased to supply their deficiencies by speaking to men in the visions of the night. I say again, we must not expect the Lord to return to the general use of so feeble an agency now that He employs others which are far more effectual. It is much more profitable for you to have the Word in your houses which you can read at all times and to have God's ministers to proclaim clearly the Gospel of Jesus than it would be to be dependent upon visions of the night!
 

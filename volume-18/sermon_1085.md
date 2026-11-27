@@ -93,9 +93,10 @@ Even though such a man may be in other respects ignorant and weak, yet, if he ha
 
 "Man," she said, "God's Word says it and if the Lord had said that Jonah swallowed the whale, I would have believed Him." Her faith in the veracity of God explained all difficulties and as she was forever settled upon that matter, there was no use in arguing against her. Men call this blind faith but I call it faith with her eyes open looking alone to God! When faith dwells thus deep, the heaviest shells that our foes can hurl from the Krupp guns of their logic are no more injurious to the fortifications of our comfort than so many paper pellets thrown by a schoolboy! No:
 
-"Should all the forms that men devise Assail my soul with treacherous art,
-I'll call them vanity and lies,
-And bind the Gospel to my heart."
+> Should all the forms that men devise  
+> Assail my soul with treacherous art,  
+> I'll call them vanity and lies,  
+> And bind the Gospel to my heart.  
 
 But you must dwell deep to be able to do that, otherwise arguments with skeptics and papists will be your terror; and difficulties will arise which will greatly mar your peace. May you have Grace to dwell so near to God that it shall be impossible for evil insinuations to enter into your spirit! Dwell deep, dear Friends, for there are seasons coming when all your Grace will be needed. I have never heard of a man coming to mischief through having too much Grace. I never heard, yet, of any person falling into danger through living too near to God. Nor do I think most men suffer through being too careful in self-examination or too anxious to be right.
 
@@ -113,6 +114,6 @@ And I will give this other reason. Dwell deep because those who live near to God
 
 The cup that Christ gives has no dregs. It has at its bottom the sweetness of the wines on the lees, well refined. And, O, the inexpressible sweetness when you get to the bottom of all. Where there is no bottom indeed, when you get a drink of eternal joys and never-ending blessings!
 
-While deep living gives a man more happiness, it also endows him with more strength. Some single Christians of my acquaintance are worth 20 ordinary ones because they enter into the very marrow of religion and then impress others with the reality of it. I know at this moment Christian women who are worth 50 ordinary professing women. I would not say the others are not very good, too, in their way, but they are superficial compared with these deep-taught daughters of Zion. O God, if the Church is to be strong it must be through those that dwell deep! And so, Beloved, let me close by saying, dwell deep, for you will glorify God the most. The nearer you get to the sun, the brighter you will be. The nearer you live to Christ, the more like He you will be.
+While deep living gives a man more happiness, it also endows him with more strength. Some single Christians of my acquaintance are worth twenty ordinary ones because they enter into the very marrow of religion and then impress others with the reality of it. I know at this moment Christian women who are worth fifty ordinary professing women. I would not say the others are not very good, too, in their way, but they are superficial compared with these deep-taught daughters of Zion. O God, if the Church is to be strong it must be through those that dwell deep! And so, Beloved, let me close by saying, dwell deep, for you will glorify God the most. The nearer you get to the sun, the brighter you will be. The nearer you live to Christ, the more like He you will be.
 
 Dwell deep, Beloved! Beware of levity in godliness! Beware of superficiality! Beware of skimming! Seek to enjoy the deep, the blessed, the true reality! The Lord grant it to you for His name's sake. But still, let me say to any who have not begun the Divine life, this is not for you just now. I talked to you last night and the night before and you know I bade you come to Christ just as you were. And so I do now, for saving work is coming and touching even the hem of the Redeemer's garment. If you have touched the hem of His garment, do not be satisfied with that! Go on to know Him more and long, like Simeon, to take Him up in your arms, and say, "This Christ is mine. The blessed Christ, mine forever and forever!" God bless you, beloved Friends!

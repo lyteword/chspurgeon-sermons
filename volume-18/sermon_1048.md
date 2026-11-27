@@ -29,7 +29,7 @@ It was a sin-offering, and therefore it was loathsome in God's sight. And the pr
 
 Paul in his Epistle to the Hebrews puts the matter clearly, "For the bodies of those beasts, whose blood is brought into the sanctuary by the high priest for sin, are burned outside the camp. Wherefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate." Outside Jerusalem our Lord was led to the common place of doom for malefactors, for it is written, (and oh, the power of those words, I dare not have uttered them if they had not been inspired), "He was made a curse for us, for it is written, cursed is everyone that hangs on a tree." The blessed Son of God was made a curse for us and put to an accursed death by being hung upon the cross; and all because sin anywhere is hateful to God, and He must treat it with indignation!
 
-The fire of divine Justice fell upon our blessed sin-offering until He was utterly consumed with anguish and He said, "It is finished," and gave up the ghost. Now this is the only way of putting away sin; it is laid upon Another, and that Other is made to suffer as if the sin belonged to Him; and then, since sin cannot be in two places at once and cannot be laid upon Another and rest upon the offerer, too, the offerer becomes clear from all sin! He is pardoned and he is accepted because his Substitute has been slain outside the camp instead of him.
+The fire of divine justice fell upon our blessed sin-offering until He was utterly consumed with anguish and He said, "It is finished," and gave up the ghost. Now this is the only way of putting away sin; it is laid upon Another, and that Other is made to suffer as if the sin belonged to Him; and then, since sin cannot be in two places at once and cannot be laid upon Another and rest upon the offerer, too, the offerer becomes clear from all sin! He is pardoned and he is accepted because his Substitute has been slain outside the camp instead of him.
 
 I have thus introduced to you the first two forms of the sin-offering. It seemed necessary to begin there. The third form of the sin-offering was for a ruler, a person of considerable standing in the camp. There is nothing very remarkable about that third form which needs now detain us. We, therefore, come to the subject in hand. The sin-offering for a common person.
 
@@ -37,7 +37,12 @@ And, here, we will begin our discourse upon the text itself by speaking of the p
 
 If one of the common people sins through ignorance, his sin is a damning sin. He must have it put away or it will put him away forever from the face of God. A common person's sin can only be removed by an atonement of blood. In this case you see the victim was not a bullock; it was a female of the goats or of the sheep, but still it had to be an offering of blood; for without shedding of blood there is no remission. However commonplace your offenses may have been. However insignificant you may be yourself; nothing will cleanse you but the blood of Jesus Christ! That verse is quite correct:
 
-"Could my zeal no respite know, Could my tears forever flow, All for sin could not atone. Christ must save, and Christ alone." It is true the sins of great men cover a larger space, but yet there must be a bloody sacrifice for the smallest offenses. For the sins of a housewife or of a servant, of a peasant, or of a crossing-sweeper, there must be the same sacrifice as for the sins of the greatest and most influential. No other atonement will suffice. The sins of the common people will destroy them unless the blood of Jesus Christ cleanses them. But here is the point of joy: that for the common people there was an atonement ordained of God! Glory be to God! I may be unknown to men, but I am not unthought-of by Him! I may be merely one of the many, but still He has thought of me. As each blade of grass has its own drop of dew, so each guilty soul coming to Christ shall find an atonement for itself in Christ. Blessed be the name of the Lord; it is not written that there is a sacrifice for the great ones of the earth, alone; but for the common people there is a sin-offering so that each man coming to the Savior finds cleansing through His precious blood!
+> Could my zeal no respite know,  
+> Could my tears forever flow,  
+> All for sin could not atone.  
+> Christ must save, and Christ alone.  
+
+It is true the sins of great men cover a larger space, but yet there must be a bloody sacrifice for the smallest offenses. For the sins of a housewife or of a servant, of a peasant, or of a crossing-sweeper, there must be the same sacrifice as for the sins of the greatest and most influential. No other atonement will suffice. The sins of the common people will destroy them unless the blood of Jesus Christ cleanses them. But here is the point of joy: that for the common people there was an atonement ordained of God! Glory be to God! I may be unknown to men, but I am not unthought-of by Him! I may be merely one of the many, but still He has thought of me. As each blade of grass has its own drop of dew, so each guilty soul coming to Christ shall find an atonement for itself in Christ. Blessed be the name of the Lord; it is not written that there is a sacrifice for the great ones of the earth, alone; but for the common people there is a sin-offering so that each man coming to the Savior finds cleansing through His precious blood!
 
 Observe with thankfulness that the sacrifice appointed for the common people was as much accepted as that appointed for the ruler. Of the ruler, it is said, "the priest shall make an atonement for him as concerning his sin, and it shall be forgiven him." The same thing is said of the common person. Christ is as much accepted for the poorest of His people as for the richest of them! He as much saves the unknown as He does the apostolic names of high renown! They need the sacrifice of blood, but they need nothing more; and the blood which pleads before the throne of God speaks as well for the least as it does for the chief of the flock!
 
@@ -79,14 +84,16 @@ Oh, happy is that soul that can see Christ, his sin-offering, as being a savor o
 
 The fourth point is one to which I ask all your heart's attention. I have purposely omitted mentioning why the sacrifice was of the female kind, in order to enlarge upon it now. Please observe that in all four cases there was one thing which was never left out, "He shall lay his hand upon the head of the sin-offering." It was no use killing the bullock. It was no use slaying the heifer. No use pouring out the blood or smearing the horns of the altar unless this was done. The guilty person must come, and must himself lay his hands upon the victim. Oh, that while I speak of this, some of you may lay your hands upon Christ Jesus according to the verse of the poet:
 
-> My faith does lay her hand   
-> On that dear head of Yours, While like a penitent I stand, And there confess my sin.   
+> My faith does lay her hand  
+> On that dear head of Yours,  
+> While like a penitent I stand,  
+> And there confess my sin.  
 
-Now that act of laying on the hand signified confession. It meant just this: "Here I stand as a sinner and confess that I deserve to die. This goat which is now to be slain represents in its sufferings what I deserve of God." O Sinner, confess your sin now unto your great God! Acknowledge that He would be just if He condemned you! Confession of sin is a part of the meaning of laying on of the hand. The next thing that was meant by it was acceptance. The person laying his hand said, "I accept this goat as standing for me. I agree that this victim shall stand instead of me." That is what faith does with Christ; it puts its hand upon the ever-blessed Son of God, and says, "He stands for me, I take Him as my Substitute."
+Now that act of laying on the hand signified confession. It meant just this: "Here I stand as a sinner and confess that I deserve to die. This goat which is now to be slain represents in its sufferings what I deserve of God." O sinner, confess your sin now unto your great God! Acknowledge that He would be just if He condemned you! Confession of sin is a part of the meaning of laying on of the hand. The next thing that was meant by it was acceptance. The person laying his hand said, "I accept this goat as standing for me. I agree that this victim shall stand instead of me." That is what faith does with Christ; it puts its hand upon the ever-blessed Son of God, and says, "He stands for me, I take Him as my Substitute."
 
 The next meaning of it was transference. The sinner standing there confessing, putting his hand on the victim and accepting it, did by that act, say, "I transfer, according to God's ordinance, all my sin which I here confess, from myself to this victim." By that act the transference was made. You know there is a blessed passage which says, "the Lord has laid on Christ the iniquity of us all." From this expression an objection has been raised to that blessed hymn:
 
-"I lay my sins on Jesus."
+> I lay my sins on Jesus.  
 
 Yet I think the expression is quite correct. Cannot both utterances be true? God did lay sin in bulk upon Christ when He laid upon Him the iniquity of us all. But, by an act of faith every individual, in another sense, lays his sins on Jesus, and it is absolutely necessary that each man should so do if he would participate in the substitution.
 
@@ -110,9 +117,17 @@ Now, in those days it was only one sin, the sin confessed, that was forgiven. Bu
 
 But in our Lord Jesus there is real efficacy. There is true atonement. There is real cleansing and whoever believes in Him shall find actual pardon and complete forgiveness at this very moment. What a joy it is to know that:
 
-"The moment a sinner believes And trusts in his crucified God, His pardon at once he receives, Salvation in full through His blood." I delight to believe that of Christ Jesus, Kent's verse is true:
+> The moment a sinner believes  
+> And trusts in his crucified God,  
+> His pardon at once he receives,  
+> Salvation in full through His blood.  
 
-"Here's pardon for transgressions past, It matters not how black their cast, And oh, my Soul, with wonder view, For sins to come here's pardon too."
+I delight to believe that of Christ Jesus, Kent's verse is true:
+
+> Here's pardon for transgressions past,  
+> It matters not how black their cast,  
+> And oh, my soul, with wonder view,  
+> For sins to come here's pardon too.  
 
 Our sins were all laid on Christ in one bulk, and were all put away at one time. Woe unto any man who should have to take his sins upon himself as they come! The blessing is that as our sins are committed they are still laid on Jesus, according to the words of the Psalmist, "Blessed is the man whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the Lord imputes not iniquity, and in whom there is no guile."
 

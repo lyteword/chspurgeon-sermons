@@ -1,4 +1,4 @@
-# Sermon 977 | The Master's Profession—The Disciples' Pursuit
+# Sermon 977 | The Master's Profession: The Disciples' Pursuit
 
 > I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart, I have declared Your faithfulness and Your salvation: I have not concealed Your loving kindness and Your truth from the great congregation.  
 > Psalm 40:9-10  
@@ -115,7 +115,7 @@ Ah, how can any of us bear to think of this if we feel that we are morally respo
 
 When you think of a spirit in despair, cast out forever from the presence of his God and from the glory of His power, may you, friends, be able to say, "Great God, though I understand not Your ways, for Your judgments are a great deep, yet I warned the sinner, I admonished him to lay hold on Christ, and if he perished it was not for want of preaching to or for praying over. My warnings and tears were never spared. I did what was in me to prevent his ruin." Put in that light, we may look at least with some degree of serenity upon the doctrine of divine sovereignty.
 
-I must confess that the sovereignty of God is a great mountain whose top we cannot scale. I often marvel at the coldness with which some men talk of the sovereignty of God, as though it were of small concern whether men were lost or saved. They seem to take these things as easily as if they were only talking of blocks of wood, or fields filled with tares. I do not think that we can equitably plead the divine sovereignty as a counterpart to our futile efforts, till we can say, "I have done all that was possible to bring that soul to God. I have prayed over him and wept over him, and now if he perishes I must believe that this man willfully rejected Christ, that his iniquities are upon his own head, and that in him, as a vessel of wrath, God will get glory as well as in vessels of mercy.
+I must confess that the sovereignty of God is a great mountain whose top we cannot scale. I often marvel at the coldness with which some men talk of the sovereignty of God, as though it were of small concern whether men were lost or saved. They seem to take these things as easily as if they were only talking of blocks of wood, or fields filled with tares. I do not think that we can equitably plead the divine sovereignty as a counterpart to our futile efforts, till we can say, "I have done all that was possible to bring that soul to God. I have prayed over him and wept over him, and now if he perishes I must believe that this man willfully rejected Christ, that his iniquities are upon his own head, and that in him, as a vessel of wrath, God will get glory as well as in vessels of mercy."
 
 The doom of the heathen is a subject in like manner of which it were too painful for any of us to speak unless we can say, "I have, as far as lies in me, sought to do something for them." This is a thing about which we ought not to think with any ease, unless we feel that we would gladly save them, and give them the knowledge of the gospel of Jesus Christ. And to carry out this, our cherished purpose, we will do the best we can. The uprisings of error often cause us dismay. Every now and then we see some old form of error spring up that was stamped out, as we supposed, in the days of our ancestors.
 
@@ -159,8 +159,8 @@ You Sunday school teachers cannot teach any longer, but your Sunday recreations 
 
 I do not say that rewards are given as mere rewards of merit, but this I do assuredly know, there are rewards given in respect of service through the grace of our Lord Jesus Christ, and I pray you seek the prize. So run that you may obtain it. May you be able to say, "While I was down below where service could be done for my master:
 
-> 'In works which perfect saints above,  
-> And holy angels cannot do,'  
+> In works which perfect saints above,  
+> And holy angels cannot do,  
 
 with all my might I labored to excel, and now I enter into the bliss of Him who helped and strengthened me, who revealed His grace in me, and counted me worthy to put me into some part of the ministry of His church."
 

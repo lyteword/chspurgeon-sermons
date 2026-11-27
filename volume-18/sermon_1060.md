@@ -69,10 +69,10 @@ What more would you have? In order that all things might be of God in this matte
 
 It is ours to point to Him and to bear our witness: will you accept our testimony? Truly He is a great God and a Savior! We have trusted in Him and we are not confused. Oh, if the Spirit of God sweetly leads you, now, to say from your heart:
 
-"My faith does lay her hand
-On that dear head of Yours
-While like a penitent I stand,
-And there confess my sin"
+> My faith does lay her hand  
+> On that dear head of Yours  
+> While like a penitent I stand,  
+> And there confess my sin  
 
 it is indeed well with you both for time and eternity. Be of good cheer; your sins, which are many, are forgiven you! Go your way, you are accepted in the Beloved! Your iniquities are blotted out like a cloud; not one of them shall be mentioned against you any more forever! O blessed Spirit of God, out of Your great mercy grant that many and many a heart may lay hold upon the Lord Jesus at this hour!
 
@@ -84,10 +84,10 @@ To meditate much upon the Lamb of God is to occupy your minds with the grandest 
 
 O Wonder and Romance, if men desire you, they may find you here! O Love, if men seek you, here alone, they may behold you! O Wisdom, if men dig for you, here shall they discover your purest ore! O Happiness, if men pine for you, you dwell with the Christ of God and they enjoy you who live in Him. O Lord Jesus, You are all we need!
 
-"Such as find You find such sweetness
-Deep, mysterious and unknown;
-Far above all worldly pleasures,
-If they were to meet in one."
+> Such as find You find such sweetness  
+> Deep, mysterious and unknown;  
+> Far above all worldly pleasures,  
+> If they were to meet in one.  
 
 You may search the heavens above and the earth beneath. You may penetrate the secret mysteries to find out the callow principles and the beginnings of things, but you shall find more in the Man of Nazareth, the equal with God, than in all else besides!
 
@@ -99,8 +99,8 @@ I think I have noticed that Brethren who give all their thoughts to experience a
 
 But when a man takes Christ Jesus crucified to be his mind's main thought, he has all things in one: doctrine, experience and practice combined! As Canaan contained Carmel, and Sharon, and Eshcol, and Hermon, so Jesus comprehends all good things. If "the Lamb of God that takes away the sin of the world" is the object of our thoughts we have wine and milk, butter and honey, the fat of the kidneys, wheat and oil out of the rock, all in one. "A bundle of myrrh is my beloved unto me," "a cluster of camphor in the vineyards of Engedi."
 
-"All human beauties, all Divine
-In my Beloved meet and shine."
+> All human beauties, all Divine  
+> In my Beloved meet and shine.  
 
 Beloved, this, indeed, is the most necessary Subject of contemplation that can be brought before you! You may forget many other things without serious damage, and even upon important matters you may somewhat err and yet be safe; but you must live upon Christ, your souls must meditate on Him, or else you have left the bread from the feast and missed the water from the well! The crucified Savior is as necessary for our meditation as the air is for our breathing. The blood of Jesus is the life-blood of true religion; a bloodless faith is a lifeless faith.
 
@@ -136,4 +136,4 @@ Push on, then, through hosts of enemies, you warriors of the Cross! Fight up the
 
 Now the last thought was to be this. Behold the Lamb of God with reverence. I will not dwell upon it for I have not time. Lift up your eyes and worship Him now. He exists, He is as truly there in Heaven as He was here on earth. Behold Him! Worship Him! Trust Him! Love Him, for be this remembered, He will come before long and that which we shall have to dread if we are unbelievers will be the wrath of the Lamb!
 
-Read through the book of Revelation and you shall find there, I think, more than 20 times the Lord described as a Lamb. The song is the "song of Moses and of the Lamb." Worship is given "unto the Lamb, for He is worthy." He it is that takes the book and looses the seven seals, and it is the Lamb that shall come "to judge the quick and the dead." "Therefore kiss the Son lest He be angry and you perish from the way while His wrath is kindled but a little." Worship Him at this hour for He comes before long! As the Lord lives before whom I stand, He will summon every one of you to His bar. Take heed that He is not an object of terror to you as He will be if you continue in unbelief, but turn unto Him that He may be your joy and gladness in the day of His appearing! Amen.
+Read through the book of Revelation and you shall find there, I think, more than twenty times the Lord described as a Lamb. The song is the "song of Moses and of the Lamb." Worship is given "unto the Lamb, for He is worthy." He it is that takes the book and looses the seven seals, and it is the Lamb that shall come "to judge the quick and the dead." "Therefore kiss the Son lest He be angry and you perish from the way while His wrath is kindled but a little." Worship Him at this hour for He comes before long! As the Lord lives before whom I stand, He will summon every one of you to His bar. Take heed that He is not an object of terror to you as He will be if you continue in unbelief, but turn unto Him that He may be your joy and gladness in the day of His appearing! Amen.

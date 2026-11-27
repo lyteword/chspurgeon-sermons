@@ -23,7 +23,10 @@ Nehemiah, however, felt that if he was alarmed, it was a reason for praying, not
 
 I confess I admire him! I desire, also, to imitate him. I would that every Christian's heart might have just that holy caution that did not permit him to make such haste as to find ill-speed. "Prayer and provender hinder no man's journey." Certainly, when the desire of our heart is close before us, we are anxious to seize it. But we shall be all the surer of getting the bird we spy in the bush to be a bird we grasp in the hand if we quietly pause, lift up our heart and pray the God of Heaven! It is all the more surprising that he should have deliberately prayed just then because he had been already praying for the past three or four months concerning the same matter. Some of us would have said, "That is the thing I have been praying for. Now all I have to do is to take it and use it! Why pray any more? After all, my midnight tears and daily cries, and setting myself apart by fasting to cry unto the God of Heaven. After such an anxious conference, surely, at last, the answer has come! What is to be done but to take the good that God provides me and rejoice in it?"
 
-But no, you will always find that the man who has prayed much is the man who prays more. "For unto everyone that has, shall be given, and he shall have abundance." If you do but know the sweet art of prayer, you are the man that will be often engaged in it. If you are familiar with the Mercy Seat, you will constantly visit it: "For who that knows the power of prayer But wishes to be often there?"
+But no, you will always find that the man who has prayed much is the man who prays more. "For unto everyone that has, shall be given, and he shall have abundance." If you do but know the sweet art of prayer, you are the man that will be often engaged in it. If you are familiar with the Mercy Seat, you will constantly visit it:
+
+> For who that knows the power of prayer  
+> But wishes to be often there?  
 
 Although Nehemiah had been praying all this while, he nevertheless must offer another petition. "So I prayed to the God of Heaven." One thing more is worth remembering, namely that he was in a king's palace and in the palace of a heathen king, too, and he was in the very act of handing up to the king a goblet of wine. He was fulfilling his part in the state festival, I doubt not, among the glare of lamps and the glitter of gold and silver. He was in the midst of princes and peers of the realm. Or even if it were a private festival with the king and queen only, yet still men generally feel so impressed on such occasions with the responsibility of their high position that they are apt to forget prayer.
 
@@ -63,11 +66,16 @@ Besides, this type of prayers actually bring us blessings from Heaven. Brief pra
 
 I believe it is very suitable to some persons of a peculiar temperament who could not pray for a long time to save their lives. Their minds are rapid and quick. Well, time is not an element in the business: God does not hear us because of the length of our prayer, but because of the sincerity of it. Prayer is not to be measured by the yard, nor weighed by the pound. It is the might and force of it. The truth and reality of it. The energy and the intensity of it. You that are either of so little a mind or of so quick a mind that you cannot use many words or continue long to think of one thing, it should be to your comfort that brief prayers are acceptable.
 
-And it may be, dear Friend, that you are in a condition of body in which you cannot pray any other way. A headache such as some people are frequently affected with the major part of their lives. A state of body which only the physician can explain to you. Might prevent the mind from concentrating itself long upon one subject. Then it is refreshing to be able again and again and again, 50 or a hundred times a day, to address one's self to God in short, quick sentences, the soul being all on fire. This is a blessed style of praying!
+And it may be, dear Friend, that you are in a condition of body in which you cannot pray any other way. A headache such as some people are frequently affected with the major part of their lives. A state of body which only the physician can explain to you. Might prevent the mind from concentrating itself long upon one subject. Then it is refreshing to be able again and again and again, fifty or a hundred times a day, to address one's self to God in short, quick sentences, the soul being all on fire. This is a blessed style of praying!
 
 Now, I conclude by mentioning a few of the times when I think we ought to resort to this practice of brief prayer. Mr. Rowland Hill was a remarkable man for the depth of his piety, but when I asked at Wotton-under-Edge for his study, though I rather pressed the question, I did not obtain a satisfactory reply. At length the good minister said, "The fact is, we never found any. Mr. Hill used to study in the garden, in the parlor, in the bedroom, in the streets, in the woods, anywhere." "But where did he retire for prayer?" They said they supposed it was in his chamber, but that he was always praying. That it did not matter where he was, the good old man was always praying! It seemed as if his whole life, though he spent it in the midst of his fellow men doing good, was passed in perpetual prayer!
 
-You know the story of his being in Walworth, at Mr. George Clayton's chapel, and of his being seen in the aisles after everybody was gone, while he was waiting for his coachman. There was the old man toddling up and down the aisles, and as someone listened, he heard him singing to himself: "And when I shall die, receive me I'll cry, For Jesus has loved me, I cannot tell why. But this thing I find, we two are so joined, He won't be in Heaven and leave me behind."
+You know the story of his being in Walworth, at Mr. George Clayton's chapel, and of his being seen in the aisles after everybody was gone, while he was waiting for his coachman. There was the old man toddling up and down the aisles, and as someone listened, he heard him singing to himself:
+
+> And when I shall die, receive me I'll cry,  
+> For Jesus has loved me, I cannot tell why.  
+> But this thing I find, we two are so joined,  
+> He won't be in Heaven and leave me behind.  
 
 And with such rhymes and ditties, and choice words, he would occupy every moment of his life! He has been known to stand in the Blackfriars' road with his hands under his coat tails, looking in a shop window, and if you listened you might soon perceive that he was breathing out his soul before God! He had got into a constant state of prayer! I believe it is the best condition in which a man can be praying always, praying without ceasing, always drawing near to God with these brief prayers.
 
@@ -81,19 +89,22 @@ Breathe a prayer now! Are you anxious to do some good? Be sure to have prayer ov
 
 Pray as long as you live! Pray when you are in great pain. The sharper the pang. The more urgent and importunate should your cry to God be. And when the shadow of death gathers round you and strange feelings flush or chill you, and plainly tell that you near the journey's end, then pray! Oh that is a time for brief prayer! Short and pithy prayers like this: "Hide not Your face from me, O Lord." Or this, "Be not far from me, O God" will doubtless suit you. "Lord Jesus, receive my spirit," were the thrilling words of Stephen in his extremity! And "Father, into Your hands I commend My spirit," were the words that your Master, Himself, uttered just before He bowed His head and gave up the ghost. You may well take up the same strain and imitate Him.
 
-These thoughts and counsels are so exclusively addressed to the saints and faithful Brothers and Sisters in Christ that you will be prone to ask. "Is not there anything to be said to the unconverted?" Well, whatever has been spoken in their hearing may be used by them for their own benefit. Now let me address myself to you as pointedly as I can. Though you are not saved, yet you must not say, "I cannot pray." Why, if prayer is so simple, what excuse can you have for neglecting it? It needs no measurable space of time. Such prayers as these, God will hear, and you have, all of you, the ability and opportunity to think and to express them if you have only that elementary faith in God which believes "that He is, and that He is a rewarder of them that diligently seek Him."
+These thoughts and counsels are so exclusively addressed to the saints and faithful Brothers and Sisters in Christ that you will be prone to ask, "Is not there anything to be said to the unconverted?" Well, whatever has been spoken in their hearing may be used by them for their own benefit. Now let me address myself to you as pointedly as I can. Though you are not saved, yet you must not say, "I cannot pray." Why, if prayer is so simple, what excuse can you have for neglecting it? It needs no measurable space of time. Such prayers as these, God will hear, and you have, all of you, the ability and opportunity to think and to express them if you have only that elementary faith in God which believes "that He is, and that He is a rewarder of them that diligently seek Him."
 
-Cornelius had, I suppose, got about as far as this when he was admonished by the angel to send for Peter, who preached to him peace by Jesus Christ to the conversion of his soul! Is there such a strange being in the Tabernacle as a man or woman that never prays? How shall I expostulate with you? May I steal a passage from a living poet who, though he has contributed nothing to our hymn books, hums a note so suited to my purpose and so pleasant to my ear that I like to quote it: "More things are worked by prayer
+Cornelius had, I suppose, got about as far as this when he was admonished by the angel to send for Peter, who preached to him peace by Jesus Christ to the conversion of his soul! Is there such a strange being in the Tabernacle as a man or woman that never prays? How shall I expostulate with you? May I steal a passage from a living poet who, though he has contributed nothing to our hymn books, hums a note so suited to my purpose and so pleasant to my ear that I like to quote it:
 
-Than this world dreams of.
+> More things are worked by prayer  
+> Than this world dreams of.  
+> Therefore let your voice  
+> Rise like a fountain, flowing night and day!  
+> For what are men better than sheep or goats,  
+> That nourish a blind life within the brain,  
+> If, knowing God, they lift not hands of prayer,  
+> Both for themselves and those who call them friend?  
+> For so the whole round world is every way  
+> Bound by gold chains about the feet of God.  
 
-Therefore let your voice Rise like a fountain, flowing night and day!
-
-For what are men better than sheep or goats, That nourish a blind life within the brain,
-
-If, knowing God, they lift not hands of prayer, Both for themselves and those who call them friend?
-
-For so the whole round world is every way Bound by gold chains about the feet of God." I do not suspect there is a creature here who never prays because people generally pray to somebody or other. The man that never prays to God such prayers as he ought, prays to God such prayers as he ought not! It is an awful thing when a man asks God to damn him, and yet there are persons that do that! Suppose He were to hear you? He is a prayer-hearing God!
+I do not suspect there is a creature here who never prays because people generally pray to somebody or other. The man that never prays to God such prayers as he ought, prays to God such prayers as he ought not! It is an awful thing when a man asks God to damn him, and yet there are persons that do that! Suppose He were to hear you? He is a prayer-hearing God!
 
 If I address one profane swearer here I would like to put this matter clearly to him. Were the Almighty to hear you, if your eyes were blinded and your tongue were struck dumb while you were uttering a wild imprecation. How would you bear the sudden judgment on your impious speech? If some of those prayers of yours were answered for yourself, and if some that you have offered in your passion for your wife and for your child were fulfilled to their hurt and your distraction. What an awful thing it would be!
 

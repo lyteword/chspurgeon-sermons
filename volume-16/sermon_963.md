@@ -83,9 +83,7 @@ Are we well clothed today? The robe of righteousness we wear was worked by Him. 
 
 The old poem of one of our writers sings of the "Man of Ross," and declares that every institution of the town told of his liberality and benevolence: you asked, "Who built this fountain?" or, "Who founded yonder school?" The one answer was, "The Man of Ross." So surely if you ask us concerning our privileges, possessions, hopes, and enjoyments, we trace them all to Him who is the Alpha and Omega of our salvation. He elected, ordained, redeemed, called, established and built up His Church, and to Him, our Lord and King, be praise forever and ever! O children of Zion, be joyful in Him!
 
-Thus I have spoken of the persons who rejoice, and the King in whom they rejoice. We will now remind you,
-
-thirdly, that this joy is permanent in its source. One is very grateful to think that there is beneath the stars one joy which need never be suspended. Everything here below is uncertain. We build, as we fancy, for eternity, and find our fabric demolished in an hour. The brooks of earth are deceitful, but here is a river whose joyous floods no winter can freeze, no summer can dry up. Today our reasons for disquietude are many. You are lovers of the Gospel, and if so, I know that in this age you will see much to distress you. My heart is joyous in Christ, but it is very heavy in many respects, especially concerning the precious interests of the Truth of God and holiness.
+Thus I have spoken of the persons who rejoice, and the King in whom they rejoice. We will now remind you, thirdly, that this joy is permanent in its source. One is very grateful to think that there is beneath the stars one joy which need never be suspended. Everything here below is uncertain. We build, as we fancy, for eternity, and find our fabric demolished in an hour. The brooks of earth are deceitful, but here is a river whose joyous floods no winter can freeze, no summer can dry up. Today our reasons for disquietude are many. You are lovers of the Gospel, and if so, I know that in this age you will see much to distress you. My heart is joyous in Christ, but it is very heavy in many respects, especially concerning the precious interests of the Truth of God and holiness.
 
 Look around us at this time at the numerous misuses of the doctrines of the Gospel among our ministers and leading men. First one and then another, those who seemed to be pillars are shaken like reeds in the storm. A pestilence has gone forth from which few of our Churches are free. Human intellect is adored as an idol, and in its pride it changes the teaching of the Word of God, and sets up new dogmas which the Word of God utterly rejects. If these things depress our spirits, nevertheless let us be of good courage. For if we cannot be joyful in our ministers, we will be joyful in our King!
 
@@ -123,14 +121,14 @@ Sometimes I have heard, and you older men remember an instance right well, that 
 
 Praise His name forever and ever! There is a rejoicing in the nation, too, when the king holds his receptions, when he has reception days, when he displays his majesty to his friends, and when he rides forth in splendor. I hope it is such a day as this with many of us at this time. May you sing this morning in your hearts:
 
-> The King Himself comes near,   
-> And feasts His saints today.   
-> Here we may sit and see Him here,   
-> And love, and praise, and pray.   
-> One day amidst the place   
-> Where my dear God has been,   
-> Is sweeter than ten thousand days   
-> Of pleasurable sin.   
+> The King Himself comes near,  
+> And feasts His saints today.  
+> Here we may sit and see Him here,  
+> And love, and praise, and pray.  
+> One day amidst the place  
+> Where my dear God has been,  
+> Is sweeter than ten thousand days  
+> Of pleasurable sin.  
 
 This afternoon may the King show Himself to you through the lattices, revealing Himself to you in your meditations and private prayers. In your work for Him in the school may you see His glory. May He hold His reception today, and you be presented to Him in love as the attendants of His court, feeling yourselves to be accepted in the Beloved, and partakers of His joy. So you see, though our rejoicing in our King is one perpetual festival, yet we have our high days when the light of the sun is as the light of seven days.
 
