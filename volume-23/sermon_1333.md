@@ -11,7 +11,7 @@ The Lord knows how to bring His people, again, from Bashan, yes, and to lift the
 
 Yes more, in the seventh year they rested according to the Divine precept. "Six years you shall sow your field, and six years you shall prune your vineyard, and gather in the fruit thereof; but in the seventh year shall be a Sabbath of rest unto the land, a Sabbath for the Lord: you shall neither sow your field, nor prune your vineyard." When they were obedient to the Lord's commands, they thus enjoyed a whole year of rest, and were no losers by it, for, no doubt, the seventh fallow year so benefited the land that it brought forth all the more fruit during the other six, so that there was none the less store in their barns.
 
-Over and above this, once in 50 years, when the seventh year came round, they carried out, still further, the Sabbatic idea and the Jubilee Year was a time of peculiar and emphatic rest and festival. For thus had the Lord commanded. "A Jubilee shall that fiftieth year be unto you: you shall not sow, neither reap that which grows of itself in it, nor gather the grapes in it of your vine undressed. For it is the Jubilee; it shall be holy unto you: you shall eat the increase thereof out of the field." So very prominently, even in that somewhat servile and yoke-bearing dispensation, there was brought before the mind of the Israelite the privilege of rest. And those who possessed the inner sight, as Moses did, realized the promise, "My Spirit shall go with you and I will give you rest."
+Over and above this, once in fifty years, when the seventh year came round, they carried out, still further, the Sabbatic idea and the Jubilee Year was a time of peculiar and emphatic rest and festival. For thus had the Lord commanded. "A Jubilee shall that fiftieth year be unto you: you shall not sow, neither reap that which grows of itself in it, nor gather the grapes in it of your vine undressed. For it is the Jubilee; it shall be holy unto you: you shall eat the increase thereof out of the field." So very prominently, even in that somewhat servile and yoke-bearing dispensation, there was brought before the mind of the Israelite the privilege of rest. And those who possessed the inner sight, as Moses did, realized the promise, "My Spirit shall go with you and I will give you rest."
 
 Indeed, Canaan, itself, was intended to be the type of rest. The land that flows with milk and honey, the land of brooks and valleys, the land that the Lord Your God thinks about, the land upon which the eyes of the Lord rest from the beginning of the year even to the end of the year, was meant to be a place where every man should rest under his own vine and fig tree, and look for a yet deeper rest in God. Had they known it, in giving them Canaan, Joshua had given them a fair picture of rest. They did not see through the type so fully as to understand its significance, but, nevertheless, there it was.
 
@@ -60,7 +60,12 @@ These are the steps which I have tried, briefly, to describe. There is a coming 
 
 After this comes a disrobing of everything like care, and the laying aside of all that is earth-born and gross which tends to distract us. And, last of all, there is the resigning of the soul to the peace which the Holy Spirit brings. Which is comparable to reclining upon a soft couch, provided by Him who says to us, "My child, you are very weary; rest in the Lord."
 
-"Long did I toil and knew no earthly rest! Far did I roam and found no certain home! At last I sought them in His sheltering breast Who spreads His arms and bids the weary come. With Him I found a home, a rest Divine! And I since then, am His and He is mine."
+> Long did I toil and knew no earthly rest!  
+> Far did I roam and found no certain home!  
+> At last I sought them in His sheltering breast  
+> Who spreads His arms and bids the weary come.  
+> With Him I found a home, a rest Divine!  
+> And I since then, am His and He is mine.  
 
 Now, let us try and form some idea of the rest, itself, which is bestowed upon us in this royal chamber. First, it is a rest of mind of which the prominent ingredient is a sense of security and calm. A fixed belief in the teachings of the Divine Spirit and in the Gospel which we have received. It is a sense of having grasped the blessings which that Gospel holds out to us and, therefore, a sense of the certainty of our acceptance with God and of our eternal security in Christ Jesus.
 
@@ -75,7 +80,12 @@ Grip the blessings and then understand that having believed that Jesus is the Ch
 Next, this rest is, in another aspect, contentment. Perfect satisfaction with our earthly lot. Ambition spoils rest. The constant greed of avarice puts rest out of the question. The worry, the fret, the fume of accumulating, of desiring more, of impatiently coveting more than God is pleased to give. All this ruins rest. Oh, to say, "The Lord's will be done! Having food and clothing, I am content." "I have learned, in whatever state I am, to be content," and to let ambition, lofty desires, fretfulness and complaining all go and just say, "God has appointed my portion and ordained all my ways. So let it be." This is rest! Put this together with security as to the eternal future and you have gained two very sweet ingredients with which to compose a rest worthy of the sons of God:
 
 > Rest, weary heart,  
-> From all your silent griefs and secret pain, Your profitless regrets and longings vain. Wisdom and love have ordered all the past, All shall be blessedness and light at last! Cast off the cares that have so long oppressed. Rest sweetly, rest!  
+> From all your silent griefs and secret pain,  
+> Your profitless regrets and longings vain.  
+> Wisdom and love have ordered all the past,  
+> All shall be blessedness and light at last!  
+> Cast off the cares that have so long oppressed.  
+> Rest sweetly, rest!  
 
 Next, there is in this rest the idea of immovable confidence. Perfect confidence in God so that when severe trail comes, the soul says, "It is right. I am sure it is right. I cannot see the reason, but I know that the trial is sent in love. I am certain of that." When another trial befalls, child-like confidence in God still says, "It could not be better if God sends two troubles, they are better than one. And if He sends six, they are six times better than one, though they seem six times worse." That confidence says, also, "He will bring me out of it. He never sent me out, yet, upon the sea of tribulation but what He brought me home again! He never sent me to a battle at my own charges yet. He never bade me do a work but what He gave me strength for it! He never called me to suffer but what He sustained me under the pain."
 
@@ -83,7 +93,16 @@ Oh, but this is a blessed thing, to be quite confident that God cannot err, cann
 
 Then, perhaps, mainly, according to the Hebrew, this rest consists in submission, for the Hebrew is, "Be silent to God." That is the word. One of the old versions reads it, "Hold you still before God." This holy silence is illustrated by what we read of Aaron, when his sons died. Before the Lord: "Aaron held his peace." Let your tongue be quiet. Do not murmur. Do not argue. Leave all to God and bow in silence. "My soul is even as a weaned child," said David. He would no longer cry after the warm breasts of comfort. He was weaned at last!
 
-Now, O Lord, Your will is my will. It has been a sharp lesson, but You have taught it to me at last! Before I struggled, but now I acquiesce. Once I quarreled, but now sweetly yield. Let it be as You please. Your will is mine. This, also, is rest: "This is a holier, sweeter rest, Than the lulling rest from pain, And a deeper calm than that which sleep Sheds over heart and brain. It is the soul's surrendered choice, The settling of the will, Lying down gently at the Cross, God's purpose to fulfill."
+Now, O Lord, Your will is my will. It has been a sharp lesson, but You have taught it to me at last! Before I struggled, but now I acquiesce. Once I quarreled, but now sweetly yield. Let it be as You please. Your will is mine. This, also, is rest:
+
+> This is a holier, sweeter rest,  
+> Than the lulling rest from pain,  
+> And a deeper calm than that which sleep  
+> Sheds over heart and brain.  
+> It is the soul's surrendered choice,  
+> The settling of the will,  
+> Lying down gently at the Cross,  
+> God's purpose to fulfill.  
 
 There comes, next, the rest of patient waiting, for that is in the text. What does it say? "Rest in the Lord, and wait patiently for Him." This is to have desires, but to feel that you can waive them and tarry at the Lord's leisure. This is to have wishes, but always to keep them tethered so that they do not go too far. This is to have a will only in subserviency to the wiser and kinder will which rules above, always saying, "Lord, that is what I think I should wish for, but I do not know, for sure, whether it would be good for me or not. Therefore I ask You to deny me if my wishes are wrong. Do not hear my most earnest prayers, my Father, if they should not please You, for I would ask You rather not to hear me than to hear me if I ask amiss.
 
@@ -106,7 +125,12 @@ Now, Beloved, come near to Jesus by a living faith! Hide yourselves in Jesus! En
 Let me tenderly entreat the tempted Believer to tell Jesus all his case and look to Him for that rest which He Himself promised when He said, "Take My yoke upon you and learn of Me, and you shall find rest unto your souls."
 
 > Rest, weary soul!  
-> The penalty is borne, the ransom paid, For all your sins full satisfaction made! Strive not to do yourself what Christ has done, Claim the free gift and make the joy your own. No more by pangs of guilt and fear distress, Rest, sweetly rest!  
+> The penalty is borne, the ransom paid,  
+> For all your sins full satisfaction made!  
+> Strive not to do yourself what Christ has done,  
+> Claim the free gift and make the joy your own.  
+> No more by pangs of guilt and fear distress,  
+> Rest, sweetly rest!  
 
 Although this is obviously the main meaning, we may add that, "Rest in the Lord," means rest in Him as your Covenant God. You have not to deal with an abstract Deity who stands afar off as your offended Creator. Behold, Beloved, if you believe in Jesus, the Lord has entered into an everlasting Covenant with you, ordered in all things and sure! He has said concerning you, "I will not turn away from you to do you good." He has promised to keep you and preserve you and bring you into His eternal Glory by a Covenant signed and sealed with the precious blood of Christ!
 
