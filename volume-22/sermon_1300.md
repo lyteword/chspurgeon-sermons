@@ -31,17 +31,37 @@ Here let us remark that this is not at all inconsistent with the undying nature 
 
 Our new nature is united to the Person of Christ and we live because He lives. We are not kept alive by independent power, but by perpetual renewal from the Lord. This is true of every man living. "None can keep alive his own soul", no, not one. You young people think, perhaps, that old Christians get on better than you do. You imagine that their experience preserves them, but, indeed, they cannot keep their own souls alive anymore than you can! You tried and tempted ones sometimes look with envy upon those who dwell at ease, as though their spirituality was self-supporting! But no, they cannot keep their own souls alive anymore than you can! You know your own difficulties, but you do not know those of others. Rest assured, however, that to all men there are these difficulties and that no man can keep his own soul alive.
 
-This is the Truth of God at all times; at no one moment can we keep ourselves alive. While sitting in this House of Prayer you may dream that assuredly you can keep yourself here, but it is not so. You might sin the foulest of sins in your heart while sitting here! And you might grieve the Holy Spirit and cloud your life for years while worshipping among the people of God. You are not able to keep your own soul alive in your happiest and holiest moments! From your knees you might rise to blaspheme and from the Communion Table you might go to the seat of the scorner if you were left to yourself: "All our strength at once would fail us, If deserted, Lord, by You. Nothing, then, could use us, Certain our defeat would be And those who hate us Their desires would see."
+This is the Truth of God at all times; at no one moment can we keep ourselves alive. While sitting in this House of Prayer you may dream that assuredly you can keep yourself here, but it is not so. You might sin the foulest of sins in your heart while sitting here! And you might grieve the Holy Spirit and cloud your life for years while worshipping among the people of God. You are not able to keep your own soul alive in your happiest and holiest moments! From your knees you might rise to blaspheme and from the Communion Table you might go to the seat of the scorner if you were left to yourself:
 
-I seldom find myself so much in danger as when I have been in close communion with God. After the most ecstatic devotion, one is hardly prepared for the coarse temptations of this wicked world. When we come down, like Moses from the mountain, if we encounter open sin we are apt to grow indignant and break all the commandments in the vehemence of our wrath. The sudden change from the highest and holiest contemplations to the trifles and vexations of earth subjects the soul to so severe a trial that the poet did well say: "We should suspect some danger near When we perceive too much delight." Even when our delight is of a spiritual kind we need to be on our guard after having been filled with it, for then Satan avails himself of the opportunity. We are never safe unless the Lord keeps us.
+> All our strength at once would fail us,  
+> If deserted, Lord, by You.  
+> Nothing, then, could use us,  
+> Certain our defeat would be  
+> And those who hate us  
+> Their desires would see.  
+
+I seldom find myself so much in danger as when I have been in close communion with God. After the most ecstatic devotion, one is hardly prepared for the coarse temptations of this wicked world. When we come down, like Moses from the mountain, if we encounter open sin we are apt to grow indignant and break all the commandments in the vehemence of our wrath. The sudden change from the highest and holiest contemplations to the trifles and vexations of earth subjects the soul to so severe a trial that the poet did well say:
+
+> We should suspect some danger near  
+> When we perceive too much delight.  
+
+Even when our delight is of a spiritual kind we need to be on our guard after having been filled with it, for then Satan avails himself of the opportunity. We are never safe unless the Lord keeps us.
 
 If we could take you, my Brothers and Sisters, and place you in the society of saints. Give you to keep perpetual Sundays, make every meal a sacrament and set you nothing to say or do but what should be directly calculated to promote the glory of God, yet even then you could not keep your own soul alive! Adam in perfection could not keep himself in Paradise! How can his imperfect children be so proud as to rely upon their own steadfastness? Among angels there were those who kept not their first estate. How shall man, then, hope to stand unless he is held up? Why is this? How do we know that our text is true?
 
 We gather arguments from the analogies of Nature. We do not find that we can keep our own bodies alive. We need Divine preservation, or disease and death will deftly make us their prey. We are not self-contained as to this mortal existence, any one of us, no, not for five minutes can we live upon ourselves. Take away the atmospheric air and who could keep himself alive? The heaving lungs need their portion of air and if they cannot be satisfied, man soon becomes a corpse! Deprive us of food, leave us for a week without meat or drink, and see if we can keep our natural body alive. Take away from us the means of warmth in the time when God's cold rules the year and death would soon ensue.
 
-Now, if the physical life is not to be sustained by itself, much less can the higher and spiritual life! It must have food. It must have the Spirit to sustain it. The Scriptures present to us this figure of the body which dies if severed from the vital organs, and of the branch which is dried up if cut off from the stem. Toplady versifies the thought and sings: "Quickened by You, and kept alive, I flourish and bear fruit. My life, I from Your sap derive, My vigor from your root. "I can do nothing without You!
+Now, if the physical life is not to be sustained by itself, much less can the higher and spiritual life! It must have food. It must have the Spirit to sustain it. The Scriptures present to us this figure of the body which dies if severed from the vital organs, and of the branch which is dried up if cut off from the stem. Toplady versifies the thought and sings:
 
-My strength is wholly Yours. Withered and barren should I be If severed from the Vine."
+> Quickened by You, and kept alive,  
+> I flourish and bear fruit.  
+> My life, I from Your sap derive,  
+> My vigor from your root.  
+
+> I can do nothing without You!  
+> My strength is wholly Yours.  
+> Withered and barren should I be  
+> If severed from the Vine.  
 
 Yonder lamp burns well, but its future shining is dependent upon a fresh supply of oil. The ship in rapid motion borrows force from the continuance of the wind, but the sails hang idle if the gale ceases. The river is full to the bank, but if the clouds should never again pour out their floods it would become a dry trail. All things depend on others and the whole upon the Great Supreme! Nothing is self-sustained! Unless God, Himself, sustains it, no being exists. Even immortal souls are only so because He has set His seal upon them and declared that they shall inherit eternal life, or in consequence of sin shall sink into everlasting punishment. Hence we are sure that "none can keep alive his own soul."
 
@@ -108,5 +128,3 @@ I hold it out to you as a good and blessed work to do: will you try to accomplis
 Well, now, he who would look after a sick soul will be sure to care for a sick body! I hope you are not of the same class as the priest in the fable who was entreated by a beggar to give him a crown. "By no means," said the reverend father, "why should I give you a crown?" "Will you give me a shilling, Holy Father?" No, he would not give him a shilling, nor even a penny. "Then," said he, "Holy Father, will you, of your charity, give me a farthing?" No, he would not do anything of the sort. At last the beggar said, "Would not, Your Reverence, be kind enough to give me your blessing?" "Oh yes, my Son, you shall have it at once! Kneel down and receive it." But the man did not kneel down to receive it, for he reasoned that if it had been worth a farthing the "holy father" would not have given it to him. And so he went his way.
 
 Men have enough practical sense to always judge that if professed Christians do not care for their bodily needs, there cannot be much sincerity in their zeal for men's souls. If a man will give me spiritual bread in the form of a tract, but would not give me a piece of bread for my body, how can I think much of him? Let practical help to the poor go with the spiritual help which you render to them! If you would help to keep a Brother's soul alive in the higher sense, be not backward to do it in the more ordinary way. You have an opportunity of proving your sincerity and gratifying your charity, for the boxes will go round at once!
-
-Portion of Scripture read before sermon: Psalm 22. Hymns from "Our Own Hymn Book": 103 (Verse III), 407, 668.
