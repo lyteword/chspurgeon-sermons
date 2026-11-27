@@ -7,7 +7,7 @@ Those words, "being interpreted," salute my ear with much sweetness. Why should 
 
 As I walked along the wharf at Marseilles and marked the ships of all nations gathered in the port, I was very much interested by the inscriptions upon the shops and stores. The announcements of refreshments or of goods to be had within were not only printed in the French language, but in English, in Italian, in German, in Greek and sometimes in Russian and Swedish. Upon the shops of the sail makers, the boat builders, the ironmongers, or the dealers in ship supplies, you read a mixture of announcements setting forth the information to men of many lands. This was a clear indication that persons of all nations were invited to come and purchase, that they were expected to come and that provision was made for their peculiar needs.
 
-"Being interpreted" must mean that different nations are addressed. We have the text put first in the Hebrew, "Emmanuel," and afterwards it is translated into the Gentile tongue, "God with us," "being interpreted, "that we may know that we are invited, that we are welcome, that God has seen our needs and has provided for us, and that now we may freely come, even we who were sinners of the Gentiles and far off from God! Let us preserve with reverent love both forms of the precious name and wait the happy day when our Hebrew brethren shall unite their, "Emmanuel," with our, "God with us."
+"Being interpreted" must mean that different nations are addressed. We have the text put first in the Hebrew, "Emmanuel," and afterwards it is translated into the Gentile tongue, "God with us," "being interpreted," that we may know that we are invited, that we are welcome, that God has seen our needs and has provided for us, and that now we may freely come, even we who were sinners of the Gentiles and far off from God! Let us preserve with reverent love both forms of the precious name and wait the happy day when our Hebrew brethren shall unite their, "Emmanuel," with our, "God with us."
 
 Our text speaks of a name of our Lord Jesus. It is said, "They shall call His name Emmanuel." In these days we call children by names which have no particular meaning. They are the names, perhaps, of father or mother, or some respected relative, but there is no special meaning, as a general rule, in our names. It was not so in the olden times. Then names meant something. Scriptural names, as a general rule, contain teaching and especially is this the case in every name ascribed to the Lord Jesus. With Him names indicate things. "His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of peace," because He really is all these.
 
@@ -25,7 +25,12 @@ But, "God with us," is exquisite delight! "God with us". All that, "God," means,
 
 And this, my brothers and sisters, is worthy, at this day, of your most earnest endeavors to spread the glad tidings! It is worthy of a holy life to illustrate its blessed influences and worthy of a joyful death to prove its consoling power. Here is the first truth of our holy faith: "Without controversy great is the mystery of godliness, God was manifest in the flesh." He who was born at Bethlehem is God, and, "God with us." God. There lies the majesty! "God with us". There lies the mercy. God. There is glory! "God with us". There is grace! God alone might well strike us with terror, but, "God with us," inspires us with hope and confidence!
 
-Take my text as a whole and carry it in your bosoms as a bundle of sweet spices to perfume your hearts with peace and joy. May the Holy Spirit open to you the truth of God and the truth of God to you. I would joyfully say to you in the words of one of our poets: "Veiled in flesh the Godhead see; Hail the Incarnate Deity! Pleased as man with men to appear, Jesus our Immanuel here."
+Take my text as a whole and carry it in your bosoms as a bundle of sweet spices to perfume your hearts with peace and joy. May the Holy Spirit open to you the truth of God and the truth of God to you. I would joyfully say to you in the words of one of our poets:
+
+> Veiled in flesh the Godhead see;  
+> Hail the Incarnate Deity!  
+> Pleased as man with men to appear,  
+> Jesus our Immanuel here.  
 
 First, let us admire this truth of God. Then let us consider it more at length. And after that let us endeavor personally to appropriate it.
 
@@ -59,11 +64,21 @@ God communes with man and man returns to God and receives, again, the divine ima
 
 The Greek particle here used is very forcible and expresses the strongest form of "with." It is not merely, "in company with us," as another Greek word would signify, but "with," "together with" and, "sharing with." This preposition is a close rivet, a firm bond, implying, if not declaring, close fellowship. God is peculiarly and closely "with us." Now, think for a while, and you will see that God has, in very deed, come near to us in very close association. He must have done so, for He has taken upon Himself our nature, literally our nature. Flesh, blood, bone, everything that made a body. Mind, heart, soul, memory, imagination, judgement, everything that makes a rational man.
 
-Christ Jesus was the Man of men, the Second Adam, the model representative Man! Think not of Him as a Deified man any more than you would dare to regard Him as a humanized God, or demigod! Do not confuse the natures nor divide the Person. He is but one Person, yet very Man as He is also very God. Think of this truth, then, and say, "He who sits on the throne is such as I am, sin, alone, excepted." No, 'tis too much for speech, I will not speak of it! It is a theme which masters me, and I fear to utter rash expressions. Turn this truth over and over, and see if it is not sweeter than honey and the honey-comb: "Oh joy! There sits in our flesh, Upon a throne of light, One of a human mother born, In perfect Godhead bright!"
+Christ Jesus was the Man of men, the Second Adam, the model representative Man! Think not of Him as a Deified man any more than you would dare to regard Him as a humanized God, or demigod! Do not confuse the natures nor divide the Person. He is but one Person, yet very Man as He is also very God. Think of this truth, then, and say, "He who sits on the throne is such as I am, sin, alone, excepted." No, 'tis too much for speech, I will not speak of it! It is a theme which masters me, and I fear to utter rash expressions. Turn this truth over and over, and see if it is not sweeter than honey and the honey-comb:
+
+> Oh joy! There sits in our flesh,  
+> Upon a throne of light,  
+> One of a human mother born,  
+> In perfect Godhead bright!  
 
 Being with us in our nature, God was with us in all our pilgrimage. Scarcely can you find a halting place in the march of life at which Jesus has not paused, or a weary league which He has not traversed. From the gate of entrance even to the door which closes way, the footprints of Jesus may be traced. Were you in the cradle? He was there. Were you a child under parental authority? Christ was, also, a Boy in the home at Nazareth. Have you entered upon battle? Your Lord and Master did the same. And though He lived not to old age, yet through incessant toil and suffering He bore the marred visage which attends a battered old age.
 
-Are you alone? So was He, in the wilderness and on the side, and in the gloom. Do you mix in public society? So did He labor in the thickest crowds. Where can you find yourself, on the hilltop, or in the valley, on the land or on the sea, in the daylight or in darkness, where, I say, can you be, without discovering that Jesus has been there before you? What the world has said of her great poet we might with far more truth say of our Redeemer: "A man so various that he seemed to be Not one, but all epitome." One harmonious Man He was, and yet all saintly lives seem to be condensed in His.
+Are you alone? So was He, in the wilderness and on the side, and in the gloom. Do you mix in public society? So did He labor in the thickest crowds. Where can you find yourself, on the hilltop, or in the valley, on the land or on the sea, in the daylight or in darkness, where, I say, can you be, without discovering that Jesus has been there before you? What the world has said of her great poet we might with far more truth say of our Redeemer:
+
+> A man so various that he seemed to be  
+> Not one, but all epitome.  
+
+One harmonious Man He was, and yet all saintly lives seem to be condensed in His.
 
 Two believers may be very unlike each other, and yet both will find that life has in it points of likeness to their own. One shall be rich and another shall be poor. One actively laborious and another patiently suffering, and yet each man, in studying the history of the Savior, shall be able to say. His pathway ran hard by my own. He was made in all points like unto His brethren. How charming is the fact that our Lord is "God with us," not here and there, and now and then, but forever! Especially does this come out with sweetness in His being "God with us" in our sorrows. There is no pang that rends the heart. I might almost say not one which disturbs the body, but what Jesus Christ has been with us in it all.
 
@@ -81,11 +96,19 @@ There are some who object to this view of the case, and I, for one, will not yie
 
 There was anger in the heart of God, as a righteous Judge, against those who broke His holy law, and the reconciliation has a bearing upon the position of the Judge of all the earth as well as upon man. I, for one, shall never cease to say, "O Lord, I will praise You, for though You were angry with me, Your anger is tamed away and You comfort me." God can now be with man and embrace sinners as His children, as He could not have righteously done had not Jesus died. In this sense, and in this sense, only, did Dr. Watts write some of his hymns which have been so fiercely condemned.
 
-I take leave to quote two verses, and to commend them as setting forth a great truth of God if the Lord is viewed as a Judge and represented as the awakened conscience of man rightly perceives Him. Our poet says of the throne of God: "Once 'twas the seat of dreadful wrath, And shot devouring flames.
+I take leave to quote two verses, and to commend them as setting forth a great truth of God if the Lord is viewed as a Judge and represented as the awakened conscience of man rightly perceives Him. Our poet says of the throne of God:
 
-Our God appeared, consuming fire, And Vengeance was His name.
+> Once 'twas the seat of dreadful wrath,  
+> And shot devouring flames.  
+> Our God appeared, consuming fire,  
+> And Vengeance was His name.  
 
-Rich were the drops of Jesus' blood, Which earned His frowning face, Which sprinkled o'er the burning throne, And turned the wrath to grace." So that now Jehovah is not God against us, but "God with us." He has "reconciled us to Himself by the death of His Son."
+> Rich were the drops of Jesus' blood,  
+> Which earned His frowning face,  
+> Which sprinkled o'er the burning throne,  
+> And turned the wrath to grace.  
+
+So that now Jehovah is not God against us, but "God with us." He has "reconciled us to Himself by the death of His Son."
 
 A third meaning of the text, "God with us," is this, God in Christ is with us in blessed communication. That is to say, now He has come so near to us as to enter into commerce with us and this He does, in part, by hallowed conversation. Now He speaks to us and in us. He has, in these last days, spoken to us by His Son and by the divine Spirit with the still small voice of warning, consolation, instruction and direction. Are you not conscious of this? Since your souls have come to know Christ, have you not, also, enjoyed communion with the Most High? Now, like Enoch, you "walk with God," and, like Abraham, you talk with Him as a man talks with his friend.
 
@@ -111,7 +134,7 @@ God sends an Ambassador who inspires no fear, not with helmet and coat of mail, 
 
 Anyone could have come to the Babe in Bethlehem. The horned oxen, I think, ate of the hay on which He slept and feared not. Jesus is the friend of each one of us, sinful and unworthy though we are. You, poor ones, you need not fear to come, for, look, He is born in a stable, and in a manger He is cradled! You have not worse accommodation than His! You are not poorer than He! Come and welcome to the poor Prince, to the peasants' Savior! Stay not back through fear of your unfitness, the shepherds came to Him in all their rags. I read not that they tarried to put on their best garments, but in the clothes in which they wrapped themselves that cold midnight they hastened, just as they were, to the young presence. God looks not at garments, but at hearts, and accepts men when they come to Him with willing spirits, whether they are rich or poor. Come, then! Come, and welcome, for God is, indeed, "God with us."
 
-But, O, let there be no delay about it. It did seem to me, as I turned this subject over yesterday, that for any man to say, "I will not come to God," after God has come to man in such a form as this, were an unpardonable act of treason! Perhaps you knew not love when you sinned as you did. Perhaps, though you persecuted His saints, you did it ig-norantly in unbelief. But, behold your God extends the olive branch of peace to you. He extends it in a wondrous way, for He, Himself, comes here to be born of a woman that He may meet with you who were born of women, too, and save you from your sin!
+But, O, let there be no delay about it. It did seem to me, as I turned this subject over yesterday, that for any man to say, "I will not come to God," after God has come to man in such a form as this, were an unpardonable act of treason! Perhaps you knew not love when you sinned as you did. Perhaps, though you persecuted His saints, you did it ignorantly in unbelief. But, behold your God extends the olive branch of peace to you. He extends it in a wondrous way, for He, Himself, comes here to be born of a woman that He may meet with you who were born of women, too, and save you from your sin!
 
 Will you not listen, now that He speaks by His Son? I can understand that you ask to hear no more of His Words when He speaks with the sound of a trumpet, waxing exceedingly loud and long, from amidst the flaming crags of Sinai. I do not wonder that you are afraid to draw near when the earth rocks and reels before His awful presence! But now He restrains Himself and veils the splendor of His face, and comes to you as a Child of humble bearing, a son. O, if He comes so, will you turn your backs upon Him? Can you spurn Him? What better Ambassador could you desire? This Ambassador of peace is so tenderly, so gently, so kindly, so touchingly put, that surely you cannot have the heart to resist Him?
 
@@ -119,8 +142,6 @@ No, do not turn away, let not your ears refuse the language of His grace, but sa
 
 And now, my brothers and sisters, the last word to you is, let us be with God since God is with us. I give you for a watchword through the year to come, "Emmanuel, God with us." You, the saints redeemed by blood, have a right to all this in its fullest sense. Drink it in and be filled with courage! Do not say, "We can do nothing." Who are you that can do nothing? God is with you! Do not say, "The church is feeble and fallen upon evil times", no, "God is with us." We need the courage of those ancient soldiers who were desirous to regard difficulties only as whetstones upon which to sharpen their swords!
 
-I like talk, when they said there were so many thousands, so many millions, perhaps, of Persians. "Very well," says he, "it is good reaping where the corn is thick. One butcher is not afraid of a thousand sheep." I like even the talk of the old Gascon, who said when they asked him, "Can you and your troops get into that fortress? It is impregnable." "Can the sun enter it?" He asked. "Yes." "Well, where the sun can go, we can enter." Whatever is possible or whatever is impossible, Christians can do at command, for God is with us! Do you not see that the word, "God with us," puts impossibility out of all existence? Hearts that could never be broken will be broken if God is with us!
+I like talk, when they said there were so many thousands, so many millions, perhaps, of Persians. "Very well," says he, "it is good reaping where the corn is thick. One butcher is not afraid of a thousand sheep." I like even the talk of the old Gascon, who said when they asked him, "Can you and your troops get into that fortress? It is impregnable." "Can the sun enter it?" he asked. "Yes." "Well, where the sun can go, we can enter." Whatever is possible or whatever is impossible, Christians can do at command, for God is with us! Do you not see that the word, "God with us," puts impossibility out of all existence? Hearts that could never be broken will be broken if God is with us!
 
 Errors which never could be confuted can be overthrown by, "God with us." Things impossible with men are possible with God! John Wesley died with that upon his tongue, and let us live with it upon our hearts: "The best of all is God with us." Blessed Son of God, we thank You that You have brought us that Word. Amen.
-
-Portion of Scripture read before sermon: Hebrews 1. Hymns from "Our Own Hymn Book": 249, 256 (VERS. 3, 4), 260.
