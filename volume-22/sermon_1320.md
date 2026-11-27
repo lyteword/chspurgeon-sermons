@@ -21,33 +21,35 @@ Observe the majesty of the speech, too, steeped as the speaker was in misery. Yo
 
 No, mark how His piercing eyes see yet further; He beholds and describes the day when He shall sit upon the Throne of Judgment and summon all men to His bar. When He who was, then, the weary Man before His foes should alarm the ungodly by the appearance of His Countenance, so that they would call to the mountains to fall upon them and to the rocks to hide them from His face! He speaks as if conscious of the majesty that would be upon Him in that dreadful day and yet, at the same time, pitiful towards those who, by their sins, were bringing upon themselves so terrible a doom! He says, in effect, "Weep for those concerning whom it would have been better that they had never been born, and for whom annihilation would be a consummation devoutly to be wished."
 
-He dries up the tears which were flowing for Himself, that the women may draw up the sluices of their souls and let the torrents of their grief flow forth for impenitent sinners who will be filled with unutterable dismay at His Second Coming. May the Holy Spirit help me while handling this awful subject! The text very readily divides itself into two parts. The one may be headed, "Weep not.''" The other, "Weep." The first is, "Weep not," or what the Savior suggested. The second is, "Weep," or what the Savior commanded.
+He dries up the tears which were flowing for Himself, that the women may draw up the sluices of their souls and let the torrents of their grief flow forth for impenitent sinners who will be filled with unutterable dismay at His Second Coming. May the Holy Spirit help me while handling this awful subject! The text very readily divides itself into two parts. The one may be headed, "Weep not." The other, "Weep." The first is, "Weep not," or what the Savior suggested. The second is, "Weep," or what the Savior commanded.
 
 He said to the weeping women, "weep not." There are some cold, calculating expositors who make it out that our Lord reproved these women for weeping and that there was something wrong, or, if not altogether wrong, yet something very far from commendable in their sorrow. I think they call it, "the sentimental sympathy," of these kind souls. There is no being much more unnatural than a cold-blooded commentator who bites at every letter and nibbles at the grammatical meaning of every syllable, translating with his lexicon, but never exercising common sense, or allowing even the least play to his heart.
 
 Blame these women? No! Bless them again and again! It was the one redeeming trait in the dread march along the Via Dolorosa! Let it not be dreamed that Jesus could have censured those who wept for Him! No! No! No: a thousand times, No! These gentle women appear in a happy contrast to the chief priests with their savage malice, and to the thoughtless multitude with their fierce cry of, "Crucify Him, crucify Him!" They seem, to me, to have shown a noble courage in daring to express their sympathy with One whom everybody else hunted to death with such ferocity. To espouse His cause amid those hoarse cries of, "Crucify Him, crucify Him," was courage more than manly! Those women were heroines more valiant than those who rush upon the spoil. Those lamentations, in sympathy with Him who was being led to die, are worthy of our praise and not of our criticism!
 
-Our Lord accepted the sympathy they evinced and it was only His great disinterested unselfishness which made Him say, "Spare your griefs for other sorrows." It was not because they were wrong, but because there was something still more necessary to be done than even to weep for Him. I do not think we erred when we sang just now: "A moment give loose to grief,
+Our Lord accepted the sympathy they evinced and it was only His great disinterested unselfishness which made Him say, "Spare your griefs for other sorrows." It was not because they were wrong, but because there was something still more necessary to be done than even to weep for Him. I do not think we erred when we sang just now:
 
-Let grateful sorrows rise,
+> A moment give loose to grief,  
+> Let grateful sorrows rise,  
+> And wash the bloody stains away with torrents from your eyes.  
 
-And wash the bloody stains away with torrents from your eyes." Have we not all felt it to be a gracious exercise to sing in unison that almost dirge: "Oh come and mourn with me awhile;
+Have we not all felt it to be a gracious exercise to sing in unison that almost dirge:
 
-Oh come to the Savior's side;
+> Oh come and mourn with me awhile;  
+> Oh come to the Savior's side;  
+> Oh come, together let us mourn:  
+> Jesus, our Lord, is crucified.  
+> Have we no tears to shed for Him,  
+> While soldiers scoff and Jews deride?  
+> Ah! Look how patiently He hangs;  
+> Jesus, our Lord, is crucified.  
 
-Oh come, together let us mourn:
+Who among us, for words like these, can blame Dr. Watts and others when they sing:
 
-Jesus, our Lord, is crucified.
-
-Have we no tears to shed for Him,
-
-While soldiers scoff and Jews deride?
-
-Ah! Look how patiently He hangs;
-
-Jesus, our Lord, is crucified"?
-
-Who among us, for words like these, can blame Dr. Watts and others when they sing: "Thus might I hide my blushing face, While His dear Cross appears, Dissolve my heart in thankfulness, And melt my eyes to tears"?
+> Thus might I hide my blushing face,  
+> While His dear Cross appears,  
+> Dissolve my heart in thankfulness,  
+> And melt my eyes to tears.  
 
 There can be nothing ill about the weeping of these women and, therefore, let us proceed to say, first, that their sorrow was legitimate and well-grounded. There was reason for their weeping! They saw Him suffering, friendless and hunted to death; they could not but bewail Him!
 
@@ -77,27 +79,28 @@ Yes, and thus you may wrap yourself up in the belief that you are under the infl
 
 To weep over a dying Savior is to lament the remedy: it were wiser to bewail the disease. To weep over the dying Savior is to wet the surgeon's knife with tears: it were better to bewail that spreading polyp which that knife must cut away! To weep over the Lord Jesus as He goes to the Cross is to weep over that which is the subject of the highest joy that ever Heaven and earth have known! Your tears are scarcely needed there, they are natural, but a deeper wisdom will make you brush them all away and chant with joy His victory over death and the grave! If we must continue our sad emotions, let us lament that we should have broken the Law which He thus painfully vindicated. Let us mourn that we should have incurred the penalty which He, even to the death, was made to endure.
 
-Jesus wished them not so much to look at His outward sufferings as at the secret inward cause of that outward sorrow, namely, the transgression and the iniquity of His people which had laid the Cross upon His shoulders and surrounded Him with enemies! As I quoted, just now, certain verses which led us to lament our Lord, let me propose to you as better, still, those words of Watts: 
-'Twas you, my sins, my cruel sins, 
-His chief tormentors were! 
-Each of my crimes became a nail, 
-And unbelief the spear. 
-'Twas you that pulled the vengeance down upon His guiltless head: 
-Break, break, my heart, oh burst my eyes! 
-And let my sorrows bleed. 
-Strike, mighty Grace, my flinty soul, 
-Till melting waters flow, 
-And deep repentance drowns my eyes in sorrow and in woe. 
+Jesus wished them not so much to look at His outward sufferings as at the secret inward cause of that outward sorrow, namely, the transgression and the iniquity of His people which had laid the Cross upon His shoulders and surrounded Him with enemies! As I quoted, just now, certain verses which led us to lament our Lord, let me propose to you as better, still, those words of Watts:
+
+> 'Twas you, my sins, my cruel sins,  
+> His chief tormentors were!  
+> Each of my crimes became a nail,  
+> And unbelief the spear.  
+> 'Twas you that pulled the vengeance down upon His guiltless head:  
+> Break, break, my heart, oh burst my eyes!  
+> And let my sorrows bleed.  
+> Strike, mighty Grace, my flinty soul,  
+> Till melting waters flow,  
+> And deep repentance drowns my eyes in sorrow and in woe.  
 
 Now we pass on from, "Weep not," to, "weep." May God the Holy Spirit help us to dwell upon that for a while with profit to our souls. Though Jesus stops one channel for tears, he opens another and a wider one. Let us look to it. First, when He said, "Weep for yourselves," He meant that they were to lament and bewail the sin which had brought Him where He was, seeing He had come to suffer for it. And He would have them weep because that sin would bring them and their children into yet deeper woe.
 
 You know that just before He uttered this remarkable saying, the husbands, the fathers and the sons of those women had been crying with loud voices, "Let Him be crucified," and when Pilate had taken water and washed his hands to show that he was innocent of the blood of Jesus, they had imprecated upon their nation, and upon their unborn sons, the curse which follows from such a deed. "Then answered all the people, His blood be on us and on our children." And though these women lamented and mourned, yet over their heads, the men who had spoken for the nation had gathered the thunder cloud of Divine Wrath! Jesus points to it and says, "Weep for the national sin, weep for the national curse which will surely come upon you, because you are putting the Just One to death."
 
-Yes, deeper, still, was His meaning, for all those about Him were, in a sense, guilty of His death. And you, and I, and all the rest of mankind have been, in our measure, the cause of the Savior's Crucifixion. Oh, Brothers and Sisters, this is the reason why we should weep: because we have broken the Divine Law and rendered it impossible that we should be saved except Jesus Christ should die! If we have not believed in Jesus Christ, we have this cause for lamentation: that our sin abides upon us at this present moment! That curse which crushed the Savior down till He cried, Eloi, Eloi, lama Sa-bachthani, is resting upon some who are here this morning!
+Yes, deeper, still, was His meaning, for all those about Him were, in a sense, guilty of His death. And you, and I, and all the rest of mankind have been, in our measure, the cause of the Savior's Crucifixion. Oh, Brothers and Sisters, this is the reason why we should weep: because we have broken the Divine Law and rendered it impossible that we should be saved except Jesus Christ should die! If we have not believed in Jesus Christ, we have this cause for lamentation: that our sin abides upon us at this present moment! That curse which crushed the Savior down till He cried, Eloi, Eloi, lama sabachthani, is resting upon some who are here this morning!
 
 Souls, you need not pity the dying Christ, but pity yourselves! On your own selves your sin is resting! And your children growing up unconverted, hardened in rebellion against God by your example; their sin is resting upon them, too, and this is the overflowing cause why you should weep! And you Believers, you from whom sin has been lifted, who are forgiven for His name's sake, yet lament that you should have sinned, and with your joy for pardoned guilt mourn that Christ had to carry the burden which you heaped together and to bear the penalty which you deserved! All round, Brothers and Sisters, there is abounding cause for sorrow for sin: a sweet sorrow from the Lord's people and a bitter sorrow from those who have no part nor lot in the result of Christ's passion as yet, but who, nevertheless, are partakers in the crime which slew the Son of God!
 
-1 beg you, now, to look again into the reason why our Lord bade them weep. It was, first, for their sin, but it was next for the impending punishment of their sins. The punishment of the national sin of the Jew was to be the scattering of his nation and the total destruction of its holy city! And well does our Savior speak of it in terrible language, for under all Heaven and in all history there never was such a scene of misery as the siege and destruction of Jerusalem! I need not give you any outline of it because you must be familiar with that painful subject where every horror seems to be combined in one and exaggerated to the utmost! Nothing has ever surpassed it! I question if anything ever equaled it.
+I beg you, now, to look again into the reason why our Lord bade them weep. It was, first, for their sin, but it was next for the impending punishment of their sins. The punishment of the national sin of the Jew was to be the scattering of his nation and the total destruction of its holy city! And well does our Savior speak of it in terrible language, for under all Heaven and in all history there never was such a scene of misery as the siege and destruction of Jerusalem! I need not give you any outline of it because you must be familiar with that painful subject where every horror seems to be combined in one and exaggerated to the utmost! Nothing has ever surpassed it! I question if anything ever equaled it.
 
 But our Lord, as I have hinted, looked further than the Roman sword and the massacre of the Jews. Often, in His preaching, you do not know whether He is talking of the siege of Jerusalem or of the Judgment Day, for the one was on His mind such a foreshadowing, rehearsal and type of the other, so that in His language He often seemed to melt the two into one. He means to you and to me, this morning, to speak, not of besieged Jerusalem, but of that Day of Wrath, that dreadful day: what man among us shall be able to abide its coming? There is surely cause enough for weeping, for when that day comes it will find some men in such a state that it would have been better for them that they had never been born!
 
@@ -121,12 +124,10 @@ The great God has good designs in their punishment, but they are strangers to an
 
 The torments of the lost will be self-inflicted, they are suicides to their souls, the venom in their veins is self-created and self-injected. They torment themselves with sin to which they cleave, but it pleased the Father to bruise the Son, but the necessity for His bruising lay not in Himself, but in others. Now, dear Friends, I think I have said enough on this painful matter to assure you that the most terrible warning to impenitent men in all the world is the death of Christ. For if God spared not His own Son, on whom was only laid imputed sin, will He spare sinners whose sins are actual and their own? If He smote Him to the death who only stood in the sinner's place, will He let the impenitent sinner go free? If He who always did His Father's will and was obedient even unto death, must be forsaken of God, what will become of those who reject Christ and live and die enemies to the Most High?
 
-Here is cause for weeping! And, very solemnly would I say it, God help me to say it so that you may feel it: the most dreadful thought is that perhaps we, ourselves, are in the condition of guiltiness before God and are hastening on to the judgment which Christ has foretold! Oh, think if within the next six months, no, stretch it as far as you like, if within the next 50 years some of us should be asking the hills to cover us and wishing that we never had been born? What an awful prospect! And yet, unless we are renewed in heart and made Believers in Jesus Christ, that certainly must be our doom! Think of your children, too, who are growing up about you, capable of understanding and responsible for their actions. Oh, if they live as they now live, and die as they now are, you may wish they had never been given to you and had never borne your name! Think of this and weep!
+Here is cause for weeping! And, very solemnly would I say it, God help me to say it so that you may feel it: the most dreadful thought is that perhaps we, ourselves, are in the condition of guiltiness before God and are hastening on to the judgment which Christ has foretold! Oh, think if within the next six months, no, stretch it as far as you like, if within the next fifty years some of us should be asking the hills to cover us and wishing that we never had been born? What an awful prospect! And yet, unless we are renewed in heart and made Believers in Jesus Christ, that certainly must be our doom! Think of your children, too, who are growing up about you, capable of understanding and responsible for their actions. Oh, if they live as they now live, and die as they now are, you may wish they had never been given to you and had never borne your name! Think of this and weep!
 
 Dear Friends, if the Lord would put you into a right state of heart, you would scarcely think of an unconverted person's condition without the deepest pity. You would not hear an oath in the street without the tear starting in your eyes! That was a dreadful spectacle which I pictured to you just now; our Lord bearing His Cross and the women weeping. But how much more awful is that before me! I see a soul carrying about itself the instrument of its own destruction and going onward with it to its doom! Sin is the cross to which the soul will be fastened and habits and depravities are the nails! The soul is bearing its sin and loving to bear it! Look, it is going to execution, but at each step it laughs! Every step it takes is bearing it towards Hell and yet it makes mirth! Lo, the infatuated one scoffs at the voice that warns him and every scoff he utters is increasing his guilt!
 
 Look forward to his end, its never-ending end! Look forward to it steadily, with calm and tearful gaze: is it not an awful spectacle? But what if you should be beholding yourselves as in a vision, or seeing your child in the glass of prophecy! If it is your case, I beseech you, repent of your sins, bewail your condition and fly to Christ for shelter! And if it is your child, give Heaven no rest! Plead continually at the Throne of Grace till you have brought down a blessing from God upon your offspring! Never cease to pray until your sons and your daughters are safely landed on the Rock of Ages and so secured there that they will need no other rock to hide them in the day when Christ shall come.
 
 I beseech you, beloved Christian Friends, ask for tenderness towards sinners, towards all sinners, and let your tenderness be shown in fervent prayer, in incessant effort and in holy sympathy towards the wandering ones. Alas, I have but stuttered and stammered compared with the manner in which I hoped to have spoken! I may have failed in expressing myself, but God can bless the word none the less! The subject is worthy of an angel's tongue! It needs Christ, Himself, to expound it completely. Would God He might, by His Spirit, expound it to your hearts in the leisure of this afternoon. Amen.
-
-Portion of Scripture read before sermon: Luke 23:1-31. Hymns from "Our Own Hymn Book": 178, 265, 312.
