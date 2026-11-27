@@ -25,7 +25,7 @@ We are with the Lord in this life in a high spiritual sense. Read you not, in th
 
 It is essential to salvation to be a sheep of Christ's fold. No, more. A partaker of Christ's life, a member of His mystical body, a branch of the spiritual vine! Separated from Him we are spiritually dead. He Himself has said, "If a man abides not in Me, he is cast forth as a branch and is withered. And men gather them and cast them into the fire and they are burned." Jesus is not far from any of His people. No, it is our privilege to follow Him wherever He goes, and His loving words to us are, "Abide in Me, and I in you." May He enable us sweetly to realize this! We are, dear Brothers and Sisters, constantly with Christ in the sense of abiding union with Him, for we are joined unto the Lord and are one spirit.
 
-Sometimes this union is very sweetly apparent to ourselves." We know that we are in Him that is true," and in consequence we feel an intense joy, even Christ's own joy fulfilled in us! For the same reason we are at times bowed down with intense sorrow, for being in and with Christ, we have fellowship with Him in His sufferings, being made conformable with His death. This is such sweet sorrow that the more we experience it, the better:
+Sometimes this union is very sweetly apparent to ourselves. "We know that we are in Him that is true," and in consequence we feel an intense joy, even Christ's own joy fulfilled in us! For the same reason we are at times bowed down with intense sorrow, for being in and with Christ, we have fellowship with Him in His sufferings, being made conformable with His death. This is such sweet sorrow that the more we experience it, the better:
 
 > Live or die, or work or suffer,  
 > Let my weary soul abide,  
@@ -46,7 +46,12 @@ He is with us by the continued indwelling of the Holy Spirit who is with us and 
 
 Has He not often fulfilled His promise, "Where two or three are gathered together in My name, there am I in the midst of them?" We have heard the sound of our Master's feet behind us when we have been going on His errands. We have felt the touch of His hands when we have come to the forefront of the battle for His sake. And we have known that He dwells in us by His Spirit and is with us by the power with which He has attended our work, and the deeds which He has worked by the Gospel which we have proclaimed. The Lord Jesus is with His Church in her tribulation for His name's sake and He will forever be so, for He forsakes not His saints. "Fear not, I am with you," is as much a word of the Lord under the Gospel as in Old Testament times. By the power of His blessed Spirit Jesus abides with us and through this present dispensation He enables us to be "forever with the Lord."
 
-But, my Brethren, the time is coming when we shall die unless the Lord shall descend from Heaven with a shout in the meanwhile. Assuredly in the article of death we shall still be with the Lord: "Death may my soul divide From this abode of clay But love shall keep me near Your side Through all the gloomy way."
+But, my Brethren, the time is coming when we shall die unless the Lord shall descend from Heaven with a shout in the meanwhile. Assuredly in the article of death we shall still be with the Lord:
+
+> Death may my soul divide  
+> From this abode of clay  
+> But love shall keep me near Your side  
+> Through all the gloomy way.  
 
 "Yes, though I walk through the valley of the shadow of death, I will fear no evil; for You are with me; Your rod and Your staff they comfort me." This makes dying such wonderful work to the people of God, for then, especially, is Jesus seen to be near! By death they escape from death, and from now on it is no more death for them to die! When Jesus meets His saints, there seems no iron gate to pass through, but in a moment they close their eyes on earth and open them in Glory!
 
@@ -64,7 +69,12 @@ Oh, think of it! Amidst the terror of the tremendous Day you shall be at ease, r
 
 He shall reign, but it will be "before His ancients gloriously." We shall be partakers in the splendors of the latter days, whatever they may be, and, "So shall we be forever with the Lord." The particular incident of the text does not exhaust the words, but you may apply them to the whole story of God's own children. From the first day of the spiritual birth of the Lord's immortals until they are received up into the seventh Heaven to dwell with God, their history may be summed up in these words, "So shall we be forever with the Lord." Whether caught up into the clouds or here below on this poor afflicted earth, whether in Paradise or in the renovated earth, in the grave or in Glory. We shall always be with the Lord!
 
-And when comes the end and God alone shall reign and the mediatorial kingdom shall cease, ages, ages and ages shall revolve, but "so shall we be forever with the Lord." The saints immortal shall be with their Covenant Head, free from sorrow. All tendency to sin, all fear of change or death shall be gone! And their intimate communion will last on forever: "Blessed state! Beyond conception! Who its vast delights can tell? May it be my blissful portion, With my Savior there to dwell."
+And when comes the end and God alone shall reign and the mediatorial kingdom shall cease, ages, ages and ages shall revolve, but "so shall we be forever with the Lord." The saints immortal shall be with their Covenant Head, free from sorrow. All tendency to sin, all fear of change or death shall be gone! And their intimate communion will last on forever:
+
+> Blessed state! Beyond conception!  
+> Who its vast delights can tell?  
+> May it be my blissful portion,  
+> With my Savior there to dwell.  
 
 I think the text looks like a continuation of what is already begun, only rising to something higher and better. To be with Christ is life eternal. This we have already and shall continue to have and: "so shall we be forever with the Lord."
 
@@ -76,7 +86,7 @@ Know you not, Brothers and Sisters, that flesh and blood cannot inherit the king
 
 And now let us consider this glorious condition to which we shall be advanced. We shall be with the Lord in the strongest possible meaning of that language. So with Him that we shall never mind earthly things again, shall have no more to go into city business, or into the workshop, or into the field. We shall have nothing to do but to be engaged forever with Him in such occupations as shall have no tendency to take us off from communion with Him. We shall be so with Him as to have no sin to becloud our view of Him! Our understanding will be delivered from all the injury which sin has worked in it and we shall know Him even as we are known. We shall see Him as a familiar Friend and sit with Him at His marriage feast. We shall be with Him so as to have no fear of His ever being grieved and hiding His face from us again.
 
-We shall never again be made to cry out in bitterness of spirit, "Oh, that I knew where I might find Him." We shall always know His love, always return it and always swim in the full stream of it, enjoying it to the fullest! There will be no lukewarmness to mar our fellowship. He shall never have to say to us, "I would you were either cold or hot." There shall be no weariness to suspend our ceaseless bliss. We shall never have to cease from fellowship with Him because our physical frame is exhausted through the excessive joy of our heart. The vessel will be strengthened to hold the new wine. No doubts shall intrude into our rest, neither doctrinal doubts nor doubts about our interest in Him, for we shall be so consciously with Him as to have risen 10,000 leagues above that gloomy state.
+We shall never again be made to cry out in bitterness of spirit, "Oh, that I knew where I might find Him." We shall always know His love, always return it and always swim in the full stream of it, enjoying it to the fullest! There will be no lukewarmness to mar our fellowship. He shall never have to say to us, "I would you were either cold or hot." There shall be no weariness to suspend our ceaseless bliss. We shall never have to cease from fellowship with Him because our physical frame is exhausted through the excessive joy of our heart. The vessel will be strengthened to hold the new wine. No doubts shall intrude into our rest, neither doctrinal doubts nor doubts about our interest in Him, for we shall be so consciously with Him as to have risen ten thousand leagues above that gloomy state.
 
 We shall know that He is ours, for His left hand shall be under our head and His right hand shall embrace us and we shall be with Him beyond all hazard of ever losing Him. The chief blessedness seems, to me, to lie in this, that we will always are with Him and with Him always. Now we are with the Lord in conscious enjoyment, sometimes, but then we are away from Him. But there it will be constant, unwavering fellowship! No break shall ever occur in the intimate communion of the saints with Christ. Here we know that our high days and bright Sabbaths with their sweetest joys, must have their eventides and then come the work-days with the burden of the week upon them. But there the Sabbath is eternal, the worship endless, the praise unceasing, the bliss unbounded. "Forever with the Lord."
 
@@ -86,22 +96,28 @@ But remember these are only the fruits, not the root of the joy. Jesus is better
 
 I must leave you to muse your souls into it, for it needs quiet thought and room for free indulgence of holy imagination till you make your soul dream of this excess of joy. "Eye has not seen, nor ear heard, neither have entered into the heart of man, the things which God has prepared for them that love Him. But God has revealed them unto us by His Spirit."
 
-"O glorious hour! O blessed abode!
+> O glorious hour! O blessed abode!  
+> I shall be near and like my God.  
+> And flesh and sin no more control  
+> The sacred pleasures of my soul.  
 
-I shall be near and like my God.
-
-And flesh and sin no more control The sacred pleasures of my soul." We love to think of being with Jesus under the aspect which the text specially suggests to us. We are to be forever with the Redeemer, not only as Jesus the Savior, but as the Lord. Here we have seen Him on the Cross and lived thereby. We are with Him now in His Cross-bearing and shame and it is well, but our eternal companionship with Him will enable us to rejoice in Him as the Lord. What did our Master say in His blessed prayer? "I will that they, also, whom You have given Me, be with Me where I am; that they may behold My Glory."
+We love to think of being with Jesus under the aspect which the text specially suggests to us. We are to be forever with the Redeemer, not only as Jesus the Savior, but as the Lord. Here we have seen Him on the Cross and lived thereby. We are with Him now in His Cross-bearing and shame and it is well, but our eternal companionship with Him will enable us to rejoice in Him as the Lord. What did our Master say in His blessed prayer? "I will that they, also, whom You have given Me, be with Me where I am; that they may behold My Glory."
 
 It will be Heaven for us to be forever with Him as the Lord! Oh, how we shall delight to obey Him as our Lord! How we shall triumph as we see what a Lord He is over all the universe! And what a conqueror He is over all His enemies! He will be more and more the Lord to us as we see all things put under Him. We shall forever hail Him as King of kings and Lord of lords. How we will adore Him, there, when we see Him in His Glory! We worship Him, now, and are not ashamed to believe that the Man of Nazareth is, "very God of very God." But oh, how His Deity will shine upon us with infinite brightness when we come to be near Him! Thanks be to His name, we shall be strengthened to endure the sight and we shall rejoice to see ourselves in the full blaze of His glory!
 
-Then shall we see what our poet endeavored to describe when he said: "Adoring saints around Him stand,
+Then shall we see what our poet endeavored to describe when he said:
 
-And thrones and powers before Him fall!
+> Adoring saints around Him stand,  
+> And thrones and powers before Him fall!  
+> The God shines gracious through the Mian,  
+> And sheds sweet glories on them all.  
 
-The God shines gracious through the Mian, And sheds sweet glories on them all." We shall be forever with the Lord and His Lordship shall be most upon our minds! He has been raised into Glory and honor and is no more able to suffer shame!
+We shall be forever with the Lord and His Lordship shall be most upon our minds! He has been raised into Glory and honor and is no more able to suffer shame!
 
 > No more the bloody spear,  
-> The Cross and nails no more! For Hell itself shakes at His word, And all the heavens adore.  
+> The Cross and nails no more!  
+> For Hell itself shakes at His word,  
+> And all the heavens adore.  
 
 Now we come to our third point and shall consider what, for lack of a better word, I entitle a coherence. Those who are acquainted with the Greek language know that the, "with," here, is not meta, which signifies being in the same place with a person, but one which goes much further and implies a coherence. The two who are with each other are intimately connected. Let me show you what I mean.
 
@@ -125,7 +141,12 @@ What is Heaven? It is the place which His love suggested, which His genius inven
 
 That seems, to me, to be the very life and essence of the text. With Him forever. That is, identified with Him forever. Do they ask for the Shepherd? They cannot behold Him to perfection except as surrounded by His sheep! Will the King be illustrious? How can that be if His subjects are lost? Do they ask for the Bridegroom? They cannot imagine Him in the fullness of joy without His bride! Will the Head be blessed? It could not be if it were separated from the members. Will Christ be forever glorified? How can He be if He shall lose His jewels? He is the Foundation and what would He be if all His people were not built upon Him into the similitude of a palace?
 
-O Brothers and Sisters, there shall be no Christ without Christians! There shall be no Savior without the saved ones! There shall be no Elder Brother without the younger brethren! There shall be no Redeemer without His redeemed! We are His fullness and He must have us with Him. We are identified with Him forever! Nothing can ever divide us from Him. Oh, joy, joy forever! Hallelujah! "Since Christ and we are one, Why should we doubt or fear? If He in Heaven has fixed His Throne, He'll fix His members there."
+O Brothers and Sisters, there shall be no Christ without Christians! There shall be no Savior without the saved ones! There shall be no Elder Brother without the younger brethren! There shall be no Redeemer without His redeemed! We are His fullness and He must have us with Him. We are identified with Him forever! Nothing can ever divide us from Him. Oh, joy, joy forever! Hallelujah!
+
+> Since Christ and we are one,  
+> Why should we doubt or fear?  
+> If He in Heaven has fixed His Throne,  
+> He'll fix His members there.  
 
 Two or three practical sentences. One word is this. This, "with the Lord" must begin now. Do you wish to be forever with the Lord? You must be with Him by becoming His disciple in this life. None come to be with the Lord hereafter who are not with the Lord here in time. See to it, dear Hearers, see to it, lest this unspeakable privilege should never be yours. Next, every Christian should seek to be more and more with Christ, for the growth and glory of your life lies there. Do you want to have Heaven below? Be with Christ below! Do you want to know, at once, what eternal bliss is? Know it by living with the Lord now.
 
